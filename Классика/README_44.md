@@ -1,3 +1,57 @@
+###  Публикация: 997078   (873566) от 17.03.2016
+
+Marin Marais - Jordi Savall - Le Concert Des Nations – Alcione, Suite Des Airs A Jouer 1706 (2000) [FLAC|Lossless|tracks] <Classical, Baroque>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture  03:43
+02. Marche Pour Les Bergers Et Bergeres  01:33
+03. Air Pour Les Faunes Et Les Driades  01:03
+04. Menuet Pour Les Bergers Et Bergeres  01:52(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B583B3176A4959BC73C43AC0EF68D0E5F74BB812
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997689   (873770) от 17.03.2016
+
+Hermitage String Trio - Mozart - Divertimento in E flat major, KV 563 - Preludes and Fugues (2011) [FLAC|Lossless|tracks] <Classical, Chamber Music>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Preludes and Fugues after Bach, KV 404a 
+1 	Largo
+Wolfgang Amadeus Mozart 	Hermitage String Trio  03:41
+2 	Fuga. Allegro(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A243D2360A0E5FD04390911D6A9327849336EA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997382   (873844) от 17.03.2016
 
 Epoca Barocca - Christoph Schaffrath - 2 альбома (2006, 2010) [FLAC|Lossless|tracks] <Classical, Chamber Music>
@@ -634,60 +688,6 @@ Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D54406315BFA59DDA781E79A963E17BE704ED7B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995235   (885735) от 10.03.2016
-
-George Frideric Handel - The Masterworks (40 CD) (2004) [MP3|320 кб/с] <classical>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jephtha Part 1
-ORATORIO IN THREE ACTS HWV 70
-1. Ouverture
-2. Menuet(   Читать дальше...   )Жанр: classicalПродолжительность: 38:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECBF42A73ACF17891879180258B6B31A4D1DE0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995200   (885866) от 10.03.2016
-
-Tchaikovsky - Sym No. 4, No. 5, No. 6 (Mravinsky, Leningrad Symphony Orchestra) (1960) 2013, Pristine Audio [FLAC|48/24|WEB-DL|tracks] <Classical, Orchestral>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S #4 - I. Andante sostenuto (19:03)
-02. II. Andantino in modo di canzone (9:25)
-03. III. Scherzo  Allegro (5:54)
-04. IV. Finale  Allegro con fuoco (8:16)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 02:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CC84DAD02B1524FB2925282D58317EC964D4AA
 ```
 
 

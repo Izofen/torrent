@@ -1,3 +1,57 @@
+###  Публикация: 1365324   (932244) от 06.03.2020
+
+VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Fourkis - Funky Feelings (Afro Mix) [06:19]
+02. Raul Soto Inaky Garcia - You Are the One (Jack n Brothas Remix) [06:50]
+03. Teejay Walton Gina Glover - Rescue Me (Nikos Diamantopoulos Remix) [06:48]
+04. Walterino Plastik Guys - Aje-Ajo (Plastik Guys Remix) [05:35](   Читать дальше...   )Жанр: House, Afro HouseПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939AEBD77421F156D5770DDE7162546BB4CA9973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365105   (932249) от 06.03.2020
+
+VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey Warriors - In Your Face (Radio Edit) [03:07]
+02. SRNDR - Sandstorm (Radio Edit) [02:37]
+03. Phun and Key - System Crash (Radio Edit) [03:05]
+04. Whitemaxx - Let's Do the Sh..! (Short Mix) [02:57](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365112   (932336) от 06.03.2020
 
 VA - Urban Sports Music, Vol. 2 (2019) [MP3|320 Kbps] <House, Progressive House>
@@ -638,60 +692,6 @@ Lisa Gerrard - The Black Opal (2009) [FLAC|Lossless]<Ambient>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093312   (933954) от 15.01.2017
-
-Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Frequency (original Intro) (4:34)
- 02. Alphard (original mix) (7:04)
- 03. Spaceship (original mix) (8:33)
- 04. Bamboo Forest (original mix) (7:32)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093454   (933961) от 15.01.2017
-
-VA - Neon Electronic Chillout Lounge (Shades Of Erotic Ibiza Moments & Cafe Relaxation Love Selection) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Automatic Sound Pilot - Walking Into Silence (German Turbo Mix)  3:55
-02.  Brian Rosso - Fake Love (RNB Hot & Sweaty Mix)  4:24
-03.  Luna del Torro - Shape You (No Singer Songwriter Mix)  5:17
-04.  Pattern Mixer - Sex At The Beach (ONS Relaxation Mix)  4:06(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA7893709580349C1846CB1D94BCFDBA4BB4B58
 ```
 
 

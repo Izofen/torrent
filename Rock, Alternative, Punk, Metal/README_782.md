@@ -1,3 +1,30 @@
+###  Публикация: 1560082   (520805) от 29.06.2022
+
+Victorius - Dinosaur Warfare Pt. 2 - The Great Ninja War (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saurus Invictus Lazerus
+02. Victorious Dinogods
+03. Mighty Magic Mammoth
+04. Jurassic Jetfighters(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806ABDC86C947A49DD03C01B65A5DBDEEAD7C4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533879   (520854) от 12.08.2012
 
 Dead Can Dance - Anastasis (2012) [FLAC|Lossless]<Ambient, Ethereal>
@@ -692,33 +719,6 @@ Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928583   (521792) от 17.08.2015
-
-Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Trick Bag
-2. I Ain't Fattenin' No More Frogs For Snakes
-3. Cold Biscuits And Fish Heads
-4. Stone Age Man(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5896553E39676A2882CB894666A8BA99629534
 ```
 
 

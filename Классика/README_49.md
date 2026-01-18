@@ -1,3 +1,57 @@
+###  Публикация: 987342   (927592) от 16.02.2016
+
+Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaze no densetsu  03:33
+02. Tani he no michi  02:41
+03. Tori no hito  03:54
+04. Dream  03:02(   Читать дальше...   )Жанр: Score, ClassicalПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F792ED8535591D101D4FF176FC6FBE7983D203
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986694   (928904) от 15.02.2016
+
+Chopin - Piano Concertos nos. 1 & 2 (2005) Davidovich, Marriner - LSO [FLAC|Lossless|tracks]<Classical, Concerto, Romanticism, Классическая музыка>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto no. 1 in E minor, op. 11
+01 (1) Allegro maestoso
+02 (2) Romance: Larghetto
+03 (3) Rondo: VivaceЖанр: Classical, Concerto, Romanticism, Классическая музыкаПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B3FA292282BA5BCB2B56BFA1FAA28C240EFD2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093892   (932082) от 16.01.2017
 
 Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Chamber Music>
@@ -652,60 +706,6 @@ Sempre Libera - второй сольный альбом оперной дивы
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857972   (951595) от 09.01.2015
-
-Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal (1966) remastering 2003/[FLAC|Lossless]<Chamber>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рампаль с большой любовью относился к камерной музыке. В 1945 году он основал Французский Духовой Квинтет, а в 1953 — Парижский Барокко-Ансамбль.01. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 I.Allegro (02:52)
-02. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 II.Largo (02:09)
-03. Flute Concerto, Opus 10 no.1 in F major 'La tempesta di mare', RV.433 III.Presto (02:14)
-04. Flute Concerto, Opus 10 no.2 in G minor 'La Notte', RV.439 I.Largo (02:02)(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A159E35BDA364DC3B49B3EC29EF8F4CC2BCE3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088962   (953584) от 02.01.2017
-
-Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фредерик Шопен — Nocturnes / Ноктюрны (1994) [APE|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturne № 1 b-moll Op 9/1
-02. Nocturne № 2 Es-Dur Op 9/2
-03. Nocturne № 4 F-Dur Op 15/1
-04. Nocturne № 5 Fis-Dur Op 15/2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
 ```
 
 

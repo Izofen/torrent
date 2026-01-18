@@ -1,3 +1,30 @@
+###  Публикация: 928583   (521792) от 17.08.2015
+
+Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Trick Bag
+2. I Ain't Fattenin' No More Frogs For Snakes
+3. Cold Biscuits And Fish Heads
+4. Stone Age Man(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5896553E39676A2882CB894666A8BA99629534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557223   (521856) от 28.06.2022
 
 Виталий Дубинин (Dubinin, Ария) - Бал-Маскарад (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Heavy Metal>
@@ -668,33 +695,6 @@ Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928599   (522542) от 16.08.2015
-
-Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River Deep, Mountain High
-02. I Gotcha
-03. In the Midnight Hour
-04. (Your Love Keeps Lifting Me) Higher and Higher(   Читать дальше...   )Жанр: Rock, Soul, BluesПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
 ```
 
 

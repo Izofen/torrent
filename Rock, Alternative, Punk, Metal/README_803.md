@@ -1,3 +1,57 @@
+###  Публикация: 1049011   (544923) от 04.09.2016
+
+Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Чёрный ангел (Black Angel)
+03. Страх (Fear)
+04. Патриот (Patriot)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD50F226AFC523A80766967B1E99196210FFD21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048959   (544924) от 04.09.2016
+
+Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiery Thorns
+02. Hollow Souls
+03. Whenever Dark Draws Near
+04. Erased of Empathy(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D43A1CD0CC0D18644A3314D1BE7C43AAB0EECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049013   (544967) от 04.09.2016
 
 F.R.A.M. - Двери апреля (2010) [FLAC|Lossless|image + .cue] <Folk Metal>
@@ -638,60 +692,6 @@ Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F611F51611E72D1B3AE8B4460FF1525B35E8F079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048472   (545858) от 03.09.2016
-
-Eternal Suffering - Echo Of Lost Words (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Her Scars Are Mine 04:01
-2. The Death In Your Eyes 02:51
-3. In Silence 03:00
-4. The Forever Curse 03:13(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C41DAD7B7BC1B34F2905EBE280963D67C4CB343
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048909   (545862) от 03.09.2016
-
-Ancient Skin - Nobis Quoque Peccatoribus (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobis Quoque Peccatoribus
-02. In principio
-03. My Grave
-04. Persistenza della memoria(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E02DFAD4394E41A810A24C47BAFA06E1F36FDE5
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1556153   (561647) от 08.06.2022
+
+Stone Witch - Desert Oracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Curse (00:06:00)
+02 - Void of Form (00:04:54)
+03 - Wizard's Smoke (00:05:30)
+04 - The Ark (00:03:45)(   Читать дальше...   )Жанр: Hard, Desert, Stoner RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FD55401518AB9EB0946198164152E79D76EBBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556226   (561654) от 08.06.2022
+
+Crobot - Feel This (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electrified (00:04:00)
+02 - Dizzy (00:03:32)
+03 - Set You Free (00:03:31)
+04 - Better Times (00:03:33)(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6260C3F256A61BA513C7C3FED351B58DE0299A42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556267   (561656) от 08.06.2022
 
 Hexing - Welcome To Salem (2022) [FLAC|Lossless|tracks] <Thrash Metal>
@@ -641,58 +695,6 @@ Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21251C44DB3D3CFBE1BFFB600D56CC97625B4891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555990   (563238) от 07.06.2022
-
-Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slut Machine (00:03:26)
-02 - Line of Fire (00:03:31)
-03 - Riot in Hell (00:03:09)
-04 - Suicide (00:05:10)(   Читать дальше...   )Жанр: Hard Rock, SleazeПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FAC8582324828A1C37E4B62D2A4F0A894C9C6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556038   (563239) от 07.06.2022
-
-Sinister - Syncretism (2017) 2CD [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:13:57
-01. Unhallowed Blood 13:57Жанр: Death MetalПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BE38986EDD2694C2E0FB1EF4A143FE3FE1B7BB
 ```
 
 

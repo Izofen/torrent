@@ -1,3 +1,30 @@
+###  Публикация: 1363102   (944932) от 26.02.2020
+
+VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944932.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Luther Vandross  -  Any Love (Single Mix)
+002.  Peabo Bryson  -  Closer Than Close
+003.  Earth, Wind & Fire  -  That's The Way Of The World
+004.  The Isley Brothers  -  Between The Sheets(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091027   (944974) от 08.01.2017
 
 VA - Top 100 DJs Alive Sound (2017) [MP3|320 Kbps] <Tech Trance, Electro, Dutch, Progressive>
@@ -677,33 +704,6 @@ VA - Freezing Trance Mix: 100 Hit January (2017) [MP3|320 Kbps] <Trance, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B8D6AB2BD47070EFDED8AB0D26009A629EE68C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090529   (946147) от 07.01.2017
-
-VA - Dancehall Sun Hits 2017 [MP3|320 Kbps] <Modern Dancehall, Music Reggae, Bhangragga>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foxy Myller - Dangerous 03:21
-02. Dj Gil Feat. Jmax - Kay La 02:44
-03. Were-Vana - Papa 03:55
-04. Soukeyna - Tite Sur 03:02(   Читать дальше...   )Жанр: Modern Dancehall, Music Reggae, BhangraggaПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CA658FC4EB360C63E31CF76A4333A0A4A4D779
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1237281   (552232) от 23.07.2018
+
+VA - Reggaeton Hits (2018) [MP3|320 Kbps] <Latin, Hip-House, Salsa>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family Dejavu - Si Tu Quieres (Original Mix) 3:26
+02. Ruddy Norona - Ensename (Original Mix) 3:31
+03. Big Yamo, Area 3 - Cuando Nadie Nos Ve (Original Mix) 3:29
+04. Lester - Apretaita (Original Mix) 3:21(   Читать дальше...   )Жанр: Latin, Hip-House, SalsaПродолжительность: 01:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8E717016EBC2D62BB6F6EB156499E2E68E1A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309279   (552234) от 18.06.2019
 
 VA - Tropicana Hall (2019) [MP3|320 Kbps] <Dancehall>
@@ -671,33 +698,6 @@ VA - Летний заводной музон - 10 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D994492883F1339B46CC767DE10DBD4C1F19028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046182   (553118) от 26.08.2016
-
-VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zhu - Hometown Girl
-002. Stereo Isterika - Кит
-003. Delyno & Remakeit - Passion
-004. Медойти - Поймав Мелодию(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C1D4EC3C4FED92A7821F0940790A403D0BB450
 ```
 
 

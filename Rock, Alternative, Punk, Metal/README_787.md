@@ -1,3 +1,57 @@
+###  Публикация: 371292   (524987) от 03.08.2011
+
+Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassical>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kauan - проект, основанный Антоном Беловым (Helengard, inea) в феврале 2005 года. Само слово Kauan с финского переводится как «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали folk doom metal. Проект концентрирует внимание на передаче состояния и атмосферы. Каждая песня написана как результат процесса, запечатлевающего и передающего (   Читать дальше...   )01. Tahtien Hiljainen Laulu (14:58)
+02. Kauniin Kuun Savelen (08:23)
+03. Ikuinen Junan Kulku (11:14)
+04. Suora Liila Sydankayra (11:49)Жанр: Doom Metal, Post-Rock, NeoclassicalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157482   (525179) от 12.08.2017
+
+Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Season Of The Black (4:56)
+02. Serpents In Disguise (4:13)
+03. Blackened Karma (4:40)
+04. Time Will Tell (5:05)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECDFAAC24E5303F45FCBF063327E861C07913B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157267   (525490) от 11.08.2017
 
 Мумий Тролль - Отв. за Романтику (2017) Single [MP3|320 Kbps] <Rock>
@@ -638,60 +692,6 @@ Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D60AB75EA84B4F04BD3D86ED1A421E6DDE8162D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559133   (527196) от 24.06.2022
-
-Pater Tenebrarum - Of Gods and Madmen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Witch (00:02:24)
-02 - Red Angel (00:04:28)
-03 - Ego (00:05:39)
-04 - Wargod Urthan (00:05:56)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FEA0E9C46D004122128A6317080188BC094BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559110   (527224) от 24.06.2022
-
-Nordicwinter - Threnody (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Moon
-02. Enshrined In Ice
-03. Unto Dark Winds
-04. Ancient Prophecies(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7706191CF94E6F5FF8365A738A6B7FDFE2C83138
 ```
 
 

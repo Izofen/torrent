@@ -1,3 +1,53 @@
+###  Публикация: 232709   (822360) от 09.05.2020
+
+Single Cell Orchestra - Discography 10 Releases (1995-2020) Asphodel, Cyberset, Astralwerks [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Electro, Downtempo, IDM, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Waves (07:42)
+ 02. The Storm Inside (07:12)
+ 03. Strictly (08:57)Тип издания: CD, WebЖанр: Ambient/IDM/DowntempoПродолжительность: 09:22:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4578FFFA20ECBEB9A61D13B93943E595DA58A73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147885   (822375) от 09.05.2020
+
+Glanko - Discography 10 Releases (2012-2020) Halbsicht Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Industrial, Downtempo, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orvot (06:42)Тип издания: WEBЖанр: IDMПродолжительность: 05:11:48 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6936BAF670AAA4768ABC4DF93576C7B422C8C66B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196701   (822403) от 03.01.2018
 
 Karl Maddison - On the Road to Tibet (2006) [FLAC|Lossless|image + .cue] <New Age, Relax, Meditative>
@@ -647,60 +697,6 @@ VA - Progressive Line Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A7B45AA7C497ACC884DD6F8A70E7B83C8971803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007007   (823646) от 14.04.2016
-
-VA - Progressive Line (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Voices - Heart of Asia 06:15
-02. Aer0 - F Ing Jumpers 03:12
-03. Aer0 - Pump It Up! 03:41
-04. Alexandr Zavesa - Lo Squalo 03:33(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768E2E4369E44106C7A9555CBB6AA3A8CD0CD4C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196300   (823888) от 02.01.2018
-
-Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Dub House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like It Or Not (6:20)
- 02. Talk (6:49)
- 03. Before I Fall (3:59)
- 04. Too Much Is Never Enough (5:25)(   Читать дальше...   )Жанр: Deep House, Downtempo, Dub HouseПродолжительность: 01:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
 ```
 
 

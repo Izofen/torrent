@@ -1,3 +1,57 @@
+###  Публикация: 1198402   (804504) от 13.01.2018
+
+VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Side  -  Final Word  3:15
+02.  Momylove  -  Bedroom Nine  2:39
+03.  Vintage Bullet  -  Club 80  2:40
+04.  Roben Bucks  -  Shallow  2:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9652C668B7B411B1A5F870DCBB042894EEE74089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198408   (804505) от 13.01.2018
+
+VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Lounge Pearls) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Butler  -  The Good Old Times (Original Mix)  3:39
+02.  Casablanca Project  -  Mystic Vibraphone (Original Mix)  2:15
+03.  Artur Bayramgalin  -  Just Say Goodbye (Original Mix)  4:20
+04.  Breezz Studio  -  Mantra (feat. Alina Aminova) (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1B14AFB2D944456BB4EF8814914C5CED1F62BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198410   (804513) от 13.01.2018
 
 VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -633,60 +687,6 @@ Mr.Kitty - Time (2014) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0592DC29264157267DBAE38C5ADC2297E908DE34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942641   (807722) от 17.05.2020
-
-Riz Maslen (Neotropic, Small Fish with Spine) - Discography 20 Releases (1996-2019) [FLAC|Lossless]<Leftfield, IDM, Breaks, Downtempo, Ambient, Acoustic, Folk, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Make Very Good Sushi (01:40)
- 02. Fung Koo (04:37)
- 03. Opium Den (feat. Paul Jason Fredericks) (05:22)
- 04. Foul Play (04:49)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Abstract/Downtempo/Experimental/AmbientПродолжительность: 14:05:29 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42C85505E379EB4DB9ECE88FF35436B5348C657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009734   (807969) от 22.04.2016
-
-Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplex - Катапульта (Ivanov Club Mix) (6:00)
-02. Miguel - Бумеранг (Original Mix) (6:39)
-03. Motor - Written To John (Remix) (4:52)
-04. Triplex - Погружение (Ivanov Club Mix) (5:41)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 360448   (579912) от 08.07.2011
+
+VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
+02. Ava Mea - In The End (Original Mix) (9:25)
+03. Jarah Damial - Incognata (Original Mix) (9:06)
+04. Rihanna - S & M (Dave Aude Club) (7:28)
+05. Calvin West - Children (5:32)
+06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
+07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
+08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
+09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
+10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360339   (579914) от 08.07.2011
 
 VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
@@ -668,30 +701,6 @@ VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60ED180011B14CE33ED758CDA5A09464F4FF68E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359429   (580885) от 07.07.2011
-
-VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55273BCADD15E5F6DAFA001825CD44ADBFAA6423
 ```
 
 

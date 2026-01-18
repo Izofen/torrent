@@ -1,3 +1,30 @@
+###  Публикация: 1304711   (561268) от 27.05.2019
+
+VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stan Kolev - Forethought
+002. Die Haustiere - L'isla Delle Conchiglie (Original Mix)
+003. Gar Feat. Lorraine Gray - Havana (Original Mix)
+004. Matt Dwellers - Ankaraz (Stoertebeker Remix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045203   (561273) от 22.08.2016
 
 VA - Авто Хит Зарубежный (2016) [MP3|256 Kbps] <Pop>
@@ -680,33 +707,6 @@ VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EF9396599036E0498605061C57FB13CD524D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044743   (562618) от 21.08.2016
-
-VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Elles De Graaf  -  The Sound Of Goodbye (Sensetive5 Bootleg)  8:30
-002. Digital Constructive  -  Myth & Legend (Extended Mix)  5:36
-003. Heatbeat & Eric Lumiere  -  You've Got Me Now (Extended Club Mix)  6:14
-004. Fabio XB & Liuck Feat. Roxanne Emery  -  Nowhere To Be Found (Craig Connelly Remix)  6:23(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 10:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDDA346D74209A5AEEBAE0C7FF1D957A914E678
 ```
 
 

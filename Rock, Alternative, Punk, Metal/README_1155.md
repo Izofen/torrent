@@ -1,3 +1,300 @@
+###  Публикация: 1366163   (925758) от 10.03.2020
+
+Смута - Время беды (2018) [FLAC|Lossless|image + .cue] <Pagan-Metal, Folk-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Русский бунт (The Russian Riot)
+02	Река (The River)
+03	В сумерках (In The Dusk)
+04	Дойти (To Wade Through)(   Читать дальше...   )Жанр: Pagan-Metal, Folk-MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF8409F7268A0DD5CCC1F9B3BFCA9F99F2ADC09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365996   (925760) от 10.03.2020
+
+Newman - 14 альбомов (1997-2017) 15CD [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - Newman
+1999 - One Step Closer
+2000 - Dance In The Fire(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 15:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43AFCC01B4AAF66E158E428CCE0B41EFA6A8E5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366008   (925813) от 10.03.2020
+
+Big Life - Big Life (2011) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Life - Dying Day 05:02
+02. Big Life - Close To You 04:17
+03. Big Life - Better Man 04:51
+04. Big Life - Calling 04:26(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166A442B7550AFF4D6E6896BC80E562248018A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366022   (925832) от 10.03.2020
+
+Sergey Golovin - Satellite (2019) [MP3|320 kbps] <Progressive Metal, Djent, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loader (1:30)
+02. Renegade (5:15)
+03. Horizon Runner (5:04)
+04. Satellite (5:15)(   Читать дальше...   )Жанр: Progressive Metal, Djent, Instrumental RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267CDF03B3830BC95FA5F8449FF307423EF1D691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366007   (925834) от 10.03.2020
+
+Big Life - Big Life (2011) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Life - Dying Day 05:02
+02. Big Life - Close To You 04:17
+03. Big Life - Better Man 04:51
+04. Big Life - Calling 04:26(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC652BE2D18B8A7333200832BB842DE2AD864FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366238   (925836) от 10.03.2020
+
+Nocturnal Rites - Grand Illusion (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Never Die (3:55)
+02. Never Trust (4:44)
+03. Still Alive (4:03)
+04. Something Undefined (4:08)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8EB5918AD6041742992B38514DEC8009E46E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366006   (925840) от 10.03.2020
+
+Korpiklaani - Spirit Of The Forest (2003) [FLAC|Lossless|image + .cue] <Humpa Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wooden Pints 03:42
+02. Before The Morning Sun 04:25
+03. God Of Wind 03:15
+04. With Trees 08:07(   Читать дальше...   )Жанр: Humpa MetalПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391F4790F4447454AD70EBB993BC3FC4F353BCFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366024   (925846) от 10.03.2020
+
+Stay Away - Дисклеймер. Часть 2 (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рип
+2. На карусели
+3. Фэйворит шкура
+4. Майнер с порнохаб(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C059B1D376D10B129FB74598106071E4652BFE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 286048   (925864) от 20.01.2017
+
+Caravan - The World Is Yours: The Antology 1968-1976 (2010) 4CD Box Set, remastered [FLAC|Lossless|image + .cue]<Progressive Rock, Canterbury Scene, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Alright - Chance Of A Lifetime (7:07)
+02. The Show Of Our Lives (5:46)
+03. Keeping Back My Love (5:15)
+04. No Backstage Pass (4:32)(   Читать дальше...   )Жанр: Progressive Rock, Canterbury Scene, Psychedelic RockПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219B622F9E723D5F2C3E1E6AD59CCBC76C80F754
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366227   (925887) от 10.03.2020
+
+Eric Martin - I'm Goin' Sane (2002) (voice Mr.Big) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Disease
+02. Spaceman
+03. Goin' Sane
+04. Free Of It(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366237   (925894) от 10.03.2020
+
+Wyldest - Dream Chaos (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headrush (03:42)
+02. Rolling Waves (03:38)
+03. Mind Over Body / Slowdance (05:26)
+04. Reverse Tide (04:12)(   Читать дальше...   )Жанр: Indie Pop, Dream PopПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D54E626BF9C5E20DF3520320DB124470A420DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987534   (925903) от 17.02.2016
 
 Alice Cooper - Classicks (1995) Compilation [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
@@ -395,303 +692,6 @@ Kamelot - The Black Halo (2005) [FLAC|Lossless|image + .cue] <Progressive Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA85845DB96D0052F77165F9DE20796A34AEA90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863111   (927146) от 25.01.2015
-
-Sweet & Lynch (Stryper, Dokken) - Only To Rise (2015) Japanese Edition [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wish  3:38
-02. Dying Rose  3:41
-03. Love Stays  4:34
-04. Time Will Tell  3:51(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10A78EA56D3A42B107BE2AAC238E6E46497623E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489139   (927160) от 15.08.2021
-
-Big Hogg - Pageant Of Beasts (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Canterbury Scene>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Beasts (0:30)
-02. Here Come the Moles (4:55)
-03. Man Overboard (3:46)
-04. Smoking Again (3:51)(   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E45FD7371C7F544E138F6F6492EACCB6DD78367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862688   (927209) от 19.01.2017
-
-Chicago - 121 Albums (1969-2016) Discography [FLAC, APE, WavPack|Lossless]<Jazz Fusion, Jazz-Rock, Rock, Soft Rock, Progressive Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel (Hot Single Mix) (4:02)
-02. King Of Might Have Been (3:53)
-03. Caroline (3:40)
-04. Why Can't We (4:08)(   Читать дальше...   )Жанр: Rock, Adult contemporaryПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC485BC1B0E1170A26DF690BE510B63327BEB7E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489236   (927235) от 15.08.2021
-
-Alestorm - Live In Tilburg (2021) Live [FLAC|Lossless|tracks + .cue] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).01. Intro (1:35)
-02. Keelhauled (3:46)
-03. Alestorm (4:00)
-04. Magnetic North (3:43)(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A03B7A19BEBC5DC1FB654832121D5BEA6FC713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489244   (927251) от 15.08.2021
-
-Lantlôs (Lantlos) - Wildhund (2021) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Post Metal, Dark Ambient, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lake Fantasy (4:13)
-02. Magnolia (3:42)
-03. Cocoon Tree House (4:47)
-04. Home (4:25)(   Читать дальше...   )Производство: Prophecy Productions – PRO 216LUЖанр: Post Metal, Alternative Rock, Dark Ambient, ShoegazeПродолжительность: 01:27:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6121C191FFACE0B03E7A0CEFFB3DF463EA3A2822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365961   (927262) от 09.03.2020
-
-VA - Fetenhits Rock Classics-Best of (2020) 3CD, Box Set [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927262.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Queen - Another One Bites The Dust 3:35
-02. Yes - Owner Of A Lonely Heart (Remastered 2003) 4:28
-03. Ram Jam - Black Betty 3:58(   Читать дальше...   )Жанр: RockПродолжительность: 04:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B264CE42813CBD8FE614432DBEE68F016D6653C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365920   (927263) от 09.03.2020
-
-VA - Славянский Хардкор (Compilation) (2013-2017) [MP3|320 Kbps] <Hardcore, Metalcore, Beatdown, Hatecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Камаедзiца - Беларуская Песня [00:07:00]
-02. Вервь - Расход [00:04:07]
-03. CG Bros. - Роктолераст [00:02:51]
-04. Grimfire - За Спиной [00:03:05](   Читать дальше...   )Жанр: Hardcore, Metalcore, Beatdown, HatecoreПродолжительность: 3 CD, 03:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F1ABBDAC5DF2AC2B1C27ED7168A0AFE826CB7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365918   (927268) от 09.03.2020
-
-VA - Из Нави В Явь (Compilation) (2011-2014) [MP3|~190 Kbps (V2)] <Pagan Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Далiна - Бескрайние просторы Матери-Земли (BLR) [00:03:18]
-02 - Omut - ... (BLR) [00:05:10]
-03 - Веремій - Гуляйполе (UKR) [00:03:19]
-04 - Бастион - Моя Земля (RUS) [00:05:25](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 3 CD, 08:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F551891903BE0AF96CAF4FA6A1D7B1DAD1F5BD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365781   (927271) от 09.03.2020
-
-Kingdom Come - In Your Face (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Like It (3:40)
-02. Who Do You Love (4:14)
-03. The Wind (5:01)
-04. Gotta Go (Can't Wage A War) (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060DCE27B3DAA339027EB2E8A07889FAD95AE9B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365885   (927380) от 09.03.2020
-
-Killswitch Engage - As Daylight Dies (2006) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight Dies
-02. This Is Absolution
-03. The Arms of Sorrow
-04. Unbroken(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E3A0F9DC780959FE63D957D25BD1C8ED5A2D20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365874   (927387) от 09.03.2020
-
-Confess - 3 Albums (2014 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Glam, Sleaze, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So What?
-02. Malleus
-03. Welcome Insanity
-04. A Beautiful Mind(   Читать дальше...   )Жанр: Glam, Sleaze, Hard RockПродолжительность: 02:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3661B8299D9FD7ED7B0C41AFAB4F5352A7312DA4
 ```
 
 

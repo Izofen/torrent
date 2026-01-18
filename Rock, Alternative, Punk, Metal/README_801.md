@@ -1,3 +1,57 @@
+###  Публикация: 1557132   (542697) от 14.06.2022
+
+Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel
+02. Merciless Killing
+03. Putrid Autopsy
+04. Horrible Creation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADECFE9A86FC13B58920124303C7F7088AF9E131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557111   (542698) от 14.06.2022
+
+Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tlaloc
+02. Seito Kara Kyōshi-e
+03. Stenbec
+04. Rabarama(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE16971A852FDF7FA433C223FEA81047DCB6C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557308   (542699) от 14.06.2022
 
 Stray Gods - Storm The Walls (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -656,60 +710,6 @@ Astral Doors — группа, которая берёт своё начало �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34A5E434F9207CE1A406446E2A4D2AE80DFCB6AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311182   (543618) от 28.06.2019
-
-The Black Keys - "Let's Rock" (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Little Light (03:16)
-02. Eagle Birds (02:40)
-03. Lo/Hi (02:57)
-04. Walk Across The Water (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCBD8201D92CBAF0385BBD2C36023C9F216FA18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238995   (543702) от 02.08.2018
-
-Lord of the Lost - Thornstar (2018) 2CD, Deluxe Edition [MP3|320 Kbps] <Gothic Metal, Industrial Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abracadabra (feat. Dero Goi) (3:46)
- 02. Voodoo Doll (4:07)
- 03. The Art of Love (5:00)
- 04. Lily of the Vale (3:59)(   Читать дальше...   )Жанр: Gothic Metal, Industrial Metal, Gothic RockПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13192716651BB104BE4F13798D15BCA819483F91
 ```
 
 

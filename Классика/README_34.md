@@ -1,3 +1,57 @@
+###  Публикация: 668060   (725524) от 14.06.2013
+
+Paul McCartney - Ocean's Kingdom (Studio and Live Audio) (2011) [FLAC 2.0 24/96|tracks (WEB-DL)] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Movement 1: Ocean's Kingdom (00:14:07)
+02. Movement 2: Hall of Dance (00:16:19)
+03. Movement 3: Imprisonment (00:13:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E99F2B6332232E3907EBA259C1DF751EA734714
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667537   (726770) от 13.06.2013
+
+VA - Great Romantic Symphonies (2012) Naxos 25th Anniversary. The Great Classics. 10CD Box #4[FLAC|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.     I. Adagio 00:11:40
+2.     II. Largo 00:12:01
+3.     III. Molto vivace 00:08:08
+4.     IV. Allegro con fuoco 00:11:11(   Читать дальше...   )Жанр: ClassicalПродолжительность: 12:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612EF465954F617B234D5D49847F4AA537102F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530793   (727815) от 12.02.2022
 
 Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Solo Piano>
@@ -634,60 +688,6 @@ Symphony no. 68 in B-flat major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A3240A9B5BD35ECC0657554ECF21D3B991568B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523017   (755158) от 09.01.2022
-
-Chopin, Beatrice Rana - Etudes Op.25 - 4 Scherzi (2021) [FLAC|Lossless|image + .cue] <Romantic>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755158.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1]-[12] 12 Études, Op.25
-[13] Scherzo No.1 in B minor, Op.20
-[14] Scherzo No.2 in B flat minor, Op.31
-[15] Scherzo No.3 in C sharp minor, Op.39(   Читать дальше...   )Жанр: RomanticПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76869695577F0E0CD97C1B79CAC9C05780CE160E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017510   (757086) от 19.05.2016
-
-Чайковский / Tchaikovsky - Violin Concerto (Heifetz, Reiner, Chicago Symphony) (1957/2014) [DST64 5.0, DSD 2.0|64(2,8 MHz/1 Bit|ISO|SASD-R] <Orchestra, Violin, Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto For Violin In D Major
-01-Allegro Moderato: Cadenza
-02-Canzonetta: Andante
-03-Finale: Allegro VivacissimoЖанр: Orchestra, Violin, ClassicalФормат: DST64 (mch), DSD (stereo)Продолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1EF33BA767027297787F12E661453A1480E5D1
 ```
 
 

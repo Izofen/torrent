@@ -1,3 +1,56 @@
+###  Публикация: 1202327   (790558) от 28.01.2018
+
+Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lossless|tracks] <House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Feel Alright (3:27)
+02.Mad About You (4:26)
+03.Get Up! Push Up! (3:49)
+04.In The Sunshine (5:23)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB4ACED75C85ACFA558D9CFEBD8DE1552C12437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202200   (790559) от 28.01.2018
+
+Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Route (07:51)
+ 02. The Place (07:26)
+ 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510633   (790762) от 17.11.2021
 
 VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -641,60 +694,6 @@ VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275193   (791162) от 10.01.2019
-
-VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louie Vega Ft. Jocelyn Brown-You Are Everything (Morales Tribute To Frankie Knuckles Mix)
-02. Marc Dennis-Storm (Original Mix)
-03. Secret Sinz-The Fool (Original Mix)
-04. Soulbridge Ft. Ms Onyie-Perceptions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CF7DB8DF1FA257C3F73D3241D1475C8DA21483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387531   (791196) от 02.06.2020
-
-Sash! - The Best Of (2008) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro-House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecuador (Javi Mula & Joan Reyes Remix) (6:17)
-02. Ecuador (Will Bailey & Calvertron Remix) (6:14)
-03. Ecuador (Bad Behaviour Remix) (6:23)
-04. Stay (Cedric Gervais Vocal Remix) (7:05)(   Читать дальше...   )Жанр: Electronic, Trance, Euro-HouseПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2A4F6F448F02BBAE3C3CC62BA53E52EDB5FA46
 ```
 
 

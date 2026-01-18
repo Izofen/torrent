@@ -1,3 +1,30 @@
+###  Публикация: 1386629   (793466) от 30.05.2020
+
+VA - Late Night Vibes Playlist Spotify (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793466.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tame Impala - Posthumous Forgiveness (6:05)
+2. Rayland Baxter - Small Worlds (5:36)
+3. Beach House - Space Song (5:18)
+4. Phoebe Bridgers - Scott Street (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 04:27:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479B6C0FD49D79AA48EFF502A8D68E0A15958694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386648   (793548) от 30.05.2020
 
 VA - New Love Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -668,33 +695,6 @@ VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:395F1C5232B803DB3AEC426C92D4E397485263A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509641   (794031) от 13.11.2021
-
-VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794031.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kapibara - Mittrei
-002. Sasha - Hndi
-003. Floex - The Edge Of Light
-004. Fatih Tuter - Steps Into Wilderness(   Читать дальше...   )Жанр: Chillout, Relax ElectronicПродолжительность: 08:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C9177775F457F1AF41847E0EE3CF6C261A22ED
 ```
 
 

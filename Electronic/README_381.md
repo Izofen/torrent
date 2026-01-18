@@ -1,3 +1,57 @@
+###  Публикация: 1280122   (763693) от 01.02.2019
+
+VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anske & Victoriya - Love Won’t End (Original Mix)
+02. Saad Ayub - Singularity (Original Mix)
+03. Madwave - Follow Your Path (Radio Mix)
+04. Misja Helsloot - We All Should Know (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749E6E60C733B257D540DA00A446167F5C80063B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280024   (763702) от 01.02.2019
+
+Eduardo Briganty - Microgramas (2018) El Muelle Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duermevela (04:29)
+ 02. De Vuelta Al Vacio (02:56)
+ 03. La Vida De Las Estatuas (04:56)
+ 04. Enjambre (03:18)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E92325C0ADEFAAB968E34382710289ADD93D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394396   (763718) от 05.07.2020
 
 Tamlin - Spectrogram (2008) [FLAC|Lossless|tracks + .cue] <Breaks, Psy-Trance, Progressive Trance, Experimental>
@@ -639,60 +693,6 @@ VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CC30D46EEB7FA48A400D34E210EFE30607072A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279871   (764542) от 31.01.2019
-
-Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Moments Pt. 1 (11:12)
- 02. Infinite Moments Pt. 2 (11:24)
- 03. Infinite Moments Pt. 3 (09:49)
- 04. Infinite Moments Pt. 4 (05:50)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22DEC6273A3936A326F1E0FB50DB9C6541BB7E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126673   (764563) от 19.04.2017
-
-VA - Beautiful Lounge Collection Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loris Piron - Vibrant Offshore (Original Mix) 03:05
-02. L Like Lounge - Bun (Original Mix) 02:39
-03. The Channel - Casta (Original Mix) 04:09
-04. Behind The Trees - Send Me A Letter (Original Mix) 03:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2BBB688A245F3F84945BE5C85B5CDAE76AC36E
 ```
 
 

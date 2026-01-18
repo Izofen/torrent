@@ -1,3 +1,55 @@
+###  Публикация: 911288   (618409) от 22.06.2015
+
+VA - Special Treats Of Chill & Deep House (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncledog - Night Calling [06:45]
+02. Simplex Sensus - Scintilla [06:16]
+03. Ashmere - Tell Me [05:36]
+04. Over Range - Undulations [06:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3810275496479EC9029DE0CCF3C8A4CF91C521E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911277   (618418) от 22.06.2015
+
+VA - Chillout King Ibiza (Club Del Mar) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laid Back Avenue - Slow Motion Ballade (Quiet Earth Mix) [04:29]
+02. Orange Music - Take Me 2 the Sea (Floating Voice Mix)Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C2F4473448D54A7A30EB9A0582868ECE8A1569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910525   (618499) от 22.06.2015
 
 Stimulus Timbre - Life's Most Wonderful Place (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
@@ -647,60 +699,6 @@ VA - Chill Out Ibiza: The Best Of 50 Tracks (2017) [MP3|320 Kbps] <Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3723DA40230650CF14531DBE547C62C90C66C07F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145262   (621760) от 25.06.2017
-
-Bjm Mario Bajardi - Schengen (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Officium 1 (03:57)
-02. Officium 2 (05:23)
-03. Transmigration (02:24)
-04. Kaos Therapy (03:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2D2FB198C805ABE5E909C4206EF3F4F0A1361C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144221   (621764) от 25.06.2017
-
-VA - Clubbers Culture: Chill Out At Sunset Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jan Van Den Bergh - Yesterday Was A Good Day (Original Mix)  4:51
-02.  Lazy Hammock & Ivan M - Equinox (Original Mix)  6:53
-03.  San Savalle - The James Jam (Original Mix)  3:52
-04.  Dreamweavers - Silent Moon (Original Mix)  5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAAD07C907C8354C703F6B95EAFB3B363DDD839
 ```
 
 

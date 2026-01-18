@@ -1,3 +1,30 @@
+###  Публикация: 822158   (572000) от 21.05.2019
+
+VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uriah Heep - Easy Livin
+02. Kingdom Come - Outsider
+03. Motley Crue - Kickstart My Heart
+04. UDO - Break The Rules(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869269   (572023) от 21.05.2019
 
 VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
@@ -666,33 +693,6 @@ Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FA3AF0B46DDC7CA3667BAC81E3CBFFA4760FD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043319   (572983) от 16.08.2016
-
-VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fifth Harmony - No Way
-002. Интонация - Давление
-003. The Dollyrots - Little Medusa
-004. Sasha - Всего Лишь Три Слова(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
 ```
 
 

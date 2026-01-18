@@ -1,3 +1,257 @@
+###  Публикация: 1036086   (622798) от 19.07.2016
+
+Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladykiller
+02. Kiss Me Mister Histrionics
+03. Be My Husband (feat. Everett Bradley)
+04. I Don’t Know(   Читать дальше...   )Жанр: Blues, Pop, SoulПродолжительность: 0:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58195005B897FBF7AE4173CF2084147CDBC711E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036061   (622825) от 19.07.2016
+
+The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.440 [09:50]
+ 02.Jesus Maria And Other Spanish Strains [11:55]
+ 03.Musique Mecanique I [09:47]
+ 04.Musique Mecanique II (At Midnight) [07:03](   Читать дальше...   )Жанр: Post-Bop, Experimental Big BandПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33296D03C87A70EAAEB70E30E68A5CD6984C64EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035867   (622852) от 19.07.2016
+
+Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Of Blues And Dreams [05:00]
+ 02.Suite For Another World - i. Lethe [11:42]
+ 03.Suite For Another World - ii. Graef [06:10]
+ 04.Suite For Another World - iii. Madame Xola [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5A2544FA3863CB264E3A94041A45C2A23CC5AE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522064   (622936) от 13.07.2012
+
+VA - Classics In Jazz (5CD) (2005) [MP3|320 кб/с]<Jazz, Classical Music>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eugen Cicero - Classics In Jazz vol.1
+Eugen Cicero - Classics In Jazz vol.2
+Sir Roland Hanna - Georga Mraz - Classics In Jazz vol.3
+Hregor Huebner, Richie Beirach, George Mraz - Classics in Jazz vol.4
+Steve Kuhn, David Finck, Billy Drummond - Classics In Jazz vol.5Жанр: Jazz, Classical MusicПродолжительность: 01:03:35
+
+Steve Kuhn - piano
+David Finck - bass
+Billy Drummond - drums
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3645EC86C223ACC351F8581C0C1E9E97BA456627
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522082   (623019) от 13.07.2012
+
+Black Joe Lewis & The Honeybears - Scandalous (2011) [FLAC|Lossless]<Modern Electric Blues, Retro-Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_623019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin' in the Jungle (03:22)
+02. I'm Gonna Leave You (03:51)
+03. Booty City (02:41)
+04. Black Snake (03:02)
+05. She's So Scandalous (04:34)
+06. Messin' (02:25)
+07. Mustang Ranch (03:41)
+08. You Been Lyin' (featuring The Relatives) (03:30)
+09. Ballad of Jimmy Tanks (03:23)
+10. Since I Met You Baby (04:14)(   Читать дальше...   )Жанр: Modern Electric Blues, Retro-SoulПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145072   (623525) от 24.06.2017
+
+Welshly Arms - Welshly Arms (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love In A Minor Key (03:57)
+02. Dirty Work (03:37)
+03. Never Meant To Be (02:54)
+04. Ain't Supposed To Rain (04:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6A9F8AAFCB07701E196CB047B0178995E10CAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544194   (623580) от 14.04.2022
+
+Edgar Winter - Brother Johnny (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Town Blues (5:05)
+02. Still Alive and Well (3:43)
+03. Lone Star Blues (3:57)
+04. I’m Yours and I’m Hers (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144958   (623794) от 24.06.2017
+
+Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Sister Sings the Blues (01:24)
+02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
+03. That Don't Appease Me (04:26)
+04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145092   (623795) от 24.06.2017
+
+Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Mission
+02. Soulsalicious
+03. Senorita Bonita
+04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544079   (623924) от 14.04.2022
 
 Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -460,296 +714,6 @@ Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
 08. Forever
 09. There Will Come A Day
 10. Baby Likes The Blues(   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521978   (625046) от 12.07.2012
-
-Chris Watson Band - Pleasure and Pain (2012) [APE|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart On My Sleeve    [03:17]
-02. Untrue   [03:08]
-03. Pleasure and Pain   [03:49]
-04. Heartache   [04:25]
-05. Mama Told Me   [03:13]
-06. Going Home   [03:42]
-07. Happiest Day Of My Life   [04:11]
-08. Hard Luck Woman   [03:22]
-09. She's Wild   [04:46]
-10. Check It Out   [03:52](   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521950   (625149) от 12.07.2012
-
-VA - Down Home Blues Classics Chicago 1946-1954 (2005) 4CD [MP3|320 кб/с]<Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-CD1 - Blow Wind Blow
-CD2 - Big World
-CD3 - Tough Times
-CD4 - Korea BluesЖанр: Blues, Chicago BluesПродолжительность: 04:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB057B0D2ED384D62E1FEEAE84975CAA816F7600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521940   (625155) от 12.07.2012
-
-VA - Down Home Blues Classics: California & The West Coast 1948-1954 (2007) 2CD [MP3|320 кб/с]<Blues, West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KC Douglas - Mercury Blues (2:27)
-02. Sidney Maiden - Eclipse Of The Sun (2:34)
-03. Little Son Willis - Bad Luck And Trouble (2:42)
-04. Little Son Willis - Operator Blues (3:29)
-05. Black Diamond - T P Railer (2:42)
-06. Black Diamond - Lonesome Blues (2:27)
-07. Sonny Boy Johnson - Dessert Blues (2:56)
-08. Sonny Boy Johnson - Come And Go With Me (2:49)
-09. Willie B Huff - Beggar Man Blues (3:00)
-10. Willie B Huff - I've Been Thinkin And Thinkin (3:06)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 02:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6987C871C7E0E964A8C3772AF018253143AABC67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521935   (625156) от 12.07.2012
-
-VA - Down Home Blues Classics 1943-1953 (2004) 4CD [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625156.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Texas 1946-1953 Throw A Little Boogie
-
-CD2 - Chicago & Detroit 1948-1953 High & Lonesome
-
-CD3 - Memphis & The South 1949-1953 Take a Little Chance
-
-CD4 - New York & East Coast States 1943-1953 Rub a Little BoogieЖанр: BluesПродолжительность: 04:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0DBDFDDCC2338B2187C7E4246ED71D446D4548
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521684   (625159) от 12.07.2012
-
-VA - Down Home Blues Classics: New York & The East Coast States (1943-1953) 2CD /2007/ [MP3|320 кб/с]<Blues, East Coast Blues, Post-War Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ralph Willis -   Tell Me Pretty Baby (2:36)
-2. Square Walton -   Bad Hangover (1:58)
-3. Dennis McMillon -   Woke Up One Morning (2:39)
-4. Brownie McGhee -   That's The Stuff (Watch Out) (2:48)
-5. Curley Weaver -   My Baby's Gone (3:00)
-6. Jack Dupree -   Number Nine Blues (3:11)
-7. Carolina Slim -   Georgia Woman (2:52)
-8. Leroy Dallas -   Jump Little Children (2:19)
-9. Alex Seward & Louis Hayes -   Me And My Baby (2:49)
-10. Julius King -   One O'Clock Boogie (2:58)(   Читать дальше...   )Жанр: Blues, East Coast Blues, Post-War BluesПродолжительность: 02:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40A450A0FAF479A763AAFDBC75F6F37CA16BE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522071   (625224) от 12.07.2012
-
-Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chuck's Groove (B. Pierce) (6:31)
-02. Strictly Taboo (J. King) (6:19)
-03. Second Thoughts (M. Miller) (7:35)
-04. Woodworks (W. Shaw) (6:02)
-05. All the Way (J. Van Heusen - S. Cahn) (6:58)
-06. There's a Small Hotel (R. Rodgers - L. Hart) (6:54)
-07. Wayne's World (B. Mobley) (8:03)
-08. From This Moment On (C. Porter) (6:34)
-09. Thelma's Heart (B. Pierce) (6:23)
-10. Tryst (J. King) (4:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521957   (625225) от 12.07.2012
-
-VA - Down Home Blues Classics: Memphis & The South 1949-1954 (2007) 2CD [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Hill Louis - Don't Trust Your Best Friend (2:48)
-02. Lightnin' Slim - Bugger Bugger Boy (2:04)
-03. Schoolboy Cleve - She's Gone (2:13)
-04. Jerry McCain - Stay Out Of Automobiles (2:32)
-05. J.D. Horton - Why Don't You Let Me Be (2:24)
-06. Little Sam Davis - Going Home To Mother (2:34)
-07. Big Joe Williams - She's A Jiving Woman (2:47)
-08. Lost John Hunter - Y M & V Blues (3:02)
-09. Country Jim - Phillipine Blues (2:21)
-10. Lightnin' Slim - Bad Luck (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703DBFF64B7ECB060046D3D20FC4C7D1D9E1DBED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521653   (625228) от 12.07.2012
-
-Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. It's All Right
-2. The Dog Can't See
-3. Start Packin'
-4. Outfox The Foxes
-5. Eye Of A Needle
-6. Blues For Breakfast
-7. Black Magic
-8. Help Me
-9. Boob Job
-10. Mother Of Pearl(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D29FBF28C8786F4CC51FB64540343312FE3989
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522080   (625233) от 12.07.2012
-
-Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At La Caroussel (5:56)
-02. Picture This (4:51)
-03. It's A Matter Of Pride (5:13)
-04. His Name Was Martin (6:07)
-05. Titoro (5:04)
-06. Back Home (8:45)
-07. Lookin' Up (6:06)
-08. Paraphrase (7:30)
-09. I'm A Lover (4:48)
-10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash

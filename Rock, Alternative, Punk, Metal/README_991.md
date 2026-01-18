@@ -1,3 +1,300 @@
+###  Публикация: 1216298   (749313) от 31.03.2018
+
+Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Me
+02. Send Me an Angel
+03. If I Had the Time
+04. Guilty(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072DA2CB50C37AC4C7C5BA09E8FA614F3FA2138A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216508   (749318) от 31.03.2018
+
+VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749318.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:00] 01. Nickelback - We Will Rock You
+[1:58] 02. Everlone - Breakfast In America
+[3:50] 03. Black–ingvars - Livin' La Vida Loca
+[4:31] 04. Nonpoint - In The Air Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DD1FB80BB1D3E7FD4D5925743CFF76E5A9872E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216493   (749324) от 31.03.2018
+
+Light The Torch - Revival (2018) [MP3|320 Kbps] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Alone
+02. The God I Deserve
+03. Calm Before the Storm
+04. Raise the Dead(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFF754A1D85760A0720127450EBE13704DE7610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216517   (749325) от 31.03.2018
+
+Alice Cooper - The Essential Alice Cooper: The Epic Years (2018) [FLAC|Lossless|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison
+02. Bed of Nails
+03. Hey Stoopid
+04. House of Fire(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 02:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391C7A0D3C15CF0C4F28C8C30921F26B7EF2F6BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216492   (749326) от 31.03.2018
+
+Escape the Fate - I Am Human (2018) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautifully Tragic
+02. Broken Heart
+03. Four Letter Word
+04. I Will Make It Up To You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A217DEA54C87E045AA54CC88BD60BEDE88F7AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216465   (749434) от 31.03.2018
+
+Earthstream - Earth Scream (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Spirit
+02. Death Bringer
+03. Deadly Drowned Desperation
+04. The Gate to My Funeral(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA1283D0CBE28FD54689252ABDEF2CA3FA78379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889176   (749535) от 17.04.2015
+
+Apocalyptica - Shadowmaker (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal, Cello Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I-III-V Seed of Chaos
+02. Cold Blood
+03. Shadowmaker
+04. Slow Burn(   Читать дальше...   )Жанр: Symphonic Metal, Cello MetalПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE4362293CD2D0E89C52DCFABF9469A376CEE0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523545   (749794) от 12.01.2022
+
+Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surviving The Game (3:58)
+02. Standing in the Storm (4:17)
+03. Dominion (3:51)
+04. Valley of Death (4:27)(   Читать дальше...   )Жанр: Alt.Rock, Christian MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A1079B44DF41891D71FE2A2BBD1383C9E0FC0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523698   (749801) от 12.01.2022
+
+VA - Greatest Ever Feelgood Songs (2022) 4xCD [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749801.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Monkees - Daydream Believer
+02. Chaka Khan - I Feel for You
+03. Chic - I Want Your Love(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 04:57:81
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72930F09429F67E9EEED000B5EDBC63F58A65364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281696   (749917) от 09.02.2019
+
+Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ending (3:30)
+ 02. Renegade Music (3:30)
+ 03. Not the Only One (3:25)
+ 04. Who Do You Trust? (3:16)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, Pop-RockПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8849924AEBB8ED7B74E62FE23DB1D72F1EF9C822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281235   (749924) от 09.02.2019
+
+Джуна - Высший пилотаж (2018) 2EP on CDr, Limited Edition, Numbered [FLAC|Lossless|tracks] <Post-Punk, Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ни ты, ни я
+02. Рыба
+03. Самолёт
+04. Закат(   Читать дальше...   )Жанр: Post-Punk, Indie Rock, ShoegazeПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C53BA102EEC7DB551A2248BA22704EF02B93CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281806   (749927) от 09.02.2019
 
 Схима - Воронья Слободка / 1654 (2018) 2EP on CDr, Limited Edition, Numbered [MP3|320 Kbps] <Post-Punk, Gothic Rock>
@@ -405,303 +702,6 @@ VA - Billboard Top Rock'n'Roll Hits (1970-1972, 1974) 4CD /1989 Rhino Records/ [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF58D61E8F9A7CB7D5B615DB79E77E46FD0197EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781989   (750421) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1960-1964) 5CD  /1993 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750421.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1960
-Продoлжитeльность: 00:23:41
-Трeклиcт:
-01. Joe Jones - You Talk Too Much  (2:31)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DDF2813562C0765BD495942C69F0340B4B1209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782540   (750449) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1965-1969)  5CD /1988 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750449.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1965
-Продoлжитeльность: 00:28:18
-Трeклиcт:
-01. Shirley Ellis - The Name Game  (3:03)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958C2F8521F423440901E417DE23C5C857DFB36E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781952   (750451) от 01.05.2014
-
-VA - Billboard Top Rock'n'Roll Hits (1955-1959) 5CD /1988-1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750451.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
-А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1955
-Продoлжитeльность: 00:26:14
-Трeклиcт:
-01. Bill Haley & His Comets - Rock Around The Clock  (2:13)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA11AE036D3387CBF38BDC43257B67C37105FEC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216426   (751080) от 30.03.2018
-
-Слот - На Марс! (2018) Single [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751080.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Граждане мира, на дворе 21 век, год 18-й, полет нормальный. Человечество уже не знает чем заняться помимо войн, дележа сфер влияния и распиливания денег. Никого ничем не удивить, все побывали везде и всюду, а чёрные дыры только появились и сразу пропали из красной книги. Пора отправлять в командировки новых Колумбов с Магелланами и гораздо дальше, чем в Новый свет. (   Читать дальше...   )1. На Марс!Жанр: Nu MetalПродолжительность: 00:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46D8B75778B310FC52C94C325B4D6E5B998B24F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216396   (751083) от 30.03.2018
-
-Odyssey Desperado - Don't Miss The Sunset (2018) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751083.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rush of the Wave (4:16)
- 2. You and Me Against the World (3:59)
- 3. Cruisin' (4:31)
- 4. Dreams Die Hard (3:40)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E412B63CCACA8C20627B14AA24001876D190354A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216401   (751228) от 30.03.2018
-
-Airborn - Land Of The Living (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal Underdogs (Intro) (1:26)
- 02. Who We Are (3:51)
- 03. Lizard Secret (4:38)
- 04. We Realize (4:26)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F798AC850A2BFE5B9ABF84462EFF5BAB54A54DE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216164   (751354) от 30.03.2018
-
-Mournful Congregation - The Incubus Of Karma (2018) [MP3|320 Kbps] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751354.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Indwelling Ascent
-2. Whispering Spiritscapes
-3. The Rubaiyat
-4. The Incubus Of Karma(   Читать дальше...   )Жанр: Funeral Doom MetalПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB169E99F03C96F8DEAA3A46A1ECBAAA8E0A659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216261   (751363) от 30.03.2018
-
-Illegal Operation - Digital Hero (2002) [APE|Lossless|image + .cue] <Industrial Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trails To Nowhere
-02. Antourage
-03. Digital Hero
-04. Unfair(   Читать дальше...   )Жанр: Industrial Power MetalПродолжительность: 00:45;41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D7F40465426CD7C40FE5DD473979AEBEEE1DDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216259   (751364) от 30.03.2018
-
-Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industrial Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Misanthrope
-02. Heavens Die
-03. ...
-04. The Hatecrowned Retaliation(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1363A0376A0009049B50A7C884E1EC7EF7197A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216256   (751365) от 30.03.2018
-
-13 Rituals - Rituals Of Punishment (2009) [APE|Lossless|image + .cue] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abatement
-02. Blackout
-03. Rituals Of Punishment
-04. Blackout (live)Жанр: DeathcoreПродолжительность: 00:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932800DC4D30FD0839D59EE1521929ECB030A512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216417   (751366) от 30.03.2018
-
-Mallet - Everybody Needs Somebody (1990) TRC Tanit ReCords [MP3|160 Kbps] <Rock, Melodic Hard Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mallet - немецкая рок-группа, созданная в 1979 году в Висбадене Манфредом Дюнзлом, Петер Вэньке, Стефаном Онхаусом (позднее гитаристом The Crackers ), Ханси Вуттке и Уилмонтом Шульце в качестве школьной группы. Тексты касаются музыки, одиночества в современной городской жизни, компьютерной дисфункции, религии, войны, качества жизни, веселья и любви.01. Don't Want To Be Loved By You 3:58
-02. Midnight Lover 4:09
-03. Mr. Boogie 3:32
-04. Tomorrow 5:46(   Читать дальше...   )Жанр: Rock, Melodic Hard Rock, Hard RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6662FA9E7D3EBFB5DC5E277DB2CDC7ADA7398B
 ```
 
 

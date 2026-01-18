@@ -1,3 +1,30 @@
+###  Публикация: 1363476   (942549) от 28.02.2020
+
+VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942549.jpg" />
+</div>
+
+
+###  Подробнее
+
+|04:19| 01. Eyes Ripping Fire
+|04:47| 02. Dancing Madly Backwards on a Sea of Air
+|04:39| 03. Close Your Eyes
+|04:33| 04. Crimson Lust(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDEB036A12C5000B0DC77D81826FE7D999AE04F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363475   (942587) от 28.02.2020
 
 VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Rock>
@@ -699,33 +726,6 @@ magnet:?xt=urn:btih:FF3DBD949065B1BCF55DCA1DEB1E16D82D5F20D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A18FA55AAC966A92A60A90460D4BCBB5C020A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090517   (945857) от 07.01.2017
-
-Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
-02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
-03. Штурм Полоцка (01:26)
-04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1235474   (558747) от 12.07.2018
+
+Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhumane
+02. A Waste of Life
+03. Fate
+04. Lethal Legacy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A0719224BE1A359B55C350F42F5E7E351FBB03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235471   (558749) от 12.07.2018
+
+Angelus Apatrida - Cabaret de la guillotine (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sharpen the Guillotine
+02. Betrayed
+03. Ministry of God
+04. The Hum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D3AB4D9F27AB9374BC7F1BFA1360C0C6310115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235475   (558750) от 12.07.2018
 
 Marthyrium - Beyond the Thresholds (2017) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -638,60 +692,6 @@ Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556467   (559731) от 09.06.2022
-
-Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alive (00:04:19)
-02 - Let Me In (00:05:41)
-03 - Circle of Lies (00:05:24)
-04 - In Between (00:04:14)(   Читать дальше...   )Жанр: Atmospheric Gothic Rock, ShoegazeПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5670983F17E33F6B3991CEDA9EFE5964EB4679DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556472   (559732) от 09.06.2022
-
-Keys - Keys (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When Shadows Fall (00:04:43)
-02 - Tear It Down (00:05:02)
-03 - For Your Love (00:05:19)
-04 - Feast Of Lies (00:04:59)(   Читать дальше...   )Жанр: Melodic Hard, Prog RockПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383FD49ABB420DFBF033A77B75264550216923E4
 ```
 
 

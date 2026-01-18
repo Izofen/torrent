@@ -1,3 +1,246 @@
+###  Публикация: 1125610   (768064) от 15.04.2017
+
+Little Hurricane - Same Sun Same Moon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа образовалась в начале 2010 года. Little Hurricane - это дуэт CC - ударные и Tone - гитара, вокал, клавиши. Играют "грязный" блюз из Южной Калифорнии.01. Same Sun Same Moon (3:23)
+02. Bad Business (2:58)
+03. Otl (3:16)
+04. Isn't It Great (2:54)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B6A3ACEDC8AF35D482CD7F8E5864AC2C45C074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125809   (768069) от 15.04.2017
+
+Candye Kane - Coming Out Swingin' (2013) [FLAC|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Coming Out Swingin'  (02:43) 
+02. Rock Me To Sleep  (02:43) 
+03. I'm The Reason Why You Drink  (03:50) 
+04. When Tomorrow Comes  (04:08) (   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE85D66EB4F16C6A0B12E8F28F600B477ED3692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125548   (768114) от 15.04.2017
+
+Arthur Doyle & Sunny Murray - Live at Glenn Miller Cafe (2000) Ayler Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spontaneous Creation, Part 1 [02:01]
+ 02.Spontaneous Creation, Part 2 [06:37]
+ 03.Spontaneous Creation, Part 3 [03:20]
+ 04.African Love Call [12:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2636C2D8F0142CD9BDBAA3B1A1751600751AC01A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125767   (768122) от 15.04.2017
+
+Corey King - Lashes (2016) [FLAC|Lossless|tracks + .cue] <Fusion, Vocal, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibaraki
+02. If
+03. Midnight Chris
+04. Botched Farewell(   Читать дальше...   )Жанр: Fusion, Vocal, RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75902D9AF9193B8DDC337B9FD412B213D2C888BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125553   (768131) от 15.04.2017
+
+Johnny Griffin - Bush Dance (1978 / 1983) 2004, Galaxy [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Night In Tunisia [17:08]
+ 02.Bush Dance [05:00]
+ 03.The Jamfs Are Coming [07:07]
+ 04.Since I Fell For You [07:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A333BF984CBE6A5646555E0A91BB42C6CABB09BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125559   (768135) от 15.04.2017
+
+Carlo Actis Dato Quartet - Enna Milonga (2000) BAJ Records [APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spot [01:40]
+ 02.Marina di Ginosa [05:13]
+ 03.Belle Epoque [04:47]
+ 04.Mandala [06:23](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E7603047FEAF24680A5E3FE3AB5D32606129EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213544   (768198) от 17.03.2018
+
+The Three Sounds - Six Classic Albums, Vol.2 (1958 - 1962) 4CD, 2014, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768198.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Three Little Words [06:17]
+02. Smoothe Groove [05:49]
+03. Just Friends [05:10](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 03:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B0E59A219D178C242415CBAFE6A101D6854D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278659   (768351) от 26.01.2019
+
+Sarah McCoy - Blood Siren (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Orleans 05:15
+02. Boogieman 02:58
+03. Hot Shot 03:28
+04. Pistol Whipped 04:06(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5531A36AD73888C2CFBB2000D03A604F3F8E0F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278640   (768607) от 26.01.2019
+
+George Mraz - Morava (2001) Milestone Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Na Osicce [5:48]
+02. Ej, hora, hora [4:43]
+03. Videla jsem meho holubka siveho [4:51]
+04. Na kosatej jedli [3:46](   Читать дальше...   )Жанр: Ethnic JazzПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3DA025EEF1DBFB7BAB0443506B083B384B951E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393195   (768610) от 29.06.2020
 
 Sam Rivers Trio - Emanation 1971 (2019) NoBusiness Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -451,249 +694,6 @@ George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA67812B6E0B39DA8C85D85BFF1241BEBC114884
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016304   (771474) от 13.05.2016
-
-Catfish John Tisdell - Nothin but the Blues (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sky's Been Cryin' (04:17)
-02. Sweet Home Chicago (04:15)
-03. Early in the Mornin' (04:19)
-04. Before You Accuse Me (03:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58ED6412FC84E0359408049B157CAA3F5C66A951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016223   (771592) от 13.05.2016
-
-Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaco Smiled
-02. One Night In Mumbai
-03. Unbreakable Heart
-04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391740   (771629) от 22.06.2020
-
-Bridget Kelly Band - Dark Spaces (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me  (05:01)
- 02. Sky's The Limit (04:25)
- 03. Dark Spaces  (05:19)
- 04. Find My Way Back Home  (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209C21D603C3088E399A74C9697C31D50C7C695E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391793   (771640) от 22.06.2020
-
-The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Did I Fall In Love [4:33]
-02. Little Tin Box [4:14]
-03. Home Again [3:03]
-04. Till Tomorrow [2:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016247   (771725) от 13.05.2016
-
-Glenn Kaiser - Bound For Glory (2006) [FLAC|Lossless|tracks + .cue] <Christian Blues, Gospel Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God's Not Dead (03:18)
-02. I've Been Redeemed (02:12)
-03. I Laid My Burdens Down (03:33)
-04. Softly And Tenderly (03:23)(   Читать дальше...   )Жанр: Christian Blues, Gospel BluesПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D9DFECCECFDB39CDC2A172F3FE6B7139545FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016268   (771728) от 13.05.2016
-
-Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Starts Are In Your Eyes [06:29]
- 02.Lover Man [06:12]
- 03.Brandnew World / Breaking A New Day [09:24]
- 04.Margy Pargy [05:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62D9430C9FB370990136805967AC0C6B6B60B1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016163   (771734) от 13.05.2016
-
-John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Love Me Or Leave Me [08:24]
- 02.I Can't Get Started [03:36]
- 03.Easy Living [04:20]
- 04.2 Degrees East - 3 Degrees West [06:13](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Third StreamПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1252EBA28A6184A421EC7D08613315BF916165F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213205   (771933) от 16.03.2018
-
-Ulla Haesen - Rio (2018) [MP3|320 Kbps] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ela È Minha Cara
-02. Disfarça E Vem
-03. Rio - Só Vim Matar A Saudade
-04. Valeu(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E5F71D3FA1CCC6F2BFC15DF73F82F53D76B9E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278456   (771985) от 25.01.2019
-
-Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Downtempo, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Rauch (5:29)
-02. Bei Rosarotem Licht (6:41)
-03. Fahr Zur Hölle (5:35)
-04. Irrwege (3:39)(   Читать дальше...   )Производство: Ipecac Recordings – IPC155Жанр: Electronic, Dark Jazz, Downtempo, Dark Ambient, Contemporary JazzПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3112F065FE397ABA3F54E37782F341599F2EB4
 ```
 
 

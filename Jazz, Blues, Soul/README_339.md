@@ -1,3 +1,30 @@
+###  Публикация: 927529   (528696) от 13.08.2015
+
+Sam & Dave, Solomon Burke - Les Genies du Rock - Hold On I'm Coming (1993) [MP3|320 кб/с]<Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold on I'm coming (2:41)
+02.  6-3-4-5-7-8-9 (2:57)
+03.  Respect (2:37)
+04.  Funky street (2:39)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066C617368C5B2830FFEC18B18FEB3E03F538D23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927533   (528701) от 13.08.2015
 
 The Shirelles - Les Genies du Rock - Will You Love Me Tomorrow (1993) [MP3|320 кб/с]<Rhythm & Blues, Soul>
@@ -668,33 +695,6 @@ Lucky Millinder - 1941 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF7128F0D8A3849498CC4BE36AB3422005C501C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155705   (529895) от 05.08.2017
-
-Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Non-Alcoholic [03:07]
-02. Caldonia [03:05]
-03. Sidewalks of Cuba [03:01]
-04. The Good Earth [02:35](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0667561046D0E7530EAADE8816352192917F8A5C
 ```
 
 

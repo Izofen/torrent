@@ -1,3 +1,30 @@
+###  Публикация: 1033210   (639767) от 10.07.2016
+
+Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. A Winter Shade Of Pale
+03. Make My Day
+04. Let It Down Easy(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033417   (639769) от 10.07.2016
 
 VA - Jazz Erotica - Sinfully Glamorous Naughty Smooth Jazz Music for Seductive Erotic Romance (2016) [MP3|320 Kbps] <Jazz>
@@ -677,33 +704,6 @@ Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:979F71ED3449BC7E96A316C95508EEFAFB03691F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227964   (641207) от 29.05.2018
-
-VA - Terror Hippie - Terror Trip (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trhip - Terror Trip
-02. T.C.N. - Cosmic Desert
-03. Mappler - The Haunting Soul
-04. Onslaught - Baba Yaga(   Читать дальше...   )Жанр: TranceПродолжительность: 09:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A1772AE86DFE8518263DB435FB01342C6C41D5
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1561196   (516792) от 03.07.2022
+
+Aerodyne - Last Days Of Sodom (2022) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angband
+02. Razor's Edge
+03. Dust To Dust
+04. Innocence Lost(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6E8A1AD2760C4B4C3B953D60C3D76491A591CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561047   (516797) от 03.07.2022
 
 Mad Dillon's Deputies - Still Unbreakable (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -677,33 +704,6 @@ Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185E6AE25730CF5200E84C008589E9859C767CF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560549   (517715) от 02.07.2022
-
-Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbps] <Progressive Rock, Experimental, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Population Three [06:51]
-02. Never Have [05:07]
-03. Love In The Past Tense [05:49]
-04. Harridan (Instrumental) [08:07](   Читать дальше...   )Жанр: Progressive Rock, Experimental, AmbientПродолжительность: 2 CD, 01:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01847CD59D9CF54E6721ADA74CC96AD0A112FA5
 ```
 
 

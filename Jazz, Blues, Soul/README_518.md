@@ -1,3 +1,252 @@
+###  Публикация: 1496427   (872846) от 17.09.2021
+
+Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slamming The Door (3:20)
+02. Next Time You Call (3:35)
+03. Finally Free (2:42)
+04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496482   (872848) от 17.09.2021
+
+Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway the Wind Blows (3:09)
+02. Like a Hammer (2:52)
+03. I Can't Stand It Anymore (2:51)
+04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300781   (873115) от 26.02.2011
+
+The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Gate
+02. Rumble
+03. Side Walk**
+04. Cool Weasel Boogie**
+05. Got A Match?
+06. Elektric City**
+07. No Zone
+08. King Cockroach*
+09. India Town
+10. All Love(   Читать дальше...)Жанр: FusionПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106149   (873213) от 19.02.2017
+
+JONES - Acoustic (2017) EP [FLAC|Lossless|tracks] <Acoustic, Soul, Singer-Songwriter>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873213.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whole (Acoustic)
+2. Hoops (Acoustic)
+3. Wild (Acoustic)
+4. Melt (Acoustic)(   Читать дальше...   )Жанр: Acoustic, Soul, Singer-SongwriterПродолжительность: 00:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91676A8CC1CCFC3CAB554C9BB01B283A3BD8712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496307   (873511) от 17.09.2021
+
+Paul Chambers - Bass On Top (1957) 1986,Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [5:56]
+02. You'd Be So Nice to Come Home To [7:19]
+03. Chasin' the Bird [6:18]
+04. Dear Old Stockholm [6:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AB62164B055318AA06479EDBEFC8007B5293CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106253   (873740) от 19.02.2017
+
+Brent Johnson - Set The World On Fire (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Make A Sound  (4:43)
+02. Meet Me In The Morning (6:27)
+03. The Ticket  (5:17)
+04. Don't Take It With You  (4:04)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FA8376BC813EE9FA440FDCB3247CB878809A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106300   (873754) от 19.02.2017
+
+Jimmy Johnson And The Chicago Dave Blues Band - Brothers Live (2002) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Will Never Do (5:36)
+02. I'm A Jockey (4:44)
+03. Little By Little (5:58)
+04. As The Years Go Passing By (9:57)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C615039F6E7DC3B91A4EC633CE3141EF1E955C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106471   (873755) от 19.02.2017
+
+Skeptic Muse - Theodicy Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theodicy Blues (5:40)
+02. Off The Tracks (4:26)
+03. Good Without God (5:08)
+04. Why? (4:32)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26BA030D03661B80B98591E09FE83719B065C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105136   (873821) от 19.02.2017
+
+Al Di Meola - Scenario (1983) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Jazz Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mata Hari (6:07)
+02. African Night (4:52)
+03. Island Dreamer (4:07)
+04. Scenario (4:00)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, FusionПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F281EDDCB8386A9376B4C0A32A4E202EC7CBB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106303   (873822) от 19.02.2017
 
 Max Greger und sein Orchester - Juke Box Hits (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Smooth, Instrumental>
@@ -461,285 +710,6 @@ Cottonmouth - Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71D6D156BB8E91E73016F1140FBCE1EA96205BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495993   (874483) от 16.09.2021
-
-Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meister Igel (Remaster) (3:58)
-02. Du gabst mir 7 Kinder (3:11)
-03. Ich hab Scheiß gebaut (5:50)
-04. Dein Herz schlägt wie es schlägt (Remastered) (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496201   (874640) от 16.09.2021
-
-V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cindy Bradley - Exhale
-02. Kayla Waters - Open Portals
-03. Nick Colionne - Right Around The Corner
-04. Oli Silk - Just Can't Resist(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99591B148E81442E4765BE38B11E2B634C2A1094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496009   (874648) от 16.09.2021
-
-VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole Trio - 'Tis Autumn (1993 Digital Remaster) (03:08)
-02. Sarah Vaughan - September Song (05:47)
-03. John Coltrane - Autumn Serenade (04:19)
-04. Dinah Washington - September In The Rain (02:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F0F209DBCC8843CC27E8D83EFC5E4E65012B09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300207   (874798) от 25.02.2011
-
-49 Ford - That's How We Roll (2011) [FLAC|Lossless]<Blues-Rock, Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Barricade My Love (5:41)
-02. Think It's Gonna Rain (5:44)
-03. 49 Ford (3:18)
-04. Ain't No Sunshine (3:47)
-05. Memphis (4:02)
-06. See What Love Can Do (5:44)
-07. Insurance Company Blues (4:34)
-08. I'd Rather Go Blind (5:48)
-09. Shoe Fly (5:09)
-10. Plantation Jam (11:41)Жанр: Blues-Rock, Funky BluesПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299443   (874800) от 25.02.2011
-
-Joe Beck & Ali Ryerson - Django (2001) [FLAC|Lossless]<Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. People Make The World Go 'Round (5:02)
-02. Laura (4:35)
-03. Django (4:45)
-04. Carioca Blue (4:12)
-05. When I Fall In Love (4:56)
-06. Spain (4:35)
-07. Come Together / Alone Together (4:20)
-08. Tenderly (3:51)
-09. Hobo (4:01)
-10. It Takes Two (3:03)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300767   (874812) от 25.02.2011
-
-Chick Corea Elektric Band - Beneath The Mask (1991) [APE|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Beneath The Mask
-02. Little Things That Count
-03. One Of Us Is Over 40
-04. A Wave Goodbye
-05. Lifescape
-06. Jammin E.Cricket
-07. Charged Particles
-08. Free Step
-09. 99 Flavors
-10. IllusionsЖанр: FusionПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765571   (874851) от 12.03.2014
-
-Nicki Parrott - Autumn Leaves (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves (3:47)
-02. Early Autumn (5:12)
-03. Autumn In New York (5:24)
-04. Autumn Nocturne (5:17)
-05. Autumn Serenade (4:31)
-06. Autumn In Rome (4:13)
-07. Tis Autumn (5:14)
-08. September Song (4:30)
-09. Lullaby Of The Leaves (4:42)
-10. Willow Weep For Me (5:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EEAB004203337519D5DB2FEECE3C9B9C22C6E2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765573   (874900) от 12.03.2014
-
-Oscar Benton - All I Ever Need Is You (2004) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All I Ever Need Is You (2:42)
-02. Everybody's telling Me (3:10)
-03. Roll On Sweet Mississipp (3:53)
-04. Bensonhurst Blues (3:38)
-05. Wooly Booly Boogie (3:13)
-06. Draggin Around (10:26)
-07. Today Is Yesterday's Tomorrow (4:08)
-08. Stop What You're doing (2:57)
-09. Took Me A Long Time (5:03)
-10. Come Back (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7A7CBE44A013EBA22FB997EBFB067AFE71B530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765580   (874907) от 12.03.2014
-
-Johnny Winter - Deluxe Edition (2001) [FLAC|Lossless]<Blues-Rock , Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mojo Boogie (4:54)
-02. Don't Take Advantage Of Me (5:24)
-03. Murdering Blues (5:01)
-04. Georgianna (3:45)
-05. Good Time Woman (6:05)
-06. Third Degree (6:35)
-07. Broke And Lonely (4:14)
-08. Master Mechanic (3:38)
-09. Lights Out (2:35)
-10. Bad Girl Blues (4:34)(   Читать дальше...   )Жанр: Blues-Rock , BluesПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC97B85FA0969F74CEA7DA263FD7A7204000344
 ```
 
 

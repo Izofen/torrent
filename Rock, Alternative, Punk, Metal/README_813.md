@@ -1,3 +1,57 @@
+###  Публикация: 1556918   (556397) от 12.06.2022
+
+MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sun Don't Shine (00:03:28)
+02 - Shame on Me (00:03:33)
+03 - My Window (00:03:57)
+04 - All in Good Time (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD02D7E3DF89D701C298326033515E5079DC4D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305602   (556401) от 31.05.2019
+
+Рекорд Оркестр - Клуб Путешественников (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Застрелись
+02. Без трусов
+03. Миллион миль
+04. Во мрак(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A921A4AF9A724A5E351B0B747C38892A8E1F8400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305520   (556411) от 31.05.2019
 
 Захар Прилепин и ELEFUNK - Цветной (2019) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Ignea (ex-Parallax) - 7 Relises (2013-2020) [MP3|320 Kbps] <Oriental Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:569FBB1549C487245E321A5DDB8C0C10D38F461C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153930   (557024) от 28.07.2017
-
-Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557024.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (01:59)
-2. No One Of Them (06:20)
-3. Awaiting (08:43)
-4. Follow In The Loveless (08:35)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CBA29AFED08E02CDE518412B95F7BAF8171E15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556630   (557072) от 11.06.2022
-
-Intus Mortem - Exiled From Light (2022) [FLAC|Lossless|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ex Inferi Oblatus (00:04:09)
-02 - May the Dead Rise (00:05:01)
-03 - Exiled From Light (00:03:12)
-04 - Blood and Lust (00:05:10)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98472E5E49BE5FA2C1D2F1FB9120BF98B171CB2B
 ```
 
 

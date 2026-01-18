@@ -1,3 +1,57 @@
+###  Публикация: 1223343   (677408) от 03.05.2018
+
+VA - This Growing Love - Best Love Music To Close The Perfect Date (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Caldwell - Then And Now [00:04:04]
+02. Steve Dafoe - Will You Still Love Me [00:04:37]
+03. Henrik Skanfors - Dance (Original Mix) [00:05:17]
+04. Vagabond Beach - Permission To Dream [00:03:12](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2172A0D438FE1A140EECBC30988ADA59D56A37D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135894   (677412) от 21.05.2017
+
+Maine - Scores (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chaque Etoile Est Un Soleil Qui Se Couche (04:28)
+2. Sauvette (03:24)
+3. Uncommon Places (03:23)
+4. Cadence (04:17)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61007BAAB4EFFE681D4F1B7F8C17F97B7F12559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135750   (677415) от 21.05.2017
 
 VA - Ultra Undeground Festival (2017) [MP3|320 Kbps] <Trance>
@@ -647,60 +701,6 @@ Tom Box (Human Error, Arbitrarium) - Discography (2009-2016) [FLAC|Lossless|Trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66025D5439F64953C834E954249ED999F0ABA822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029652   (680152) от 27.06.2016
-
-VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Body Language, Vol. 18 (Continuous Mix)
-02. Sven Laux - Off You Go!
-03. Ole Biege - Justus
-04. Landside - Still There(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290367   (680318) от 19.03.2019
-
-VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Downey & Alex Di Stefano - Among Us (Extended Mix)
-02. ReOrder & Emma Chatt - Alive Tonight (Extended Mix)
-03. Whiteroom - The Whiteroom (TyDi Extended Remix)
-04. Solarstone & Clare Stagg - Jewel (Craig Connelly Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414E2FD5B4351DB3B9E74A6E8ADABE3CDC9072F1
 ```
 
 

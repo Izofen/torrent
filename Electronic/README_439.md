@@ -1,3 +1,58 @@
+###  Публикация: 1501031   (838124) от 08.10.2021
+
+Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microsha 89 - Intro
+02. Microsha 89 - ID
+03. Microsha 89 - Play!
+04. Microsha 89 - 2021(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5147B596C441F8414FCFB182F3F6ADC067504746
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004553   (838177) от 06.04.2016
+
+Munich Syndrome - 4 Albums (2006-2012) [MP3|320 кб/с] <Electronic, Synth-pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Munich Syndrome - электронная поп-группа, основанная David B. Roundsley. Истоки и корни уходят к электронной новой волне конца 70-х и начале 80-х годов. Под большим влиянием: электро, новой волны, дэнса, техно, индустриал и синти-попа, были созданы эти альбомы.
+Аналоговые синтезаторы, драм-машины, секвенсоры, сэмплеры и вокодеры составляют основной звуковой арсенал.Список альбомов:
+2006. Sensual Ambience
+2008. Electro Pop
+2010. Electronic Ecstasy(   Читать дальше...   )Жанр: Electronic, Synth-pop, ElectroПродолжительность: 04:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A835850B1D8959F3697B33EBDF8F67921D101CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004673   (838183) от 06.04.2016
 
 Motorcitysoul - Technique (2008) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Electronic>
@@ -638,60 +693,6 @@ Eisfabrik - Discography (2015-2020) [FLAC 2.0|44.1/16,24|tracks|WEB-DL] <Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE598C763C767BAA0843066C89CB2F23E63E7BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003352   (841493) от 04.04.2016
-
-Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eating Hooks (NGHT DRPS Remix) (05:16)
- 02. Reminder (Hodges More Amor Remix) (05:44)
- 03. Eating Hooks (Siriusmo Remix) (04:42)
- 04. Fondle (04:51)(   Читать дальше...   )Жанр: Techno, IDM, Electro, Experimental •Продолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC1954655DDD8D565946635488E5E54945B81BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112588   (841538) от 09.03.2017
-
-VA - Cafe Paris: The Essence Of Chilled Moments Vol 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus Koch — Just With You
-02. Dreamhunter — Poetry For Deafness
-03. Newton — Glad But Sad
-04. Jean Honeymoon — Bang Bang — Lazy Hammock Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F54FBFE73D152CE98E7D443B985541072370D69
 ```
 
 

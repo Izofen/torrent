@@ -1,3 +1,57 @@
+###  Публикация: 1023885   (720690) от 07.06.2016
+
+Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Bodies (7:12)
+02. Surd (6:10)
+03. Octants (7:33)
+04. Stemplot (6:27)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DCD174ACF11802B00880D42228F9C84E97CD22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531563   (720758) от 16.02.2022
+
+W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NWYR - ID
+02. Robin S - Show Me Love (KEVU Remix)
+03. W&W - São Paulo ID
+04. Drive With Beats & Beachbag - Speed Of Light (AXMO Remix)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285408   (720863) от 26.02.2019
 
 VA - A State Of Trance 900 (The Official Album) - Extended Versions (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -640,60 +694,6 @@ VA - The Best Progressive Hits Vol.7 (2018) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31F8356EF20606D1362DB97450CC22508D8A54F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218501   (723307) от 09.04.2018
-
-VA - A Sensual Lounge Experience (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Pine River - Someone Like You (D-Soriani Chilly remix)
-02. 2Black - Waves Of Luv (Abel DJ & Mauro Ghess Lounge remix)
-03. Atelieur du Soleil - La Perla
-04. Bessie Boni & Massimo Mantovani - Skylark(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE44F1F0307EA242EB24F60AAC0C7EA5991F911
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218397   (723402) от 09.04.2018
-
-VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
-02. Anna Lee - Fjords (2017 Rework) (Original Mix)
-03. Atherium - Sand (In The Hourglass) (Original Mix)
-04. Arman Bas - Iris (Ahmed Romel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 913944   (601221) от 30.06.2015
+
+VA - TOP June (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kadebostany - Castle In The Snow (03:32)
+02. Kasiopea - Koliskova (Nikitsan Remix) (04:12)
+03. Sascha Braemer - No Home (03:27)
+04. Desusino Boys - We Didnt Love (07:36)(   Читать дальше...   )Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A631A2A25797BCFEAD0886CB5BA869618CBAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913624   (601229) от 30.06.2015
 
 VA - Любимые душевные песни радио Шансон (2015) [MP3|256 кб/с]<Шансон>
@@ -668,33 +695,6 @@ VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149204   (602477) от 09.07.2017
-
-VA - Rock Republic: Solid Album Of Rock (2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602477.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kiss - Forever
-002. Survive This! - Down
-003. The Vision Bleak - Spirits of the Dead
-004. Emerson, Lake & Palmer - I Believe In Father Christmas(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
 ```
 
 

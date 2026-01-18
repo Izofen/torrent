@@ -1,3 +1,298 @@
+###  Публикация: 1546429   (608135) от 23.04.2022
+
+4ерешня - Неуклюжесть (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - За изумрудом [00:05:00]
+02 - Бледная лоза [00:07:17]
+03 - Lo-fi Радио [00:04:09]
+04 - В ничто [00:05:02](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BBEE452E4D0EAE18402825CF6C4A5AADE48D24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546181   (608144) от 23.04.2022
+
+Position - Армия Личностей (2022) [MP3|320 Kbps] <Punk Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Взаимопомощь [00:03:40]
+02 - Troublemakers [00:02:23]
+03 - Идём по звёздам [00:02:55]
+04 - Усы [00:03:55](   Читать дальше...   )Жанр: Punk Rock, HardcoreПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EC5F8FC00076024156120905AF640031B7899B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 814594   (608223) от 27.06.2015
+
+Дай Дарогу! - 9 Альбомов (1999-2015) [MP3|320 кб/с]<Punk-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1999 - Зарубило
+2001 - На морозе!
+2004 - 20 см.(   Читать дальше...   )Жанр: Punk-rockПродолжительность: 08:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3477EB26FAE90DBFFA29B5F02B80092D73D99EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296838   (608284) от 19.04.2019
+
+Альянс - Хочу летать! (2019) [MP3|320 Kbps] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хочу летать!
+02. Без тебя
+03. Забытые слова
+04. С тобой на краю(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F342ADCF433342C5E382DAD45585D24E64C1644E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038258   (608359) от 27.07.2016
+
+Максим Леонидов - The Best (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Видение
+02. Гиппопотам
+03. Проплывая над городом
+04. Две гантели(   Читать дальше...   )Жанр: RockПродолжительность: 01:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A1B433734AF7CA5408DC7F4A7F053C56553A99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800046   (608458) от 16.07.2014
+
+Anberlin - Lowborn (2014) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Are Destroyer (3:29)
+2. Armageddon (4:05)
+3. Stranger Ways (4:42)
+4. Velvet Covered Brick (3:56)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08490D257BC64DDAA0D4470465DED231F17DB3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038122   (608479) от 27.07.2016
+
+The Cars - Moving In Stereo: The Best Of The Cars (2016) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just What I Needed (3:44)
+02. Since You're Gone (3:31)
+03. Let's Go (3:34)
+04. You Might Think (3:05)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB0E56D1D038C08BB0844CFC2BBF9EF26102670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296822   (608532) от 19.04.2019
+
+The Tallest Man on Earth - I Love You. It's a Fever Dream. (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel Bar
+02. The Running Styles of New York
+03. There’s A Girl
+04. My Dear(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1426070CB67DB2472B2E70C5F76FBE0FD3166D64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296820   (608533) от 19.04.2019
+
+Cage The Elephant - Social Cues (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Boy (2:43)
+02. Social Cues (3:39)
+03. Black Madonna (3:47)
+04. Night Running (3:28)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776FAE1F61EEEF4B95859706B6DD13A43326FA7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296928   (608636) от 19.04.2019
+
+Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A U R A (3:23)
+ 02. A U R A (Instrumental) (3:23)Жанр: Alternative Rock, Indie RockПродолжительность: 00:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CF5526DB278BD7D1DFAF10434F2DFEE7B31F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296913   (608647) от 19.04.2019
+
+Antreib - Назад дороги нет (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Назад дороги нет
+02. Панк-рок
+03. Кто, если не ты?
+04. Наши голоса(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281D62A497D5091D599A246F4BEC55EB47F253F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296791   (608652) от 19.04.2019
 
 Paul Weller - Stanley Road (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock, Rock & Roll>
@@ -399,303 +694,6 @@ Five Horse Johnson - Jake Leg Boogie (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EABCFAF79A8D93E664820C3C3E08DD374FD82AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546021   (609484) от 22.04.2022
-
-Udo Dirkschneider - My Way (2022) Cover Album [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith Healer (ALEX HARVEY)
-02. Fire (CRAZY WORLD OF ARTHUR BROWN)
-03. Sympathy (URIAH HEEP)
-04. They Call It Nutbush (TINA TURNER)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3B7554330C985BD5E950421BB41517A2D3D1ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147231   (609496) от 02.07.2017
-
-The Devil's Daughters with Danny B. Harvey - The Devil's Daughters (2014) [MP3|320 Kbps] <Rock N Roll, Neo-Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Hoodoo (02:45)
-02. Hard Rockin' Man (02:45)
-03. Rock Boppin' Baby (02:57)
-04. Girl Like Me (02:58)(   Читать дальше...   )Жанр: Rock N Roll, Neo-RockabillyПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF01440E15CF669D6C41AEAEE7E698AF16A02D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545935   (609629) от 22.04.2022
-
-Caliban - Dystopia (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (feat. Christoph Wieczorek of Annisokay) (4:24)
-02. Ascent of the Blessed (4:10)
-03. VirUS (feat. Marcus Bischoff of Heaven Shall Burn) (3:55)
-04. Phantom Pain (4:03)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F4AB3AC239B77B67BC3087D8F6D4BAE0D0A61F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546028   (609636) от 22.04.2022
-
-Crossplane - Fastlane (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cant Get You Out Of My Head
-02. Make Beer Not War
-03. All Hell Is Breaking Loose
-04. Rock Out(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FD99EB3844422B00980E2D705EB0CD81058A6B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147330   (609719) от 02.07.2017
-
-Emmy Lou & The Rhythm Boys - Roller Coaster Ride (2015) [MP3|320 Kbps] <Rockabilly, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rev It Up (02:59)
-02. Deja Vu (03:40)
-03. Princess In A Tower (03:16)
-04. I Need Your Lovin' (03:48)(   Читать дальше...   )Жанр: Rockabilly, Rock 'n' RollПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023B05CAC23A3BC34EA16FBE10AABC29F865E119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147160   (609724) от 02.07.2017
-
-Bishop Black - Scraping Through the South (2014) [MP3|320 Kbps] <Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah  (04:12) 
-02. Sugar Shack  (03:29) 
-03. Brother Locklayer  (03:17) 
-04. Better Days  (03:51) (   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA049354AB7E2AF7CCD187B8062FFE9ED4BA918F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147324   (609726) от 02.07.2017
-
-Emmy Lou & The Rhythm Boys - Tag Along With... (2013) [MP3|320 Kbps] <Rockabilly, Rock 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knock Out Girl (02:32)
-02. Tag Along (02:40)
-03. Black Velvet (02:22)
-04. Ordinary Man (03:05)(   Читать дальше...   )Жанр: Rockabilly, Rock 'n' RollПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A67D979C648487545E39D4D6AAA0C63CEB334C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147152   (609727) от 02.07.2017
-
-AOR - Return To L.A. (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim Of My Own Desire  (04:58) 
-02. The Trail To Your Heart  (04:41) 
-03. Dangerous To Know  (04:47) 
-04. Angels Never Sleep  (05:18) (   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F42200E07699649E3048915A88A3311C4CDB36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296556   (610132) от 18.04.2019
-
-Альянс - Сделано в белом (1991) Made In White (Aljans-3) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только с тобой (03:46)
-02. Дальше, дальше (04:47)
-03. На Восток (05:56)
-04. Эпиталама (09:03)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DD8D01D59310B67FB6EE884F57C21B9D0E5012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296751   (610250) от 18.04.2019
-
-Akado - Oxymoron № 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 001 (2:19)
- 02. Oxymoron №2 (3:41)
- 03. Dirty Easter (3:31)
- 04. Oxymoron №2 ( Karaoke Version ) (3:41)(   Читать дальше...   )Жанр: IndustrialПродолжительность: 00:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09BCB06AE091F644F9F6B915C10A9C8F4B4F375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296769   (610259) от 18.04.2019
-
-Нервы - Слэм и депрессия (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зажигалки (2:59)
- 02. Будь осторожен (4:02)
- 03. Еле бьется (3:09)
- 04. Укачу (2:19)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9041EAC8AC0FAD750E4E80129EC0383C94A4D921
 ```
 
 

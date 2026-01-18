@@ -1,3 +1,57 @@
+###  Публикация: 1123520   (785982) от 10.04.2017
+
+VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marcel Martenez & Jommes Tatze - Make Me Feel  4:51
+02.  Amoon - Let The Music Play (Extended Mix)  4:57
+03.  Freaky Tricks - Tonight  3:36
+04.  Martin Nocun - Take It To The Top (Extended Mix)  3:56(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124249   (785983) от 10.04.2017
+
+VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maximo Gladius — Renaissance [00:06:32]
+02. Jago Alejandro Pascua — Epica [00:06:12]
+03. Mikhail Ovez — Lost Love [00:05:55]
+04. Mark Gaetani — Eighty [00:06:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124245   (785984) от 10.04.2017
 
 VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ Spell of Unseeing - Weaving Light and Shadow (2020) 2021, Northern Silence Produ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12517858F00F5D5928253AAE01A9706FD50D9C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417742   (787103) от 25.11.2021
-
-Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
-02. Milty Evans - So Very Happy (06:36)
-03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
-04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276991   (787219) от 18.01.2019
-
-VA - Best Of Citrus (2018) [MP3|320 Kbps] <Electronica>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demure - Dancehall Sound
-02. Picota & Kumbh - Nebulosa
-03. Molecular - The Whale
-04. ZeroZero - Noodle Dub(   Читать дальше...   )Жанр: ElectronicaПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE070F311F2DBD383085B24072A3C221ADCD4D52
 ```
 
 

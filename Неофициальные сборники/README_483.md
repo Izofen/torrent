@@ -1,3 +1,30 @@
+###  Публикация: 1522250   (760343) от 06.01.2022
+
+Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Gipsy Wanderer
+02. It's Goodbye
+03. No Tears Anymore
+04. Lonely is the Night(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D00C07F53EF89C5E4B3E57CE74681ABD0999C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522167   (760348) от 06.01.2022
 
 VA - NYE Trance December Set (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -668,33 +695,6 @@ VA - DFM Top 30: D-Chart / Март (2018) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3086E972DD33EBD2E39DCF2DAD59898BB33D01F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214971   (761531) от 24.03.2018
-
-VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook  -  Cola (Robin Schulz Remix)  5:15
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
-04.  G-Eazy & Halsey  -  Him & I  4:29(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231B40C47E68875F4422EDD17FE9EA2416160890
 ```
 
 

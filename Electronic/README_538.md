@@ -1,3 +1,54 @@
+###  Публикация: 1842716   (1048930) от 17.12.2025
+
+VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romain Garcia - Next To YouЖанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843097   (1048939) от 18.12.2025
+
+VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mixed by Matthew Kramer) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dub Dub - One World, One Sky (Reincarnation Mix) (05:41)
+ 02.  Afterlive - Echoes of Light (Cool Lounge Cut) (05:00)
+ 03.  Entre Dos Aguas - Rooftop Groove (Bela Orellano Mix) (04:54)
+ 04.  Aphrodizia - Mainhattan Sunset (Lazy Sunday Remix) (04:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8974E181FC7CF35AB703FE85AC5B08C85A0A9151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843049   (1048952) от 18.12.2025
 
 VA - Black Hole Recordings - Best Of 2025 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -638,60 +689,6 @@ VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844753   (1050419) от 28.12.2025
-
-Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & FORS – Bring Me To Life
-02. Age Of Love vs. Jam & Spoon vs. Moby - Age Of Love vs. Stella vs. Go (Tiësto Mashup)
-03. Sonique - I Put A Spell On You (ID Remix)
-04. Tiësto - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844722   (1050421) от 28.12.2025
-
-VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suntim - Luminosity (Extended Mix) [5:06]
-02. Evgeny Casper - The Energy Of Sound (Extended Mix) [6:18]
-03. KaKi - Manjushage (Extended Mix) [7:13]
-04. Angel Ace - The Purpose (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
 ```
 
 

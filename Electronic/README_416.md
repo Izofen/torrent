@@ -1,3 +1,57 @@
+###  Публикация: 1386423   (794554) от 29.05.2020
+
+Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TV (06:53)
+02. DB (Webo Mix) (06:41)
+03. Exotica (05:46)
+04. BC Style (Vinyl Mix) (06:28)(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1545BD10AD44D837A22062B68FD6DA9E92535055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200945   (794764) от 22.01.2018
+
+Aether - Nexus (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Downtempo, Chillwave, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aether & Enzalla - Overture (04:15)
+ 02. Aether & Culprate - You (feat. Higuero) (03:44)
+ 03. Aether & Ekcle - Gloom.8 (06:10)
+ 04. Aether & Vacant - As She Wakes (04:04)(   Читать дальше...   )Жанр: Future Garage, Downtempo, Chillwave, AmbientПродолжительность: 00:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8499A89A1904979F45A3B7D3FBDB8EAF6E7937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012227   (794809) от 30.04.2016
 
 VA - Melodic Trance Vol. 1 (2016) [MP3|320 кб/с] <Trance>
@@ -633,60 +687,6 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386194   (795281) от 28.05.2020
-
-Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plaid - Eyen (Fünkstörung Remiks) (03:48)
- 02. Jay-Jay Johanson - I Want Some Fun (Fünkstörung Remiks) (04:47)
- 03. Nils Petter Molvær - Solid Ether (Fünkstörung Miks) (04:59)
- 04. A Guy Called Gerald - Humanity (Fünkstörung Remiks) (03:53)(   Читать дальше...   )Жанр: Abstract, IDM, ExperimentalПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459932FAF14956B9F00B7584D3376B670BD3418C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011839   (795500) от 29.04.2016
-
-Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kettenkarussell - Ten Friends (03:01)
-02. YokoO & Retza - Satori (04:27)
-03. Leafar Legov - Tribal Girls (04:29)
-04. Gorje Hewek & Izhevski - Torgoyakk (03:47)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC25229C14A2D7CC30608426BDA4FD70180982E6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 921392   (573431) от 26.07.2015
+
+The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.cue]<Electronic, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I Feel So Deserted (feat. Daniel Pearce)
+02. Go (feat. Q-Tip)
+03. Under Neon Lights (feat. St. Vincent)
+04. EML Ritual (feat. Ali Love)(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2319BE1630BACBC41441C32BC5773F8362B2C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921745   (573594) от 26.07.2015
 
 Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
@@ -260,6 +287,38 @@ VA - Ko Samui Beach Dinner Vol.1 (Compiled by Prana Tones) (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3124B76C71916DFE14A538479CBF375C6984ACAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527936   (574615) от 27.07.2012
+
+Blank & Jones - Relax Edition 7 (2012) [FLAC|Lossless]<Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_574615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blank & Jones - Relax Edition 7 (2012)
+Год: 2012
+Жанр: Chillout, Lounge, Downtempo
+Продолжительность: 02:01:52
+Лейбл: Soundcolours
+Каталог №: SC 0129
+Сканы: Комплект
+Кодек: FLAC
+Битрейт: Lossless(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -640,60 +699,6 @@ Mark Sherry - Confirm Humanity (2019) [FLAC|Lossless|WEB-DL|tracks] <Tech Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8C613C38C959FF180F645442A25B8E7976BB3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233945   (576341) от 02.07.2018
-
-VA - 32 Summer Of Trance Multibundle (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raphael Mayers - Endless Emotion (Original Mix)
-02. Edward Rohm - The Light Will Come (Original Mix)
-03. Francesco Giacomo - Lost Emotions (Original Mix)
-04. Cyclamen - Thomas Kelle, Martin Juha (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598576F29283CDA408CB8C131C6C52315890C92B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150998   (576360) от 17.07.2017
-
-VA - Deep Chill Out Waves Vol.2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin Place - Jazzatone (05:53)
-02. 351 Lake Shore Drive - Time (05:09)
-03. Pier-O - Air of Love (feat Marga Sol) (05:47)
-04. Marc Hartman - The Awakening (04:25)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAEB555BBC4F2699EFDC9C6CC888DE71A8E70443
 ```
 
 

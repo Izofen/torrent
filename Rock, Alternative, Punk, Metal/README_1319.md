@@ -1,3 +1,300 @@
+###  Публикация: 1845221   (1050614) от 30.12.2025
+
+Blue Madness - Blue Madness (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Batlands (6:40)
+02.  Rock 'N' Roll Over (4:02)
+03.  Southern Cross (5:25)
+04.  Wolf Moon Blues (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9372EEFF2202F054FE19746A8E541E921B08E241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845218   (1050618) от 30.12.2025
+
+Around The Block - Around The Block (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk Away (3:34)
+02.  You Take Me Down (3:41)
+03.  You Make It So Easy (3:29)
+04.  Around the Block (6:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76CB874E4CFE583B5243F53935F7F847352A503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845479   (1050641) от 31.12.2025
+
+Freddie Mercury - Mr. Bad Guy (1985) SHM-CD, Japanese Edition, Reissue, 2025, Mercury [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let’s Turn It On
+02. Made in Heaven
+03. I Was Born to Love You
+04. Foolin’ Around(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3010D43E6470D007E69895CFC98ADF169479963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845450   (1050674) от 31.12.2025
+
+Queen + Paul Rodgers - The Cosmos Rocks (2008) SHM-CD, Japanese Edition, Reissue, Remastered, 2025, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmos Rockin’
+02. Time to Shine
+03. Still Burnin’
+04. Small(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Pop RockПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36B471067616F0BB7DCE2865B96FCC5F29A74ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845372   (1050704) от 31.12.2025
+
+Запрещенные Барабанщики - Клуб Маяк (2025) Live [MP3|320 Kbps] <Rock, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мама Зузу
+2. Зима
+3. Миллион $ США
+4. Про животных(   Читать дальше...   )Жанр: Rock, ReggaeПродолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E11FDC8EA1AFBD8536DA85370E2ED052F06ADFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845370   (1050705) от 31.12.2025
+
+Graham Bonnet Band - Lost In Hollywood Again (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Of The World
+02. All Night Long
+03. Love's No Friend
+04. Making Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C89A1AF833D7B562B07B6288DF240A6E38968F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845359   (1050718) от 31.12.2025
+
+Коррозия Металла - Власть Зла (1985) Remastered, 2025, Рэм Санчис [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1050718.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Люцифер
+2. Дьявол здесь
+3. Дети дракона
+4. Власть зла(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B595108F2057C7A41CCA79CF4962C4EC03E08F3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845534   (1050730) от 
+
+VA - Полигон Records. Лучшее 2025 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иво - Фрактал (2:57)
+02. TAMATAFRESH - Тишина (3:25)
+03. Полина Баранкова и группа «Андрей Рублёв» - Мне совсем не больно (3:31)
+04. АЭРОПЧЕЛА - ЭТАЖИ (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A615B614DA57819FAA314333E59628C166E8CF83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845662   (1050765) от 
+
+Outrage - Brutal Human Bastard (2013) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brutal Human Bastard
+02. Cryptic Time
+03. Addiction
+04. Days of Disorder(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875DB2CC814A9588878BC61384CE6B3A1278B9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845629   (1050784) от 
+
+Magic Dance - No Way to Surrender (2025) [FLAC|Lossless|WEB-DL|tracks] <AOR, Synthwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Give Up (03:25)
+ 02. No Way To Surrender (04:11)
+ 03. I'm Gonna Fight (Still Breathing) (04:23)
+ 04. Bigger, Stronger, Faster, Wilder (03:35)(   Читать дальше...   )Жанр: AOR, SynthwaveПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39B81999386594927D964B52CC2B5E556498B5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845592   (1050807) от 
+
+Elderwind - Older than Ancient (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black Metal, Dark Ambient, Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:30)
+02. Prospectors (8:03)
+03. Sorrow for the Past (6:57)
+04. The Greatness of the Ancient (9:03)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Dark Ambient, Depressive Black MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18E2E0BEED350C69B268CDD9C6D56C3D3997A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845799   (1050847) от 
 
 Various - No Life 'Til Leather - A Tribute To Metallica's Kill 'Em All (2025) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash>
@@ -400,276 +697,6 @@ Venger - Times of Legend (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C52FEE9BDC34E2339837CC6B52B9FD2D7C73400
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846689   (1051375) от 
-
-Beyond The Black - Break The Silence (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising High(3:12)
-02. Break The Silence(4:23)
-03. The Art Of Being Alone(4:20)
-04. Let There Be Rain(3:46)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A88ECDA6CEF753A1B7F1C9662FD45E522B2EA74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846677   (1051378) от 
-
-Permyon - Permyon (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Sun
-02. Minstrel of Wasteland
-03. The Siege
-04. Go to Mars(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113458A8682258A74DE51F675CBED77994F5BF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846595   (1051451) от 
-
-Doro - All We Are - The Fight (2007) 2008, CD-Maximum [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All We Are (2007 version) 03:02
-02. Thunderspell 04:39
-03. Everything's Lost 03:52
-04. On My Own (Featuring Luke Gasser & Marc Storace) 03:41(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB3C9E021F62646B62D8A970FF1CCF641341574
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846526   (1051530) от 
-
-Unleashed - Fire Upon Your Lands (2025) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left for Dead
-02. A Toast to the Fallen
-03. The Road to Haifa Pier
-04. War Comes Again(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8A3038269101BA9CB917E6AC47BD6E93FD9908
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846903   (1051551) от 
-
-Petra - Hope (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filthy Lucre (03:18)
- 02. Kiss the Coals (02:59)
- 03. Oxygen (03:03)
- 04. Skin in the Game (03:39)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E837D383850C71A59922B53552FC98DC5644F90D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846884   (1051569) от 
-
-Alter Bridge - Alter Bridge (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Divide(5:04)
-02. Rue The Day(4:46)
-03. Power Down(4:08)
-04. Trust In Me(4:45)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D1E137BAC85D0971F0621DBF64386ABF465854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846798   (1051578) от 
-
-Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcement Service Public (2:26)
-02. QWERTY (Studio Version) (3:23)
-03. And One (4:31)
-04. Sold My Soul To Yo Mama (1:59)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-Metal, Alternative RockПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846791   (1051580) от 
-
-Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|Lossless|image + .cue] <Electro House, Brostep, Electronic Dance Music>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Light That Never Comes (Linkin Park X Steve Aoki) (3:50)
-02. Castle Of Glass (M. Shinoda) (6:20)
-03. Lost In The Echo (Killsonik) (5:10)
-04. Victimized (M. Shinoda) (3:01)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Electro House, Brostep, Electronic Dance MusicПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846793   (1051581) от 
-
-Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Hip Hop, Mashup>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirt Off Your Shoulder / Lying From You (4:05)
-02. Big Pimpin' / Papercut (2:36)
-03. Jigga What / Faint (3:31)
-04. Numb / Encore (3:25)(   Читать дальше...   )Тип издания: JewelcaseЖанр: Alternative / Nu-Metal, Hip Hop, MashupПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846710   (1051703) от 
-
-For My Pain... - Buried Blue (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry For Desire (04:11)
- 02. Windows Are Weeping (04:30)
- 03. WitchBitch Elite (04:35)
- 04. Child of the Fallen (03:58)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E22EA76F2CA7CD3BE41CB2892126C17A0D60C8F
 ```
 
 

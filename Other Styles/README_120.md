@@ -1,3 +1,30 @@
+###  Публикация: 1024311   (717915) от 08.06.2016
+
+VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teamheadkick - Merc with a Mouth (03:47)
+02. Junkie XL - Fear the T-Rex (02:55)
+03. Junkie XL - Because I Want To (01:01)
+04. The Chordettes - Mister Sandman (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25627D329DCE2B49A0CBAAE3F515696543E79B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024500   (717916) от 08.06.2016
 
 VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -667,33 +694,6 @@ VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E96779E52DA3BD7E547FFC15D160DA1702666337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024000   (720182) от 07.06.2016
-
-John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse (03:43)
-02. The Transference (03:50)
-03. Pyramid Collapse / Main Titles (02:25)
-04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
 ```
 
 

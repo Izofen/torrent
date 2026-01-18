@@ -1,3 +1,246 @@
+###  Публикация: 1102824   (887921) от 11.02.2017
+
+Daymé Arocena - Nueva Era (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Afro-Cuban, Vocal jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madres (5:46)
+02. Drama (3:30)
+03. Sin Empezar (2:52)
+04. Don't Unplug My Body (4:59)(   Читать дальше...   )Жанр: Afro-Cuban, Vocal jazz, SoulПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A636FD6B0C672712105DEF177A188CB4092BC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102822   (887935) от 11.02.2017
+
+R.J. Hiorns - Truth or Consequence (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Modern Electric>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gasping For Air 04:25
+02. Flaming Cannonball 03:38
+03. Blue Is The Night 04:56
+04. Are You Paranoid? 05:10(   Читать дальше...   )Жанр: Blues, Modern ElectricПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6A5AA48309343CE65859DD39F120DE3C38B842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103087   (887942) от 11.02.2017
+
+John Hiatt & The Goners - Live in Switzerland 2003 (2014) [FLAC|Lossless|image + .cue] <Blues, Folk-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887942.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lincoln Town
+2. The Tiki Bar Is Open
+3. Paper Thin
+4. Circle Back(   Читать дальше...   )Жанр: Blues, Folk-RockПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBED1D47A301BA9C6E7C01211699F3D861CCF15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103115   (887946) от 11.02.2017
+
+Rhoda Scott Lady Quartet - We Free Queens (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Soul-Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Free Queens (Feat. Geraldine Laurent & Anne Paceo) (5:46)
+02. I Wanna Move (Feat. Geraldine Laurent & Anne Paceo) (4:23)
+03. Que Reste-T-Il De Nos Amours? (5:05)
+04. One By One (Feat. Julien Alour) (5:06)(   Читать дальше...   )Жанр: Contemporary Jazz, Soul-Jazz, Post-BopПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F013255D0830B2F24373B5F7069D7AA4DAF702C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102636   (887958) от 11.02.2017
+
+Bugge Wesseltoft - Songs (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Darn That Dream
+02 My Foolish Heart
+03 How High The Moon
+04 Moon River(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FDCCB70ED1024078E14060EA9AD59BF6600F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102683   (887961) от 11.02.2017
+
+Mellow Motif - Mellow Motif (2010) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Jazz Bird [0:05:18.69]
+02. Tea For Two [0:06:33.06]
+03. They Say It's Spring [0:06:25.04]
+04. Lemon Tree [0:04:28.35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04688779A0E7595923EDCDEE28467A8A6DBA27D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103070   (887968) от 11.02.2017
+
+The Horace Silver Quintet - A Fistful Of Silver: Blowin' The Blues Away & Finger Poppin' (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887968.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blowin' The Blues Away:
+01.Blowin' The Blues Away [04:45]
+ 02.The St Vitus Dance. [04:10]
+ 03.Break City [04:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C3AA2B173ED22BAF6DC7DD696F77379257E809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103270   (887995) от 11.02.2017
+
+Lee Konitz - frescalalto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Post-Bop, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella By Starlight (9:35)
+02. Thingin (6:26)
+03. Darn That Dream (5:18)
+04. Kary's Trance (4:58)(   Читать дальше...   )Жанр: Post-Bop, JazzПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8928E21CB616A2D96BDAACAED87D77FD69228A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102841   (887998) от 11.02.2017
+
+Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rock-A-Bye Basie [06:42]
+ 02.Texas Shuffle [07:09]
+ 03.Out The Window [07:39]
+ 04.Jive At Five [09:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018AB55D4350B7FC001D4AC353527D45088E666E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102834   (888001) от 11.02.2017
 
 Bob Brookmeyer - Back Again (1978) 1990, Gazell[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -495,265 +738,6 @@ Randy Crawford - The Best Of Randy Crawford & Friends (2000) [FLAC|Lossless]<Voc
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494436   (889205) от 07.09.2021
-
-Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Paths of Light, Part 1 (4:15)
-02. Four Paths of Light, Part 2 (6:22)
-03. Four Paths of Light, Part 3 (5:30)
-04. Four Paths of Light, Part 4 (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 296724   (889324) от 17.02.2011
-
-Doug Gray - Under the Gun (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey In Your Country And Reffer In Rock & Roll  (03:55)
-02. Voodoo Childern  (04:03)
-03. Grapevine Betty  (05:07)
-04. Little Bit of Love  (03:55)
-05. Under the Gun  (03:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640131   (889501) от 06.04.2013
-
-Denny Ilett - Callin' the Children Home (2008) [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Callin' the Children Home (04:55)
-02. My Babe (04:17)
-03. I Only Got Myself to Blame (04:56)
-04. Eyes in the Back of My Head (04:25)
-05. Angel Eyes (06:00)
-06. Pretty Eyed Baby (05:55)
-07. Opposites Attract (04:26)
-08. In the Keyhole (04:11)
-09. If I Had My Time All Over Again (04:03)
-10. Six Feet Under (04:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102469   (889570) от 10.02.2017
-
-Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Do You Do Me the Way You Do (05:55)
-02. You're Just About to Lose Your Clown (03:33)
-03. Funny Bone (03:29)
-04. My Baby Likes to Boogaloo (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276EDF45FD000C70E631C6620533F2C77918052E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869701   (889654) от 16.02.2015
-
-Nicola Conte - Jet Sounds (2010) [FLAC|Lossless]<Bossanova, Future Jazz, Latin, Jazzdance>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque (3:35)
-02. Bossa Per Due (5:52)
-03. Dossier Omega (6:33)
-04. Il Cerchio Rosso (4:21)
-05. Fuoco Fatuo (3:38)(   Читать дальше...   )Жанр: Bossanova, Future Jazz, Latin, JazzdanceПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3491F697A733676E42A13CABE72C32C81AB57211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185078   (889662) от 20.03.2010
-
-Touch & Go - I Find You Very Attractive + bonus tracks (1999) [FLAC|Lossless]<Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Touch & Go - музыкальный проект, задуманный и почти целиком реализованный одним человеком David Lowe. Именно он написал, спродюсировал, сделал аранжировки на большинство мелодий альбома, записал ударные, клавишные и бас-гитарные партии, а также исполнил свои песни, помогая главной вокалистке Vanessa Lancaster. Весь альбом “I Find You Very Attractive” не так уж прост. Он представляет собой смесь самых зрелых жанров: ретро-лаунж джаза, свинга и латиноамериканских мелодий с современными дэнс-битами и сэмплами.01. Would You...?  (3:11)
-02. Straight To... Number One  (3:05)
-03. Tango in Harlem  (3:24)
-04. Big Beat  (3:12)
-05. Ecoute, Repete  (4:36)
-06. So Hot  (3:23)
-07. Mein Freund Harvey (Sugar Daddy)  (4:36)
-08. Are You Talking About Me  (3:58)
-09. Would You...? (Trailerment Go To Rio edit)  (3:13)
-10. Life's a Beach  (4:18)(   Читать дальше...   )Жанр: Jazz, Electronic, Latin, Jazzdance, Big BeatПродолжительность: 1:19:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102409   (889690) от 10.02.2017
-
-The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion! Live At Nick's (1994) 2016, Solid Reco[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softly As In A Morning Sunrise [13:15]
- 02.Caravan [13:55]
- 03.In A Sentimental Mood [02:20]
- 04.What's New [02:51](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F12FAA90159090C7EECA142B2B4341ED179227
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869616   (889743) от 16.02.2015
-
-Nick Pride & The Pimptones - Midnight Feast Of Jazz (2011) [FLAC|Lossless]<Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pimptroduction
-02. Come And Get It
-03. Lay It On The Line (feat. Zoe Gilby)
-04. Gold Leader
-05. Hug Lorenzo(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4BB92042F1CA38DB2595BD17AF28A9EFDE3A86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 869692   (889760) от 16.02.2015
-
-Nico Morelli - Live in Morocco (2011) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Blackbird
-02. Morocco Feel
-03. Canzone
-04. Starsky & Hutch
-05. New Song(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89590009D0132CF516C24BDE9716A8D88E3923BA
 ```
 
 

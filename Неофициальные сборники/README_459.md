@@ -1,3 +1,27 @@
+###  Публикация: 359875   (724717) от 02.08.2020
+
+VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217984   (724733) от 08.04.2018
 
 ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
@@ -674,33 +698,6 @@ VA - ЕвроХит Топ 40 Europa Plus 06.04.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:468865476F25392B57341B9060E07116176DAF25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399783   (725155) от 02.08.2020
-
-VA - The Official UK Top 40 Singles Chart 31.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry, Mnek - Head & Heart (Feat. Mnek) 2:46
-02. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat) 2:51
-03. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
-04. Nathan Dawe - Lighter (Feat. Ksi) 3:03(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E93458BB4E216DCE4AB2A80FFB96CA28C4F667
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1553373   (582882) от 25.05.2022
+
+VA - Trance Colors (2022) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Skyvol - 9th Life (Extended Mix) (6:58)
+002. Nicola Maddaloni - Brainwashing (Extended Mix) (6:19)
+003. U-Mount & SpaceLine - Libra Terra (Extended Mix) (7:33)
+004. Ahmed Romel - You Never Know (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C965624BB6857AA56F1CC3BCEA8A565D403156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358985   (583097) от 05.07.2011
 
 VA - Музыкайф Европы Плюс Часть 3 (2011) [MP3|256 kbps]<Dance>
@@ -651,33 +678,6 @@ VA - Летний заводной музон. Сборник 8 (2016) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAD91E8818433F2372B9844438907989341DDC2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301459   (584079) от 12.05.2019
-
-Kiss - God Gave Rock'n'Roll To You (The Best) (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2,000 Man
-02. Blue Moon Over Brooklyn
-03. Sure Know Something
-04. I Was Made For Lovin' You(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E49E23920809AC1965D7EF4BDDBEC028A6F268B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1140924   (653443) от 08.06.2017
+
+VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything But The Girl - Missing (Todd Terry Remix)  4:08
+02.  The Beloved - Sweet Harmony  3:29
+03.  Robert Miles - Children  4:02
+04.  Enigma - Sadeness  4:14(   Читать дальше...   )Жанр: Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big BeatПродолжительность: 03:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141079   (653473) от 08.06.2017
 
 Иван Кучин - Лучшие песни (2017) [MP3|320 Kbps] <Авторская песня, шансон>
@@ -687,33 +714,6 @@ VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226528   (654706) от 21.05.2018
-
-VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
-002. Loewenhertz - Irgendwann
-003. Run Vaylor - Disco Cross
-004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
 ```
 
 

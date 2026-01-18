@@ -1,3 +1,30 @@
+###  Публикация: 1127713   (730603) от 22.04.2017
+
+VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdose Edition) (2017) [MP3|320 Kbps] <House, Techno, Progressive, Electro, Trance, Trap, DubStep, Chill>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Side:
+01. Audiofly, Georgia Lewis - In The (Last) Moment (Original Mix)
+02. Florian Kaltstrom - E1 (Original Mix)
+03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: House, Techno, Progressive, Electro, Trance, Trap, DubStep, ChillПродолжительность: 35:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127679   (730701) от 22.04.2017
 
 VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127757   (731136) от 22.04.2017
-
-VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Пающие Трусы - Давай Туси 3:01
-002. Леля - Грешная 3:43
-003. Ваня Чебанов - Ты №1 3:41
-004. Кейс - Держать Тебя За Руку 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC148303E262BD503D758C5B342C6C9D2C6784F9
 ```
 
 

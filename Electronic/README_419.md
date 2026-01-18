@@ -1,3 +1,57 @@
+###  Публикация: 1199985   (797010) от 19.01.2018
+
+VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuccillo - Lovery (feat Amor - D.Y.a & Kalyma remix) (08:13)
+02. Alex Ranerro - Endless (06:18)
+03. Lonya - Achromatic (Breky remix) (07:25)
+04. Tiger Stripes - Song For Edit (feat Kerri Chandler - Black Loops remix) (07:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280F2ECFA6C0F702EEA019457A2B90176FEAF78C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199903   (797012) от 19.01.2018
+
+VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Axwell/Dirty South - Open Your Hear (Vocal Mix) (8:57)
+02.John Claudes Ades; Vincent Thomas - Shingaling (7:04)
+03.Style of Eye - Girls (7:04)
+04.Franky Rizardo - Flutetest (Tony Chacha & Paco Ramon 'Put It in the Air' Mix) (5:41)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011287   (797022) от 27.04.2016
 
 Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
@@ -641,60 +695,6 @@ VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385131   (797763) от 24.05.2020
-
-Deep Erotica - Love is in the Air. Making Love Music Background (2020) [MP3|320 Kbps] <Ambient, Easy Listening, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Purpose
-02. Faster Breathing
-03. All Night
-04. Beautiful & Sensual(   Читать дальше...   )Жанр: Ambient, Easy Listening, RelaxПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF47A5F5806787D9EFFA6F3966ABD1AF0C717320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385448   (797801) от 24.05.2020
-
-VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hajime Yoshizawa - Endless Bow (Jimpster Remix).flac
-02.Onda - Happiness Is Free.flac
-03.Blue Six - Love Yourself (Vincenzo & Basti Remix).flac
-04.Fusion Groove Orchestra - The Dream (Deep Dreamer Dub).flac(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
 ```
 
 

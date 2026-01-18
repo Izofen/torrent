@@ -1,3 +1,292 @@
+###  Публикация: 1042948   (576546) от 14.08.2016
+
+Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkeybats (3:55)
+ 02. I Want To Take You Higher / Stand (3:51)
+ 03. VooDoo Violince (5:08)
+ 04. Right-Engl-Boogie (3:29)(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E61840C673C1ED66392C91DEA496250436FEDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043049   (576549) от 14.08.2016
+
+The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baptized By Fire 3:56
+02. Made To Be Broken 3:32
+03. Willing To Forgive 3:30
+04. That's The Way God Planned It 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ABD14964B33C9A56375B6924824C09037DC0264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527289   (576623) от 26.07.2012
+
+Level 42 - 11 альбомов (1981-2006) [MP3|320 kbps] <Pop-Rock, Funk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576623.jpg" />
+</div>
+
+
+###  Подробнее
+
+О группе:Жанр: Pop-Rock, FunkПродолжительность: 00:50:44
+
+01. Dive Into The Sun (04:01)
+02. Rooted (05:31)
+03. The Way Back Home (06:53)
+04. Just For You (04:52)
+05. Sleep Talking (05:00)
+06. Retroglide (04:49)
+07. All Around (04:57)
+08. Clouds (04:30)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34E1856FA3727E42CEFACE093D61479DC06B2C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042776   (576634) от 14.08.2016
+
+The Defiants - The Defiants (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (For A Few Dollars More - Carillon's Theme)
+02. Love And Bullets
+03. When The Lights Go Down
+04. Waiting On A Heartbreak(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C6099DFBB3637065B0EE7B03D56A3AFC1C756D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043007   (576655) от 14.08.2016
+
+Downlouders - Arca (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bake Kujira [04:05]
+02. Moto Perpetuo [06:32]
+03. UNO [05:13]
+04. FTL [05:06](   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B2D0CC2308B061CFE95883BB3EED2759B4C18F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043032   (576660) от 14.08.2016
+
+The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Be Wild(feat. Claus Lessmann)
+02. Ride The Wind(feat. Michael Voss)
+03. Turn The Page
+04. Because The Night (feat. Linda Lulka)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:40:49 + 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD0600E0E42CD92C9F9276DA8F3813CAD3B80CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527485   (576774) от 26.07.2012
+
+Anglagard - Viljans Oga (2012) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_576774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ur Vilande (15:47)
+02. Sorgmantel (12:06)
+03. Snårdom (16:15)
+04. Längtans Klocka (13:22)Жанр: Progressive RockПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527075   (576924) от 26.07.2012
+
+Sodom - 30 Years Sodomized (2012) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_576924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sodom— немецкий музыкальный коллектив из Гельзенкирхена, образованный в 1982 году и исполняющий музыку в стиле трэш-метал. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной металической сцены наравне с Kreator и Destruction. Весьма экстремальная манера игры музыкантов, в значительной степени отличающаяся от игры своих современников. Группа повлияла на огромное количество трэш-дэт и в особенности блэк-метал групп конца 1980-х — начала 1990-х годов.01. Gathering Of Minds (4:18)
+02.  Unwanted Youth (3:33)
+03.  Scum (5:09)
+04.  Tombstone (3:56)
+05.  Warlike Conspiracy (2:50)
+06.  Spiritual Demise (2:53)
+07.  Book Burning (2:36)
+08.  Minejumper (3:11)
+09.  Genocide (4:49)
+10.  Where Angels Die (4:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527086   (576944) от 26.07.2012
+
+Royal Thunder - CVI (2012) [FLAC|Lossless]<Stoner Rock/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_576944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parsonz Curse (6:58)
+02. Whispering World (3:49)
+03. Shake And Shift (9:13)
+04. No Good (3:34)
+05. Blue (9:30)
+06. Sleeping Witch (6:45)
+07. South Of Somewhere (6:34)
+08. Drown (8:19)
+09. Minus (2:10)
+10. Black Water Vision (5:52)Жанр: Stoner Rock/Hard RockПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361337   (576947) от 10.07.2011
+
+Hellraiser - 4 albums + 1 live (1990-2007) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_576947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список Альбомов:
+1990 - We'll Bury You
+1994 - No Brain, No Pain
+1996 - Hellraiser Live
+1997 - 03Жанр: Thrash MetalПродолжительность: 04:20:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920859   (576994) от 24.07.2015
 
 Joe Satriani - Shockwave Supernova (2015) [MP3|320 кб/с]<Instrumental Rock, Progressive Rock>
@@ -53,6 +342,38 @@ Ringo Starr - Better Than Best (2011) [MP3|320 kbps]<Beat, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABC55542B00997BC0ECD3E2BB0CD0F89C8940C40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527726   (577184) от 26.07.2012
+
+Atlantyca - To Nowhere And Beyond (2012) [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse (5:01)
+02. Standard Man (6:13)
+03. Nowhere And Beyond (3:44)
+04. Beyond Infinite (4:37)
+05. Eternity (5:14)
+06. Time After Time (4:50)
+07. My Road (4:36)
+08. cEvilisation (4:06)
+09. Underworlds (9:00)Жанр: Progressive MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -408,309 +729,6 @@ Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150770   (577731) от 16.07.2017
-
-Roger Waters - Is This The Life We Really Want? (2017) Japan 1st press [WavPack|Lossless|image + .cue] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пятый студийный альбом Роджера01. When We Were Young (1:40)
-02. Deja Vu (4:27)
-03. The Last Refugee (4:13)
-04. Picture That (6:48)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2315F1EFCEF46166785BCF9CBB1D0B18E77C2C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223545   (577821) от 01.08.2010
-
-Владимир Кузьмин - Лучшее (2009) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огонек
-02. XXI век
-03. Белая луна
-04. Я научу тебя
-05. Горят огни
-06. Небесное притяжение
-07. Ясная звезда (Без тебя)
-08. Наши дни
-09. Пороги
-10. Зачем уходишь ты(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150809   (577877) от 16.07.2017
-
-Edguy - Monuments (2017) 2CD [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ravenblack (5:09)
-02. Wrestle the Devil (4:00)
-03. Open Sesame (5:01)
-04. Landmarks (4:35)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6736FC77CC2E99B5D52AF45B0E9F075999B614F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553257   (577896) от 30.05.2022
-
-Cabin Boy Jumped Ship - 3 Albums (2016-2022) [MP3|320 Kbps] <Post-hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentiments [00:00:34]
-02. Demons [00:03:55]
-03. War [00:04:42]
-04. Golden [00:04:42](   Читать дальше...   )Жанр: Post-hardcore, MetalcoreПродолжительность: 3 CD, 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922A72312E59C71AE8D3A72715B30EA05F9A0356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554116   (577900) от 30.05.2022
-
-Tito Falaschi - Mirror Of Souls (2022) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Moment of Hope [00:01:41]
-02 - Fight for Freedom [00:04:58]
-03 - Beyond the Shore [00:04:03]
-04 - Like an Angel [00:05:25](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C908FD27BFBA4218BB49129F3B5C36DC3052B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554458   (577903) от 30.05.2022
-
-The Palth - Palth Fiction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rota Fortunae (00:00:14)
-02 - Terror-Horror (00:03:47)
-03 - Plastic Dream (00:03:14)
-04 - Coma (00:02:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5686976941FDA975D678135D89F655E06E3747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554472   (577904) от 30.05.2022
-
-Liam Gallagher - Down By The River Thames (Live) (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello (Live from Down By The River Thames)
-02. Wall of Glass (Live from Down By The River Thames)
-03. Halo (Live from Down By The River Thames)
-04. Shockwave (Live from Down By The River Thames)(   Читать дальше...   )Жанр: Alternative, BritpopПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BE3DBF79D65C64D8BAFF4B8EC2B9055049E56B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171324   (577982) от 13.08.2016
-
-Joe Walsh - The Smoker You Drink, The Player You Get (1973) remaster, 2009, Audio Fidelity [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocky Mountain Way (5:16)
-02. Book Ends (2:47)
-03. Wolf (3:11)
-04. Midnight Moodies (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831975DF396596694F46102002338D507666ACD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302538   (578008) от 18.05.2019
-
-Rodrigo y Gabriela - Mettavolution (2019) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578008.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mettavolution (04:04)
-2. Terracentric (03:33)
-3. Cumbé (03:19)
-4. Electric Soul (03:58)(   Читать дальше...   )Жанр: Rock, Acoustic, FolkПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1754E148A4523CD875F6BA67E4A989DF35136757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233281   (578061) от 01.07.2018
-
-May Blitz | Bakerloo - 3 albums, 4 CD (1969-1971) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эту группу можно сравнить с Led Zeppelin, ранними Black Sabbath или ранними Uriah Heep. К сожалению, у May Blitz не было своего прорыва, и их история закончилась после выхода двух пластинок.Список альбомов:
-May Blitz
-1970 | May Blitz
-1971 | The 2nd Of May(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Progressive Rock |Продолжительность: 03:02:57 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE952C75ABB0CA0C2FEE5B65EDD55F1F8725C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473050   (578079) от 13.08.2016
-
-Bryan Adams - Cuts Like a Knife (1983) remaster, 2012, Audio Fidelity [WavPack|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (3:17)
-02. Take Me Back (4:42)
-03. This Time (3:21)
-04. Straight From the Heart (3:32)(   Читать дальше...   )Продолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B81733611445BE9E2355B2436769867B0763C4
 ```
 
 

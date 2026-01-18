@@ -1,3 +1,30 @@
+###  Публикация: 979256   (959771) от 26.01.2016
+
+VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roy Orbison - You'll Never Walk Alone
+002. Prince - Baltimore
+003. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey)
+004. Trey Songz & DJ Drama - 03 Trey Songz - BlessedЖанр: eurodance, pop, houseПродолжительность: 07:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979580   (959868) от 26.01.2016
 
 Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-Disco, Dance>
@@ -672,33 +699,6 @@ VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978235   (962621) от 24.01.2016
-
-2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Агорафобия
-02. Вооружённая каблуками
-03. За горизонтом событий
-04. Девять Жизней(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
 ```
 
 

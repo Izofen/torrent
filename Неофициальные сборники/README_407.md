@@ -1,3 +1,30 @@
+###  Публикация: 1140111   (656683) от 05.06.2017
+
+VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Annihilator -  Syn. Kill 1  (04:27) 
+02.Anthem -  Go Insane  (04:43) 
+03.Anthem -  You  (03:55) 
+04.Astralion -  Sacrificed & Immortalized  (07:21) (   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139958   (656690) от 05.06.2017
 
 VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -707,33 +734,6 @@ VA - The best hits 80-90 (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C09E037064435D8955E0A9B15FB0CC636E7DB38E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225852   (657751) от 18.05.2018
-
-VA - NRJ Latino Hits Only! 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Latin Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657751.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Sean Paul - Mad Love
-02. El Profesor - Bella ciao (HUGEL Remix)
-03. Lartiste - Mafiosa (feat. Caroliina)(   Читать дальше...   )Жанр: Pop, Latin DanceПродолжительность: 02:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
 ```
 
 

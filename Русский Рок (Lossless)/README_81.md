@@ -1,3 +1,57 @@
+###  Публикация: 1841151   (1047788) от 09.12.2025
+
+Воскресение - Концерт В Театре На Таганке (2022) 2 x CD, Album, Limited Edition, 2025 [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047788.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Делай своё дело
+02. Посмотри как я живу
+03. Научи меня жить(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFD9DFA679169EBAA54F8BC513755C0E5A9A420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841647   (1048215) от 12.12.2025
+
+Курара - Эстеты (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слишком [00:04:29]
+02. Будда (album mix) [00:04:55]
+03. Эстеты [00:07:01]
+04. Мразь [00:06:44](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 01:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6BA1942B2C7552DC8C3EC5C8EA712E8992FF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842000   (1048336) от 14.12.2025
 
 Нуки - Акустика на случай зомби-апокалипсиса. Ч.2 (Acoustic version) (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Acoustic>
@@ -263,6 +317,114 @@ magnet:?xt=urn:btih:A46DF5893FD266AB41992FE84AB610E7C62A81D9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C629B19CB5481FC4B165EDEBE5F1E8BFFF9C64C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847247   (1051911) от 
+
+Aeon Spiral - 2 Albums, 1EP (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Neoclassical>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2025 - Kingdom of Crooked Mirrors (LP)
+2026 - Королевство Кривых Зеркал (LP)
+2025 - Vortex Eterna (EP)Жанр: Progressive-Metal, NeoclassicalПродолжительность: 3 CD, 01:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061169D859CECE8BBD3C990391AE4C661E7B4F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847101   (1051997) от 
+
+Воля и Разум - Воля и Разум (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Берегись [00:03:58]
+02. Царь природы [00:03:50]
+03. Щит и Меч [00:04:52]
+04. Одиночество [00:05:30](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9AE9492D67C462851373D3CA12E7D466809AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846956   (1052022) от 
+
+MOR - Разумное, громкое, вечное (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пламя [00:03:15]
+02. Гори ясно [00:03:33]
+03. Мантра [00:02:49]
+04. Надейся на себя [00:03:43](   Читать дальше...   )Жанр: Hardcore, Southern MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D146294C85A50738DDA7606E1045C7F9BCF01303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847149   (1052075) от 
+
+Астера - В Сердце Шторма (2016) Remastered, 2025, Astera records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дети Неба (remastered 2025) [00:04:26]
+02. Девятый Вал (remastered 2025) [00:04:55]
+03. Твой Сон (remastered 2025) [00:04:18]
+04. Новый День (remastered 2025) [00:04:28](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEA30A385B97F024794277A10A9A7EA0508BEA5
 ```
 
 

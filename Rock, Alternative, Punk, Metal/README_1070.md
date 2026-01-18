@@ -1,3 +1,297 @@
+###  Публикация: 881977   (820854) от 27.03.2015
+
+Santana - The Magic Of Santana (2015) [MP3|320 кб/с]<Rock, Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti (4:45)
+02. Oye Como Va (4:19)
+03. Black Magic Woman (3:18)
+04. Europa (5:05)(   Читать дальше...   )Жанр: Rock, Blues, Blues Rock, Latin BluesПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AB3769B25B1D8A87D7D1F4A4AFD01BAB33F107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382204   (820870) от 10.05.2020
+
+Within Temptation - Entertain You (2020) Single [FLAC|lossless] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entertain You (03:31)Жанр: Gothic MetalПродолжительность: 00:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE68EE2FF6E9925F0267EC710AAE2823D81613F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116986   (820914) от 21.03.2017
+
+7Б - Солнцу решать (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Солнцу решать
+ 02. Душа моя
+ 03. Белые ночи
+ 04. Дети Вавилона(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDC5074B959CCF39DC957D5B35F6349D44044DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116947   (820917) от 21.03.2017
+
+bAbA yAgA - bAba yAgA (1992) [APE|Lossless|image + .cue] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The U.S.S.R. 1:42
+02. Side To Side 4:46
+03. Red Bird 4:41
+04. Where Will You Go 4:12(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E379CC151865F4AEC5BAA126E08A495CDDBB6191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382255   (821032) от 10.05.2020
+
+Dimmu Borgir - Stormblast (Special Edition) (2005) [FLAC|Lossless|image + .cue] <Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alt Lys Er Svunnet Hen [04:44]
+02. Broderskapets Ring [05:30]
+03. Nar Sjelen Hentes Til Helvete [04:43]
+04. Sorgens Kammer - Del II [05:51](   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F587A0930C6AEA36612041A4737AE980607C2699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116818   (821044) от 21.03.2017
+
+Eclipse - Monumentum (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Vertigo  (03:23) 
+02| Never Look Back  (03:20) 
+03| Killing Me  (03:46) 
+04| The Downfall Of Eden  (04:21) (   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B302CC6D1F0C5A3DF92CA352375425889A88AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116973   (821162) от 21.03.2017
+
+Front Riders - Steel Trail (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Iron Voice (feat. Asmodeus)
+02. Hold Your Head Up
+03. Front Rider
+04. Night Of The Sins(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4423F526D517D3FAC811B76BF6C63A9F20BA8E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117169   (821176) от 21.03.2017
+
+John Budnik Band - Transformations (2017) [MP3|320 Kbps] <Northern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SoCal (03:57)
+02. Heartstrings (03:24)
+03. Paint You a Picture (03:15)
+04. The Love Nihilist (03:37)(   Читать дальше...   )Жанр: Northern RockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0F1BA56352393D9E92AC3CB51FF39B7191946E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116833   (821189) от 21.03.2017
+
+Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (instrumental) 01:07
+02. Disinclination 03:57
+03. The Tomb 04:36
+04. Path In The Snow 05:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0932FE2E3B06F97D62CA819E2D8D0F24D7A2C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116847   (821191) от 21.03.2017
+
+Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (instrumental) 00:57
+02. Years Of Patience And Regret 06:33
+03. Pretending Not To See 06:53
+04. Bitterness 06:35(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA73FE3BA34D3F929DE5583EC1AD29007DDCA7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116821   (821285) от 21.03.2017
+
+Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind of New War
+02. When Night Falls
+03. Winter in My Mind
+04. Satanica(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49709225FDA05EB7704BCBD778ECD53FEDCC53B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503222   (821334) от 18.10.2021
 
 Rosetta Stone - Retrospective Roller 1977-1979 (2004) 2 Albums + 1 Single [MP3|320 Kbps] <Rock, Glam, Power Pop>
@@ -397,306 +691,6 @@ System Of A Down (SOAD) - 7 albums, 3 singles, 11CD (1998-2011) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DEDA14B8BDC36462205EC4228822F23BD06D46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598538   (822271) от 09.05.2020
-
-Demons & Wizards - Touched By The Crimson King (2005) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson King [05:47]
-02. Beneath These Waves [05:12]
-03. Terror Train [04:46]
-04. Seize the Day [05:22](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF9C0BB697AC8E4912E07F3D0A5B3214CACC90B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196611   (822300) от 03.01.2018
-
-Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scream 4:02
-02. I Am the Fire 3:37
-03. Sick Individual 3:28
-04. Amen 2:58(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8219AE50ECE0418007EA77CB0FB9B4DDCDF2CDB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116438   (822332) от 20.03.2017
-
-Brothers Moving - Brothers Moving (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Gypsy folk, Rock, Acoustic rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (5:07)
-02. Sorte Sigojner (5:07)
-03. Mad Within Reason (3:52)
-04. Since You Left Home (3:42)(   Читать дальше...   )Жанр: Gypsy folk, Rock, Acoustic rockПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15F8B7177B3D3181F1255308CFD1DDA8085C781
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598564   (822364) от 09.05.2020
-
-Dimmu Borgir - Spiritual Black Dimensions (1999) [FLAC|Lossless]<Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reptile [05:16]
-02. Behind the Curtains of Night - Phantasmagoria [03:19]
-03. Dreamside Dominions [05:13]
-04. United in Unhallowed Grace [04:22](   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B9DD78736D95AEE11CBBC12E009EABE572FACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382023   (822367) от 09.05.2020
-
-7Б - Я умираю, но не сдаюсь! (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822367.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Неизвестный солдат
-2. Кино
-3. Молодые ветра
-4. Некрещёная луна(   Читать дальше...   )Жанр: RockПродолжительность: 03:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD8F7C406404764D76C6CD132E36B0F4EAF847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382152   (822371) от 09.05.2020
-
-Sabaton feat. Radio Tapok - The Attack of the Dead Men (Live in Moscow) (2020) Single [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822371.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Attack of the Dead Men (Live In Moscow)Жанр: Heavy MetalПродолжительность: 00:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F98CCDADB3F98C2F5CFC45A20E1F323863E2BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196628   (822410) от 03.01.2018
-
-Дальше в Лес - Проще (2017) [MP3|320 Kbps] <Art Rock, Indie Rock, Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальше в лес
-02. Бирюзовый
-03. Направление
-04. Не надоела(   Читать дальше...   )Жанр: Art Rock, Indie Rock, Acoustic RockПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29B29938C23D5DAABE908E1AC244F60126D1C4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196642   (822412) от 03.01.2018
-
-Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Bites (So Do I) 3:39
-02. Mz. Hyde 4:03
-03. It's Not You 3:23
-04. Freak Like Me 4:45(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C56130304DECE8ACDEFC3ECAFBAC724F1C5F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007383   (822466) от 14.04.2016
-
-Crematory - Monument (2016) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Misunderstood
-2. Haus mit Garten
-3. Die So Soon
-4. Ravens Calling(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD5D39D937DB4B60F7476A5367E903A40788F04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116684   (822483) от 20.03.2017
-
-Ravager - Eradicate... Annihilate... Exterminate... (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822483.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Burn the Cross
-2. Deathbringer
-3. Human Sacrifice
-4. War Without End(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877015032FB54E9BBFF93A0D75D72A938EE94B0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314362   (822544) от 26.03.2011
-
-Манго - Манго Дискография (1996-2004)[flac|lossless] <rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провода (3:54)
-02. Маклай (3:47)
-03. Если ты не вернёшься (2:40)
-04. Дибули (2:49)
-05. Камыши (2:20)
-06. Ямомота (2:57)
-07. Гюлькюлюм (4:35)
-08. Кальмары (3:12)
-09. Свобода (3:30)
-10. НЕ отдам (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1150948   (578025) от 16.07.2017
+
+VA - Day Of Radiance: Space Ambient (2017) [MP3|320 Kbps] <Electronic, Synthspace, Synth Ambient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Periskop - Horizon
+02. Erot - In a Distant Dream
+03. Erugo Purakushi - Digital Ethic
+04. Warmth - Youth(   Читать дальше...   )Жанр: Electronic, Synthspace, Synth AmbientПродолжительность: 04:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BF4963AB7D8B10B2C51AE6A3B63ECC96A9B098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233689   (578054) от 01.07.2018
 
 VA - Kiss FM: Top 40 Июнь (2018) [MP3|320 Kbps] <Pop, Dance, House>
@@ -659,39 +686,6 @@ VA - Дискотека ВКонтакте №1 (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E89963447F1F9FB7320A2BF8984A538F17C90B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361002   (578748) от 09.07.2011
-
-VA - Love: I Land  Listening 27: On walks the Night (2010) [MP3|320 kbps]<Erotic Downtempo, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapsody ft. Angelique Kidjo & David Whitley - A child is born
-02. 4 To The Bar - Ain't No Sunshine, When She's Gone
-03. Alan De Laniere ft. Gladys Tacita - Hey Listen
-04. Connie Price & The Keystones - Sucker Punch
-05. General Levy - Indian Pearl
-06. Prince Alec - Fade Away
-07. The Peter Malick Group Ft. Norah Jones - Strange Trasmissions (DJ Strobe Bossanova Remix)
-08. Infusion - Daylight Hours
-09. Tape Five - ...Quero Te A Sambar
-10. Jesse Cook - On Walks The Night(   Читать дальше...   )Жанр: Erotic Downtempo, Easy ListeningПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D5F92F023715E8E018684A739A5162C86CB568
 ```
 
 

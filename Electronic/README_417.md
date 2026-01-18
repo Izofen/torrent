@@ -1,3 +1,57 @@
+###  Публикация: 1386194   (795281) от 28.05.2020
+
+Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaid - Eyen (Fünkstörung Remiks) (03:48)
+ 02. Jay-Jay Johanson - I Want Some Fun (Fünkstörung Remiks) (04:47)
+ 03. Nils Petter Molvær - Solid Ether (Fünkstörung Miks) (04:59)
+ 04. A Guy Called Gerald - Humanity (Fünkstörung Remiks) (03:53)(   Читать дальше...   )Жанр: Abstract, IDM, ExperimentalПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459932FAF14956B9F00B7584D3376B670BD3418C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011839   (795500) от 29.04.2016
+
+Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kettenkarussell - Ten Friends (03:01)
+02. YokoO & Retza - Satori (04:27)
+03. Leafar Legov - Tribal Girls (04:29)
+04. Gorje Hewek & Izhevski - Torgoyakk (03:47)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC25229C14A2D7CC30608426BDA4FD70180982E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011935   (795502) от 29.04.2016
 
 VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks + .cue] <House>
@@ -642,57 +696,6 @@ Exist Strategy - Cold Dawn (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B8C95885927314D8F9F095EA9E8CEF66D98600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200249   (796410) от 20.01.2018
-
-VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sl4tch feat. Doris Stadler - In a Game 02:37
-02. The Boogeyman - Be Free (Radio Edit) 03:03
-03. Mr. Groove - Mouraria (Radio Edit) 03:20
-04. Dr. Beat - How About You (Radio Edit) 03:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200284   (796424) от 20.01.2018
-
-VA - Dance Hits (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
 ```
 
 

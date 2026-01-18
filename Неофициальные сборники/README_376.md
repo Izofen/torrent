@@ -1,3 +1,30 @@
+###  Публикация: 1036745   (618980) от 21.07.2016
+
+VA - Музыка Для Свидания (2016) [MP3|320 Kbps] <Pop, Jazz, Rock, RnB, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sambodhi Prem - Illumination (Underscores)
+002. Microphones - I Felt Your Shape
+003. Elvis Presley - All Shook Up (Original Mix)
+004. Martin Jacoby/Yann Tiersen - Comptine d'un autre ete, l'apres-midi(   Читать дальше...   )Жанр: Pop, Jazz, Rock, RnB, RelaxПродолжительность: 06:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5E3EDB37F7A81CEAB3605809950C7276007AD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036576   (618983) от 21.07.2016
 
 VA - Горячая поп сотня. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
@@ -710,33 +737,6 @@ VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910884   (620362) от 21.06.2015
-
-VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xoma - Haze (Original Mix) (04:49)
-02. Brookes Brothers - Anthem (Brookes Brothers Fusion Remix) (03:20)
-03. Rameses B - With You (Original Mix) (05:09)
-04. Drifta - Feel The Heat Ft Fia Leon (Original Mix) (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C658E6170D4D06073F61067CEACA94686DE06B9
 ```
 
 

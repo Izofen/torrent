@@ -1,3 +1,30 @@
+###  Публикация: 1155705   (529895) от 05.08.2017
+
+Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Non-Alcoholic [03:07]
+02. Caldonia [03:05]
+03. Sidewalks of Cuba [03:01]
+04. The Good Earth [02:35](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0667561046D0E7530EAADE8816352192917F8A5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927225   (529930) от 12.08.2015
 
 LaBelle - Nightbirds (1974) /2015, Audio Fidelity/ [FLAC|image+.cue]<Funk, Soul>
@@ -668,34 +695,6 @@ Nancy Wilson - With My Lover Beside Me (1991) Sony Music [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631DCC9C24D9301F7447B1CBBB59ED2921A92AC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593522   (532427) от 07.09.2013
-
-Shaun Murphy - 4 Альбома (2009-2012) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2009 - Livin' The Blues
-2010 - Trouble With Lovin'
-2011 - Live At Callahan's Music Hall
-2012 - Ask for the MoonЖанр: BluesПродолжительность: 03:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA909E2DAB9B68F7AFEE46D8EA92D1B965167C9
 ```
 
 

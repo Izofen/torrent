@@ -1,3 +1,57 @@
+###  Публикация: 1400426   (719143) от 05.08.2020
+
+Модель Поведения - Признаки прошлого (2020) [MP3|320 Kbps] <New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный завет [00:03:16]
+02. Советский ньювейв [00:03:23]
+03. Форд Эскорт [00:03:15]
+04. Насквозь [00:02:43](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57FDE40DCDB1A2E23074DAE6DB1A5B0A0C50C41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400364   (719144) от 05.08.2020
+
+VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
+02. Housework - Culture Vibes (Drumflow Cut) (6:12)
+03. Clublife - Different Things (Poolside Mix) (6:17)
+04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 05:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400427   (719145) от 05.08.2020
 
 The Violent Youth - Там, где нас нет (2020) [MP3|320 Kbps] <New Wave>
@@ -638,60 +692,6 @@ Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:678D8AF94821AC768959231DF38CA05BC4EE5DD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023885   (720690) от 07.06.2016
-
-Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Bodies (7:12)
-02. Surd (6:10)
-03. Octants (7:33)
-04. Stemplot (6:27)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DCD174ACF11802B00880D42228F9C84E97CD22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531563   (720758) от 16.02.2022
-
-W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NWYR - ID
-02. Robin S - Show Me Love (KEVU Remix)
-03. W&W - São Paulo ID
-04. Drive With Beats & Beachbag - Speed Of Light (AXMO Remix)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 523350   (617222) от 16.07.2012
+
+VA - Esthetics Lounge Vol. 4 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617222.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opal Feat. Querubyna - Loving You (4:18)
+2. Loco Dice - Pimp Jackson Is Talkin' Now!!! (5:59)
+3. Phil Thurston - Suveo (3:49)
+4. Mimi Page - Mimi Page - All I Need (4:23)
+5. Pempi Arroyo - You Really Got Me (5:21)
+6. Goloka - Tobacco Slide (4:03)
+7. Sunpeople - Above & Beyond (Come Around Sundown Mix) (5:38)
+8. Jazzamor - Cherish (The Night, The Life, The Moon) (4:01)
+9. Smoma - Secret (4:15)
+10. Arnold T - Just The Way You Are (4:29)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6522DEF48932186DA9CF80F914BA1D657336D46B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036930   (617280) от 22.07.2016
 
 VA - Kamasutra Erotic Chillout Vol.3: Sounds of Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -695,33 +728,6 @@ VA - Record Super Chart 540 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:058FDB5B0437C6DA390E3B08BE321232AE106296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036745   (618980) от 21.07.2016
-
-VA - Музыка Для Свидания (2016) [MP3|320 Kbps] <Pop, Jazz, Rock, RnB, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618980.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sambodhi Prem - Illumination (Underscores)
-002. Microphones - I Felt Your Shape
-003. Elvis Presley - All Shook Up (Original Mix)
-004. Martin Jacoby/Yann Tiersen - Comptine d'un autre ete, l'apres-midi(   Читать дальше...   )Жанр: Pop, Jazz, Rock, RnB, RelaxПродолжительность: 06:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5E3EDB37F7A81CEAB3605809950C7276007AD3
 ```
 
 

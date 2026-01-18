@@ -1,3 +1,30 @@
+###  Публикация: 1492082   (902412) от 30.08.2021
+
+VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Hybrid - Badboy
+002. Jungle Department - Side A
+003. Kumarachi & Dj Hybrid - Never Stop
+004. Deekline, Ed Solo - Bam Bam(   Читать дальше...   )Жанр: Jungle, D&B, Electro BassПродолжительность: 07:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616E322F0A05DFDC397E4CAE1E97DC56B44A82F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992183   (902422) от 01.03.2016
 
 VA - Музыка хорошего настроения 2 (2016) [MP3|256 кб/с] <Pop>
@@ -680,33 +707,6 @@ VA - Новинки С  Разных Популярных MP3 сайтов Вы�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB19D1A1CF873388ECBAEA9C34A6641B9AF16638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991689   (904226) от 29.02.2016
-
-VA - Relaxed Guitar Chillout: Selected Summer Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ms. Jones and the Fireflies - Born Again - Koko Beach Boy Mix
-02. Holiday Groove - Bella Vita - City Of Owls Mix
-03. Benny loves 2 Dance - Waves of Life - Scream and Shout Mix
-04. Lotti barks the moon - Chilling Beach - Lights for Ellie Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF1FACCDBDF4015966920CC00229BDD7531095F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1219359   (713329) от 14.04.2018
+
+VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2illusions - Flying Butterfly (Original Mix) 3:56
+02. 2illusions - Spring Day 3:15
+03. Daminika - Last Goodbye 4:03
+04. DJK - I Like Chopin (Rainy Daze Chillout mix) 4:54(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 18:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16B051E3CDE27EEAF4333CB7780A0A5C41365CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401016   (713344) от 08.08.2020
 
 VA - Expression Vocal House (2020) [MP3|320 Kbps] <Vocal House, Electro>
@@ -668,33 +695,6 @@ VA - Romantic Erotic Piano: Sensual Erotic Jazz (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:998504CD82446C00941E16B924B722D3B31C8B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024780   (714317) от 10.06.2016
-
-VA - Nu Collection: Cool Tunes, Electronic and Chill Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meadowlark - Eyes Wide (3:43)
-02. Saavan - Flown (3:54)
-03. Glimmer of Blooms - Take My Hand (3:21)
-04. La Fine Equipe - Cheese Naan (3:37)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A980A1851B605435CB268B6C846109081BBC0DD9
 ```
 
 

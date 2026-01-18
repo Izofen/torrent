@@ -1,3 +1,300 @@
+###  Публикация: 1614909   (1038109) от 24.02.2023
+
+Insomnium - Anno 1696 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Melodic-Death-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1696 (6:19)
+02. White Christ (6:03)
+03. Godforsaken (8:36)
+04. Lilian (4:29)(   Читать дальше...   )Жанр: Melodic-Death-MetalПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CE9C5977D16EAC70A17F6DCCF61343B2BC1F6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615012   (1038110) от 24.02.2023
+
+Godsmack - Lighting Up The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And I [00:05:17]
+02. Red White & Blue [00:04:04]
+03. Surrender [00:03:40]
+04. What About Me [00:03:55](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D443CDA205AD08FE3C93F671594B27F423DBC186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615084   (1038111) от 24.02.2023
+
+Nightwolff - Riding The Night (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell Train [00:04:31]
+02 - Riding the Night [00:04:19]
+03 - Chasing Stars [00:05:02]
+04 - LHF (Long, Hard Fall) [00:03:56](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE0B47C1FCC2413DD2E9BB61A7DC3980D8EFE2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615048   (1038112) от 24.02.2023
+
+Карабас и НесуРазности - Едем мы на оргию (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Едем мы на оргию
+2. Космотанцы
+3. Клоуны
+4. НовостиЖанр: RockПродолжительность: 00:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BF584DAF75AB7022A81DE4A9A17927DE9424F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592210   (1038113) от 24.02.2023
+
+Adellaide - Deja Vu (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transcendence
+02. Superfanatic
+03. Without You
+04. Girl From Syria(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622EC3248DB48F03DFFA124542271613A5690021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615144   (1038115) от 24.02.2023
+
+Megaton Sword - Might & Power (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raving Light of Day [00:05:05]
+02. Iron Plains [00:05:53]
+03. Power [00:04:30]
+04. Cowards Remain [00:04:15](   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF2430A200647EE082E576D7A4E8901DBFFDF0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615100   (1038116) от 24.02.2023
+
+Tanzwut - Silberne Hochzeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Harte, Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labyrinth (04:36)
+02. Ihr wolltet Spass (03:41)
+03. Meer (05:02)
+04. Was soll der Teufel im Paradies (04:21)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Folk Metal, Industrial MetalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65860CDFDA6498B5D91545E280DA6E1B971B01EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614922   (1038117) от 24.02.2023
+
+The Church - The Hypnogogue (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascendence (5:38)
+02. C'est La Vie (4:55)
+03. I Think I Knew (3:57)
+04. Flickering Lights (4:50)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C5D5D9913F7FC3E3685FC47C706145CAAA67C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615126   (1038118) от 24.02.2023
+
+Ascension - Under The Veil Of Madness (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Symphonic Metal, Emo-Core>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sayonara [00:06:21]
+02. Megalomaniac [00:03:58]
+03. Defiance [00:04:59]
+04. Monsters [00:07:15](   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Emo-CoreПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B6FBB6AF02C417D5CB5C4B89F37477544973C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615001   (1038119) от 24.02.2023
+
+Dope - Blood Money Part Zer0 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Industrual Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Respect (4:12)
+02. Believe (4:36)
+03. Best Of Me (2:48)
+04. Choke (3:29)(   Читать дальше...   )Жанр: Nu-Metal, Industrual MetalПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CF4BCC9FDC8A91C8DAC7BE458674B67FED789B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615003   (1038120) от 24.02.2023
+
+Fish - Vigil’s End – UK Tour 2021 (2022) 2xCD [WavPack|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038120.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Grace Of God
+02. Big Wedge
+03. Man With A Stick(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6112878EA8EED0F7DB4839C1F32088130E6181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614908   (1038124) от 24.02.2023
 
 Fell Ruin - Cast in Oil The Dressed Wrought (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
@@ -398,303 +695,6 @@ Venomous Concept - The Good Ship Lollipop (2023) [MP3|320 Kbps] <Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D4D1559EA206F01104601D6F612A4FCCB94F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614830   (1038378) от 23.02.2023
-
-Royal Autumn - Life Is Strangely Accidental (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watcha Got? (03:36)
-02. Thin & Blond (04:36)
-03. Take It To The Grave (02:40)
-04. Life Is Strangely Accidental (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDE4F09A83F9B58833FD9EF2FDE5FFEF5078A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614832   (1038379) от 23.02.2023
-
-Bloody Capes - Grey Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Bc [00:01:59]
-02. Ashen Horse [00:05:25]
-03. Night Inks [00:07:04]
-04. Knowing [00:07:19](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE4BAA83C08001E6231B7B0AD512557D48E6588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601352   (1038380) от 23.02.2023
-
-Incidense - Collide (2022) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Descent (10:31)
- 02 - Blinded (12:57)
- 03 - Deafening (06:43)
- 04 - Shock and Awe (06:30)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209B6E279877C6BDCD345D142C9952EEFA8CC0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614812   (1038381) от 23.02.2023
-
-Rick Miller - Altered States (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Altered States (10:00)
-2. New Moon Prelude (2:45)
-3. Wolf Moon (9:42)
-4. Borrowed Time (8:51)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F4EA7D1A9963E1686121AC406E24F7429C568F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270213   (1038484) от 22.02.2023
-
-LaScala - 8 Альбомов + 1 Live + 12 Синглов (2012-2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038484.jpg" />
-</div>
-
-
-###  Подробнее
-
-История группы LaScala началась в феврале 2011 года. В то время гитарист скандально известной альтернативной команды I.F.K. Макс Галстьян искал музыкантов для нового проекта, звучание которого радикально бы отличалось от его коллектива. Поддержку своим творческим идеям он нашёл в лице вокалистки Ани Грин. Тандем тогда ещё не имеющей названия группы дополнили ударник (   Читать дальше...   )2013 - Forte
-2015 - Мачете
-2017 - Fiesta (Live)
-2018 - PatagoniaЖанр: Alternative RockПродолжительность: 08:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA796D7C701E30BE6989820CCE9C104C4023E800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440620   (1038497) от 18.01.2021
-
-Fortid - World Serpent (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part I : Disorder:
-01. AI 2020
-02. The True Awakening
-03. Controlled Patterned Mental Process(   Читать дальше...   )Жанр: Viking Metal, Black MetalПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38572D5281926BBD37E1397DF68C4A122FCAF231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440712   (1038504) от 18.01.2021
-
-Ron Coolen - Rise (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Devil Data (feat. Keith St. John & Thorsten Koehne) (05:08)
- 02. White Summer (feat. Keith St. John & Stephan Forte) (05:46)
- 03. Too Late to Surrender (feat. Keith St. John & Johannes Persson) (05:11)
- 04. Sin City (feat. George Lynch & Keith St. John) (06:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B5912D7B5529EB95084B471FF5273FFE6A263
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440629   (1038506) от 18.01.2021
-
-The London Philharmonic Orchestra - Symphonic Music Of Yes (1993) [FLAC|Lossless|image + .cue] <Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roundabout (6:10)
-02. Close to the Edge (7:40)
-03. Wonderous Stories (3:53)
-04. I've Seen All Good People (3:51)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C42C59C9425BE6A18DD3920115E80E8D1A3DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440700   (1038510) от 18.01.2021
-
-Dark Tranquillity - Moment (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantom Days (3:59)
-02. Transient (4:11)
-03. Identical to None (3:42)
-04. The Dark Unbroken (4:55)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CA2859EB33AE9775317681AF5F56CBE1CED6B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440675   (1038513) от 18.01.2021
-
-H.E.A.T - II (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Your Body
-02. Dangerous Ground
-03. Come Clean
-04. Victory(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DCCD2E562F06E91AB1B7B95A632F2259DCC681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440682   (1038516) от 18.01.2021
-
-House Of Lords - Nеw Wоrld - Nеw Еуеs (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World - New Eyes
-02. Change (What's It Gonna Take)
-03. One More
-04. Perfectly (Just You and I)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C392C864AE785A615E1448863C5913860F8BDD4
 ```
 
 

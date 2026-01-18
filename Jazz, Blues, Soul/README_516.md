@@ -1,3 +1,246 @@
+###  Публикация: 1496644   (871655) от 18.09.2021
+
+Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-o [2:55]
+02. Black and Tan Fantasy [3:20]
+03. Jubilee Stomp [2:47]
+04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496640   (871657) от 18.09.2021
+
+Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' Grounds [4:49]
+02. Blue Rol [6:12]
+03. Serenade to a Cuckoo [4:34]
+04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106485   (871660) от 20.02.2017
+
+Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Living
+2. All Of Me
+3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106822   (871668) от 20.02.2017
+
+VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eckard Koltermann - Tango der Nacht
+02. Gerd F. Schumann - You Smell so Good
+03. Maik Mondial - Kletz Fetz
+04. Slinky & P'tit Loup - Danser le swing(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106860   (871669) от 20.02.2017
+
+VA - Cozy Winter Jazz Vol.1 (2017) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Platin Sound - No Man's Soil
+02. Cosimo Maria Palopoli - The Joke
+03. Psaltron - Indian-Spring-Blues
+04. Anna Mond - Inbetween(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3D552F8DF148D3A5449FCFA422EF48AD6D4C08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106816   (871671) от 20.02.2017
+
+Duke Ellington - The Real... Duke Ellington (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. It Don't Mean a Thing If It Ain't Got That Swing
+2. Lazy Rhapsody
+3. Blue Tune(   Читать дальше...   )Жанр: JazzПродолжительность: 03:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783298A0B17F2549E71A5FBF6445A46661DECB12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106782   (871674) от 20.02.2017
+
+Joyce Cooling - Playing It Cool (1997) Heads Up [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Imagine That [04:11]
+ 02.Savannah [05:03]
+ 03.After Hours [03:54]
+ 04.Another Time [05:02](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6416BE46CDEDD3A4101E6494D6872489E3539CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106144   (871675) от 20.02.2017
+
+Angie Wells & Raphael Lemonnier - Love And Mischief (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peel Me A Grape
+02. The Moon Is Swinging On A Line
+03. She Ain't The Kinda' Girl
+04. You're My Thrill(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE713D80C7F28F6C918DE758776512447673E380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106668   (871676) от 20.02.2017
+
+Matt McCourt's Psychedelic Metal Blues Experience - The Sun Always Shines for Me (2017) [FLAC|Lossless|image + .cue] <Blues-Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Cruise (2:26)
+02. I'm Comin After You (3:14)
+03. The Sun Always Shines for Me (3:12)
+04. Don't Forget About Me (3:33)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAFC1C8176A1342B056AF5489F224264F122A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106552   (871677) от 20.02.2017
 
 Michael Linghton - Soul Appeal (2014) [MP3|192 Kbps] <Jazz>
@@ -500,275 +743,6 @@ Billy Hart Quartet - One Is The Other (2014) [FLAC|Lossless]<Post-Bop, Modern Cr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31E332C39E0A357E211E314E30224F9E3AA214C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766066   (871843) от 14.03.2014
-
-Trygve Seim, Oyvind Brakke, Per Oddvar Johansen - The Source and Different Cikadas (2002) [MP3|320 кб/с]<Modern Creative, Third Stream, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Organismus Vitalis [05:24]
-02. Mmball [04:53]
-03. Funebre [02:11]
-04. Deluxe [05:59]
-05. Bhavana [03:32]
-06. Saltpastill [04:43]
-07. Flipper [02:48]
-08. Plukk [04:36]
-09. Obecni Dum [02:26]
-10. Suppressions [04:15](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Contemporary JazzПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C49CF6A8E7D5EF8FAABA96DEEC0727E2FF7837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643847   (871887) от 15.04.2013
-
-Jeanette Harris - Summer Rain (2013) [MP3|320 кб/с]<Smooth Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Just Keep Holding On
-02. Passing Time
-03. Take Me There
-04. Summer Rain
-05. Muy Caliente
-06. The Ride (feat. Darrell Crooks)
-07. Chillin’
-08. Here & Now
-09. Oh so Good
-10. 12:57 (feat. Marcus Anderson)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BD61AB25D02B5F2ED573EE248BDF4F8E4E1F3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644056   (871891) от 15.04.2013
-
-Mud Morganfield - Son of the Seventh Son (2012) [MP3|320 кб/с]<Blues/Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Short Dress Woman
-2. Son Of The Seventh Son
-3. Love To Flirt
-4. Catfishing
-5. Health
-6. Loco Motor
-7. Money (Can't Buy Everything)
-8. Midnight Lover
-9. Go Ahead And Blame Me
-10. Leave Me Alone(   Читать дальше...   )Жанр: Blues/Chicago BluesПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFB818FC2FA11FDAA6C9BE4B7DB139FB59B38D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998060   (871976) от 18.03.2016
-
-VA - Easter Erotic Jazz Lounge: Dark Sexappeal Desires for Intimate Chill Obsession (2016) [MP3|320 кб/с] <Jazzy, Lounge, Chill>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jizz Jazz - Lost in Your Eyes (Cool Cut Mix) (04:21)
-02. Lemonjazz - Gypsy Woman (Erotic Bedroom Affairs Lounge Chill Mix) (05:43)
-03. Burning Lipps - Near or Far (Erotic Beach Love Mix) (04:54)
-04. Electric Suitcase - Strangers in the Night (Neo Souls Mix) (05:49)(   Читать дальше...   )Производство: Jazzy And MoreЖанр: Jazzy, Lounge, ChillПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D9CFA8008BCE8E743CB43225B344B88C0EC666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643867   (871985) от 15.04.2013
-
-Lily Dahab - Huellas (2013) [MP3|320 кб/с]<Vocal Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Peces De Luz
-02. Huellas
-03. Para Mario
-04. Vuelvo Al Sur
-05. Yo Soy Maria
-06. Introduction
-07. Detras Del Muro De Los Lamentos
-08. Como La Cigarra
-09. Zamba De Usted
-10. Deja Que Te Hable El Alma(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552A87DF8E6832F8E49FB3D03E320098F1511D6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998073   (872036) от 18.03.2016
-
-Gregor Hilden - In Phase (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Jazzy Blues, Instrumental Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Magic (05:45)
-02. In Phase (04:11)
-03. On Flow (04:14)
-04. Rock-Zabern (05:11)(   Читать дальше...   )Жанр: Modern Electric Blues, Jazzy Blues, Instrumental BluesПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB91DE822DAB9FDFA9591B8C3FF61C074C40198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997824   (872097) от 18.03.2016
-
-Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Female Vocal, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Still Life [04:23]
- 02.Counting On You [03:28]
- 03.Changes [03:47]
- 04.Daydream [04:41](   Читать дальше...   )Жанр: Female Vocal, Funk, SoulПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FD40BA93019A82BDAC358E51746D1DE6F5D33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871877   (872110) от 26.02.2015
-
-John Zorn - Locus Solus (1997) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Bass and the Treble [02:58]
-02. The Acquisition & Control of Fire [01:34]
-03. Honey-cab [02:34]
-04. Switch [02:16]
-05. Juan Talks it out of his System [02:12](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5784F5444E916D66730E4AF13E3ADD4DB910D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872981   (872112) от 26.02.2015
-
-VA - Living the Blues : Ladies Sing the Blues (2000) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Jay McShann's Orchestra With Priscilla Bowman - Hand Off (2:53)
-02. Margie Day - Little Red Rooster (3:05)
-03. Memphis Minnie - Me And My Chauffeur Blues (2:53)
-04. Dinah Washington - Long John Blues (3:10)
-05. Ruth Brown - (Mama) He Treats Your Daughter Mean (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19DE2833786033A0596B00FBE3B29A29460CFB6
 ```
 
 

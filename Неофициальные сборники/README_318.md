@@ -1,3 +1,30 @@
+###  Публикация: 1155248   (535418) от 02.08.2017
+
+VA - DJezzy Sweet Sixteen (2017) [MP3|320 Kbps] <Club House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. United States Of Dance - We Are The Night (Extended Mix) 4:57
+002. CamelPhat - Siren Song - Radio Edit 3:28
+003. Raviv - Good Together - Luca Minoli Suite Remix 12:09
+004. Michael Ruland - Dreamer (Ibiza Dub Mix) 6:39(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 08 :35 :41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D79BA8BAC6B83C53C7380C2255F6FDC3CEEE5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557082   (535451) от 18.06.2022
 
 Joe Satriani - Collection (2022) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:30DBF8D4F3152AF5BFB0AFD0E3E02F704DCF0A4E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCA49012E4A90A171CF001F98A278FFDCD40F036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925934   (537115) от 08.08.2015
-
-VA - Native American Blues (2015) [MP3|~206 кб/с (V0)]<Native american, Ethnic, Folk, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron White & John Densmore - Heart Beat
-02. Asani - Rez Sister
-03. Murray Porter - Heart Of The Eagle
-04. Jim Boyd - Rebel Moon(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, BluesПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA1492534C29E940F91E7277847C5DD94B47662
 ```
 
 

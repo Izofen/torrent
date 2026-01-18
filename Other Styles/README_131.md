@@ -1,3 +1,30 @@
+###  Публикация: 1014176   (776889) от 06.05.2016
+
+Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Earth (4:18)
+02. God Made Me An Indian (5:08)
+03. The Buffalo Dance (3:24)
+04. Indian Nations (3:56)(   Читать дальше...   )Жанр: World, Native American, Enigmatic, New AgeПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859D06943656A4B1393AF79A4C159A9D11579036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013850   (777102) от 05.05.2016
 
 Jean-Michel Jarre - Electronica 2: The Heart of Noise (2016) [FLAC|Lossless|image + .cue] <Ambient, New age, Electronic>
@@ -668,33 +695,6 @@ Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210785   (778520) от 04.03.2018
-
-Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria (8:20)
- 02. Heart Of The Sun (4:55)
- 03. Flight In Weightlessness (7:36)
- 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
 ```
 
 

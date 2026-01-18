@@ -1,3 +1,30 @@
+###  Публикация: 918660   (585797) от 16.07.2015
+
+VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hot Chip, Felix Martin - Ready For The Floor (Album Version)
+002. Whitesnake - Here I Go Again (USA Remix)
+003. Lily Allen - LDN
+004. Simple Minds - Don't You (Forget About Me)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 07:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5839309616C3AB1A17D3337C72391D34EA7B025A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357360   (585903) от 02.07.2011
 
 VA - Русский Хип-Хоп 80-90х (2011) [MP3|224 kbps]<Рэп / Хип-Хоп>
@@ -646,33 +673,6 @@ VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040321   (587057) от 04.08.2016
-
-VA - Дискотека 80-90 х По-Новому Зарубежный выпуск 36 (2016) [MP3|192 Kbps] <Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.C. Catch -  Nothing But A Heartache (Longer UltraTraxx Retro Fox Mix) 11:14
-02. Mark Medlock -  Baby Blue (Longer UltraTraxx Summer Mix) 7:18
-03. Radiorama -  Vampires (Extended UltraTraxx Request Mix) 13:27
-04. Snap! -  Cult Of Snap! (UltraTraxx X-Tended Mix) 10:25(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 07:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
 ```
 
 

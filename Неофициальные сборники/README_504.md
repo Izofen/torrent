@@ -1,3 +1,30 @@
+###  Публикация: 1207704   (780431) от 19.02.2018
+
+VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
+02. Bo & Serhat Durmus feat. Ecem Telli - Elimi Tut
+03. Nando Fortunato feat. Sephora - You're Not Alone (Radio Edit)
+04. Katodik & Maria Estrella - Million Miles (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207585   (780448) от 18.02.2018
 
 Gon Haziri feat Luar - DY (2018) Remix [MP3|320 Kbps] <Club, Dance>
@@ -672,33 +699,6 @@ VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210665D4C7AA2B4539EF825401185C8DA738BF12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206872   (781277) от 16.02.2018
-
-VA - Theme For Lovery Story (2018) [MP3|320 Kbps] <Smooth, Nu Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781277.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anita Baker  -  My Funny Valentine  5:06
-002.  The Rippingtons  -  Gypsy Eyes  4:20
-003.  Matteo Brancaleoni  -  Winter Wonderlan  2:31
-004.  Peter White  -  Chasing The Dawn  5:22(   Читать дальше...   )Жанр: Smooth, Nu JazzПродолжительность: 07:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE51E89833CE1AC8D73CA68111E13C776BFA9B52
 ```
 
 

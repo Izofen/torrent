@@ -1,3 +1,57 @@
+###  Публикация: 1110534   (852279) от 03.03.2017
+
+VA - Lovely Mood Lounge Vol.25 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lazy Hammock - We Want Peace  4:31
+02.  Weathertunes - Ladies First  2:58
+03.  Deeper Sublime - Tranquil Dusk  3:56
+04.  Lazy Hammock - Black Daddy  4:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145D037D677327BA3C4F89CAD45BE3C780D854FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498720   (852424) от 29.09.2021
+
+VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RaviGauly - House Of Shiva (Full Moon Mix)
+02. Trip2 Universe - Fake Reality (Original Mix)
+03. WiNeSk feat. Carmen Miller - Business (Original Mix)
+04. Thomas Dur - One Way (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, TechHouseПродолжительность: 02:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498631   (852733) от 29.09.2021
 
 Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
@@ -641,60 +695,6 @@ VA - Is This Lounge Enough (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9BC72F8BD3FBA17AFD94F279691FD7974D9591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110171   (855755) от 01.03.2017
-
-VA - Metropolitan Lounge Selection London (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855755.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Benatural - Lake 5:31
-002. Michiko - Fly Away With You 4:19
-003. Baxx - For Time To Love You 4:14
-004. Cabinets Store - Command 3:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B103DDDAF049CC8E7EE9184B67CF7D1889DC5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110169   (855757) от 01.03.2017
-
-VA - Espace au Jardin: Edition Bleu. Mixed By Kolibri Musique (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855757.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Twins In Mind - Intro 1:23
-002. Denis Rusnak - Radio Cosmos 5:28
-003. Thomas Lemmer - Floating - Synapsis Fluid Remix 5:19
-004. Orbient - Fabric 4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECF3DDE9CD7DAAEFFCF9D146F00F26BD59F033E
 ```
 
 

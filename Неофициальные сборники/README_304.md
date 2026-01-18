@@ -1,3 +1,30 @@
+###  Публикация: 931615   (511874) от 26.08.2015
+
+VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:23)
+02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
+03. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)
+04. Noise Boyz - I’m a Jazzwoman (Cooljazz Mix) (5:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C251C3CBDFA9E8695A067654DDF93758E7BF9443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931387   (511932) от 26.08.2015
 
 VA - Lounge Music Cafe - Cafe IBIZA (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -689,33 +716,6 @@ VA - Chill Island (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A4FD582B4A3195751DE6678FDA1AFE680C6781A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561648   (513412) от 06.07.2022
-
-VA - Retro remix Июнь (2022) [MP3|320 Kbps] <Club House, Russian Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513412.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Morandi - Angels (Alex Antero & Denis Bravo Extended Remix) 04:52
-002. 2 Unlimited x Freejak - Get Ready (Dj Jeff Clapapella Party Starter) 03:23
-003. 5sta Family - Зачем (PS Project & Roman Max Remix) 03:48
-004. 20 Fingers, Sidney Samson x Boost, Ramirez, Temoff - Lick It (DJ Baur Mixshow) 03:21(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:08:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D731E6D74ADED623A12DDA8118BE9D42C2251C
 ```
 
 

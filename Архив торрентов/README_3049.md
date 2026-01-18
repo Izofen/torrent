@@ -1,3 +1,63 @@
+###  Публикация: 537328   (511561) от 21.08.2012
+
+Spartaque - Supreme 105 (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Mart - Combat Dog
+02. Alan Wools - Unlawfully
+03. Min & Mal - Freddy
+04. Pe And Ban, DJ Mandraks - Do Not Panic
+05. Marc Systematic - Jelly Beans
+06. Deep Voice - Why Not
+07. Alex MilLenium - Poisoned Strawberry
+08. Da Fresh - 69
+09. Balthazar & JackRock - The Way We Rock
+10. Serhio Vegas - Check This(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD665CC7792516619D77B972059DB658472D3181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537152   (511563) от 21.08.2012
+
+Mark Bender - Spirit of Native Indians (2005) [MP3|256 кб/с]<New Age, Meditative, Ambient, World, Native American>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Indian Circles 15:16
+2. Old Medicine Man 15:31
+3. Storm Of Freedom 15:08
+4. Spirit of Native Indians 15:20Жанр: New Age, Meditative, Ambient, World, Native AmericanПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABCC1ADAD94CEF44398C244903551202F45CEB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537465   (511567) от 21.08.2012
 
 Улетное видео по-русски. Новый сезон  (2012.08.06-08) SATRip
@@ -575,54 +635,6 @@ Tipard Video Downloader - это профессиональный загрузч
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC782E2052AA29ABB27285B318DC0CAC4DAC314
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931403   (511829) от 26.08.2015
-
-AutoHideDesktopIcons 2.75 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511829.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoHideDesktopIcons - небольшая и простая в использовании утилита, позволяющая скрывать и отображать иконки на рабочем столе с помощью жестов мыши - клика одной из кнопок по любому свободному месту рабочего стола. AutoHideDesktopIcons имеется возможность автоматического скрытия/показа панели задач и иконок, находящихся на рабочем столе, по таймеру.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31FB11442D59592F4FACDC9677FD063D8A1A1865
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931469   (511832) от 26.08.2015
-
-Ashampoo Uninstaller 5.0.6 RePack by D!akov [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo UnInstaller - деинсталлятор программ с удобным интерфейсом и передовым алгоритмом работы. Эта утилита отслеживает и регистрирует изменения, которые вносят инсталляционные программы, что позволяет при необходимости корректно удалить ненужную программу. Помимо основной задачи, приложение умеет удалять дубликаты и временные файлы, а также управлять установленными (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CEF414C3965C5DBC2A2A2DC0729DAC925DA23C
 ```
 
 

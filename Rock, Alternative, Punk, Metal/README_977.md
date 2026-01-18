@@ -1,3 +1,299 @@
+###  Публикация: 1127245   (732170) от 21.04.2017
+
+Barock Project - Skyline (2015) 2CD [FLAC|Lossless|tracks + .cue] <Neo-Prog, Classic Rock, Art Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (3:40)
+02. Tired (9:57)
+03. Skyline (10:20)
+04. The Longest Sigh (7:54)(   Читать дальше...   )Жанр: Neo-Prog, Classic Rock, Art Rock, Symphonic RockПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AE597FC9EE67728EDDD920A72B1F3370DB5172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127356   (732176) от 21.04.2017
+
+Can't Swim - Fail You Again (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Днбютный альбом рокеров из Нью Джерси. На мой взгляд довольно не плохо.01. What's Your Big Idea? (Lentil) (3:13)
+02. We Won't Sleep (2:48)
+03. $50,000,000 (3:01)
+04. Friend (3:08)(   Читать дальше...   )Жанр: Indie Rock, Emo, HardcoreПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BE89D4A23ECD5AB8D12D5EE1A6D24D961874C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127324   (732178) от 21.04.2017
+
+Nico Vega - Chooseyourwordspoorly (2006) EP [MP3|320 Kbps] <Alternative, Punk, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rabbit In The Bay (3:59)
+02. Hollywood Sign (2:23)
+03. Let You Go (3:49)
+04. Beast (2:37)Жанр: Alternative, Punk, Indie RockПродолжительность: 00:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28201A8E76AD4A4417890DF5F044E2A3A2EF6D17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127236   (732215) от 21.04.2017
+
+Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prince Of Goofs (6:39)
+02. Water Spirit (10:07)
+03. Ulleraker (4:09)
+04. No One Is In This For Love (6:02)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1586D35F9277B392E794FF90BF25712F072934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127254   (732222) от 21.04.2017
+
+Emerald Edge - Surreal (2017) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladder Of Some Dream 05:31
+02. Lost (Chapter II) 11:02
+03. Am I 07:27
+04. Be Careful On The Secret Path 08:25(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B2F6D54936F4C1F2C39D235009CF7497F58E8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127174   (732224) от 21.04.2017
+
+Chronosphere - Red N' Roll (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alu Card 02:12
+02. Demonized 04:39
+03. Before It's Gone 03:33
+04. Picking Up My Pieces 04:23(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FDCE9003649C5CC4B1F99A7D582C3B4382A7FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127287   (732230) от 21.04.2017
+
+Nagelfar - Als die Tore sich öffnen... / Jagd (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skölls Jagd
+02. Nacht der Rache
+03. Srontgorrth - Kapitel 2: Die Existenz jenseits der ToreЖанр: Black MetalПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6B1E80B68CC9502CE335315F917B8D36A31BD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236591   (732479) от 07.02.2022
+
+Symphony X - 10 Albums (1994 - 2015) 13 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Metal, Symphonic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony X — американская прогрессивная метал-группа из Миддлтауна, штат Нью-Джерси. Основанная в 1994 году, группа состоит из гитариста Michael Romeo, клавишника Michael Pinnella, барабанщика Jason Rullo, ведущего вокалиста Russel Allen и басиста Michael Lepond.Список альбомов:
+1994 - Symphony X
+1995 - The Damnation Game
+1997 - The Divine Wings of Tragedy(   Читать дальше...   )Жанр: Progressive Metal, Symphonic Metal, Heavy MetalПродолжительность: 12:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E4132218F10A146F7821044262E90FD8A74A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021117   (732499) от 29.05.2016
+
+Queen - News Of The World (1977) 1993 GoldCD Reissue, MFSL UltraDisc II [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Will Rock You (02:03)
+02. We Are The Champions (03:02)
+03. Sheer Heart Attack (03:28)
+04. All Dead, All Dead (03:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBC7757D5A08B7789B4E9060AE15028355480B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529658   (732567) от 07.02.2022
+
+The Ferrymen - One More River To Cross (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий альбом супергруппы THE FERRYMEN, получивший название “One More River To Cross”, увидел свет 21 января 2022 года – это еще один колоссальный укол адреналина для всех любителей мелодичного хэви-метала.01. One Word (4:58)
+02. The Last Wave (4:48)
+03. Shut It Out (5:25)
+04. City Of Hate (5:07)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1824840CBEB891F41F957B7917591B6DC4130B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529717   (732573) от 07.02.2022
+
+ДМЦ (Дороги Меняют Цвет) - Электроакустика, Часть 2 (2022) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лей в меня дождей
+2. 1000 лет
+3. Хоть иногда
+4. Назло(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F339A0CE1FC2D22F008C4B04D5F5E5F2467D6479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529370   (732678) от 06.02.2022
 
 Jolly Joker - Loud & Proud (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
@@ -395,304 +691,6 @@ Ian Gillan (19.08.1945) – один из величайших рок-вокал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6155C0883268F5AE71D80BA6E1BEDA2DEBEFA21F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399404   (733432) от 31.07.2020
-
-Fontaines D.C. - A Hero's Death (2020)  [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Belong (04:31)
-02. Love Is the Main Thing (03:53)
-03. Televised Mind (04:10)
-04. A Lucid Dream (03:53)(   Читать дальше...   )Жанр: Indie Rock, Post-PunkПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CAB4B895CA7D14D696144D19890E64FD4950D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399360   (733443) от 31.07.2020
-
-Metal Priest - Bursting Out (The Beast Became Human)/Get It Now (2006) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bursting Out (03:28)
-02. MP (Metal Priests) (02:44)
-03. Startide Rising (03:54)
-04. Pyromania (03:11)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B836091124919A5A70D5C7FC51ACDD68D519A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399316   (733446) от 31.07.2020
-
-Celtic Frost - Vanity/Nemesis (1990) (1-st US pressing) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heart Beneath (03:49)
-02. Wine In My Hand (Third From The Sun) (03:28)
-03. Wings Of Solitude (04:36)
-04. The Name Of My Bride (04:32)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A96B6D7B5BC0135B0871DF8A28C8D73E82D2E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528948   (733526) от 04.02.2022
-
-Группа ТОП - Great Rock-N-Roll Band (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уходит Время Рок-н-ролла (3:50)
-02. Мы Все Поем (3:25)
-03. Блюз Моим Нерождённым Детям (4:20)
-04. Жарим По Субботам (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1F1B40A36365C4AA3558F338ACB2FCEDB5725A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528942   (733542) от 04.02.2022
-
-ГОРШЕНЕВ - Фауст (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог на небесах
-2. Духи
-3. Знакомство с Мефистофелем
-4. Бес огня(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5AD22A7AF9BDD54BC508F814C65210557E7269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528862   (733572) от 04.02.2022
-
-Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733572.jpg" />
-</div>
-
-
-###  Подробнее
-
-CRYSTAL BALL - швейцарская Melodic Power Metal группа.
-"Crysteria" - одиннадцатый полноформатный альбом CRYSTAL BALL, вышедший 28-го января 2022-го на Massacre Records. Продюсированием, сведением и мастерингом "Crysteria" занимался Стэфан Кауфманн, бывший барабанщик ACCEPT и гитарист U.D.O., работавший с альбомами групп VANIZE, EMPIRE и ACCEPT, (   Читать дальше...   )01. What Part Of No 03:54
-02. You Lit My Fire 03:58
-03. Call Of The Wild (Feat. Ronnie Romero) 03:14
-04. I Am Rock 03:16(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B6117FB5A2639D8AFB338FFDE2CA3EACD865D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528773   (733576) от 04.02.2022
-
-Saxon - Carpe Diem (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <NWOBHM, Heavy-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpe Diem (Seize The Day) 04:42
-02. Age Of Steam 04:08
-03. The Pilgrimage 06:28
-04. Dambusters 03:19(   Читать дальше...   )Жанр: NWOBHM, Heavy-MetalПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F311F51B528AD16455B2DC003A313422CB9916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528852   (733979) от 03.02.2022
-
-Элизиум - 8 альбомов, 8 синглов, 6 Live's, 3 сборника, 1 Сплит (1998-2021) [MP3|320 kbps] <Cosmos-Rock, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733979.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Элизиум» — российская рок-группа из Нижнего Новгорода, основанная её бас-гитаристом и лидером Дмитрием Кузнецовым в 1995 году. За историю существования группы в её составе сменилось множество участников; помимо её лидера Дмитрия Кузнецова, наиболее старым из них, остающимся в группе до сих пор, является вокалист Александр Телехов (в составе с 1997 года). В настоящее (   Читать дальше...   )1998 - Домой!
-2002 - Все острова
-2003 - Космос
-2005 - На окраинах вселеннойЖанр: Cosmos-Rock, Punk-RockПродолжительность: 19:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2005984CF23C8B0C6F5B56D5936CB3C042907A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528742   (733983) от 03.02.2022
-
-Korn - Requiem (2022) [MP3|320 Kbps] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten
-02. Let The Dark Do The Rest
-03. Start The Healing
-04. Lost In The Grandeur(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43020449858F9808704DC66589EA14802387706
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528855   (734010) от 03.02.2022
-
-Saxon - Carpe Diem (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарные британские хэви-металлисты SAXON выпустят 23-й студийный альбом "Carpe Diem" 4 февраля 2022 года на лейбле Silver Lining Music. Как гласит пресс-релиз, альбом будет состоять из “10 титанических треков, до краев наполненных стальными риффами и гордыми намерениями”, при создании которых коллектив из Барнсли использовал широкий круг ингредиентов, (   Читать дальше...   )01. Carpe Diem (Seize the Day) (04:42)
-02. Age of Steam (04:08)
-03. The Pilgrimage (06:28)
-04. Dambusters (03:19)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB30F9B5C0F8DA8F5B7737D6A499E0C6C3FB365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528738   (734011) от 03.02.2022
-
-Saxon - Carpe Diem (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Carpe Diem (Seize The Day)
-2. Age Of Steam
-3. The Pilgrimage
-4. Dambusters(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE80A338CB4BCB92923236EF011BD8C28F9F96D3
 ```
 
 

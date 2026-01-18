@@ -1,3 +1,30 @@
+###  Публикация: 1134302   (689371) от 15.05.2017
+
+VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
+02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
+03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
+04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134388   (689377) от 15.05.2017
 
 Альберт Артемьев - В лабиринте (2017) [MP3|192 Kbps] <New Age>
@@ -677,33 +704,6 @@ VA - Весенний хит русского шансона. Сборник №
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14EDC421677514FFF371DE9A7348B12933FEFD00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133959   (691404) от 14.05.2017
-
-VA - Сотка блатных душевных песен Шансона выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691404.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Миша Мирный - Пьяный Ветер 4:17
-002. Дмитрий Прянов & Наталья Сколубович - Услышь 2:49
-003. Илья Лукин - Полуночный Вокзал 4:17
-004. Татьяна Маргай - Обними 4:09(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE6148EEA9BFC2D2DBE63F538FB8CCE77CB2B4F
 ```
 
 

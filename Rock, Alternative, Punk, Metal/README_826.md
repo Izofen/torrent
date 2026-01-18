@@ -1,3 +1,84 @@
+###  Публикация: 1234513   (570903) от 05.07.2018
+
+Blue Stahli - The Devil (Remixes) (2018) [MP3|320 Kbps] <Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Not Over Til We Say So (feat. Emma Anzai) (Rabbit Junk Remix)
+2. Enemy (Gydra Remix)
+3. The Devil (ANX Remix)
+4. Shoot Em Up (Thomas Vent Remix)(   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB19C50D197530CEB04728FC556C3E3A18990E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043705   (570917) от 17.08.2016
+
+Jo Harman - Dirt On My Tongue (2013) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Shall Not Be Moved - 4:07
+02. Worthy Of Love - 3:30
+03. (This is My) Amnesty - 4:47
+04. Heartstring - 3:27(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52B6412F5D75F000F17C80205A21287CDC7E98F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043733   (570945) от 17.08.2016
+
+PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Community Of Hope 02:23
+02. The Ministry Of Defence 04:11
+03. A Line In The Sand 03:33
+04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043690   (570953) от 17.08.2016
 
 Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossless|image + .cue] <Crossover, Thrash, Hardcore>
@@ -155,6 +236,39 @@ The Grandmothers - A Mother Of An Anthology (1993) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BAFF17D3E6C41B4070F64D8D03DB5474EA19690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528082   (571045) от 29.07.2012
+
+Great White - Greatest Hits (2001) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_571045.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stick It
+2. Rock Me
+3. Face The Day (Blues Mix)
+4. Save Your Love
+5. Once Bitten Twice Shy
+6. Wasted Rock Ranger
+7. Mista Bone
+8. The Angel Song
+9. House Of Broken Love (Live)
+    - Recorded Live At Wembley Arena, UK - 12/11/89(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -598,114 +712,6 @@ I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922171   (571876) от 27.07.2015
-
-Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rail road bill (1:50)
-02.  Sex beat (2:12)
-03.  She's Like Heroin To Me (3:08)
-04.  Devil in the woods (2:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555211   (572111) от 02.06.2022
-
-Bleed from Within - Shrine (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Melodic Death Metal, Groove Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Damnation (4:42)
-02. Sovereign (3:35)
-03. Levitate (4:31)
-04. Flesh And Stone (4:10)(   Читать дальше...   )Жанр: Melodic Death Metal, Groove Metal, MetalcoreПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221BA859AC6693011FE7A11CCBCED4B9690BFC28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555078   (572115) от 02.06.2022
-
-Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fanfare (00:01:32)
-02 - Just a Boy (00:03:07)
-03 - Only You (00:04:49)
-04 - Under the Rose (00:05:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B41C849CEE4A32C778ED8068BDA89822324E73B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555226   (572348) от 02.06.2022
-
-Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear My Dear (5:35)
-02. Fall In (5:48)
-03. I Am The Moon (5:14)
-04. Circles 'Round The Sun (6:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010D69F1A4ED7C6AFB66E00535E4C05E397BD7F9
 ```
 
 

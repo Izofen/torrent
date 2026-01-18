@@ -1,3 +1,302 @@
+###  Публикация: 1103325   (885913) от 12.02.2017
+
+Blackfield - V (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackfield — это проект лидера Porcupine Tree Стивена Уилсона и израильского музыканта Авива Геффена.
+
+Всё началось с того, что в 2000 году Геффен, большой поклонник Уилсона и Porcupine Tree, пригласил последних выступить в Израиле. После ряда концертов между ним и Стивеном Уилсоном завязалась дружба, а двумя годами позже Геффен уже пел на двух треках «поркупайновского» (   Читать дальше...   )01. A drop in the ocean (1:24)
+02. Family man (3:37)
+03. How was your ride? (3:59)
+04. We'll never be apart (2:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58580BAC1DCC24062EC4BE6377D75459E94196A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103608   (885920) от 12.02.2017
+
+Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken (7:06)
+02. Dreamworld (5:14)
+03. The Reaper (7:11)
+04. Box Of Toys (3:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB940D784A6765308845856A3EF89DD94A907EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494762   (885961) от 09.09.2021
+
+The Neal Morse Band - Innocence & Danger (2021) [FLAC|24/96|tracks|WEB-DL] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It All Again (8:53)
+02. Bird on a Wire (7:23)
+03. Your Place in the Sun (4:12)
+04. Another Story to Tell (4:50)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502343674857EAAAB8E6767587E1334F428D2B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103698   (885993) от 12.02.2017
+
+Axia - Axia (1986) Reissue, 1986, MTM Music [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Instrumental)
+02. It Ain't Love
+03. Loser
+04. In For Rock'n Roll(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64ACE857ABDF81227832793B794D7EF90A75D99A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494786   (886000) от 09.09.2021
+
+Quarzum - Alma Inmaterial (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alma Inmaterial
+02. Nido de Cuervos
+03. Una Clara Manana
+04. Cenizas(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4A0F32C129BB5DBDD4BA3E2F52B86BE641F9DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103333   (886012) от 12.02.2017
+
+Лихосвет - 2 albums, 2 EP (2005-2013) [MP3|221-320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2005. Дальний Край
+2010. Срок
+2013. Из Тьмы (EP)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 02:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96B72B8F86FF6843A183D1E2D8B9768D7C954A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494889   (886032) от 09.09.2021
+
+The Zappa Band - Saratoga Springs (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live) (01:15)
+02. Zomby Woof (Live) (04:23)
+03. Peaches En Regalia (Live) (03:12)
+04. I Ain't Got No Heart (Live) (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C0172F5B92E29E102BA4C418906E445FC01694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494829   (886086) от 09.09.2021
+
+Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Small Voice
+02 - Rise
+03 - Namaste
+04 - Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562062314630C24CE6A0283846D936AB0D2CAF9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494688   (886108) от 09.09.2021
+
+Eld Varg - One Man Army (2021) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And So It Begins...
+02. To The Beyond
+03. Vulcan's Hammer
+04. Fists of Steel(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960AD9B18F8A738BC8A4D2BD687C491FFE8B6032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494875   (886116) от 09.09.2021
+
+Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Obliterati (02:17)
+ 02 - Natalia (06:17)
+ 03 - Relaxation Music For Sharks (Featuring Feeding Frenzy) (04:36)
+ 04 - Wingbeats (05:20)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CEB187E1E966CB43969A9CA5ABB5C9DAAD1FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995149   (886176) от 10.03.2016
+
+Killswitch Engage - Incarnate (2016) Deluxe Edition [MP3|320 кб/с] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone I Stand (04:30)
+02. Hate By Design (03:47)
+03. Cut Me Loose (03:02)
+04. Strength Of The Mind (03:47)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A314DD606C5233ED980D45F730BCA894FF8EB9CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995210   (886212) от 10.03.2016
 
 VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
@@ -401,303 +700,6 @@ The Starkillers - Дикий Восток (2020) [MP3|320 Kbps] <Heavy Metal, Nu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D79226261D29ED145FDC04135F59D2B5327B9832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372040   (887085) от 02.04.2020
-
-Hollywood Monsters - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hollywood Monsters является детищем французского эмигранта, вокалиста, гитариста и композитора Стефана «Steph» Хонде, живущего в Калифорнии с 2012 года. Впервые музыкант обратил на себя внимание в составе Mamooth, где получил репутацию виртуозного гитариста. В 2004 году он присоединился к французской рок-группе Café Bertrand, которые нередко играли на многотысячных (   Читать дальше...   )--------------------------
-
-01. A Scream Looking For A Mouth (2:51)
-02. Speak Of The Evil (3:52)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 02:20:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDABA8D2D15FEE3AF03D0527D6ACFE1F5F7F334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372095   (887113) от 02.04.2020
-
-Dynazty - The Dark Delight (2020) [MP3|320 Kbps] <Melodic Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presence Of Mind [4:16]
- 02. Paradise Of The Architect [4:14]
- 03. The Black [3:54]
- 04. From Sound To Silence [3:54](   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83F0C360514EDDA6192BE9DA0611B52396D2FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372084   (887122) от 02.04.2020
-
-Red - Declaration (2020) [MP3|320 Kbps] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All For You [00:03:06]
-02. Infidel [00:04:03]
-03. Cauterize [00:03:46]
-04. The War We Made [00:03:52](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAD038A2C597AA321D10877E27A2E06CDBA1BA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372130   (887232) от 02.04.2020
-
-South Bunch - Не кашлять! (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 South Bunch тут [00:03:28]
-02 Русский рок - говно [00:03:09]
-03 Макгрегор, Кокорин, Мамаев [00:00:57]
-04 Курю шмаль [00:04:16](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36134FD787B0D9248AD62B5D0B4C54AB4F33803B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372155   (887241) от 02.04.2020
-
-МУАР - Сияние (2019) [MP3|320 Kbps] <Alternative Rock, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 За чертой [00:04:12]
-02 Они [00:03:17]
-03 Зверь [00:03:32]
-04 Красная нить [00:03:43](   Читать дальше...   )Жанр: Alternative Rock, Gothic MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1930358A517AA224A23E16E110C0DC1278D5DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372091   (887259) от 02.04.2020
-
-Northern Genocide - Planet Asylum / Genesis Vol. 666 (2015-2019) [MP3|320 Kbps] <Industrial Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Of Frost (Intro) [00:00:26]
-02. Genesis, Vol. 666 [00:03:50]
-03. Black Widow [00:03:48]
-04. Annihilation Of The World Of Spirits [00:03:32](   Читать дальше...   )Жанр: Industrial Melodic Death MetalПродолжительность: 2 CD, 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEF49A7670FDF8643CBDAE9971EBF01D1EA14F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372134   (887262) от 02.04.2020
-
-Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подих Змія (03:21)
-02. Паранормальні (04:00)
-03. Ворожіння (03:42)
-04. Сонце Небо (03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E467E237054429E279B4153BC7C08E1CA058BA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372139   (887280) от 02.04.2020
-
-Shallow Truths - Alive Again (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Grave (feat. Shayley Bourget) [00:04:17]
-02 Scarred [00:02:51]
-03 On Our Own [00:04:08]
-04 Alive Again [00:04:04](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6F5E65A81D9266BFF4AC2FCAF71737D593ED68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103360   (887552) от 11.02.2017
-
-Knorkator - Ich Bin Der Boss (2016) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Härte, Fun Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ich Bin Der Boss
-02. Zähneputzen, Pullern Und Ab Ins Bett
-03. Eldorado
-04. Dämon(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche Härte, Fun MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB3E5A8E49CD0F38B19D32CB9BC0385BB639A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103137   (887626) от 11.02.2017
-
-Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breadfan
-2. In The Grip Of A Tyrefitter's Hand
-3. I Ain't No Mountain
-4. In For The Kill(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55FF0CCCDA21390E9C807D95912DA8E57AE2369
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103161   (887643) от 11.02.2017
-
-Jack Russell’s Great White - He Saw it Comin' (2017) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign Of The Times (03:37)
-02. She Moves Me (03:34)
-03. Crazy (03:40)
-04. Love Don't Live Here (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05706E5054911FF7D2D616036394B99DCBE5972
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1008162   (817938) от 17.04.2016
+
+VA - German Top 100 Single Charts (25.04.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker - Faded
+02. Sia - Cheap Thrills
+03. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
+04. Twenty One Pilots - Stressed Out(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F201E50484EB6B27EC2E514D450658A803B294C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008140   (818092) от 17.04.2016
 
 VA - Созвездие весеннее - 3 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
@@ -668,33 +695,6 @@ VA - Новогодняя Дискотека Руки Вверх! (2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425919229AC9347ED2C9E44C91B27D4184CC3B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382198   (820601) от 10.05.2020
-
-VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alex Dalimjanov - Депрессия (2:50)
-2.Anthony El Mejor - Не Забывай Меня (2:59)
-3.BeRill - Бумеранг (2:32)
-4.DJ Jedy feat. AnasteZia - Имя Моё (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F33847C3FA318C52BC29DFCC7C3FDBEF6CA17BB
 ```
 
 

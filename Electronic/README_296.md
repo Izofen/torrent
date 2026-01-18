@@ -1,3 +1,57 @@
+###  Публикация: 1553866   (581008) от 27.05.2022
+
+Le Youth - Reminders (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Then It Rained All Night (4:17)
+ 02. Lighthouse (ft. RBBTS) (4:00)
+ 03. Nobody Knows (4:39)
+ 04. If Only (You Could Be Here) (ft.  OCULA; Nathan Nicholson) (5:04)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D4D88B1EFCCD82E874DC5C64228FD077230A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553398   (581011) от 27.05.2022
+
+VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melania & Christian Lisi - Mi Sono Innamorata Di Te (3:01)
+02. Zerosospiro - Il Desiderio (4:54)
+03. David Florio - Doce Doce (4:54)
+04. Mariva Cory & Soulstance - Un' Ora Sola Ti Vorrei (4:21)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043EA5CD4FA63536D0726E2B77B55A0A26A1B9B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302290   (581256) от 15.05.2019
 
 Red Soda - Decades to Midnight (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Electronic, Pop>
@@ -652,60 +706,6 @@ New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A880705BCDB8CC274992317B6A9EE8E058A8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301641   (584092) от 12.05.2019
-
-Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pulsar Station (08:18)
-02. Pluckton (08:11)
-03. Planet Earth (09:00)
-04. A Taste of Love (09:00)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774A6C151F37778B8F78CC18E007C6AADFE2C913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919355   (584117) от 18.07.2015
-
-VA - Sal Mar E Pura Relajacion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaxamalka - Desimaginar [05:50]
-02. Enrico Donner - I Need a Love [06:12]
-03. El Nicoya - Minutos de Oro [05:38]
-04. Cesar Martinez Ensemble - Little Drops of Love [06:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E8BFECB822F6B6ABFC7B353E670F9B29FF92A3
 ```
 
 

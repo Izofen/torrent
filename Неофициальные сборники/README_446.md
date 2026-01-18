@@ -1,3 +1,30 @@
+###  Публикация: 1401421   (709390) от 10.08.2020
+
+VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709390.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mohlavyr - Smеlands Paris
+002. Dopamoon - Time Is Money
+003. Kidbug - Lovesick
+004. The Amazing Devil - The Horror(   Читать дальше...   )Жанр: Indie Pop-RockПродолжительность: 07:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9F9233979A6F954A42954A104E7DA8339FD068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401424   (709395) от 10.08.2020
 
 VA - Summer Magic Morning: Chillout Party (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -665,35 +692,6 @@ VA - Future House 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <Funky, Future 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:969BBAFF673F67A5D6934E65362B1440729E3F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792363   (710351) от 02.06.2014
-
-VA - The Official UK Top 40 Singles Chart (01-06-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-В нынешнем чате 6 новых исполнителей. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Second City - I Wanna Feel (Club Mix)  (5:20)
-02. Sam Smith - Stay With Me  (2:53)
-03. Klingande - Jubel  (2:28)
-04. Mr. Probz - Waves  (3:28)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D4F2304BB0F74E7C9A469D5CBD85F65B84382
 ```
 
 

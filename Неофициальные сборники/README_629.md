@@ -1,3 +1,30 @@
+###  Публикация: 981945   (949974) от 02.02.2016
+
+VA - Sunday Privilege, Vol. 4 (25 Luxury Lounge Anthems) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Kay - Hot Sweet Thing (03:38)
+02. Pure Silk - Pensiero (05:31)
+03. Lifestar - Invito (05:25)
+04. Seventy Moods - Domenica (05:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A75936EDEAC370C3F4DC4B0DCBA4EBBA4646E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089449   (950040) от 04.01.2017
 
 VA - Новогодняя Дискотека 80-х от Авторадио – 15 Лет (2017) [MP3|320 Kbps] <Pop , Dance>
@@ -669,33 +696,6 @@ VA - Dr. Metal Presents: Vol.9 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:668A4578BA3C4BE1865FEBEFC4DCBF9351302056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089310   (951898) от 03.01.2017
-
-VA - Зарубежные хиты экспресс. Версия № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951898.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lil Jon Feat. Pitbull - La Vida Es Una 3:01
-002. Grandtheft Feat. Delaney Jane - Easy Go 3:11
-003. Ruxandra Bar - Tres Jolie 3:17
-004. Zayn Malik & Taylor Swift - I Don't Wanna Live Forever 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D7167193D2FCC9B27FFF20841308DFE0379E4E
 ```
 
 

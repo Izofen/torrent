@@ -1,3 +1,57 @@
+###  Публикация: 1013364   (1001406) от 13.08.2021
+
+Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia84 [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Ambient, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiometric (Full Line Mix) (06:53)
+ 02. Galaxie Sound (09:53)
+ 03. Union Of Soul (09:15)
+ 04. Tycho #4 (Airplane Reconstructor Mix) (06:12)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Techno, Ambient, Glitch, Experimental •Продолжительность: 26:39:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1267D691B7C58D07B6D72395816762A27D7ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488939   (1001425) от 13.08.2021
+
+Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal, Dark Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entelodon (03:58)
+ 02. Sivatherium (06:36)
+ 03. Deinotherium (06:10)
+ 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D118F05BCCC219730154303CE5C79193BEF9FCC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488968   (1001453) от 13.08.2021
 
 Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
@@ -637,59 +691,6 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCEF5271D678FECA127816284D12739DFC133C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487912   (1002791) от 08.08.2021
-
-Gabriel Le Mar - Into Sonic States (2021) LSD - Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Dub, Psychill, Acid, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spliff Tempo (08:50)
- 02. Caravan Of Dub (07:14)
- 03. Cafe Oriental (05:50)
- 04. The Sound Behind The Mask (05:15)(   Читать дальше...   )Жанр: Dub, Psychill, Acid, Downtempo, Progressive TranceПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F780E65E9F52D1E1A92C315DB0DC3717EFE2E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316010   (1002796) от 08.08.2021
-
-Steve Pickton | Stasis - Discography 19 Releases (1993-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, IDM, Ambient, Downtempo, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Words (01:37)
- 02. Roll With Changes (Reprise) (01:31)
- 03. What Science Doesn’t Know (01:36)Тип издания: CD, WEB, VinylЖанр: Techno, IDM, Ambient, Downtempo, Abstract •Продолжительность: 11:22:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C629831C02D21490F6E7BED060574D47049B0A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1039797   (594791) от 02.08.2016
+
+VA - Trance Energy (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sneijder Ft Christina Novelli -  Love Of My Control 7:14
+02. Arctic Moon -  Starships Over Alice (Original Mix) 8:34
+03. A & Z vs. Flynn & Denton -  Scota 8:16
+04. Matt Bowdidge -  Final Rising (Original Mix) 6:58(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 05:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865F7C4ADC21662F15637043F1BEE08CEC2F809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039564   (594792) от 02.08.2016
 
 VA - 50 Ultimate Dance Hits Function (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -694,33 +721,6 @@ VA - 80's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C57E0B29445352B0E5DB6E6937A232785298579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299772   (596059) от 03.05.2019
-
-VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stormzy - Vossi Bop
-002. Lil Nas X - Old Town Road
-003. Lewis Capaldi  Pete Kelleher  Tom Barnes  Phil Cook  Benjamin Kohn - Someone You Loved
-004. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6803DF0F0E36DC9D2EF8FE529662064EC3CB2674
 ```
 
 

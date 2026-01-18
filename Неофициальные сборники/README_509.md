@@ -1,3 +1,30 @@
+###  Публикация: 1204529   (784671) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Touch - The Fire Of Love ( 1986 )
+02. Nation In Blue - Dancing On My Own ( 2017 )
+03. Petr Kotvald - Big City Calling ( 1987 )
+04. Proxyon - The Shuttle ( 1993 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204537   (784672) от 06.02.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -667,33 +694,6 @@ VA - Лучшая дискотека от Европы Плюс. Часть № 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9C47CC207F8082A67F0031A814655B61EA63D1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124580   (785635) от 12.04.2017
-
-VA - Весенний хит русского шансона. Версия № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Разгуляев - Ты Не Боишься Ничего 3:47
-002. Геннадий Парыкин - Миши Круга Звезда 3:49
-003. Слава Прибрежный - Собрались Зверье В Лесу 3:30
-004. Елена Бакурова & Михаил Серегин - Не Перебивай 3:48(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F08D23CEABD754BFE3EA8B65ACA0D69C7DD340
 ```
 
 

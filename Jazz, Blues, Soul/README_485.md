@@ -1,3 +1,247 @@
+###  Публикация: 1117875   (815484) от 24.03.2017
+
+Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой американский музыкант, гитарист и блюзмен, которым по-настоящему восхищается Бадди Гай. Сегодня даже матерые музыканты, глядя на гитариста-подростка, удивлены – он слишком хорошо, совсем 'не по возрасту' играет блюз. При этом сам Куинн говорит, что он вовсе не сводит свою жизнь к игре на гитаре – он ведет обычную жизнь обычного американского подростка.
+American (   Читать дальше...   )01. Something For Me (4:53)
+02. Tell Me I'm Not Dreaming (3:52)
+03. Midnight Highway (5:56)
+04. Crazy Into You (4:02)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ECADA4B98D82A883F0A471702BBDCB3828A502
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117733   (815492) от 24.03.2017
+
+Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Jump For Joy  (04:48) 
+02| High And Low  (06:26) 
+03| Did You Ever Wonder  (04:04) 
+04| Fear Of Falling  (08:00) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96C3EDF27136966C9AA9C6AC92B9F56D57CF839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117991   (815493) от 24.03.2017
+
+Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Rock, Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girls (4:22)
+02. Heading Down (4:40)
+03. The Letter (5:04)
+04. My Whole World (6:02)(   Читать дальше...   )Жанр: Blues-Rock, Rock, Rock'n'RollПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F815E0223F3DD48A17563675E36ED7E291B1471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117988   (815616) от 24.03.2017
+
+Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In A Mellow Tone [10:11]
+ 02.Yesterdays [07:07]
+ 03.You Go To My Head [06:01]
+ 04.Tin Tin Deo [11:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5354952B79CFF3B38A134F0F9CCE466D99F731E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117985   (815619) от 24.03.2017
+
+Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hittin' The Jug [08:32]
+ 02.Close Your Eyes [03:48]
+ 03.My Romance [04:17]
+ 04.Canadian Sunset [05:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFB2728F1403EE4B45DD094CB3DC170DFA4F23B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382883   (815677) от 13.05.2020
+
+Maynard Ferguson - New Vintage 1977 (2004) Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (from the 20th Century-Fox Film 'Star Wars') [4:14]
+02. Oasis [6:31]
+03. Maria (from 'West Side Story') [6:28]
+04. El Vuelo (The Flight) [7:18](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6362A4D9FC39E69CE4DA1B37E3C1CDE77E084FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382888   (815682) от 13.05.2020
+
+Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgia on My Mind [3:32]
+02. Rockin' Chair [3:03]
+03. Is That Religion? [3:03]
+04. Harlem Lullaby [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A1495BE6C94B1EA9E5F8353449A998509139F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008590   (815794) от 18.04.2016
+
+Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cry Me A River 02:50
+02.Diamonds Are A Girl's Best Friend 01:59
+03.My Heart Belongs To Daddy 02:40
+04.September In The Rain 01:40(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00E8E518A8DC8B5006A4F4DD7922F09A4E388DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197485   (815817) от 07.01.2018
+
+Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love For Me [07:44]
+02. The Bee Hive [09:11]
+03. Eddie Harris [06:20]
+04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197406   (815912) от 07.01.2018
 
 Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -452,249 +696,6 @@ Dave Brubeck - S' Wonderful (2003) Tyrolis Musik [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A25A0C8EC5DCACC168831CC77211623FFC6DDBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382684   (817545) от 12.05.2020
-
-Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September in the Rain [5:09]
-02. Down at the Loft [4:30]
-03. Ghost of a Chance [6:39]
-04. Not So Deep [7:04](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05679A05A511198DC116FC82ED2FFAD41E4D904B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197305   (817578) от 06.01.2018
-
-Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Hat, White Tie And Tails
-02. Have You Met Miss Jones
-03. I Only Have Eyes For You
-04. Stormy Weather(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1275ECD5C0156A7D266D53A1BE8CB44A61D67A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503794   (817634) от 20.10.2021
-
-Black Cherry Perry's Mississippi Medicine Show - Where There's Smoke (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There's Smoke (5:27)
-02. Desperate People (3:36)
-03. Southern Cross the Dog (3:25)
-04. The Mojo Man (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484AB3CC571B560F2D777AC221B661FAB5B9F928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503801   (817638) от 20.10.2021
-
-Frank Magnolia - Night Rider (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matter of Style (2:59)
-02. Night Rider (2:37)
-03. Leave Me Your Number (3:03)
-04. She Do What She Like (2:48)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465FC0490E37ADC626C8B4224947EF63C67C92C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503799   (817640) от 20.10.2021
-
-Carolyn Wonderland - Tempting Fate (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile Peace And Certain War (3:59)
-02. Texas Girl And Her Boots (4:20)
-03. Broken Hearted Blues (4:52)
-04. Fortunate Few (3:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACAC19486939028E7A27611B910E6236CB1D2DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382724   (817675) от 12.05.2020
-
-Maynard Ferguson - Storm 1982 (2015) Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Admiral's Horn [4:41]
-02. Jar Star [6:07]
-03. Take the 'A' Train [3:47]
-04. Latino Lovewalk [7:12](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, BopПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FEC1BBD45CF0A246506777177011C9867F8EC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382694   (817690) от 12.05.2020
-
-Maynard Ferguson & Chris Connor - Two's Company 1961 (1996) Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel a Song Coming On [2:06]
-02. The Wind [4:59]
-03. New York's My Home [4:38]
-04. Guess Who I Saw Today? [3:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFE922C4805348C96F5D34CBD4AAD649799957C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197103   (817726) от 06.01.2018
-
-Eddie 'Lockjaw' Davis - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817726.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Very Saxy [08:17]
-02. Lester Leaps In [06:14]
-03. Fourmost [05:21](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 04:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DE7A8D97B59F576CB15DB4A255B14BCD37A370
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197180   (817730) от 06.01.2018
-
-Wild Bill Davison - Pretty Wild & With Strings Attached (1956, 1957) 2000, Arbors Records [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandy, Make Up Your Mind [02:36]
-02. Black Butterfly [03:00]
-03. If I Had You [02:25]
-04. Just A Gigolo [03:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A4F71E32EAAB94C45416332EB687932306D996
 ```
 
 

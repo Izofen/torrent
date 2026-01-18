@@ -1,3 +1,57 @@
+###  Публикация: 926858   (531483) от 11.08.2015
+
+America - Warner Bros Years (1971-1977) 8CD Box Set Remastered /2015, Warner Rhino Records/ [FLAC|image+.cue]<Rock, Soft Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tin Man 03:37
+02. Muskrat Love 03:07
+03. I Need You 02:41
+04. Old Man Took 03:29(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop Rock, Folk RockПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072105434ECBC8BC8B832677754D144AA5DE867A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926692   (531489) от 11.08.2015
+
+Дайте Два - Особенная уличная магия (2015) EP [MP3|320 кб/с]<Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_531489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Свитер с оленями
+03. Особенная уличная магия
+04. Диванные войска(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB0814FEF23EC5E33E347409CF44C50C378E6BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155671   (531568) от 04.08.2017
 
 The Devils Deuce - Supercharged (2017) [MP3|320 Kbps] <Rockabilly>
@@ -642,60 +696,6 @@ Y&T - Yesterday And Today Live (1991) Japan [APE|Lossless|image + .cue] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6996251D5C0F2DF7563CDFFAFFF2EE5B779D715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051539   (532684) от 11.09.2016
-
-Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532684.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:01] 01. Bulletproof
-[03:08] 02. Restless
-[03:47] 03. Back To Zero (feat. Ryo Kinoshita from 'Crystal Lake')
-[03:44] 04. Dear Diary(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312546   (532690) от 04.07.2019
-
-Behemoth - Zos Kia Cultus (Here and Beyond) (2002) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horns ov Baphomet (6:35)
- 02. Modern Iconoclasts (4:25)
- 03. Here and Beyond (3:25)
- 04. As Above So Below (4:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2E96293E628038AF532542FB90AEAFB002E5E9
 ```
 
 

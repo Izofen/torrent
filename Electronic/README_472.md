@@ -1,3 +1,57 @@
+###  Публикация: 1096368   (921090) от 23.01.2017
+
+VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vadim Bonkrashkov – Super 8 (original mix)
+02. Pulsar – One (Mino Safy "One World One Passion" remix)
+03. Darvo – Wandering Flames (Club mix)
+04. Taglo – San Antonio (Daniel Rise remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0418757EAC622B70920B5ABC86B0CACFA1D97834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113297   (921468) от 12.03.2020
+
+SKAM Records (Skam, 33, Kasm, 30mil Recordings) - Label-Pack 118 Releases (1991-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Abstract, Experimental, Techno>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fhorth (05:35)
+ 02. Herzzatzz (06:08)
+ 03. Avantual (05:44)
+ 04. Evensong (07:49)(   Читать дальше...   )Тип издания: CD, Web, Vinyl, CassetteЖанр: IDM, Leftfield, Abstract, Experimental, Techno, Conscious, Acid, Ambient •Продолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94243C38E216F85B3E364873ABAFFB413EBB282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014828   (921558) от 18.08.2021
 
 Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Modern Classical, IDM, Techno, Experimental>
@@ -645,59 +699,6 @@ pl8 - Discography 7 Releases (2019-2021) opn g8s [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D6156BD954CB1082DD968CE658719EEB0C26660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340010   (923675) от 17.08.2021
-
-As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, Clear, ART, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Downtempo, Future Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuron - La Source (06:22)
- 02. As One - The Specialist (Nuron Remix) (06:14)
- 03. As One - Emanation (Nuron Remix) (05:22)Тип издания: CD, Vinyl, WebЖанр: Techno, Ambient, IDM, Downtempo, Future Jazz •Продолжительность: 22:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13797F80AE7F8F94D2724ED87EF7219EB51BC3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139779   (923694) от 11.03.2020
-
-Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmitter (05:01)
- 02. One Giant Leap (05:17)
- 03. The Truth Laid Bare (05:45)
- 04. Slipstream (07:02)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Space, Berlin-School •Продолжительность: 08:17:34 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2354CBC861305045AD4C512F9ABEF8B524C255
 ```
 
 

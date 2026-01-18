@@ -1,3 +1,57 @@
+###  Публикация: 1204873   (783799) от 09.02.2018
+
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205339   (783800) от 09.02.2018
+
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204909   (783801) от 09.02.2018
 
 James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
@@ -640,60 +694,6 @@ VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9718C6E00368F03D2B51878E0883C3D7C4E1FF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204803   (784409) от 07.02.2018
-
-VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Antolini & Eddy Rave - Your Soul (Intrance Wom Cut)
-02. Anton Greco - Around The Angels (Wom Cut)
-03. Mazza - In The Sky (Wom Cut)
-04. Rohma - Survive (Wom Cut)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FFC1BB9EDB4950E6222DBCF4533363D6A60C62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204732   (784412) от 07.02.2018
-
-VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bobby Rock  -  Move On (Radio Edit)  3:28
-02.  Lunde Bros  -  Boomba (Radio Edit)  2:59
-03.  Richard Grey feat. Katty Q & Bodhi Jones  -  My Love (Future House Remix)  4:29
-04.  Joachim Garraud & Ridwello  -  Come On Let's Go (feat. Charlie Sputnik) (DBN Radio Edit)  2:19(   Читать дальше...   )Жанр: House, Future HouseПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1116501   (822476) от 20.03.2017
+
+Болот Байрышев - 2 альбома (2012) [FLAC|Lossless|tracks + .cue] <World Music, Ethno, Throat Singing, Altai Горловое пение>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Алас
+2012 - Ай эскидеЖанр: World Music, Ethno, Throat Singing, Altai Горловое пениеПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6701557CBF61EDA506D0AA3A3A77FFB3B6BFAC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502730   (822568) от 17.10.2021
 
 Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -665,33 +691,6 @@ Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE95613D43D82C93454FE6A4543623743EC659E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381191   (827730) от 06.05.2020
-
-Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture: The Return
-02. Let's Get This Ball Rolling!
-03. Over The Deeporama
-04. Out Of The Clay And Mud & Coilsssss And Sssssspringsssss(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
 ```
 
 

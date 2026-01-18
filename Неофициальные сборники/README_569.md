@@ -1,3 +1,28 @@
+###  Публикация: 1000809   (857358) от 26.03.2016
+
+VA - Club Dance Hits DFM (2016) [MP3|320 кб/с] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857358.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Code - Mood (Find You) (2X2A Remix)
+002. Ane Brun - Big In JapanЖанр: Dance, ClubПродолжительность: 08:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1673144C10CF56ABA5E8562BFE20C184DAF789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109653   (857367) от 28.02.2017
 
 VA - Running Of Dance Hits Friends (2017) [MP3|320 Kbps] <Pop, House, Club, Dance>
@@ -662,33 +687,6 @@ Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A932503CC3AC26CC11420C662E7FA2896CC5AD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376524   (858913) от 18.04.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 17.04.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Little Big - UNO 2:41
-03. The Weeknd - Blinding Lights 3:22
-04. Dua Lipa - Physical 3:14(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644900220183877DE3AE9E7B6AA7838664AB457F
 ```
 
 

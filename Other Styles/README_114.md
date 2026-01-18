@@ -1,3 +1,27 @@
+###  Публикация: 210689   (690827) от 22.06.2010
+
+VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Lounge / Chill-Out / Relax / Smooth-JazzПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028317   (690873) от 22.06.2016
 
 Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
@@ -665,33 +689,6 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027666   (694708) от 20.06.2016
-
-Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday Slow Rotations [00:04:10]
-02. Monday Midwinter [00:04:19]
-03. Tuesday The Compass [00:06:46]
-04. Wednesday In Stillness [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
 ```
 
 

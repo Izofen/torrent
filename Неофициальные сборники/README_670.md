@@ -1,3 +1,30 @@
+###  Публикация: 1458918   (1023519) от 31.03.2021
+
+VA - Beatport Deep House: Sound Pack #266 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, которая создаёт тёплую, позитивную атмосферу, атмосферу домашнего уюта или беззаботного путешествия. Она отлично впишется в плейлист любого заядлого меломана отдающего предпочтение современной электронной музыке.001. Nikita Great - This Is My Dream
+002. Robert Guerrero - Lover Lover
+003. Roland Nights - The Underground
+004. Charlie Hesen - The Love Story(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D2E66E0F08412A4AE54C461DB4B4514C5C6A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458962   (1023522) от 31.03.2021
 
 VA - HGM: March Electro Dance Chart (2021) [MP3|320 Kbps] <EDM, Dance, House, Club, Tech House>
@@ -670,33 +697,6 @@ VA - Ladies Moment: Vocal House (2021) [MP3|320 Kbps] <Vocal House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9D9143E970A02B52CE1EDECFC14960481E2086C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457011   (1024637) от 25.03.2021
-
-VA - Beatport Hypnotic Trance: Sound Pack #261 (2021) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слушая композиции 261-го релиза транс-музыки от Beatport, невольно проникаешься мелодией и ритмом этой музыки и представляется, буд-то ты совершаешь полёт на космоплане в глубоком космосе, видишь блеск звёзд, бездонную глубину чёрных дыр и затаив дыхание, восторгаешься столь величественной красотой мироздания.001. Mike Rivera - Klarinette
-002. Madwave - Eternal Spirit
-003. Megara Vs Dj Lee - United Nation
-004. Dj Tomsten - Wet Dipper(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C86C15EEB382B8A8C45246CE54F63DF5599AC7F0
 ```
 
 

@@ -1,3 +1,300 @@
+###  Публикация: 1455036   (1025799) от 18.03.2021
+
+Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Make-up & Faded Blue Jeans [00:04:04]
+02 - Down to a Crawl [00:03:21]
+03 - People Like Me [00:03:39]
+04 - Kentucky Bluebird [00:03:42](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455178   (1025815) от 18.03.2021
+
+Issa - Crossfire (2015) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossfire
+02. New Horizon
+03. Raintown
+04. Long Time Coming(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174C073DF50FC855F1ECC7C9BDDFCA8E5A09BDB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455174   (1025818) от 18.03.2021
+
+Issa - Run With The Pack (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Am I Losin' You
+02. Run With The Pack
+03. Sacrifice Me
+04. How Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F8BC3F56FFB15C41B4F54E88117347BC578D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455032   (1025820) от 18.03.2021
+
+Метель - Ради того, чтобы спастись (2021) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бобровская Метель [00:03:05]
+02 - Виски с сигаретой [00:03:01]
+03 - Кнопка _Стоп_ [00:03:51]
+04 - Как могла ты уйти [00:03:29](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530725B76AC4F1D899102F4927915BC491C15622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455063   (1025822) от 18.03.2021
+
+com.pass - Полюса (2021) [MP3|320 Kbps] <Russian Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вступление [00:01:22]
+02 - Ошибка [00:03:33]
+03 - Объект №0 [00:03:48]
+04 - Демон [00:03:33](   Читать дальше...   )Жанр: Russian MetalcoreПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BABD698753D23C5DD3BA5149098E3B9CFBC5755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455214   (1025825) от 18.03.2021
+
+Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025825.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Masquerade Overture (Live) (03:05)
+ 02. As Good As Gold (Live) (07:18)
+ 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455061   (1025829) от 18.03.2021
+
+Мышц. - Sadзвездие (2021) [MP3|320 Kbps] <Post-Punk, Shoegaze, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Цифры [00:03:34]
+02 - Федя [00:03:25]
+03 - Психосом [00:00:59]
+04 - Лавины [00:03:45](   Читать дальше...   )Жанр: Post-Punk, Shoegaze, IndieПродолжительность: 00:25:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E317F41A9EEC971A626104EB6856372BB7E9E8BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455318   (1025837) от 18.03.2021
+
+Псарня - Глэмпанк (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - собачий кайф [00:02:49]
+02 - ружьё [00:02:38]
+03 - шлюхи деньги наркота [00:02:17]
+04 - тупица [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0CB91258FB648160647E7F5C085625A42F8F16A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455080   (1025839) от 18.03.2021
+
+Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blood Moon [00:04:25]
+02 - Millennium Phenomenon [00:05:47]
+03 - Wavelurker [00:03:40]
+04 - Dödskult Ritual [00:04:00](   Читать дальше...   )Жанр: Stoner Rock, MetalПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF2C87A85F940C75419200D8BD383B0210E9DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455053   (1025841) от 18.03.2021
+
+FalStep - Плавучий Остров (2021) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Выйти И Сказать [00:03:38]
+02 - С Тобой [00:04:30]
+03 - Kray [00:03:40]
+04 - Горловский Туман [00:04:27](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21360849656C5A3EF7466493A7F4F5EEEE399C79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455317   (1025845) от 18.03.2021
+
+FalStep - Минуты Счастья (2020) [MP3|320 Kbps] <Alternative Progressive Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ценить Сейчас [00:02:03]
+02 - Там, Где Нас Нет [00:03:28]
+03 - Больше Звуков И Тебя [00:04:10]
+04 - Время Забыть [00:03:19](   Читать дальше...   )Жанр: Alternative Progressive Metal, Nu MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ED0E04C96275191D40CDDA57D2A5A5B472FFDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 837547   (1025959) от 17.03.2021
 
 Fatal Embrace - The Empires of Inhumanity (2010) [FLAC|Lossless]<Thrash Metal>
@@ -398,303 +695,6 @@ Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454709   (1026156) от 16.03.2021
-
-Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride The Rainbow
-02. The Fire Of Hades
-03. The Devil Inside
-04. Waves Of War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454707   (1026157) от 16.03.2021
-
-Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rifles And Hammers (4:33)
-02. Riding The Mushhushu (4:58)
-03. Monuments of Bereavement (3:39)
-04. The Shattering (1:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454513   (1026230) от 15.03.2021
-
-King Kong - King Kong (1981) LP [MP3|320 Kbps] <Electronic, Blues Rock, Krautrock, New Wave, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flyin' Through The Motions (2:52)
-02. School Is Out (2:43)
-03. King Kong's Bodyguard (9:25)
-04. Let Met Be At Home (3:54)(   Читать дальше...   )Жанр: Electronic, Blues Rock, Krautrock, New Wave, DiscoПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9923E2C143EE974C6FD080FD4BA2388010B0837A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454608   (1026236) от 15.03.2021
-
-Мельница - Манускрипт (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Апельсиновая джига
-03. Апельсиновая баллада (О Петре и Тавифе)
-04. Рукописи(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F84F81C92BC856CFCB00D7EF77A824D6839B0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454582   (1026245) от 15.03.2021
-
-Screaming Lord Sutch - Alive and Well (1980) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Rock & Roll, Novelty>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney Maroney 03:20
-02. We're Only Here for the Blood 03:04
-03. Bye Bye Johnny 03:28
-04. Medley: Jenny Jenny/Keep A'knockin' 03:23(   Читать дальше...   )Жанр: Pop Rock, Rock & Roll, NoveltyПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FC955A0B0DDDD57270EB9180F940656035F6F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454343   (1026250) от 15.03.2021
-
-Sunstorm - Afterlife (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Afterlife [00:04:00]
-02 - One Step Closer [00:03:54]
-03 - Swan Song [00:05:14]
-04 - Born Again [00:04:20](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23766AAC470A0B74C6A4DEBAE3762D3BE3A42416
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454668   (1026251) от 15.03.2021
-
-РадаР - Очевидное и невероятное (2021) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Петербургское сайко (03:49)
- 02. Весь этот Космос (03:41)
- 03. В пустой комнате (04:07)
- 04. Панк-рок (feat. К. Кинчев) (03:48)(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E6E220B71A92D96F571565639B971942166164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454584   (1026253) от 15.03.2021
-
-Michael Bormann's Jaded Hard - Feels Like Yesterday (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Like I'm Living
-02. It Feels Like Yesterday
-03. Won't Surrender
-04. Bring Me Higher Love(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C414F089CE2299B9BD11400DEA7CDCA48CAAA6C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454561   (1026261) от 15.03.2021
-
-Nasty Ratz - First Bite (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love At First Fight
-02. Made Of Steel
-03. I Don't Wanna Care
-04. Morning Dreams Come True(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303ACEB4DA34EFF42B6FB82C80DFFCA537B3AF29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454566   (1026263) от 15.03.2021
-
-Ricky Warwick - When Life Was Hard and Fast (2021) 2xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026263.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - When Life Was Hard and Fast:
-01. When Life Was Hard and Fast
-02. You Don't Love Me
-03. I'd Rather Be Hit(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2C69EE7DA3EAD9DF69496D7F8B6003A86A9B4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454590   (1026264) от 15.03.2021
-
-Danger Zone - Don't Count On Heroes (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demon Or Saint
-02. Faster Than Love
-03. Somewhere Out There
-04. Destiny(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655F6162F8B4E8A9D9DFDC2E87731DD40235C817
 ```
 
 

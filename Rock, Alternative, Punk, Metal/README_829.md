@@ -1,3 +1,189 @@
+###  Публикация: 361805   (574849) от 11.07.2011
+
+VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:49:11
+--------
+1. James Brown - I Got You (I Feel Good)           3:18
+2. Santana - Soul Sacrifice                        4:55
+3. Martha Reeves & The Vandellas - Dancing In The Street 2:33
+4. Jimmy Ruffin - What Becomes Of The Broken Hearted     3:03
+5. The Edwin Hawkins Singers - Oh Happy Day        5:04
+6. The Box Tops - The Letter                       1:54
+7. Cupid's Inspiration - Yesterday Has Gone        2:37
+8. The Temptations - Run Away Chils, Running Wild  4:55(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527885   (574885) от 27.07.2012
+
+ГРАЙ - О земле родной (2011) [MP3|320 кб/с]<Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песнь о земле родной
+02. Пшеничная
+03. Зимняя сказка
+04. Весна
+05. Средь лесов
+06. Лешак
+07. Уходи далёко, горе
+08. Плач о долюшке
+09. Воин храбрый, ясный сокол
+10. Вставай с коленЖанр: Folk MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8EF6530988731436EB63A8B3A680895D79A3DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527864   (574890) от 27.07.2012
+
+Testament - Dark Roots Of Earth (2012) Deluxe Edition [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_574890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Up (4:18)
+02. Native Blood (5:21)
+03. Dark Roots Of Earth (5:45)
+04. True American Hate (5:27)
+05. A Day In The Death (5:38)
+06. Cold Embrace (7:46)
+07. Man Kills Mankind (5:06)
+08. Throne Of Thorns (7:05)
+09. Last Stand For Independence (4:43)
+10. Dragon Attack (Queen cover) (4:44)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043127   (574923) от 15.08.2016
+
+Jake Chisholm - No More Sorrow (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Sorrow - 3:29
+02. I'm On Fire - 3:28
+03. Weigh You Down - 3:34
+04. Is There Another Man - 3:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E333588D7BA39126E4F0BC2119F48FD64302F6FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527910   (575176) от 27.07.2012
+
+Tankard - A Girl Called Cerveza (2012) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575176.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	Rapid Fire (A Tyrant's Elegy) 	05:12
+2. 	A Girl Called Cerveza 	04:14
+3. 	Witchhunt 2.0 	05:42
+4. 	Masters of Farces 	04:08
+5. 	The Metal Lady Boy 	04:59
+6. 	Not One Day Dead (But One Day Mad) 	04:01
+7. 	Son of a Fridge 	05:53
+8. 	Fandom at Random 	05:28
+9. 	Metal Magnolia 	05:07
+10. 	Running on Fumes 	05:30Жанр: Thrash MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17DE97D5E48D00287089873FAD182088E7C5CF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921396   (575193) от 25.07.2015
+
+Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progressive Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Bill Hubbard
+02. What God Wants, Part I
+03. Perfect Sense, Part I
+04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Art RockПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87002C32A3568AC3F63950133A670129B2DC8220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921403   (575412) от 25.07.2015
 
 Roger Waters - Amused To Death (1992) Remastered /2015/ [MP3|320 кб/с]<Progressive Art Rock>
@@ -530,174 +716,6 @@ Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE876C19A314A694ADB7CD9B32632BF08729724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042948   (576546) от 14.08.2016
-
-Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkeybats (3:55)
- 02. I Want To Take You Higher / Stand (3:51)
- 03. VooDoo Violince (5:08)
- 04. Right-Engl-Boogie (3:29)(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E61840C673C1ED66392C91DEA496250436FEDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043049   (576549) от 14.08.2016
-
-The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baptized By Fire 3:56
-02. Made To Be Broken 3:32
-03. Willing To Forgive 3:30
-04. That's The Way God Planned It 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABD14964B33C9A56375B6924824C09037DC0264
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527289   (576623) от 26.07.2012
-
-Level 42 - 11 альбомов (1981-2006) [MP3|320 kbps] <Pop-Rock, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576623.jpg" />
-</div>
-
-
-###  Подробнее
-
-О группе:Жанр: Pop-Rock, FunkПродолжительность: 00:50:44
-
-01. Dive Into The Sun (04:01)
-02. Rooted (05:31)
-03. The Way Back Home (06:53)
-04. Just For You (04:52)
-05. Sleep Talking (05:00)
-06. Retroglide (04:49)
-07. All Around (04:57)
-08. Clouds (04:30)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34E1856FA3727E42CEFACE093D61479DC06B2C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042776   (576634) от 14.08.2016
-
-The Defiants - The Defiants (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (For A Few Dollars More - Carillon's Theme)
-02. Love And Bullets
-03. When The Lights Go Down
-04. Waiting On A Heartbreak(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C6099DFBB3637065B0EE7B03D56A3AFC1C756D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043007   (576655) от 14.08.2016
-
-Downlouders - Arca (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bake Kujira [04:05]
-02. Moto Perpetuo [06:32]
-03. UNO [05:13]
-04. FTL [05:06](   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2D0CC2308B061CFE95883BB3EED2759B4C18F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043032   (576660) от 14.08.2016
-
-The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born To Be Wild(feat. Claus Lessmann)
-02. Ride The Wind(feat. Michael Voss)
-03. Turn The Page
-04. Because The Night (feat. Linda Lulka)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:40:49 + 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0600E0E42CD92C9F9276DA8F3813CAD3B80CED
 ```
 
 

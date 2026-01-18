@@ -1,3 +1,30 @@
+###  Публикация: 1555576   (565164) от 06.06.2022
+
+Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Classical, Romantic>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes Someone (3:26)
+ 02. Destiny Of Love (4:52)
+ 03. Lost In Island (3:33)
+ 04. Shining Smile (3:47)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8F80E6425B1460E316B477B45CBD0C01948419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304100   (565265) от 25.05.2019
 
 Raimonds Ozols - Classics in Pop (2004) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -194,6 +221,30 @@ Symphony in E flat major, Op.6 No.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA55CF9A1CC12C3FE39D2EC7740CA6090B3E432
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224416   (570610) от 05.08.2010
+
+Richard Wagner / Friedmann Dressler: The Symphonic Ring (2009) [FLAC 2.0 192/24 |tracks (WEB DL)]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_570610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -656,60 +707,6 @@ The Purcell Quartet - Vivaldi: Variations On 'La Folia' And Other Sonatas (1985)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DED85CA5880FC01FF369F5F764806E77ABC54CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917640   (588659) от 13.07.2015
-
-Mozart - Two Concertos for Flute And Orchestra - Andante In C Major, KV315 (2002) [FLAC|image +.cue]<Classical, Concerto, Classical Period, Orchestral>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flute Concerto No. 1 in G major, K. 313 (K. 285c)
-01. Allegro maestoso (09:02)
-02. Adagio ma non troppo (09:13)
-03. Rondeau, Tempo di Menuetto (07:08)(   Читать дальше...   )Жанр: Classical, Concerto, Classical Period, OrchestralПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7D9CB4FFDC9884A11C46BC0916601A0D41BA68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917464   (589044) от 12.07.2015
-
-Yo-Yo Ma - Soul of the Tango (The Music of Astor Piazzolla) (1997) [FLAC|image +.cue]<Classical Crossover, Chamber Music, Dance, Latin, World, Tango>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Libertango (03:11)
-Tango Suite for 2 guitars
-02. Tango Suite: Andante (03:45)
-03. Tango Suite: Allegro (06:07)(   Читать дальше...   )Жанр: Classical Crossover, Chamber Music, Dance, Latin, World, TangoПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C798761AB05018965852BFE8D427F61984F7860
 ```
 
 

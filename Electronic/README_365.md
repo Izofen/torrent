@@ -1,3 +1,57 @@
+###  Публикация: 1128627   (727566) от 25.04.2017
+
+VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peter Pearson - Round and Round  4:26
+02.  Emotion Coder - Streets  4:03
+03.  JP-Juice - Cette Planete  3:41
+04.  Deeper Sublime & Krapan - La Musica Sei Tu  5:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE91443326758886B2BE3E5C3284C809DD1E454B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128438   (727663) от 25.04.2017
+
+VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Gee - Vagabond Musician (Original Mix)  3:37
+02.  Port Grimaud Project - Think To A Girl (Original Mix)  3:39
+03.  Makina Jane - 2 Much (Original Mix)  3:23
+04.  The Planet Sun - Get Up Stand Up (Original Mix)  3:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB35521931B71A34AAD7EC714642398B588046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128410   (727668) от 25.04.2017
 
 VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
@@ -637,60 +691,6 @@ Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCC01C11DBBE231F4202842E539A80BAA46FC34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284517   (728956) от 21.02.2019
-
-VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeron Komila - Phoenix (Enfortro Remix)
-02. Airdream - Sequence Of Events (Matt Robertson Remix)
-03. Aleksey Gunichev - Kristian Melody (Artifi Remix)
-04. Baintermix - Wind Of Change (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E2709EBD0ADC74FF00E7C96F86DB2BD93ACAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284397   (728960) от 21.02.2019
-
-VA - Anthology of contemporary music from Africa continent (2019) Unexplained Sounds Group [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FRKTL – Hverfa af himni heiðar stjörnur (04:54)
-02. Abdellah M. Hassak – 7 Heavens (04:42)
-03. Ahmed Saleh – Right Side (04:23)
-04. Victor Gama – A Luta Inicia (03:08)(   Читать дальше...   )Жанр: Ambient, Tribal, Experimental, AbstractПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE18B584D16EE1268D204F08EC94576DC28BDAE
 ```
 
 

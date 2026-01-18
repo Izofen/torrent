@@ -1,3 +1,36 @@
+###  Публикация: 614551   (976615) от 09.02.2013
+
+VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Константин Беляев - Гимн холостяков
+ 02.Lana Bittencourt - La Lecon de Twist
+ 03.Theo Schumann Combo - Wer war gestern bei Dir
+ 04.Nora Nova - Maenner Gibts Wie Sand Am Meer
+ 05.Ola & The Janglers - Reelin And Rockin
+ 06.Fredy Brock & Die Twist Makers - Boogie Woogie Twist
+ 07.Крекерс - Субботний Твист
+ 08.Жанна Агузарова - От Москвы до Ленинграда
+ 09.Britta Martell & Tanzorchester Gerhard Narholz - Ich bin allein
+ 10.Korda Gyorgy - Hippy, Hippy, Shake(   Читать дальше...   )Жанр: TwistПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356548   (976676) от 01.02.2020
 
 VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
@@ -714,33 +747,6 @@ VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973569   (979058) от 09.01.2016
-
-VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Профилактика Feat. Ser Twister - Будет Жарко 03:31
-002. Little Mix - Black Magic 03:33
-003. Олег Винник - Я Не Устану 03:30
-004. Rudimental - Never Let You Go 03:56(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
 ```
 
 

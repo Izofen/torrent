@@ -1,3 +1,30 @@
+###  Публикация: 1551296   (590103) от 15.05.2022
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 119 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. 71 Digits x Flo Rida - Low (Extended Mix)
+02. Akon Feat. Eminem - Smack That (Jonvs & Bagy Remix)
+03. Arash & Junona Boys & Dor Halevi - Broken Angel (Dj Baur VIP Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B895A2689F2246D082B13D039E36D29BE598D5E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551226   (590184) от 15.05.2022
 
 Michael Buble - Compilation (2022) [MP3|320 Kbps] <Vocal Jazz, Jazz-Pop>
@@ -666,33 +693,6 @@ In-Grid - Место Встречи на HOROSHEE.FM с Валентином М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915554   (592392) от 05.07.2015
-
-VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<House, Disco, Nu-Disco, Deep, Electronica, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Koze - XTC [08:20]
-02. Trevino - Eclipse [07:04]
-03. Stephan Bodzin - Singularity (Original Mix) [07:02]
-04. Sabb, Forrest - One of Us feat. Forrest (Original Mix) [06:14](   Читать дальше...   )Жанр: House, Disco, Nu-Disco, Deep, Electronica, MinimalПродолжительность: 06:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795F23B0378EE2634F14C2675AFAB209E3D4E375
 ```
 
 

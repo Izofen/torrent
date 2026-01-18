@@ -1,3 +1,263 @@
+###  Публикация: 434552   (986912) от 10.01.2012
+
+The Pumps - Cover to Cover (2011) [FLAC|Lossless]<Blues-Rock, Rock'n'Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rock This House (3:53)
+02. Moving On (3:28)
+03. Forty Days and Forty Nights (5:50)
+04. Good Time Roll Creole (3:56)
+05. Blues Makes Me Feel So Good (3:25)
+06. The One After 909 (2:52)
+07. Temptation (5:34)
+08. Walking By Myself (3:41)
+09. She's Hot (4:07)
+10. Treat Her Right (3:33)(   Читать дальше...   )Жанр: Blues-Rock, Rock'n'RollПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434132   (986914) от 10.01.2012
+
+Omar & the Howlers - Big Leg Beat (1992)/1980,Amazing AMCD-1003/ [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Caledonia 2:45
+02. Someday Baby 3:11
+03. Blues Parcel Post 3:36
+04. Diesel Don Juan 2:24
+05. St. Louis Bound 2:56
+06. Hoy Hoy Hoy 3:40
+07. I Don't Know Why 2:27
+08. Everybody Knows About My Good Thing 5:50
+09. Roadrunner 2:35
+10. Up The Line 2:28(   Читать дальше...   )1992Жанр: Blues-RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434182   (986922) от 10.01.2012
+
+Jerry 'Boogie' McCain - This Stuff Just Kills Me (1999) [APE|Lossless]<Blues, Harp>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Where You Been 03:46
+02. Super Woman 05:01
+03. This Stuff Just Kills Me 06:24
+04.  Viagra Man 06:12
+05. Slave Master 03:49
+06. My Deal At The Crossroads 05:26
+07. Jealousy 04:04
+08. Ain't No Use For Drug Abuse 05:24
+09. Mama's Gone 06:15
+10. Madison Mood 04:23(   Читать дальше...   )Жанр: Blues, HarpПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354748   (986978) от 23.01.2020
+
+Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [MP3|320 Kbps] <Blues, Blues-Rock, Hard-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Parisienne Walkways (Live) [5:50]
+ 02 - The Prophet [6:19]
+ 03 - Rest In Peace [5:59]
+ 04 - Enough Of The Blues [4:47](   Читать дальше...   )Жанр: Blues, Blues-Rock, Hard-RockПродолжительность: 02:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A382F3708344F33C4A36D126CA0B907F631661EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354647   (986983) от 23.01.2020
+
+Tommy Flanagan - Four Classic Albums 1957 - 1958 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986983.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Two Ton [4:53]
+02. It's Magic/My One and Only/They Didn't Believe Me [13:44]
+03. Soul Station [5:45](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00236CBC2662C640CAADB57B83894FE79BC6EEA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354595   (987020) от 23.01.2020
+
+Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Sax Relax
+02. Night Time (Saxophone Instrumentals)
+03. In a Mellow Tone
+04. Intimate Moments(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354649   (987075) от 23.01.2020
+
+Archie Shepp - Perfect Passions 1978 (1992) West Wind [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Rose [26:39]
+02. Lush Life [20:02]
+03. In a Sentimental Mood [8:49]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BB67CDBB8A94AE89E15EF3956903D3AF041E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354648   (987077) от 23.01.2020
+
+Archie Shepp - Montreux One 1975 (1988) Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush Life [12:38]
+02. U-Jamaa [10:22]
+03. Crucificado [11:43]
+04. Miss Toni [11:59]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852F28D198F6CC56D6DBEC2D41B709DBABBBB9D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971283   (987547) от 02.01.2016
+
+Joe Farrell-Louis Hayes Quartet - Vim 'n' Vigor (1983) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Arab Arab [09:59]
+ 02.Besame Mucho [07:25]
+ 03.Three Little Words [07:04]
+ 04.Miles Mode [07:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363D8988250CD26C3CBBF14BA3097D8FAC10023A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971152   (987585) от 02.01.2016
 
 McCoy Tyner - Nights Of Ballads & Blues (1963) 2000, ADA Sound Ltd.[FLAC|tracks+.cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -492,293 +752,6 @@ Etta James - The Dreamer (2011) [APE|Lossless]<Blues>
 08. In The Evening
 09. Too Tired
 10. That's The Chance You Take(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432589   (990011) от 07.01.2012
-
-Kenny Dorham - 'Round About Midnight At The Cafe Bohemia (2010) [FLAC|Lossless]<Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Monaco (6:44)
-02. Rounf About Midnight (7:45)
-03. Mexico City (6:01)
-04. A Night In Tunisia (9:43)
-05. Autumn In New York (4:34)
-06. Hill's Edge (8:20)2010Жанр: Bop, Hard BopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432568   (990015) от 07.01.2012
-
-Charles Mingus - Mingus At The Bohemia (1990) [FLAC|Lossless]<Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Jump Monk (6:53)
-02. Serenade In Blue (6:05)
-03. Percussion Discussion (8:39)
-04. Work Song (6:29)
-05. Septemberly (7:06)
-06. All The Things You C-Sharp (6:58)
-07. Jump Monk (alt. take) (11:53)
-08. All The Things You C-Sharp (alt. take) (10:44)1990Жанр: Bop, Hard BopПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432635   (990019) от 07.01.2012
-
-Roy Roberts - Every Shade Of Blue (1997) [FLAC|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Understand
-02. I Got a Gypsy Woman
-03. Hard to Find a Woman
-04. What Should I Do?
-05. Comin' Through the Back Door
-06. Why You Didn't Come Home
-07. Have You Seen My Baby?
-08. My Baby Left Me
-09. Sweet as a Honey Bee
-10. A Woman Needs Love(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432680   (990029) от 07.01.2012
-
-Blues Trackers - Smells Like Trouble (2011) [FLAC|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Trouble (5:30)
-02. Desperate Man (4:14)
-03. Dream (4:20)
-04. Mind Starvation (4:05)
-05. The Dolphin Dance (Part2) (4:09)
-06. Looking For Myself (4:30)
-07. In a Bad Condition (4:21)
-08. Jenny Star (3:39)
-09. Fake Fairy Tale (4:40)
-10. The Dolphin Dance (Part1) (2:00)Жанр: Blues, Blues-RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432794   (990053) от 07.01.2012
-
-VA - The Ultimate Diva Collection (2010) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.Cassandra Wilson - Polka Dots And Moonbeams (5:45)
-02.Jacintha - Round Midnight (6:15)
-03.Joni Mitchell - The Man I Love (5:57)
-04.Shirley Horn - Beautiful Love (3:39)
-05.Abbey Lincoln - Love has gone away (4:39)
-06.Patricia Barber - You Stepped Out Of A Dream (7:35)
-07.Stacey Kent - It Never Entered My Mind (4:40)
-08.Roberta Gambarini - Centerpiece (5:21)
-09.Susannah McCorkle - Manhc De Carnaval (Sunrise) (4:52)
-10.Jane Monheit - Comecar De Novo (6:18)(   Читать дальше...   )2010Жанр: Jazz, Vocal JazzПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432699   (990057) от 07.01.2012
-
-J.B. Lenoir - Alabama Blues (1995) [FLAC|Lossless]<Blues, Acoustic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Blues 3:10
-02. The Mojo Boogie 2:13
-03. God's Word 3:36
-04. The Whale Has Swallowed Me 2:21
-05. Move This Rope 3:30
-06. I Feel So Good 1:50
-07. Alabama March 2:50
-08. Talk to Your Daughter 2:42
-09. Mississippi Road 2:55
-10. Good Advice 2:41(   Читать дальше...   )1995Жанр: Blues, Acoustic BluesПродолжительность: 00:33:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432593   (990058) от 07.01.2012
-
-Red Garland Trio - Groovy (1999) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. C-Jam Blues (8:18)
-02. Gone Again (6:43)
-03. Will You Still Be Mine? (4:41)
-04. Willow Weep For Me (9:32)
-05. What Can I Say (After I Say I'm Sorry)? (7:11)
-06. Hey Now (3:40)1999Жанр: Post-BopПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432674   (990060) от 07.01.2012
-
-Shorty Rogers Big Band - The Swingin' Nutcracker (1997) [FLAC|Lossless]<Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Like Nutty Overture (Finale) (5:35)
-02. A Nutty Marche (Marche) (3:35)
-03. Blue Reeds (Reed Flute Blues) (5:30)
-04. The Swingin' Plum Fairy (Dance Of The Sugar Plum Fairy) (3:02)
-05. Snowball (Waltz Of The Snowflakes) (3:06)
-06. Six Pack (Trepak) (2:48)
-07. Flowers For The Cats (Waltz Of The Flowers) (3:30)
-08. Dance Expresso (Coffee) (3:00)
-09. Pass The Duke (Pas De Deux) (2:54)
-10. China Where? (Tea Dance) (2:13)(   Читать дальше...   )1997Жанр: Big BandПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432620   (990064) от 07.01.2012
-
-Mick Martin & The Blues Rockers - Blues All Night (1996) [FLAC|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On, Baby (3:18)
-02. Brand New Woman (6:47)
-03. Louise (5:35)
-04. Can't Get Enough (4:35)
-05. Your Lies (5:17)
-06. Blues All Night (4:35)
-07. Takin' My Time (5:33)
-08. Clean and Mean (2:38)
-09. Heartbreaker (5:51)
-10. Sugar Man (5:34)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 01:10:30
 
 ## Скачать торент
 ```bash

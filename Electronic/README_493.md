@@ -1,3 +1,69 @@
+###  Публикация: 603187   (995951) от 19.01.2013
+
+VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deepshakerz - Silbidos 013 (07:52)
+02. Deniz Koyu - Hydra (07:05)
+03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
+04. Jean Elan - What It Takes - Club Edit (03:16)
+05. DBN - Inside Out (06:15)
+06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
+07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
+08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
+09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
+10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603693   (996045) от 18.01.2013
+
+Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, Breaks>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wawa - Taste Of Fear (Lemongrass Full Moon Mix)
+02. Kondencuotas Pienas - So Pure (Lemongrass Rmx)
+03. Jettricks Feat. Adefunke & Faye Houston - Lose You (Lemongrass Deep House Remix)
+04. Glam Sam And His Combo - The Last Days Of Disco (Lemongrass First Kiss Rmx)
+05. Michiko - Stuck On You (Lemongrass Samba De Sol Rmx)
+06. Tokyo Counterpoint - To The Sky (Lemongrass Free Bird Remix)
+07. Alexandra Hampton - Breaking Waves (Lemongrass Remix Feat. Jana Tarasenko)
+08. Luke Hampton - Jazz Music (Lemongrass Remix)
+09. Karen Gibson Roc - So I Say (Lemongrass Remix)
+10. Five Seasons - Love Apple (Lemongrass Wet Dreams Remix)(   Читать дальше...   )Жанр: Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, BreaksПродолжительность: 37:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E3206C58968C8E9F81B88F87C41961294BAF45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603621   (996472) от 17.01.2013
 
 VA - Electro House 2012 Best Of (2012) [MP3|320 kbps] <House>
@@ -699,60 +765,6 @@ Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A7702CA2FC944189B1E3FBF3617F552D09EF108
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013364   (1001406) от 13.08.2021
-
-Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia84 [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Ambient, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiometric (Full Line Mix) (06:53)
- 02. Galaxie Sound (09:53)
- 03. Union Of Soul (09:15)
- 04. Tycho #4 (Airplane Reconstructor Mix) (06:12)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Techno, Ambient, Glitch, Experimental •Продолжительность: 26:39:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1267D691B7C58D07B6D72395816762A27D7ACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488939   (1001425) от 13.08.2021
-
-Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <Tribal, Dark Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entelodon (03:58)
- 02. Sivatherium (06:36)
- 03. Deinotherium (06:10)
- 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D118F05BCCC219730154303CE5C79193BEF9FCC8
 ```
 
 

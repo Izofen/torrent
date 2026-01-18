@@ -1,3 +1,57 @@
+###  Публикация: 917640   (588659) от 13.07.2015
+
+Mozart - Two Concertos for Flute And Orchestra - Andante In C Major, KV315 (2002) [FLAC|image +.cue]<Classical, Concerto, Classical Period, Orchestral>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flute Concerto No. 1 in G major, K. 313 (K. 285c)
+01. Allegro maestoso (09:02)
+02. Adagio ma non troppo (09:13)
+03. Rondeau, Tempo di Menuetto (07:08)(   Читать дальше...   )Жанр: Classical, Concerto, Classical Period, OrchestralПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7D9CB4FFDC9884A11C46BC0916601A0D41BA68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917464   (589044) от 12.07.2015
+
+Yo-Yo Ma - Soul of the Tango (The Music of Astor Piazzolla) (1997) [FLAC|image +.cue]<Classical Crossover, Chamber Music, Dance, Latin, World, Tango>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Libertango (03:11)
+Tango Suite for 2 guitars
+02. Tango Suite: Andante (03:45)
+03. Tango Suite: Allegro (06:07)(   Читать дальше...   )Жанр: Classical Crossover, Chamber Music, Dance, Latin, World, TangoПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C798761AB05018965852BFE8D427F61984F7860
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917239   (589570) от 11.07.2015
 
 VA - The Early Years: George Szell - The Royal Concertgebouw Recordings (2CDs) (1995) [FLAC|image+.cue]<Classical, Romantic Period, Symphony, Classical Period>
@@ -644,60 +698,6 @@ Beethoven - Choral Fantasy & Triple Concerto (2019) [FLAC 2.0|96/24|tracks|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FAEE5AD4564107628B5A6C67941DF51D372461C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297459   (604043) от 22.04.2019
-
-Mario Carrara - Un Amore Cosi Grande (1997) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604043.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Mattinata
-2.	Torna A Surriento
-3.	O Sole Mio
-4.	Core'ngrato (Catari, Catari)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9A028246D419C6A8DD0560552BFC478CBB51B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297269   (604045) от 22.04.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 2) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Mist Var. 1 (Day 2) (2:45)
- 02. A Sense of Symmetry (Day 2) (2:37)
- 03. Ascent (Day 2) (6:13)
- 04. Golden Butterflies Var. 1 (Day 2) (5:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC3F8B9919A3069AFDDD70C98AB6BA421BA0927
 ```
 
 

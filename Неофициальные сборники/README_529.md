@@ -1,3 +1,30 @@
+###  Публикация: 1507507   (798474) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PYLOT - Faded Light (5:34)
+02. Maxthor - Run (4:30)
+03. AM 1984 - Euphoria (4:39)
+04. SUNSET 1986 - Out Of World (3:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9398ABA06E80F4151208F06FB7E976B5275C7B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507481   (798480) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 4 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -668,33 +695,6 @@ VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273575   (799397) от 03.01.2019
-
-VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dan & Dan - 2+2 (D S B Remix)
-002. Leon Krasich - Level 44
-003. Oliver Smith - Foundation
-004. We Ourselves - Good Vibrations(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
 ```
 
 

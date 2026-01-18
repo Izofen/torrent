@@ -1,3 +1,57 @@
+###  Публикация: 1040254   (586540) от 05.08.2016
+
+Bedtime Baby - Bedtime Baby Music (2016) [MP3|320 Kbps] <New Age, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culmination [00:04:07]
+02. Mountain Walk [00:03:59]
+03. Breathing Through [00:03:24]
+04. Silent Waters [00:06:54](   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 02:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FACA29967F0B604F0AA450652A2C569E7422093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918510   (586768) от 15.07.2015
+
+The Chemical Brothers - Born In The Echoes (2015) [MP3|320 кб/с]<Breakbeat, Electro, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I Feel So Deserted (05:12)
+02. Go feat. Q-Tip (04:21)
+03. Under Neon Lights feat. St. Vincent (04:27)
+04. EML Ritual feat. Ali Love (05:21)(   Читать дальше...   )Жанр: Breakbeat, Electro, Big BeatПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D8371B56287345FF7E767FDEB0369C697D2823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918238   (586907) от 15.07.2015
 
 DJ Mixx - Check It Out (Euphoria Of Sound Guest Mix) (2012) [FLAC+cue|Lossless] <House>
@@ -641,60 +695,6 @@ VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917162   (589595) от 11.07.2015
-
-VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filmmusic Group - Peaceful Journey (Chill Out Mix) (04:24)
-02. Jack Dazey - Chill Out New York (Yuppie Lounge Music) (03:32)
-03. Gary Wolk - Door Jamb (03:16)
-04. Timothy Button - The Winds of Change (03:47)(   Читать дальше...   )Производство: Whisky LullabyЖанр: Lounge, Chillout, JazzyПродолжительность: 03:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FD1687B485D160221D18B8E1C2B05E23126BDDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551495   (589724) от 16.05.2022
-
-VA - Uncharted Vol. 24 (Compiled By Koen) (2022) [FLAC|Lossless|WEB|tracks] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ananda (AUT) - Mandalia (Original Mix) (7:40)
-02. Tony Wibe - Babylon (Original Mix) (8:08)
-03. Cortex - 1000 Details (Original Mix) (6:24)
-04. Lexxus (DE) & Psiger - Artificial Gravity (Original Mix) (7:43)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3240D71A9A0DFAD183198D30D1CD17D2EEBBEFCE
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 542578   (499284) от 02.09.2012
+
+VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New Age, Meditative, Ambient, Classical, Folklore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ForeverLive - Тучное небо
+02. Fiona Joy Hawkins - Contemplating
+03. Yiruma  - I'm Just A...
+04. Pure Meditation - Sandstream
+05. Polarkreis 18 - Untitled picture
+06. Thierry David - Forgive Me
+07. Роман Коляда - Trinity
+08. ForeverLive - Дорога вверх
+09. Ніна Матвієнко - Чарівна скрипка
+10. Fiona Joy Hawkins - Cobalt Interlude(   Читать дальше...   )Жанр: Piano, New Age, Meditative, Ambient, Classical, FolkloreПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F5257872A7CDE20959CC3DFFEB700991A0682D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541293   (499412) от 02.09.2012
 
 DJ Nil - My Buddha Mix (2012) [MP3|320 кб/с]<Deep House, House>
@@ -743,39 +776,6 @@ Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541930   (500606) от 01.09.2012
-
-VA - Радио Record представляет. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500606.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ika - Дорогой Мой
- 002. Женя Тополь - Угадай
- 003. Jandro - С Тобой
- 004. Vlada Crystal - Бешеное Лето
- 005. Ёлка - Около Тебя
- 006. Reflex - Я Буду Небом Твоим
- 007. Пропаганда & Mc Джимми - Хабиби
- 008. Виктор Рыбин И Наталья Сенчукова - Для Тебя
- 009. Fedora - До Утра
- 010. Серебро - Мама Люба(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAEADF2372EE638C68309B7E2710BA1BA9B20B6
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1306341   (555673) от 04.06.2019
+
+Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555673.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01 | Welcome to Hell | 04:04
+02 | Kein Weg zu Weit | 04:42
+03 | Long Live Death | 04:23(   Читать дальше...   )Жанр: Gothic Rock, Alternative RockПродолжительность: 01:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0227E944461578E0999241DE9AD84929559CDB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306339   (555690) от 04.06.2019
+
+Opprobrium - The Fallen Entities (2019) [FLAC|Lossless|tracks + .cue] <Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555690.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dark Days, Dark Times (3:57)
+2. Creations That Affect (4:53)
+3. Wicked Mysterious Events (5:24)
+4. The Fallen Entities (5:19)(   Читать дальше...   )Жанр: Metal, Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0C1ABDF900680BBDBE5719F4AF6AA1615A0C0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306189   (555813) от 03.06.2019
 
 LAMPOCHKA & Abazur - Вкл/Выкл (2019) [MP3|320 kbps] <Pop-Rock>
@@ -641,60 +695,6 @@ The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Rol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556918   (556397) от 12.06.2022
-
-MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sun Don't Shine (00:03:28)
-02 - Shame on Me (00:03:33)
-03 - My Window (00:03:57)
-04 - All in Good Time (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD02D7E3DF89D701C298326033515E5079DC4D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305602   (556401) от 31.05.2019
-
-Рекорд Оркестр - Клуб Путешественников (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Застрелись
-02. Без трусов
-03. Миллион миль
-04. Во мрак(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A921A4AF9A724A5E351B0B747C38892A8E1F8400
 ```
 
 

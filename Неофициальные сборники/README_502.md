@@ -1,3 +1,30 @@
+###  Публикация: 1209826   (778688) от 03.03.2018
+
+VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778688.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. V Sparks - (IRP) Intro
+2. The Magnetic North - A Death In The Woods
+3. Roald van Oosten - A Dream Within A Dream
+4. Cold Weather Company - Another Involved(   Читать дальше...   )Жанр: Indie/RockПродолжительность: 05:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08ECB016E23063D89CF16F061F3F3976365D6D5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210470   (778695) от 03.03.2018
 
 VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
@@ -668,33 +695,6 @@ VA - Night Noir Deep House Portrait (2018) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3EBE4F9201B516460FBC22F824C2D1A7E7C5C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209161   (779416) от 25.02.2018
-
-VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka)
-
-01. Sharapov - Story (Original Mix) (4:49)
-02. Dropgun - Krishna (Original Mix) (3:12)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 23:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F6BB46BBADAEAA89507FC53D6BC8DAC966C034
 ```
 
 

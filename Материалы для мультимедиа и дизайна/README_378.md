@@ -1,3 +1,51 @@
+###  Публикация: 1370813   (894801) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 340 Dump Truck 2009 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894801.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C1CC9C38A5CE73FE8D2823926C02E1AE3F7097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370703   (894806) от 28.03.2020
+
+3D модели - TurboSquid - Maserati Levante S Q4 GranSport 2019 - 1341071 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894806.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  MaseratiФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D77D7D70B9BFE210DEC31D9A09B93F1F69AB7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370793   (894814) от 28.03.2020
 
 3D модели - Hum3D - Peterbilt 330 Chassis Truck 3-axle 2003 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
@@ -579,58 +627,6 @@ magnet:?xt=urn:btih:45BABC7572AFE6D17A00B3E42353399BA93B348F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8412ED6725CF2931EF58686985348732689DCBD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493175   (897115) от 02.09.2021
-
-Векторный клипарт - Ornate Vintage Frames 63 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Изысканные старинные рамки
-3 AI +PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FAB33C7835F3B469F3FEDAF3953F0A03D29FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493323   (897119) от 02.09.2021
-
-Векторный клипарт - Fotolia - Seamless Pattern Collection 106 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897119.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фоны
-25 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25D9CE20881BAB0EE5D66DD689BBDD2E3E2035B
 ```
 
 

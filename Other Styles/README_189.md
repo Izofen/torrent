@@ -1,3 +1,36 @@
+###  Публикация: 601200   (997522) от 13.01.2013
+
+Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ande
+02. Apache
+03. Balla coi lupi
+04. Caracas
+05. Comanchy
+06. Gran Canyon
+07. Navayos
+08. Santiago del Cile
+09. Segnali di fumo
+10. Sioux(   Читать дальше...   )Жанр: Native American,New AgeПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580234   (997545) от 13.01.2013
 
 Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
@@ -749,33 +782,6 @@ Gandiva - Jago jharna (2016) [FLAC|Lossless|tracks + .cue] <Mantras, Meditative,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:437B47AE295C5458CDE8DBB3C19BBFBC3E124682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349995   (1002504) от 09.01.2020
-
-Films - Messenger (2010) (Midi Creative) [FLAC|Lossless|tracks + .cue] <Instrumental, Experimental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prologue 	1:02
-2. Water Horse 	6:22
-3. Liz & Lilly 	1:43
-4. Little Forest 	5:37(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA9655EE8C36B78C127E198B390D67CEB2B52BA
 ```
 
 

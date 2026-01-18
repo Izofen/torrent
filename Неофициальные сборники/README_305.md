@@ -1,3 +1,30 @@
+###  Публикация: 1561648   (513412) от 06.07.2022
+
+VA - Retro remix Июнь (2022) [MP3|320 Kbps] <Club House, Russian Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Morandi - Angels (Alex Antero & Denis Bravo Extended Remix) 04:52
+002. 2 Unlimited x Freejak - Get Ready (Dj Jeff Clapapella Party Starter) 03:23
+003. 5sta Family - Зачем (PS Project & Roman Max Remix) 03:48
+004. 20 Fingers, Sidney Samson x Boost, Ramirez, Temoff - Lick It (DJ Baur Mixshow) 03:21(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:08:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D731E6D74ADED623A12DDA8118BE9D42C2251C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534865   (513425) от 19.08.2012
 
 VA - Я, и Ты. Песни для двоих (2012) [MP3|256 кб/с]<Pop, Шансон>
@@ -688,33 +715,6 @@ VA - Roots Reggae (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C62EFAB17440E7272C137B9A09685A81C719C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242172   (515057) от 22.08.2018
-
-VA - Summer Beach Party Vol. 01 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515057.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - Flames
-002. Jax Jones, Ina Wroldsen - Breathe
-003. Louane - Immobile
-004. Basada - Good Vibes(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 11:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BC55DF5605FBE9D4C6C1E9CF5A61226955B503
 ```
 
 

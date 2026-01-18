@@ -1,3 +1,288 @@
+###  Публикация: 769203   (856986) от 22.03.2014
+
+Kim Pensyl - Under The Influence (1996) [FLAC|Lossless]<Smooth-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Minute By Minute
+ 02. Home At Last
+ 03. A Short Walk From Home
+ 04. Morning Isle
+ 05. That's The Way Of The World
+ 06. Love Light In Flight
+ 07. Mornin'
+ 08. Little Willy C.
+ 09. Casting Shadows
+ 10. BucklesЖанр: Smooth-JazzПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123792882D22CFBF686C9B9764EFAA8743AD7D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 305700   (856990) от 07.03.2011
+
+Sara Wasserman - Solid Ground (2009) [FLAC|Lossless]<Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Little Bird (3:31)
+02. I Am A Song (4:02)
+03. Leap Of Faith (3:48)
+04. Fly Away (4:18)
+05. Sara Smile (3:13)
+06. Fresh Out Of Tears (3:49)
+07. Solid Ground (5:06)
+08. Somehow Forever (4:20)
+09. Need To Know (3:59)
+10. Hindsight (4:08)(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376907   (857013) от 19.04.2020
+
+Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Send Me [6:09]
+02. I Just Called to Say I Love You [4:24]
+03. You Make Me Feel Brand New [5:57]
+04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376805   (857014) от 19.04.2020
+
+Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The A Train [2:57]
+02. Perdido [1:59]
+03. Frankie And Johnnie [3:10]
+04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647577   (857029) от 23.04.2013
+
+Badi Assad - 2 альбома (1997-2003) [FLAC|Lossless]<Jazz, Guitar, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ondas [03:47]
+02. Ballada de la doncella enamorada [05:48]
+03. Asas da Pan air [04:41]
+04. La huida de los amantes por el valle de los ecos [05:06]
+05. Vrap [04:00]
+06. Preludia e tocatina [03:08]
+07. Joana Francesca [04:53]
+08. Pro meu pai tocar [04:38]
+09. Saudade no 3 [06:19]
+10. Valseana [03:03](   Читать дальше...   )Жанр: Jazz, Guitar, VocalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647384   (857034) от 23.04.2013
+
+Jeremy Monteiro Trio - A Song For You, Karen (2003) [FLAC|Lossless]<Contemporary Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. A Song For You [08:49]
+02. When I Fall In Love [05:52]
+03. This Masquerade [05:26]
+04. We've Only Just Begun [05:42]
+05. Top Of The World [04:03]
+06. For All We Know [03:26]
+07. Rainy Days And Mondays [06:28]
+08. There's A Kind Of Hush [03:57]
+09. All You Get From Love Is A Love Song [04:38]
+10. I Won't Last A Day Without You [05:43](   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647261   (857038) от 23.04.2013
+
+Harvie S with Kenny Barron - Два Альбома (2008, 2013) [FLAC|Lossless]<Post-Bop/Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Nocturne
+02. Deep Night
+03. For Heaven's Sake
+04. Creepin'
+05. Juan's Theme
+06. Rio
+07. Sonia Braga
+08. Until Tomorrow
+09. Wig Wise
+10. WitchcraftЖанр: Post-Bop/Mainstream JazzПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769176   (857096) от 22.03.2014
+
+Kevin Mahogany - You Got What It Takes (1995) [FLAC|Lossless]<Vocal-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Baby You Got What It Takes
+ 02. Stockholm Sweetnin'
+ 03. Just In Time
+ 04. Sophisticated Lady
+ 05. Route 66
+ 06. Here's That Rainy Day
+ 07. Yardbird Suite
+ 08. My Funny Valentine
+ 09. Old Times Sake
+ 10. BG's Groove(   Читать дальше...   )Жанр: Vocal-JazzПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00D5BD58915FCD557363D9B7058EC9AF9873143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769326   (857102) от 22.03.2014
+
+Erroll Garner - Contrasts (1998) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My Sunshine [03:28]
+02. I've Got The World On A String [04:01]
+03. 7-11 Jump [07:18]
+04. Part Time Blues [04:32]
+05. Rosalie [02:39]
+06. In A Mellow Tone [04:19]
+07. Don't Worry Bout Me [05:03]
+08. All Of A Sudden My Heart Sings [03:22]
+09. There's A Small Hotel [03:10]
+10. Misty [02:48](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF11C13A333D9836FDE12EB4B8712ED6B580065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 305283   (857111) от 07.03.2011
 
 Tony Monaco - A New Generation (2003) [FLAC|Lossless]<Jazz, Hammond B-3>
@@ -488,277 +773,6 @@ Nomo - New Tones (2006) [FLAC|Lossless]<Funk, Afro-Beat, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00CE507BA5C7BE7D297AFB6F5D53769FA8DCA9B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498302   (858179) от 26.09.2021
-
-Art Foxall - Blue Fox (1992) Audio Daddio [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That One Thing Was You [5:26]
-02. Blue Fox [7:37]
-03. Tory Train [4:50]
-04. September Song [6:42](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5B3863689AFF9259BFF3D68BDF64E7813F9CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647084   (858708) от 22.04.2013
-
-V.A. - Sax Chill Out Vol. 3 (2011) [MP3|320 кб/с]<Jazz, Sax, ChillOut>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Moon River
-02. Memory
-03. Just the Way You Are
-04. Nuages
-05. A Whiter Shade of Pale
-06. Fly Me to the Moon
-07. Magdalena
-08. Still
-09. A Little Thing
-10. I Write the Songs(   Читать дальше...   )Жанр: Jazz, Sax, ChillOutПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004235EF7872C49ABB932FB5D0D20ED1A41894C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304406   (858751) от 06.03.2011
-
-G. Love - Fixin' To Die (2011) [FLAC|Lossless]<Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Fixin' to DieЖанр: Blues, CountryПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768602   (858830) от 21.03.2014
-
-Weather Report - Live and Unreleased 2CD (2002) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black Market (9:26)
-02. Where The Moon Goes (12:05)
-03. River People (6:57)
-04. Two Lines (8:15)
-05. Cigano (3:59)
-06. In A Silent Way/Waterfall (5:46)
-07. Night Passage (5:53)
-08. Port Of Entry (8:08)
-09. Rumba Mama (1:15)
-10. Directions/Dr. Honoris Causa (8:38)Жанр: Jazz, Fusion |Продолжительность: 02:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B32809A3A23E91C48FA8B53184C83192C59035B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769011   (858833) от 21.03.2014
-
-The Nick Moss Band - Time Ain't Free (2014) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. She Wants It (04:56)
-02. Was I Ever Heard (05:51)
-03. Light It Up (04:18)
-04. Fare Thee Well (07:06)
-05. Time Ain't Free (04:58)
-06. Been Gone So Long (05:42)
-07. Tell You Somethin' 'Bout Yourself (06:37)
-08. I Want the World to Know (05:46)
-09. Death Letter Blues (05:17)
-10. No Reason (05:06)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3482A8DCC98C13A43AFDEE4A79C14DBFBDA5E86B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768609   (858952) от 21.03.2014
-
-Art Pepper - Besame Mucho - Live In Tokyo (2003) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Red Car (9:14)
-02. The Shadow Of Your Smile (6:29)
-03. The Trip (10:02)
-04. Mambo De La Pinta (11:57)
-05. Besame Mucho (9:12)Жанр: JazzПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0170C0C8C8E3D187F8FAEA733D7A2BFFBB781FC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768754   (858953) от 21.03.2014
-
-Ambrose Akinmusire - The Imagined Savior is Far Easier to Paint (2014) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Christie
- 02. As We Fight
- 03. Our Basement
- 04. Vartha
- 05. Memo
- 06. The Beauty Of Dissolving Portraits
- 07. Asiam
- 08. Bubbles
- 09. Ceaseless Inexhaustible Child
- 10. Rollcall For Those Absent(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3E00167C94112170DE68F45265A2DBE7C313BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768591   (858957) от 21.03.2014
-
-Mississippi Cadillac Blues Band - Stone Cold (2011) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - Every Night And Every Day [00:03:57]
-02 - Sweet Ludella [00:04:23]
-03 - Cheatin' Ways [00:04:01]
-04 - Our Love Is Driftin' [00:04:28]
-05 - Stone Cold [00:04:34]
-06 - Home To Mississippi [00:03:45]
-07 - Beauty Operator [00:03:44]
-08 - Country Wagon Wheel [00:03:08]
-09 - Six Months Ago [00:05:15]
-10 - Automobile Blues [00:04:30]Жанр: Blues RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA05AEB6546616BDE717ADA665ABFC97426575E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109378   (859149) от 27.02.2017
-
-Konstantin Klashtorni - Groove Jazz N Chill #5 (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wherever I Go
-02. Sentimental Things
-03. Send My Love
-04. Live on Forever(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2585C113E24263D12B788959B489CBF7E68611A
 ```
 
 

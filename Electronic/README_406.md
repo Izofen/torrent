@@ -1,3 +1,57 @@
+###  Публикация: 1417742   (787103) от 25.11.2021
+
+Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
+02. Milty Evans - So Very Happy (06:36)
+03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
+04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276991   (787219) от 18.01.2019
+
+VA - Best Of Citrus (2018) [MP3|320 Kbps] <Electronica>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demure - Dancehall Sound
+02. Picota & Kumbh - Nebulosa
+03. Molecular - The Whale
+04. ZeroZero - Noodle Dub(   Читать дальше...   )Жанр: ElectronicaПродолжительность: 01:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE070F311F2DBD383085B24072A3C221ADCD4D52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276978   (787222) от 18.01.2019
 
 VA - Sublime Drum And Bass, Vol.14 (2019) [MP3|320 Kbps] <Drum & Bass>
@@ -639,60 +693,6 @@ Tune Of The Week(   Читать дальше...   )Жанр: Trance,Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B98B51496038D5CEB068988F28F8AD78ECB1C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203538   (788169) от 02.02.2018
-
-Klaada - Breaking The Cycle (2018) [MP3|320 Kbps] <Balearic,Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice (11:00)
-02. The Dream (08:05)
-03. Full Moon (07:19)
-04. Intention (02:09)(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 01:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C5CDFF7F8706133FC5B3196BB41D2AFE8FD6C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203458   (788178) от 02.02.2018
-
-VA - Ori Uplift - Uplifting Only 260 (incl. Vocal Trance) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE: New World - Ikigai (Intro Mix)
-02. Rene Ablaze & F.G. Noise featuring Lucid Blue - Oblivion (Extended Mix)
-03. Sheridan Grout & Michele C - Forget The World (Enzo Remix)
-04. Giuseppe Ottaviani & Jennifer Rene - Home (OnAir Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC01D4227A908B0BC4FCFAD2B21EE5343CB88232
 ```
 
 

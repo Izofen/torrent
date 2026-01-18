@@ -1,3 +1,57 @@
+###  Публикация: 1844753   (1050419) от 28.12.2025
+
+Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & FORS – Bring Me To Life
+02. Age Of Love vs. Jam & Spoon vs. Moby - Age Of Love vs. Stella vs. Go (Tiësto Mashup)
+03. Sonique - I Put A Spell On You (ID Remix)
+04. Tiësto - ID(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844722   (1050421) от 28.12.2025
+
+VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suntim - Luminosity (Extended Mix) [5:06]
+02. Evgeny Casper - The Energy Of Sound (Extended Mix) [6:18]
+03. KaKi - Manjushage (Extended Mix) [7:13]
+04. Angel Ace - The Purpose (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844638   (1050424) от 28.12.2025
 
 VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance, Vocal Trance>

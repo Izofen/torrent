@@ -1,3 +1,57 @@
+###  Публикация: 1297459   (604043) от 22.04.2019
+
+Mario Carrara - Un Amore Cosi Grande (1997) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604043.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Mattinata
+2.	Torna A Surriento
+3.	O Sole Mio
+4.	Core'ngrato (Catari, Catari)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9A028246D419C6A8DD0560552BFC478CBB51B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297269   (604045) от 22.04.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 2) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Mist Var. 1 (Day 2) (2:45)
+ 02. A Sense of Symmetry (Day 2) (2:37)
+ 03. Ascent (Day 2) (6:13)
+ 04. Golden Butterflies Var. 1 (Day 2) (5:57)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC3F8B9919A3069AFDDD70C98AB6BA421BA0927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297338   (604051) от 22.04.2019
 
 Jean-Michel Blais - Dans ma main (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
@@ -654,66 +708,6 @@ Wolfgang Amadeus Mozart – Serenade K.375, Harmomienmusik from Zauberfloete: Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:526753CE70952B3314CBD2FFF9DA963E06253FD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523424   (616896) от 16.07.2012
-
-Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden et al, Tragicomedia, Stephen Stubbs & Erin Headley (1680-1695)/2001, Warner Classics/[FLAC|Lossless]<Vocal>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome, viceregent of the mighty king, Z 340
-(Welcome song for Charles II, 1680) 12:28
-2. O dive custos Auriacae domus, Z 504
-(Elegy on the death of Queen Mary, 1695) 06:28
-3. Raise, raise the voice, Z 334
-(Ode for St. Cecilia`s Day, ca.1685) 12:28
-4. O let me ever, ever weep
-(The Plaint from “The Fairy Queen”, Z 629, 1692) 07:29
-5. Incassum, Lesbia, rogas
-(The Queen`s Epicedium) – Elegy on the death of Queen Mary, Z 383, 1695 07:32(   Читать дальше...   )Жанр: VocalПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B75BBF97B23FB35C40F7DEDFD0C0CA4E09EA0AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036768   (616955) от 22.07.2016
-
-Hesperion XXI, Jordi Savall, Manfredo Kraemer, Rolf Lislevand, Michael Behringer, Mauro Lopes, Arianna Savall - Altre Follie (1500 - 1750) 2005 [APE|Lossless|image + .cue] <Renaissance, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anуnimo (PERI) / Folias Criollas (improv.)    03:27
-02. Anуnimo (CMP 121) / Folias Antiguas    03:57
-03. Antonio de Cabezуn / Pavana Con Su Glosa    03:03
-04. Alonso Mudarra / Fantasia Que Contrahaze La Harpa De Ludovico    02:36(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4670EFADCEAA58F0D7AEDE27D6C001058192D890
 ```
 
 

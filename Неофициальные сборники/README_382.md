@@ -1,3 +1,33 @@
+###  Публикация: 1294441   (627709) от 08.04.2019
+
+VA - Hits of My Soul Vol. 45 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Jon O'Bir feat. Fisher - Found A Way (Original Mix) (07:37)
+02. Dash Berlin - Earth Hour (Club Mix) (08:15)
+03. Dominik Dudek pres. Astral Forteness - Enchanted In Time (Original Mix) (010:09)
+04. Nianaro - Citadel (Original Mix) (08:07)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9801C53C0BB603E71CDFA73B1A9ABDCFAB4C9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229299   (627819) от 05.06.2018
 
 VA - Relax & Massage (2018) [MP3|256-320 Kbps] <Relax, Massage, New Age>
@@ -692,33 +722,6 @@ VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144323   (628900) от 21.06.2017
-
-VA - Moving Dance: Summer Longplay (2017) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628900.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Kygo & Ellie Goulding - First Time  3:14
-002.  Alice Merton - No Roots  3:56
-003.  Alan Walker - Tired (feat. Gavin James)  3:12
-004.  Jason Derulo feat. Nicki Minaj & Ty Dolla Sign - Swalla  3:37(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 08:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBA07DCCE6F1CA8ADC7E12BE4CBEC873294A910C
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 520805   (631744) от 09.07.2012
+
+VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блестящие - Любовь
+02. Горячие головы - Лето в Крыму
+03. DJ Fisun - History 2012
+04. Biffguyz - Bum bum bum (DJ Andy Wait remix)
+05. Milena & MaXimA - Города
+06. Elvira T - Все решено (Fresh Tunes remix)
+07. Секрет Разума - В Мире Всё Возможно
+08. Корнелия Манго - Запретная Любовь
+09. А-Студио и Quest Pistols - Медведица
+10. USB & Сергей Жуков - Скажи Зачем(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACDBA7A58B8E76E616D9D96AC5DBA9751AED7B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229005   (631820) от 03.06.2018
 
 VA - Дискотека RnB (2018) [MP3|256-320 Kbps] <R&B, Hip-Hop>
@@ -680,33 +713,6 @@ VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A547B2E274A38EE3568CE85C1616D2005D03A198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908153   (633467) от 14.06.2015
-
-VA - 50 Лучших треков в машину 4 (2015) [MP3|256-320 кб/с]<Deep, House, Pop, Breaks, Chillout, Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Artxouse - Вступление [01:07]
-02.Blonde Feat. Melissa Steel - I Loved You [03:05]
-03.Feder feat. lyse - Goodbye [03:34]
-04.Misha Klein feat. Vika Grand - Feel So Good (Grotesque Remix) [05:19](   Читать дальше...   )Жанр: Deep, House, Pop, Breaks, Chillout, Drum & BassПродолжительность: 02:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84A6EBC06C7A60549449909398E6E568182FA8D
 ```
 
 

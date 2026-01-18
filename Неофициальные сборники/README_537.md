@@ -1,3 +1,30 @@
+###  Публикация: 1009657   (808234) от 22.04.2016
+
+VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BassBrothers - It's Right
+02. Royalston, Hannah Joy - People on the Ground
+03. Annix - Forever
+04. Anile - Jack of Clubs(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 05:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BF3E576C6A38D077143DEB661CD51C172A1CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009706   (808238) от 22.04.2016
 
 VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504187   (809480) от 24.10.2021
-
-VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Panoptic, Paul Anthonee - Surface
-002. Wang Inc. - Approdo
-003. Betonkust - Because I Want To Fit In
-004. Lord Of Loud - Starlight(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 08:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED12BC073E33922C513164E0929D718CE08219F0
 ```
 
 

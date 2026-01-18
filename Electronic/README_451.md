@@ -1,3 +1,57 @@
+###  Публикация: 1106888   (868338) от 22.02.2017
+
+VA - Business Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vega Ray - Track In Rhythm  4:56
+02.  K. Grooves - Mais Done (Latin Baja Mix)  3:03
+03.  Alexandre Mark - Cracks  3:45
+04.  Edison Morris - Gentleman Rain  3:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6C26548FB8BCBC6ED9723B768E55C999A256D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107390   (868341) от 22.02.2017
+
+VA - Sensual Mood Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Goose  7:32
+02.  Mathieu & Florzinho - The Indian  5:19
+03.  Floating Beat - Camija  4:23
+04.  Roy Bebop - Funky Breeze  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED57DC8C1904E4D05562B647DEF27886915039CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107243   (868342) от 22.02.2017
 
 Her Critters - Seconds Of Harmony (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -634,60 +688,6 @@ VA - Static Movement Spring Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F84BF08D19D4C1654039A5C494615CCE993205A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374798   (871189) от 11.04.2020
-
-Astral Terror - Liquid Brain (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ayahuasca Dark Trip (Narkotik) (7:46)
-2. Ayahuasca Dark Trip (Meriald) (8:55)
-3. Ayahuasca Dark Trip (Didi) (6:56)
-4. Ayahuasca Dark Trip (Liquid Brain) (7:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124045E49442B8A18FB0BEF1A9B77AC7EC7C18D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374913   (871193) от 11.04.2020
-
-The Gnome - Pleasant Sounds For Unpleasant Times (2020) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflection (03:38)
- 02. Garden Of Sound (03:38)
- 03. A Light Touch (05:31)
- 04. Two Times (05:25)(   Читать дальше...   )Жанр: Ambient, IDMПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388AAD338942CECE44E59943D99C5C4BA750335A
 ```
 
 

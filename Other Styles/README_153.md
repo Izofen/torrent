@@ -1,3 +1,30 @@
+###  Публикация: 1375666   (865391) от 14.04.2020
+
+Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aska (03:25)
+02. En dag till (06:03)
+03. Nåt (03:42)
+04. Inte här (03:44)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FE2B05D316A09297C31D006426C7D91C769D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645199   (865663) от 18.04.2013
 
 Patrick Ball - 8 альбомов (1983-2003) [MP3|320 кб/с]<Instrumental, Celtic, New age, Harp>
@@ -731,32 +758,6 @@ Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873493   (868380) от 28.02.2015
-
-Milla Jovovich - 2 Albums, 4 Singles (1994-2013) [MP3|128-320 кб/с]<Folk Rock, Indie Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-1994 - The Divine Comedy [7243 8 27984 2 2 (SBKCD 28), UK & EU]
-1998 - The Peopletree SessionsЖанр: Folk Rock, Indie RockПродолжительность: 02:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD916981E12E323EBA285296E4F5A113184B2879
 ```
 
 

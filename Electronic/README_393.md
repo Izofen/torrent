@@ -1,3 +1,57 @@
+###  Публикация: 1210440   (778877) от 02.03.2018
+
+VA - Chilling Sounds, Vol. 8 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black-edem - Pacification (Original Mix)  04:12
+02. Dan Smooth - Sky (Original Mix) (feat. Elena T)  06:33
+03. Dantiss - I Remember (Original Mix)  05:02
+04. Den Shender - Big City Life (Original Mix)  03:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCDF4D4331219930278C7187D391A4B69E20552D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209924   (778951) от 01.03.2018
+
+ScAnDroid Experiment's - Fera Venator (2018) Single, Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Trance, Dub>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fera Venator (Original Mix)
+02. Fera Venator (Dubtronic Mix)
+03. Hoc Irascibilem (Original Mix)
+04. Fera Venator (PsychoDub Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Trance, DubПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05698C62CEF07D28FDA19BDF4B2892DCB8998E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209351   (779133) от 28.02.2018
 
 VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Progressive Trance>
@@ -641,60 +695,6 @@ VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209114   (779535) от 25.02.2018
-
-VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boss Axis - Challenger (Alle Farben Remix) (6:08)
-02. Tarranado - Ain't Enough (Murat Acar Remix) (6:14)
-03. Panik Pop - Coax the Creature Out (Feat. Benjamin Galliers) (Club Mix) (6:19)
-04. Naturtalente - Mondlandung (3:04)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 06:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209093   (779538) от 25.02.2018
-
-Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radical Transparency (10:00)
-02. The Inertia of Time (09:49)
-03. Casting Ourselves Back into the Past (10:19)
-04. Nothing Ever Transcends Its Immediate Environment (11:20)Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
 ```
 
 

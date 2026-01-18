@@ -1,3 +1,30 @@
+###  Публикация: 44058   (904665) от 22.03.2020
+
+Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethnicolor (11:38)
+02. Diva (7:31)
+03. Zoolookologie (Remix) (3:43)
+04. Woolloomooloo (3:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 293096   (904826) от 08.02.2011
 
 VA - Музыка французского кино. Избранное / La Musique Du Cinema Francais (2005) [MP3|320 kbps]<OST / Instrumental>
@@ -707,33 +734,6 @@ American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098475   (908721) от 30.01.2017
-
-Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Inyan 8:08
-2. Hey Ma Durga 9:25
-3. Guru Charanam 9:52
-4. Devakinanda 10:00(   Читать дальше...   )Жанр: Meditative, New Age, MantrasПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B347BB57A7869DDDB9C688B7403AEA55D9F14C80
 ```
 
 

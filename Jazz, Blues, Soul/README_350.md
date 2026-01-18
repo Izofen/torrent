@@ -1,3 +1,30 @@
+###  Публикация: 1307813   (554517) от 12.06.2019
+
+Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Giant Is Awakened [17:28]
+02. For Fats [2:24]
+03. The Dark Tree [7:04]
+04. Niger's Theme [11:58]Жанр: Avant-Garde JazzПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DC8A226F8EFD1DA6827BDA1AF13B72867A892C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307554   (554671) от 11.06.2019
 
 William F. Souffreau (of Irish Coffee) - Tobacco Fields (2017) [MP3|320 Kbps] <Blues Rock, Classic Rock, Rock 'n' Roll>
@@ -667,33 +694,6 @@ John Sinclair - Mohawk (2014) [FLAC|Lossless|image + .cue] <Jazz, Poetry, Spoken
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC5B9705FEE5E683EE8476603FC9CA5BC360C6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557016   (556521) от 12.06.2022
-
-Gerald Wilson - The Complete Pacific Jazz Recordings Of Gerald Wilson And His Orchestra (1961 - 1968) 5CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556521.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blues For Yna Yna [6:53]
-02. Jeri [3:45]
-03. Moody Blue [3:09](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 06:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6799D203988F296680545438F25BAC1E34E4A48
 ```
 
 

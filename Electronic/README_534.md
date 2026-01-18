@@ -1,3 +1,54 @@
+###  Публикация: 182191   (1044107) от 25.01.2023
+
+Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Downtempo, Trip-HopПродолжительность: 02:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0946125EFDCD860765118085DE623053D5DCBD52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607256   (1044156) от 25.01.2023
+
+VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Sail Away (Original Mix) (6:49)
+02. Living Room - Are You a Giver or Are You a Taker (Instrumental) (3:54)
+03. Chill N Chill - Glory Night (6:35)
+04. Martin Hiska - Eb (6:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0FF274D97C314330DCC36C1BA17037930A5250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606259   (1044160) от 25.01.2023
 
 VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
@@ -640,60 +691,6 @@ VA - Minimal Tech Grooves (2023) CD, Compilation [MP3|320 Kbps] <Techno, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A82A7B531347BFEF3DF9381028B0CCD1B4FFD3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603158   (1045763) от 09.01.2023
-
-DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levente feat Shirley Levi - Vonat (07:48)
-02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
-03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
-04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602912   (1045804) от 08.01.2023
-
-VA - Ночной клуб Vol. 1&2 (1999) [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB – Till I Come (9 P.M.) (Sequential One Remix) [6:11]
-02. Nachtklang – It's A Fine Day (Single Version) [3:28]
-03. Shahin & Simon – Houseshaker (Radio Edit) [3:24]
-04. Brooklyn Bounce – The Music's Got Me (Klubbheads vs. Rollercoaster Mix) [6:46](   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Hard TranceПродолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7785158DAE4811D3BC33792F8B24FB502B76BDC
 ```
 
 

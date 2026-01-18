@@ -1,3 +1,30 @@
+###  Публикация: 1026819   (700205) от 17.06.2016
+
+Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon a Time    03:54
+02. A Love for Life    05:10
+03. Nice to Meet You    05:38
+04. So Long My Friend    03:50(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9E62AD7D8CE3DEF50B7CB06B38F56CCFA548BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026692   (700207) от 17.06.2016
 
 Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -668,33 +695,6 @@ Tim McGraw - Not A Moment Too Soon (1994) [FLAC|Lossless|tracks + .cue] <Folk, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E4BB6AED8D0F8B764664925AFCCF6F761D2D3E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402115   (703678) от 13.08.2020
-
-VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finest Pasas - Mystic Clouds (06:34)
-02. Spirit - Om Sat Guru (06:41)
-03. Power Shui - Harmonious Journey (03:47)
-04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
 ```
 
 

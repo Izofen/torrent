@@ -1,3 +1,30 @@
+###  Публикация: 1387326   (791825) от 01.06.2020
+
+VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echopraxia - 3s Without 4 (03:51)
+ 02. Jason Becker - Air (05:40)
+ 03. Arch Echo - Tempest (05:18)
+ 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090058   (791906) от 25.01.2018
 
 Владимир Высоцкий - Народно любимые песни (2017) [MP3|320 Kbps] <Авторская песня>
@@ -668,33 +695,6 @@ VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386838   (792504) от 31.05.2020
-
-VA - Music for You vol.2 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Tension Experiment - Acid Rain (06:36)
- 02. Haken - Nil by Mouth (06:52)
- 03. Soen - Lascivious (05:37)
- 04. Arch Echo - Immediate Results! (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4BA591B03AA1B50CB688E9C8CDD98B92576D93
 ```
 
 

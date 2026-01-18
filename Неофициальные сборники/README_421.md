@@ -1,3 +1,30 @@
+###  Публикация: 1030206   (674712) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 34 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azucar Moreno - Bandido ( Spain ) ( Eurovision 1990 )
+02. Kim Wilde - Action City ( 1982 )
+03. Fancy - I Can't Live Without You ( Lonely Nights ) ( 1988 )
+04. Divine - Shoot Your Shot ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA3C76C037872AD2F02F2EC68F4E49980C6B143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030191   (674716) от 30.06.2016
 
 VA - Зарубежная Дискотека ХХ Века - 31 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -683,33 +710,6 @@ VA - Громкие новинки Марта (2022) [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5682CC8871386547DAFD6522E6E2DDC98768DF46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136022   (676490) от 21.05.2017
-
-VA - Lets Rock: Good History (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Deep Purple - Highway Star 6:10
-002.  Ozzy Osbourne - I Just Want You 4:56
-003.  AcDc - Touch To Much 4:30
-004.  Nazareth - Love Leads To Madness 4:04(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, AlternativeПродолжительность: 11:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A5D5B0F40F8DE4244A8A5B3FDAE7148A32DB2C
 ```
 
 

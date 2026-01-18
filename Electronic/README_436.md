@@ -1,3 +1,57 @@
+###  Публикация: 1380980   (829771) от 05.05.2020
+
+Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Will Take Time (05:07)
+ 02. HDSB (06:41)
+ 03. Small Bird (05:38)
+ 04. Sukho (05:53)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380983   (829844) от 05.05.2020
+
+Cygnus - Colecovisions (2020) Biosoft Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make the Brain Relax Pt. II (07:12)
+02. Sexual Playtime Software ft. Dolly Vicious (06:27)
+03. Icasean Beach Interlude (01:23)
+04. 私はサイバネティックです (03:40)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 01:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6929D2E696861B13EDF9DC45A5C68A595C4D07C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114902   (829890) от 16.03.2017
 
 XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
@@ -639,60 +693,6 @@ Korablove - Sociopath's Diary (2011) [MP3|320 kbps]<Tech House, Minimal, Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ECEDE25EA6DE5031B30ADC4057F25988255CDE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310533   (831876) от 21.03.2011
-
-Didier Marouani & Space - Back to The Future (2008) [FLAC|Lossless]<Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introduction
-2. Back To The Future (Touch Edit) (Mix: Philippe Laurent@Phlstudio)
-3. Back To The Future (Easy Mix) (Mix: Pierre Bucco@Pienji)
-4. Back To The Future (Extend Edit) (Edit: Jeff Parent)Жанр: ElectronicПродолжительность: 00:16:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114621   (832079) от 15.03.2017
-
-DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FEEL & Jaren - Losing Time (Extended Mix)
-02. Frainbreeze & Vadim Bonkrashkov - Walhall (Original Mix)
-03. Andrew Rayel feat. Eric Lumiere - I'll Be There
-04. Alexander Popov - Substance (Extended Mix)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B62E66435134F947C2ABDBA48F8C9F0C2C96FBF
 ```
 
 

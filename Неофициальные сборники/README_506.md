@@ -1,3 +1,30 @@
+###  Публикация: 1206325   (782570) от 13.02.2018
+
+VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.5 (2018) [MP3|320 Kbps] <Psy-Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Khardiac - Get Into The Mood
+02 Alignments And Liquid Viking - Starchild
+03 Berg And Capital Monkey - Future (wilder remix)
+04 Psymon And Sixsense - Relative Path(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3C93E537EE1EFE60857A3E7FD87C113C6B55D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298500   (782623) от 16.06.2020
 
 Doug MacLeod - The Blues Is Made With Soul (1984-2017) [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - JB-Mix 19 (2017) [MP3|320 Kbps] <Drum n Bass, Dub Step, Jungle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C83D3B2FDEE345B196276B81109D3AF69AFF3D73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205539   (783534) от 10.02.2018
-
-VA - The Official UK Top 40 Singles Chart 09.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan
-02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-03. Ramz – Barking
-04. Dua Lipa – IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEAD53DDA7E44ADBD75FDDFB0F66DFF1D7EA74B
 ```
 
 

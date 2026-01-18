@@ -1,3 +1,30 @@
+###  Публикация: 1194626   (817125) от 06.01.2018
+
+Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hollywood Bowl 27.10.2017 [MP3|320 Kbps] <Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Robot Boy/The Messenger/Iridescent [5:47]
+02 - Roads Untraveled [3:24]
+03 - Numb [3:12]
+04 - Shadow Of The Day/With or Without you [7:53](   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117703   (817176) от 23.03.2017
 
 VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience Vol.65 (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55B52EB6620C6B2365F76EF14A6AC27430C7FE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008162   (817938) от 17.04.2016
-
-VA - German Top 100 Single Charts (25.04.2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker - Faded
-02. Sia - Cheap Thrills
-03. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
-04. Twenty One Pilots - Stressed Out(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F201E50484EB6B27EC2E514D450658A803B294C3
 ```
 
 

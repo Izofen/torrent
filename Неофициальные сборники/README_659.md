@@ -1,3 +1,30 @@
+###  Публикация: 1477977   (1010638) от 17.06.2021
+
+VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. blackbear - hot girl bummer (3:08)
+02. DJ Khaled, Post Malone, DaBaby, Megan Thee Stallion, Lil Baby - I DID IT (2:45)
+03. Madison Beer - Baby (3:27)
+04. Alan Walker, salem ilese - Fake A Smile (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D46331EFBBC34BB5A9A1C69EE317D1F051B6F0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477723   (1010808) от 16.06.2021
 
 Oystein Ramfjord - Music For Healing (2021) [MP3|320 Kbps] <New Age, Ambient, Meditation>
@@ -668,33 +695,6 @@ VA - All Out 00s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F3C64434425BB8D7E0BD73E76CB37FD0015DCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475183   (1012527) от 05.06.2021
-
-VA - Record Super Chart 05.06.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Flashbacks (2:57)
-02. Nessa Barrett feat. jxdn - la di die (3:15)
-03. Tiesto - The Business (2:44)
-04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B3862B9F47786FAE2FB5D56508136CF90D49C3
 ```
 
 

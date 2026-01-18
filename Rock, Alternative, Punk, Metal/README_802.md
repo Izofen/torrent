@@ -1,3 +1,57 @@
+###  Публикация: 1311182   (543618) от 28.06.2019
+
+The Black Keys - "Let's Rock" (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Little Light (03:16)
+02. Eagle Birds (02:40)
+03. Lo/Hi (02:57)
+04. Walk Across The Water (03:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCBD8201D92CBAF0385BBD2C36023C9F216FA18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238995   (543702) от 02.08.2018
+
+Lord of the Lost - Thornstar (2018) 2CD, Deluxe Edition [MP3|320 Kbps] <Gothic Metal, Industrial Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abracadabra (feat. Dero Goi) (3:46)
+ 02. Voodoo Doll (4:07)
+ 03. The Art of Love (5:00)
+ 04. Lily of the Vale (3:59)(   Читать дальше...   )Жанр: Gothic Metal, Industrial Metal, Gothic RockПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13192716651BB104BE4F13798D15BCA819483F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311207   (543743) от 28.06.2019
 
 Night Moves - Can You Really Find Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie, Rock>
@@ -638,60 +692,6 @@ Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049011   (544923) от 04.09.2016
-
-Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Чёрный ангел (Black Angel)
-03. Страх (Fear)
-04. Патриот (Patriot)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD50F226AFC523A80766967B1E99196210FFD21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048959   (544924) от 04.09.2016
-
-Pain Confessor - Turmoil (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiery Thorns
-02. Hollow Souls
-03. Whenever Dark Draws Near
-04. Erased of Empathy(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D43A1CD0CC0D18644A3314D1BE7C43AAB0EECB
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 172835   (947454) от 09.02.2010
+
+DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Uplifting Trance, Progressive
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090493   (947468) от 06.01.2017
+
+Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947468.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cathode Mamma (Neue Version)
+2. Many Kisses
+3. Peggy Guggenheim
+4. Rrock(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090407   (947531) от 06.01.2017
 
 VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
@@ -635,60 +686,6 @@ VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6405919F8465EFB740E7B9661B149D110C7F4358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089468   (950700) от 04.01.2017
-
-VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arent & Raxell - Damborola  [6:28]
-02. TimeMoment - Cosmo  [5:51]
-03. SHaRk - Summer Feelings  [5:46]
-04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089685   (950701) от 04.01.2017
-
-VA - Romantic Lounge Music Winter Session (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Kap Arkona
-02. Diario - Ancient Stone Steps
-03. The Sura Quintet - No Inhibitions
-04. Rey Salinero - Conexiones(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB10761D91A8EE786BE7A631A74A89D89E5C6C24
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1308546   (553950) от 14.06.2019
+
+The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Pop Rock, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (1:18)
+ 02. Blind Ambition (3:39)
+ 03. Bring Me Back To Life (3:48)
+ 04. Way Down (3:21)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Post PunkПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC0A4D345165F04B02D31F6DBE506CA2D16CBC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236779   (554009) от 19.07.2018
+
+Powerwolf - The Sacrament of Sin (2018) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554009.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire & Forgive
+2. Demons Are A Girl's Best Friend
+3. Killers with the Cross
+4. Incense & Iron(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA4F27C733A44DC7C1FCC37418955C9CA1F6F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236692   (554031) от 19.07.2018
 
 Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -640,60 +694,6 @@ Jordan Rudess - Wired for Madness (2019) [FLAC|Lossless|tracks + .cue] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:315B32C42B39D79C8116370199748E2492D5C0B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307230   (554918) от 10.06.2019
-
-The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. See You Through My Eyes (03:54)
-2. Missed Connection (03:15)
-3. People Need a Melody (04:12)
-4. Honeybee (03:16)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A6DF587788C07FC469E75FDF83BCE321454CE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306938   (554921) от 10.06.2019
-
-Dead to a Dying World - Elegy (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Post-Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Syzygy (04:41)
-2. The Seer's Embrace (11:12)
-3. Vernal Equinox (04:53)
-4. Empty Hands, Hollow Hymns (11:00)(   Читать дальше...   )Жанр: Black Metal, Post-Metal, Doom MetalПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0B3A20D9D3F8F8AE0F2ED19437B1B78558A13E
 ```
 
 

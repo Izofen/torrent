@@ -1,3 +1,30 @@
+###  Публикация: 1136022   (676490) от 21.05.2017
+
+VA - Lets Rock: Good History (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676490.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Deep Purple - Highway Star 6:10
+002.  Ozzy Osbourne - I Just Want You 4:56
+003.  AcDc - Touch To Much 4:30
+004.  Nazareth - Love Leads To Madness 4:04(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, AlternativeПродолжительность: 11:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A5D5B0F40F8DE4244A8A5B3FDAE7148A32DB2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507623   (676513) от 11.06.2012
 
 VA - Инструментальная музыка (2012) vol. № 70 [MP3|320 кб/с]<Instrumental>
@@ -689,33 +716,6 @@ VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290046   (678210) от 20.03.2019
-
-VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Madd - Slow Beat Dub
-02. Savant - Vario 64
-03. SkyFlair - Above Us (Original Mix)
-04. Sleeper - Underworlds (Original Mix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 154:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF94042460A57637CAC1A9C1A913B2AEEDFF9F0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1296617   (610123) от 18.04.2019
+
+Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wannabe
+02. Viva Forever
+03. Let Love Lead The Way
+04. Right Back At Ya(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037985   (610186) от 26.07.2016
 
 VA - The Best Ever: Acoustic (2016) [MP3|320 Kbps] <Soft Rock, Roots, Film Score, Folk, Alternative>
@@ -677,33 +704,6 @@ VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720B19DEC01BBCD47991F6ED30A748155E3D8D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037767   (612126) от 25.07.2016
-
-VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Aoki & Boehm Feat. WALK THE MOON -  Back 2 U (Extended Mix) 6:36
-02. John Dahlback Ft. Bullysongs -  Walking With Shadows (Happy Love Remix) 3:28
-03. Pulsedriver -  I Want Your Soul (Sal De Sol 2015 Mix) 4:06
-04. Arnold Palmer -  Hey There Delilah (Luca Debonaire Edit) 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
 ```
 
 

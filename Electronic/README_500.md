@@ -1,3 +1,54 @@
+###  Публикация: 1481678   (1008167) от 04.07.2021
+
+Antiform - City In Exile (2009) [Flac|Lissless]<Drum & Bass, Hip Hop, Breaks, Rock>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Drum & Bass, Hip Hop, Breaks, RockПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FC598E129C63D2135AB382BB5C487A4523EFDF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480724   (1008172) от 04.07.2021
+
+John Williams - Rodrigo: Concierto de Aranjuez_Villa-Lobos : Guitar Concerto (1974) reissued, 1989, CBS Records [FLAC|Lossless|image + .cue] <Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concierto De Aranjuez - Allegro con spirito [00:05:54]
+02. Concierto De Aranjuez - Adagio [00:11:25]
+03. Concierto De Aranjuez - Allegro gentile [00:05:00]
+04. Concerto for Guitar - Allegro preciso [00:05:11](   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE19C16826713B74C2AA53FD54EFD35FD5C831FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481500   (1008321) от 03.07.2021
 
 Om Unit - The Mahakala VIP's (2021) Bandcamp Exclusive [FLAC 2.0|44.1/24|tracks|WEB-DL] <Drum & Bass>
@@ -639,59 +690,6 @@ VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:656292704BD8E34F10948C40DE2C09E93B8114B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480290   (1009185) от 27.06.2021
-
-Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Neo Trance, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bengalo (6:48)
- 02. Dr.2 (7:41)
- 03. Packard (6:48)
- 04. Tempest (7:15)(   Читать дальше...   )Жанр: Deep House, Tech House, Neo Trance, Minimal TechnoПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78AB600F60DF3C2FF48C99D583DD2E8A6FB6F1CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293229   (1009266) от 26.06.2021
-
-Bot1500 - Discography 9 Releases (2016-2021) Analogical Force, Furthur Electronix [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Electro, Breaks>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphoria 7 (06:49)
- 02. Euphoria 1 (05:56)
- 03. Euphoria 3 (08:18)Тип издания: Web, VinylЖанр: IDM, Acid, Electro, Breaks •Продолжительность: 02:00:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E19F2F062A337D1DAD6C95CD074E2A41BAF9A7
 ```
 
 

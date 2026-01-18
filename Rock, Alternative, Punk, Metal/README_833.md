@@ -1,3 +1,293 @@
+###  Публикация: 1554181   (579104) от 29.05.2022
+
+Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный альбом Alistair Terry, который был записан после того, как бывшая группа фронтмена "Pet Hate" прекратила свое существование. Интересно, что Alistair Terry начал записывать свои песни с 15 лет, часть этих идей вошли в этот единственный сольный проект, который ему предложил сделать бывший продюсер "Pet Hate" Roger Boden. Альбом вышел на (   Читать дальше...   )01. Destiny (2:28)
+02. Moon Over Malaya (3:15)
+03. Language Of Love (3:12)
+04. I Thought I Needed You (3:52)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CED2FD77874C0899CE4C0A7D9513FBC05020EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554042   (579106) от 29.05.2022
+
+Besvarjelsen (Besvärjelsen) - Atlas (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cardinal Ride
+02. Acheron
+03. Clouds
+04. House of the Burning Light(   Читать дальше...   )Жанр: Stoner Rock, DoomПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7438DFCCE63CA199AFD05BC5FF10998744891C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554039   (579107) от 29.05.2022
+
+Horehound - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hiraeth (00:06:27)
+02 - Godful (00:05:17)
+03 - Sword on Fire (00:05:23)
+04 - The Agent (00:05:53)(   Читать дальше...   )Жанр: Stoner Doom MetalПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B780162C5A9562600EB54F5126A85D7AE6EA76A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554087   (579108) от 29.05.2022
+
+Crypt Monarch - The Necronaut (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Morning Star Through Skull (00:15:41)
+02 - Rex Meridionalis (00:10:12)
+03 - Aglaophotis (00:10:08)Жанр: Stoner Rock, Doom MetalПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C8E628EA20773978493EB95B82D7F431842D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554003   (579109) от 29.05.2022
+
+Riddle Me This - Universal Ego (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Prelude In D-Sharp Harmonic Minor
+2. 86
+3. Parasite
+4. The Faceless (feat. Eemeli Bodde)(   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900AC58A2660FF27ECB570227564F8CFCB0A7758
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302731   (579214) от 17.05.2019
+
+Звери - У тебя в голове (2019) EP [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вездеходик
+2. Лунатик
+3. Котёнок
+4. Мотылёк(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1DA76E897178C6DB350F93EA28930FDB73A63C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302593   (579332) от 17.05.2019
+
+Morabeza Tobacco - Morabeza Tobacco (2019) [FLAC|Lossless|tracks + .cue] <Аlternative, Dream - Pop, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost Home (04:24)
+02. Kiss of Death (03:43)
+03. TTYL (03:52)
+04. A little longer (04:25)(   Читать дальше...   )Жанр: Аlternative, Dream - Pop, Lo-FiПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13645BDF5AA1EE10A10C9065653DC87231E24905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042394   (579413) от 12.08.2016
+
+Sonata Arctica - Closer to an Animal (2016) Single [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer to an AnimalЖанр: Power MetalПродолжительность: 00:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CAC12AF70464A0B9F63A272E099A910EC4224B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042337   (579486) от 12.08.2016
+
+Dave Stewart & Barbara Gaskin - Up From the Dark (1986) [WavPack|Lossless|image + .cue] <Prog Rock, Art Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Ллойд Стюарт - британский клавишник и композитор, известный по выступлениям в составе групп Кентерберийской сцены Uriel, Egg, Khan, Hatfield and the North и National Health. В 80-х Стюарт резко изменил направление своей деятельности и занялся поп-музыкой, "совратив и растлив"  :redface:  по ходу дела, бывшую бэк-вокалистку из Hatfield and the North (   Читать дальше...   )01. I'm In A Different World (4:16)
+02. Leipzig (4:21)
+03. It's My Party (3:50)
+04. Lenina Crowe (4:54)(   Читать дальше...   )Жанр: Prog Rock, Art Rock, Pop-RockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777BFDF99AF640D69B3E24F589619EF1E2A511C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042465   (579544) от 12.08.2016
+
+Parish Hall - Skid Row Runner (1970) Reissue, 1996, Audio Archives [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579544.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Eyes Are Getting Heavy
+2. Dynaflow
+3. Ain't Feeling Too Bad
+4. Silver Ghost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5270C44254DD0F526CB447A0927D9B3453B8CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358784   (579651) от 08.07.2011
+
+Katzenjammer Kabarett - 3 альбома (2005-2009) + Katzenjammer 1 альбом (2008) [MP3|320 kbps]<Dark Cabaret>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dark Cabaret/Death Rock/AvantgardeПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553652   (580017) от 28.05.2022
 
 The Beatles - Live At Shea Stadium 1965 (2005) [FLAC|Lossless|image + .cue] <Classic Rock, Pop Rock>
@@ -398,302 +688,6 @@ The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D75CB311738E36F5DBB1E0775105AB6AD89F8365
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920260   (580126) от 22.07.2015
-
-Deform - Dominanta (2015) [MP3|320 кб/с]<Alternative, Gothic, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой по счету релиз группы за двенадцатилетнее существование коллектива и третья масштабная альбомная работа, продюсером которой на этот раз официально выступил сам Deformator – автор песен и фронт-мен группы. Пластинка включает 18 треков, записанных за 2,5 года работы над альбомом в довольно непростых условиях создания и записи песен, куда вошли несколько совместных (   Читать дальше...   )01. Ода Конца Времен
-02. Тень Города
-03. Чертополох
-04. Шторм(   Читать дальше...   )Жанр: Alternative, Gothic, IndustrialПродолжительность: 01:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146191A8ADAEA70A9F5C701CF47B0618257C5246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920203   (580187) от 22.07.2015
-
-StormНammer - Echoes of a Lost Paradise (2015) [FLAC|image+.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rememberance
-02. Glory Halls of Valhalla
-03. Fast Life
-04. Echoes of a Lost Paradise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAF9F1A2CDBA436D9C5491E71A16F6D003AA8BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920202   (580195) от 22.07.2015
-
-Viрer Solfа - Carving an Icon (2015) [FLAC|image+.cue]<Melodic Black/Gothic/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deranged
-02. Funeral of Kings
-03. Carving an Icon
-04. The Toxic Thousands(   Читать дальше...   )Жанр: Melodic Black/Gothic/Power MetalПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDAB53CDB16867FE00656DE3F635B09CD136C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302626   (580244) от 16.05.2019
-
-Barbe-Q-Barbies - Borrowed Time (2019) [MP3|320 kbps] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:17)
-02. Diz-Funk-Tional (03:11)
-03. Alive (04:43)
-04. Hangman's Song (02:53)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846D56BF202C8617CFC8FA112434715F0F833C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042127   (580377) от 11.08.2016
-
-Skillet - Unleashed (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Invincible (3:50)
- 02. Back From The Dead (3:34)
- 03. Stars (3:46)
- 04. I Want To Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5206D7D1FFE13B125097E741349DE841AE7589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042133   (580386) от 11.08.2016
-
-Skillet - Unleashed (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel Invincible (3:50)
- 02. Back From the Dead (3:34)
- 03. Stars (3:47)
- 04. I Want to Live (3:29)(   Читать дальше...   )Жанр: Alternative Rock, Christian RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A77EF74CB1B7F826A43260A8726ADFC3C473B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042231   (580424) от 11.08.2016
-
-Equilibrium - Armageddon (2016) [MP3|320 Kbps] <Viking Metal, Epic Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580424.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sehnsucht
-2. Erwachen
-3. Katharsis
-4. Heimat(   Читать дальше...   )Жанр: Viking Metal, Epic Metal, Folk MetalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3398F78DA18FA7473A633458154CA77856B76A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919123   (580463) от 11.08.2016
-
-Burn The Rez - 3 Альбома (2014-2016) [MP3|320 Kbps] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580463.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - Burn The Rez
-2015 - Isolation: Chapter 1Жанр: Modern Hard RockПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA10E8CE1963849DA3A6F7CFBC9096DA5EBC743A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042129   (580470) от 11.08.2016
-
-Evans Blue - Letters From The Dead (2016) [FLAC|Lossless|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Letter From The Dead
-02. Comfortable With Hate
-03. Still I Remain
-04. Just Once(   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2B5E9F6291A03881E4E8653214BC98DCE8B73D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042217   (580521) от 11.08.2016
-
-Jackyl - Rowyco (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rowyco — новый восьмой по счету альбом американских рокеров из Jackyl выпускает лейбл Mighty Loud Records 5 августа.
-Эта американская банда была сформирована в Атланте в 1992 году. В состав "Jackyl" вошли такие личности как основатель группы вокалист Джесси Джеймс Дюпри, гитаристы Джимми Стифф и Джефф Ворли, басист Том Беттини и барабанщик Крис Ворли. Взяв (   Читать дальше...   )01. Disasterpiece (4:04)
-02. Rally (3:37)
-03. All Night Rodeo (3:10)
-04. Ahead of My Time (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6063AAA8BE9F98C8EFEE84B9E041AB6D9C934ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042238   (580525) от 11.08.2016
-
-Lacrimas Profundere - Hope Is Here (2016) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Worship Of Counting Down
-2. My Halo Ground
-3. Hope Is Here
-4. Aramis(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBE5D60A263CD9B4123F138DBA2D479C6AEE2BF3
 ```
 
 

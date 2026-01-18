@@ -1,3 +1,30 @@
+###  Публикация: 1453996   (1026617) от 13.03.2021
+
+VA - German Top 100 Single Charts 12.03.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+02. Bausa & Apache 207 - Madonna
+03. Luciano - PEPPERMINT
+04. Capital Bra - Aventador (feat. Jamule)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF239CCE235BEF43A995FBF4BF89555E8BEFBCC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452652   (1027552) от 07.03.2021
 
 VA - New Season: New Look (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Наше Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416499D96F262FCDE5B1EE724F8E5F8E5561726C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440072   (1039035) от 16.01.2021
-
-VA - не Громкие новинки недели 94 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passmurny - Блик (5:02)
-02. Йорш - В Сердце Игрушки (4:09)
-03. Санджая - Иллюзия Счастья (4:07)
-04. Екатерина Бродская - Любовь и Разлука (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E0CA84CA512EE8118AA107BB6E617A5B91CC18
 ```
 
 

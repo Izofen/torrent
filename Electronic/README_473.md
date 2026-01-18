@@ -1,3 +1,56 @@
+###  Публикация: 1340010   (923675) от 17.08.2021
+
+As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, Clear, ART, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Downtempo, Future Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuron - La Source (06:22)
+ 02. As One - The Specialist (Nuron Remix) (06:14)
+ 03. As One - Emanation (Nuron Remix) (05:22)Тип издания: CD, Vinyl, WebЖанр: Techno, Ambient, IDM, Downtempo, Future Jazz •Продолжительность: 22:05:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13797F80AE7F8F94D2724ED87EF7219EB51BC3D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139779   (923694) от 11.03.2020
+
+Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transmitter (05:01)
+ 02. One Giant Leap (05:17)
+ 03. The Truth Laid Bare (05:45)
+ 04. Slipstream (07:02)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Space, Berlin-School •Продолжительность: 08:17:34 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2354CBC861305045AD4C512F9ABEF8B524C255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366381   (923737) от 11.03.2020
 
 Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbeat, Glitch, House>
@@ -641,58 +694,6 @@ Proem - Discography 28 Releases (1999-2021) n5MD, Merck, The 1056 [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E538224F8E9FA901D148C3116F6B1B724C4A39A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236374   (925075) от 16.08.2021
-
-DRØN (Dron, Signalform, Self Oscillate) - Discography 19 Releases (2000-2021) Elektrolux, Mikrolux [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Futuregrapher - Dominika (05:38)
- 02. Self Oscillate - Gatekeeper (04:22)Тип издания: CD, WebЖанр: IDM, Downtempo, Electro, Ambient •Продолжительность: 14:19:15 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F225332AB23D7844AD41E20828C7C7491CF0AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489095   (925386) от 16.08.2021
-
-Butch - Papillon (2008) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925386.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
- 01. The Table (05:58)
- 02. About This Time (04:51)
- 03. Wet'N'Tight (04:37)(   Читать дальше...   )Жанр: Techno, Minimal TechnoПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D629C215FE56DCAA352CCA0B9824C08283F5B64C
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1603158   (1045763) от 09.01.2023
+
+DJ Viper - 33 Oborota Compilation (2009) [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levente feat Shirley Levi - Vonat (07:48)
+02. Solila - Atlantis (Acos CoolKAs Night Mix) (05:18)
+03. Loverush UK & Molly Bancroft - Fountains Of Youth (Hybrid Heights Dub Mix) (05:05)
+04. Tristan Del Ray - Leaving The 80s (05:04)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E043920DE639D8AF9BC1FEA3A1119C76D29C6E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602912   (1045804) от 08.01.2023
+
+VA - Ночной клуб Vol. 1&2 (1999) [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB – Till I Come (9 P.M.) (Sequential One Remix) [6:11]
+02. Nachtklang – It's A Fine Day (Single Version) [3:28]
+03. Shahin & Simon – Houseshaker (Radio Edit) [3:24]
+04. Brooklyn Bounce – The Music's Got Me (Klubbheads vs. Rollercoaster Mix) [6:46](   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive House, Hard TranceПродолжительность: 02:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7785158DAE4811D3BC33792F8B24FB502B76BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603260   (1045811) от 08.01.2023
 
 VA - Spacedance, Vol. 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spacesynth, Retrowave>
@@ -641,60 +695,6 @@ VA - Nocturnal Knights Best Of 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F37A03B205800C8386B5C0DCB515E20DF380D598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839330   (1046522) от 28.11.2025
-
-АИГЕЛ - Человек (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <IDM, Electronic>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Успокоить
-2. Портрет
-3. Воин света
-4. Порт(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6634B2B52809E6485C6BBA5E6C1F6038F4ABED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839327   (1046523) от 28.11.2025
-
-АИГЕЛ - Человек (2025) [MP3|320 Kbps] <IDM, Electronic>
-
->>Electronic
->>IDM
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046523.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Успокоить
-2. Портрет
-3. Воин света
-4. Порт(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84121986D0D8D82E68AE62E9441081E01A20E09E
 ```
 
 

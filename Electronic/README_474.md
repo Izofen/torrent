@@ -1,3 +1,55 @@
+###  Публикация: 1236374   (925075) от 16.08.2021
+
+DRØN (Dron, Signalform, Self Oscillate) - Discography 19 Releases (2000-2021) Elektrolux, Mikrolux [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Futuregrapher - Dominika (05:38)
+ 02. Self Oscillate - Gatekeeper (04:22)Тип издания: CD, WebЖанр: IDM, Downtempo, Electro, Ambient •Продолжительность: 14:19:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F225332AB23D7844AD41E20828C7C7491CF0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489095   (925386) от 16.08.2021
+
+Butch - Papillon (2008) [FLAC|Lossless|tracks] <Techno, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925386.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ 01. The Table (05:58)
+ 02. About This Time (04:51)
+ 03. Wet'N'Tight (04:37)(   Читать дальше...   )Жанр: Techno, Minimal TechnoПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D629C215FE56DCAA352CCA0B9824C08283F5B64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366041   (925526) от 10.03.2020
 
 VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -639,60 +691,6 @@ VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987061   (927897) от 16.02.2016
-
-VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue] <Euro House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aquapura - 17 (6-20) AM Radio Edit (3:21)
-02. Deepest Blue - Deepest Blue (Radio Edit) (3:23)
-03. K.K. - Where Do We Go (3:34)
-04. Echoes Of Sound - Need Somebody (Who Needs Me) (V.O.C.O Radio Mix) (4:09)(   Читать дальше...   )Жанр: Euro House, Deep House, Tech House, Hard HouseПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0535DFE18B08A564AD209E1CBDFA364D04B0DD02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094785   (927919) от 19.01.2017
-
-VA - Wind In The Field (Downtempo Series)  Vol.005 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Valefim Planet - Mainsail (Original Mix)  4:20
-02.  Oleg Blaze - I Want Your Love (Original Mix)  5:42
-03.  Phillipo Blake & Nika Lenina - Take Me Away (Hardmaniac Remix)  4:55
-04.  Jean Luvia - Sunlight (Original Mix)  5:16(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112B1362E9C4AE55A6A6964CCBCC713ADEA9011B
 ```
 
 

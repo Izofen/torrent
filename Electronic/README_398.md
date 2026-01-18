@@ -1,3 +1,57 @@
+###  Публикация: 1205972   (782952) от 12.02.2018
+
+VA - Chilling Sounds, Vol. 4 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legendum - Amnesia (Original Mix) 04:09
+02. Andrew Dream - After Rain (Original Mix) 06:57
+03. ArcticA - Gates of Heaven (Original Ambient Mix) 09:51
+04. BRTD - Some Places Are Magical by Default (Original Mix) 05:23(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80AAED814704A5ECFD5BCB91F09D95986A7AC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205603   (782955) от 12.02.2018
+
+VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solosizer  -  Now (Original Mix)  5:04
+02.  Sublimity  -  Angels (Original Mix)  3:18
+03.  Chris Spring  -  Now (Trance Cut)  3:03
+04.  DJ Rosso  -  Make Me Wonder (Trancephonic Radio Edit)  3:32(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205991   (782962) от 12.02.2018
 
 VA - Nujazzvides (2018) [MP3|320 Kbps] <Lounge, Chillout, Nu-Jazz>
@@ -641,60 +695,6 @@ VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205449   (783491) от 10.02.2018
-
-Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Of The Earth (Stardelay Mix) (3:40)
- 02. Morning Of The Earth (Cassara Mix) (6:10)
- 03. Morning Of The Earth (2:53)
- 04. My Island (3:26)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 00:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549240C514917D22149C80B49FDF1B74A3FEEAE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205456   (783508) от 10.02.2018
-
-VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Space Roosters feat. Dee Dee  -  Let Go (Radio Mix)  2:59
-02.  Laurenzo Tozzi  -  Let Me Be Your Baby (Dave Gate Remix)  4:30
-03.  Soul-Ty  -  Let The Sunshine  3:04
-04.  No Panties Allowed  -  Let's Dance Tonight (Radio Version)  3:28(   Читать дальше...   )Жанр: HouseПродолжительность: 03:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
 ```
 
 

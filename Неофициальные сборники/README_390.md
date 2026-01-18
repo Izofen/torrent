@@ -1,3 +1,30 @@
+###  Публикация: 1033486   (638233) от 11.07.2016
+
+VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sander van Doorn vs. Florence & The Machine -  Reach The Love  (Sensetive5 Mashup) 6:07
+002. Bob Sinclair -  Someone Who Needs Me (Alex Gaudino & Dyson Kellerman Remix) 4:10
+003. Calvin Harris feat. Rihanna -  This Is What You Came For (Akhmetoff Remix) 3:48
+004. Madonna -  Music (Vincent & Diaz Remix) 5:05(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033662   (638244) от 11.07.2016
 
 VA - Strandhouse Rugensommer (2016) [MP3|320 Kbps] <Funky, Deep House, Tech>
@@ -704,33 +731,6 @@ VA - Душа Шансона. Только лучшее (2015) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C26AAF89C28E275B1E5732B1498D293D34F426
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033210   (639767) от 10.07.2016
-
-Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn
-02. A Winter Shade Of Pale
-03. Make My Day
-04. Let It Down Easy(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109E70BDDEE658E0A4F3112C7E19C83A33308D16
 ```
 
 

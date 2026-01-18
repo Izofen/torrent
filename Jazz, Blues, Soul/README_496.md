@@ -1,3 +1,246 @@
+###  Публикация: 1379504   (839635) от 29.04.2020
+
+Red Callender - Four Classic Albums 1942 - 1958 (2016) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Speak Low [7:30]
+02. Nice Day [4:17]
+03. In A Sentimental Mood [3:31](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8560EDF332D9F439336C37D72EC32F9F9521E1C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379553   (839637) от 29.04.2020
+
+Spike Robinson & Al Cohn - Once In A Wild (1987) AAD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sippin' At Bells [6:17]
+02. Easy Living / These Foolish Things [10:27]
+03. Sweet's Blues [7:22]
+04. Rustic Hop [5:35](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401594EDA7CF6F680B21E5A152AE78DFB4F07E69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500940   (839826) от 07.10.2021
+
+Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Love (4:12)
+02. Break Another Piece of My Heart (4:19)
+03. Ball and Chain (4:55)
+04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500878   (839941) от 07.10.2021
+
+Tony Bennett - Jazz (1954 - 1967) 1987, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're in Love with Me [3:11]
+02. Don't Get Around Much Anymore [2:04]
+03. Stella by Starlight [2:29]
+04. On Green Dolphin Street [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921AB09EFE50DFFE3941F8E38E469AEBAB696CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500876   (839942) от 07.10.2021
+
+Tony Bennett - Five Classic Albums (1954 - 1959) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839942.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Fall in Love Too Easily [2:50]
+02. My Baby Just Cares for Me [2:20]
+03. My Heart Tells Me (Should I Believe My Heart?) [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F942AEB375391927CD6B72EA5969CE58A6EF37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113144   (840104) от 10.03.2017
+
+Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down To Brownsville (Feat. Little G Weebil) (3:37)
+02. That's Alright (Feat. Marco Cinelli) (3:17)
+03. Spoonful (Feat. Fast Eddie Nelson) (3:43)
+04. Blues Before Sunrise (Feat. Big Mama Montse) (3:55)(   Читать дальше...   )Жанр: Acoustic Blues, HarmonicaПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057E64C2C16EAE4734D85D2E189C7F6F1E426802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113076   (840108) от 10.03.2017
+
+Geoff Achison - Another Mile, Another Minute (2017) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Wire (03:38)
+02. Delta Dave (03:59)
+03. Working My Way Back Home (04:34)
+04. I'm Gonna Ride (03:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64680A78FDEC7E41F9CF1657DCB0DD1CC94D60A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112871   (840124) от 10.03.2017
+
+Fats Waller - The Real... Fats Waller (2016) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Ain't Misbehavin'
+2. I'm Crazy 'Bout My Baby (And My Bab's Crazy 'Bout Me)
+3. The Jitterbug Waltz(   Читать дальше...   )Жанр: JazzПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFD55BBE152B7A4333E08165C65AFA9A1C15462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004184   (840187) от 05.04.2016
+
+Colin Pollock - Three Cherries Red (2014) [MP3|320 кб/с] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Gimme Boogie    02:31
+02. Love You Forever Tonight    03:03
+03. Long Way Down    03:22
+04. Say Goodbye To The Blues    03:04(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C01739597256DB0DBD3D0BE336000A780465FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004258   (840204) от 05.04.2016
 
 Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -457,252 +700,6 @@ Jeremy Pelt - Make Noise! (2017) HighNote [FLAC|Lossless|tracks + .cue] <Contemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9E8C8CCDC2DD65C6982E30DB4AA9782B29D9B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112695   (841733) от 09.03.2017
-
-The Candoli Brothers Sextet - Jazz Horizons (1957, 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Disc-Location [04:18]
- 02.Beautiful Love [02:26]
- 03.Crazy Rhythm [03:34]
- 04.My Funny Valentine [03:29](   Читать дальше...   )Жанр: Bop, Cool, West Coast JazzПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28E65EB982F561EBBD9B0BB09D3739A6753DE04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003753   (841790) от 04.04.2016
-
-Beady Belle - Songs From A Decade: The Best Of Beady Belle (2015) [FLAC|Lossless|Web-DL|tracks] <Nu Jazz, Vocal Jazz, Neo Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saved (5:21)
-02. So Far So Good (3:48)
-03. Diamond in the Rough (4:53)
-04. My Name on the World (4:58)(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, Neo Soul, Vocal Jazz, Future JazzПродолжительность: 02:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB7375BE336642F30137A127B80E3948F693737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003852   (841898) от 04.04.2016
-
-Key OG - The Choice (2014) [FLAC|Lossless|tracks] <Nu Jazz, R'n'B, Hip-Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends Of Mine
-02. The Choice
-03. Carry On
-04. Blue Bird(   Читать дальше...   )Жанр: Nu Jazz, R'n'B, Hip-HopПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51288DAC7DCD62906BCA2AD67E8306250EFFCA4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003912   (841904) от 04.04.2016
-
-The Prestige All Stars - Roots (1957) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Cool, Bop, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Roots [27:28]
- 02.Down By The Riverside [05:52]
- 03.Sometimes I Feel Like A Motherless Child [09:04]Жанр: Cool, Bop, Modern Big BandПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F36FA4F2A2C64D72E2A9354CDAE5AEFCFAE9A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500237   (842463) от 05.10.2021
-
-Chris Rea - Blue Guitars V - Texas Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Rider (4:46)
-02. Texas Blue (5:11)
-03. No Wheels Blues (5:05)
-04. Lone Star Boogie (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CD6BC2438CF5509B4BA1CADCBC6C97797A6B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500194   (842610) от 05.10.2021
-
-Chris Rea - Blue Guitars III - Louisianna & New Orleans (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Days Missing Down the Viper (3:00)
-02. Who Cares If I Do (4:35)
-03. What Made Me Love You (3:22)
-04. You Got Dixie (4:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57A3C7FCF5A45F0D4885E93FA9ED84CEAC2D7A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309261   (842645) от 15.03.2011
-
-Dave Stryker Organ Quartet - Keystone (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keystone (8:27)
-02. Can't Buy Me Love (8:50)
-03. Sentinelese (8:31)
-04. Lady Sings The Blues (5:26)
-05. The Rose (6:44)
-06. First Strike (9:21)
-07. Tenderly (10:01)
-08. Watch What Happens (12:39)Жанр: JazzПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500195   (842718) от 05.10.2021
-
-Erroll Garner - One More Time (1950 - 1958) 2021, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [2:49]
-02. How High the Moon [3:29]
-03. Girl of My Dreams [4:30]
-04. Sweet Sue, Just You [3:02](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852FB4421C3490B093BC3AC095B5201FC20061BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500188   (842719) от 05.10.2021
-
-Erroll Garner - Milestones Of A Jazz Legend (1944 - 1959) 10CD, 2021, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842719.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 -  Concert By The Sea & Plays Misty:
-01. I'll Remember April [4:20]
-02. Teach Me Tonight [3:43]
-03. Mambo Carmel [3:53](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 11:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212A682C8161EA4FAB818F23C033F74C7D4C1A2C
 ```
 
 

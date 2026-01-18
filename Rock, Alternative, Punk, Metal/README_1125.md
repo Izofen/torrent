@@ -1,3 +1,300 @@
+###  Публикация: 1493727   (889051) от 07.09.2021
+
+Печной Сверчок - Россия, которую мы потеряли (2021) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Россия, которую мы потеряли
+02. Ходынское поле
+03. Черносотенный террор
+04. Положение женщины(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7A532E65CE425D627F44A05CBF317A9965EF02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494493   (889088) от 07.09.2021
+
+TesseracT - Portals (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Matter (14:54)
+02. King (5:45)
+03. Concealing Fate Parts 1, 2 & 3 (18:24)
+04. Tourniquet (4:38)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A19A1E45A595176D870142A8F52C652EFFFC86E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494167   (889185) от 07.09.2021
+
+La Maschera Di Cera - S.E.I. (2020) [FLAC|Lossless|image + .cue] <Rock Progressivo Italiano>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Tempo Millenario (21:35)
+- i. L'anima in Rovina
+- ii. Nuvole Gonfie
+- iii. La Mia Condanna(   Читать дальше...   )Жанр: Rock Progressivo ItalianoПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCD23F7C10927BC9E75EE5AF467CF411284BCD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494142   (889192) от 07.09.2021
+
+Tragedy - Disco Balls to the Wall (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! (A Man After Midnight)
+02. You're the One That I Want
+03. Evil / Baker Street
+04. Stayin' Alive(   Читать дальше...   )Жанр: Heavy Metal, DiscoПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5416DAC17CC6B9AD9CC0A1408FE5104A1EABC22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494366   (889200) от 07.09.2021
+
+Eisbrecher - Maximum Monster (2021) [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889200.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fakk
+2. Anfang (Demo Version)
+3. Im Guten Im Bösen (Radio Version)
+4. Eiszeit (Live @ Mera Luna)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4086334196BD90D242FD7E4DFE120D9D5F58954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435922   (889258) от 08.03.2016
+
+Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (0:30)
+02. Theater (2:42)
+03. Make A Move (3:04)
+04. Get Well (2:57)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494164   (889334) от 07.09.2021
+
+Euge Valovirta - Shooting From The Hip (2021) [FLAC|Lossless|WEB-DL|tracks] <Shred, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scary Frankie
+02. Bogrenious
+03. Pasadena '78
+04. The Bad Boy(   Читать дальше...   )Жанр: Shred, Heavy MetalПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C518A0E0B562BACA81747D1514236F14FD9A58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494143   (889345) от 07.09.2021
+
+Claymorean - Eulogy For The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunter Of The Damned
+02. Battle In The Sky
+03. The Burning Of Rome (Cry For Pompeii) (Virgin Steele cover)
+04. Lords Of Light(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B43FE46435AFFBB64BA9BB67A365842449DDBF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494158   (889348) от 07.09.2021
+
+Claymorean - Lament Of Victory (2013) [FLAC|Lossless|image + .cue] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_889348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Wings Of Time
+02. Sorrow's Tear
+03. Night Sky
+04. Hymn Of Vengeance(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7233D07917C4D739C75D828AAE36358E304FDA3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494453   (889351) от 07.09.2021
+
+Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prelude [00:01:49]
+02. Daybreak [00:03:26]
+03. Cencibel [00:03:14]
+04. Turbulence [00:01:48](   Читать дальше...   )Жанр: Progressive-Rock, Symphonic-ProgПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC996F1F8F90BFED4550E06BFBEFB989DF73C156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494444   (889354) от 07.09.2021
+
+Redemptus - Blackhearted (2021) [MP3|320 Kbps] <Sludge, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Blackhearted [00:06:18]
+02 Heads You Win Tales I Lose [00:03:53]
+03 Sunk in Perpetual Tidal Waves [00:02:31]
+04 It Was Never Meant [00:03:39](   Читать дальше...   )Жанр: Sludge, Post-MetalПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C033FB43A34B49F9725AA077B977D53CFC512A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102598   (889365) от 10.02.2017
 
 Overkill - The Grinding Wheel (2017) Scene [FLAC|Lossless|tracks] <Thrash Metal>
@@ -398,303 +695,6 @@ Nth Ascension - In Fine Initium (2016) [FLAC|Lossless|image + .cue] <Neo Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9034100FF145FDE8EC342CFA58271F985DADE91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994574   (889850) от 08.03.2016
-
-Fight - War Of Words (1993) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Into the Pit 4:25
-02 Nailed to the Gun 3:41
-03 Life in Black 4:37
-04 Immortal Sin 4:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECEDAF841490B9ED0B29BC3886F2C17087B7B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994757   (889852) от 08.03.2016
-
-Eternal Of Sweden - Heaven's Gate (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruins
-02. Heaven's Gate
-03. Surrounded By Shadows
-04. Angel(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7117F01387961AA3088196A62589D3F88EC446C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371536   (890007) от 31.03.2020
-
-Bonfire - Fistful of Fire (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Joker [1:29]
- 2. Gotta Get Away [5:30]
- 3. The Devil Made Me Do It [3:36]
- 4. Ride The Blade [4:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C9A63E487CC9BA21B3F96C00198E4125385EC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371614   (890082) от 31.03.2020
-
-Брати Гадюкіни - Сміх і гріх (2019) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сміх і гріх (03:44)
-02. Біжу по граблях (03:58)
-03. Сафарі (04:01)
-04. Сивина в бороду (04:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:476408782BE9F66EDEDDD1C24193A9B94893704A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371556   (890127) от 31.03.2020
-
-Ясвена - Имена (2019) [MP3|320 Kbps] <Rock, Dream Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летать
-02. Бал забвения
-03. Одно но
-04. Феникс(   Читать дальше...   )Жанр: Rock, Dream RockПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36DB2B81CFD7F47FE219E45D6CB80FFFA8703E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371588   (890130) от 31.03.2020
-
-Crematory - Unbroken (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken
-02. Awaits Me
-03. Rise and Fall
-04. Behind the Wall(   Читать дальше...   )Жанр: Gothic Metal, IndustrialПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558FEDE6F622622DA69B2181662B4F3BEFDCD495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371318   (890189) от 31.03.2020
-
-The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – No One Falls Alone
-02 – Going Back To Stockholm Syndrome
-03 – Clementine
-04 – Straight Into The Bridge(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94B768293619ABBCC74B89C4FA0014957A1B294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371480   (890271) от 31.03.2020
-
-Hush - Hush featuring Robert Berry (1998) [FLAC|Lossless|image + .cue] <Classic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hush - Out On The Street 04:13
-02. Hush - Saturday Night 03:16
-03. Hush - Alright 04:13
-04. Hush - Rendezvous 03:05(   Читать дальше...   )Жанр: Classic Rock, AORПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1D07A87878F90C17B79528CB66EB908C569D0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371601   (890272) от 31.03.2020
-
-Imonolith - State of Being (2020) [MP3|320 kbps] <Nu-Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State of Being (01:17)
-02. Becoming the Enemy (feat. Johannes Eckerström) (03:44)
-03. Instinct (03:43)
-04. Dig (04:12)(   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F059A4D57CB66C151BDBFC70F9D01F8EBFAC62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371510   (890273) от 31.03.2020
-
-December People - 4 альбома (2001-2015) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Sounds Like Christmas
-2010 - Rattle & Humbug
-2013 - December People 3Жанр: Classic RockПродолжительность: 03:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178DB08DB9DA3BE130173F4B40F0D743A590B574
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371521   (890277) от 31.03.2020
-
-3 - ...To The Power Of Three (1988) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 - Talkin' Bout 04:04
-02. 3 - Lover To Lover 04:13
-03. 3 - Chains 03:44
-04. 3 - Desde La Vida: (I) La Vista / (II) Frontera / (III) Sangre De Toro 07:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACA80F44C575B207B2AACD79FC1D1C58681B2EB
 ```
 
 

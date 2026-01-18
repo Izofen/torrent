@@ -1,3 +1,246 @@
+###  Публикация: 1022798   (727856) от 03.06.2016
+
+Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confessin' The Blues [04:46]
+ 02.'Tain't Nobody's Bizness If I Do [07:03]
+ 03.Hootie Blues [04:33]
+ 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022793   (727862) от 03.06.2016
+
+The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After You've Gone [06:05]
+ 02.Disciples Blues [07:16]
+ 03.Slippin' & Slidin' [05:10]
+ 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284550   (727882) от 22.02.2019
+
+John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straighten Up and Fly Right
+02. A Hundred Years from Now
+03. The Very Thought of You
+04. (I Would Do) Anything for You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284700   (727886) от 22.02.2019
+
+Mankunku Quartet - Yakhal' Inkomo (1968) 2017, Jazzman [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yakhal' Inkomo [8:56]
+02. Dedication (To Daddy Trane and Brother Shorter) [10:16]
+03. Doodlin' [6:08]
+04. Bessie's Blues [7:39]Жанр: Hard Bop, Post-BopПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC259C5ADF8A419D904071C9FE594304FFE4FD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128367   (728660) от 24.04.2017
+
+Black Tooth Grinn - Ruthless and Toothless (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1969 (3:10)
+02. No Two Faces (5:20)
+03. Riches To Rags (4:59)
+04. From The Bottom Up (5:51)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3380D804C0B64BD8D0B7BD900B4D60AC81D6FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128382   (728666) от 24.04.2017
+
+Vargas Blues Band - Cambalache & Bronca (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cambalache & Bronca  (03:55) 
+02.  No Te Rindas  (04:48) 
+03.  Sucio Y Desprolijo  (03:40) 
+04.  Ana No Duerme  (04:10) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339297B84D3E8091D761A8B810AF688FA22F2817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530455   (728805) от 11.02.2022
+
+Bluesman - Blues Man (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Under a Bad, Bad Sign (2:27)
+02. Cold Coffee and Cigarettes (3:31)
+03. Crossroads (3:41)
+04. Say My Name (3:22)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBB35BFF9C2867CEDB10425C3918160065B4C8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530448   (728806) от 11.02.2022
+
+Big Al and the Heavyweights - Love One Another (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love One Another (2:45)
+02. I Need a Fix (5:06)
+03. Sweet Louise (4:38)
+04. Wild Tchoupitoulas (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846E972A18B278A2C27C660AF6606B45CA815A3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022382   (728822) от 02.06.2016
+
+Tony Joe White - The Very Best (1995) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beach Life 5:11
+02. I Want to Be With You 4:55
+03. Ain`t Going Down This Time 5:13
+04. Like Placid Blues 5:22(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C623C48185FE24EAF0DC50BFBE91584A037135
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284334   (728868) от 21.02.2019
 
 VA - Slow Soul: Bedroom Jams (2019) [MP3|320 Kbps] <Soul, Disco, RnB>
@@ -451,249 +694,6 @@ Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFEF24C15CC2EC89FF23C65CAB99F4690D4D1B86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284116   (730090) от 20.02.2019
-
-Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Please Let Me Come into the Storm / Luke (10:06)
-02. Das einsame Grab des Detlef Sammer (4:09)
-03. Burroughs (6:36)
-04. The Queue (4:22)(   Читать дальше...   )Производство: Golden Antenna Records - GOLDEN-034Жанр: Doom Jazz, Dark Jazz, Experimental, RockПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8F360CAF4F2E96D5AAE98CF1B611A34FAB5494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127991   (730101) от 23.04.2017
-
-The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004, Membran Music [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dance Of The Goon [02:37]
-02. Good Gal Blues [03:00]
-03. Finesse [02:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50441524EDCF4DC32A1BD160F34D80C1426BE3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127980   (730104) от 23.04.2017
-
-The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round About Midnight [08:46]
-02. Algo Bueno (Woody'n You) [03:18]
-03. I Can't Get Started [03:48]
-04. Ool-Ya-Koo [05:11](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E996E683203E73DD02068F1B5A3B382C5AD29C61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127987   (730108) от 23.04.2017
-
-Walter Bishop, Jr. - Old Folks (1977) 2003, Mercury Music [APE|Lossless|image + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manha Do Carnaval [06:02]
-02. Old Folks [07:40]
-03. Up Jumped Spring [04:36]
-04. Straight, No Chaser [04:16](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5DB0529A436875B2ABC36393FC158A1B3999A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530000   (730895) от 09.02.2022
-
-Dave Liebman Expansions - Selflessness: The Music Of John Coltrane (2021) Dot Time Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Day [7:46]
-02. Compassion [5:37]
-03. My Favorite Things [8:40]
-04. Ole [7:52](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A809C062D6CAED087042325915E786C604BE502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530014   (730902) от 09.02.2022
-
-Makoto Ozone - Pandora (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Never Tell Me Anything! [5:16]
-02. Lullaby for Rabbit [5:24]
-03. Reunion [5:47]
-04. Sofi [5:10](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0AECC3FE67E6E7AC50A969C7679ED033098E33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284015   (730968) от 19.02.2019
-
-Veronique Gayot - Wild Cat (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake You Up And Down 03:47
-02. The Revolution 04:18
-03. Sinner 04:02
-04. Gasoline 03:56(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE75C2A509270FA72A9EE774E0AACAFD1A56C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283900   (731024) от 19.02.2019
-
-Bohren & Der Club Of Gore - Bohren For Beginners (2016) Compilation [FLAC|Lossless|tracks] <Doom Jazz, Dark Jazz, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Bohren for Beginners
-01. Karin (3:38)
-02. Prowler (5:06)
-03. Constant Fear (6:29)(   Читать дальше...   )Производство: PIAS Recordings – PIASD5016Жанр: Doom Jazz, Dark Jazz, Jazz Noir, Dark AmbientПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713737286408BEA181025A421DD8BA189CE2A2D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284024   (731103) от 19.02.2019
-
-Charly Antolini - Drum Beat (1966) 2003, MPS Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Man [7:51]
-02. The Preacher [4:32]
-03. Drum-Organ [3:54]
-04. Cheers [6:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44522A2653CECAFCD3F948EAECE3237E30AC66D
 ```
 
 

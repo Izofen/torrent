@@ -1,3 +1,57 @@
+###  Публикация: 1390864   (782299) от 17.06.2020
+
+Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Abstract, Techno Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (04:00)
+ 02. General Noise I (Remastered Version) (04:59)
+ 03. General Noise II (Remastered Version) (05:43)
+ 04. General Noise III (Remastered Version) (06:02)(   Читать дальше...   )Жанр: Ambient, Techno, Abstract, Techno AmbientПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896C520FBC8598D1C700B35EBD70B726DB283C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390893   (782301) от 17.06.2020
+
+Min-Y-Llan - Snagged (2020) Min-Y-LlanMusic [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Glitch, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vm12 (00:56)
+ 02. Bocuma - Maybe They Are Here (Min-Y-Llan Remix) (01:28)
+ 03. Just Sitting Round Here (03:04)
+ 04. Baby Do It (03:39)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, AmbientПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9935C195AD3D9A76DA3FE9D86CE4A360F2D1E60F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205813   (782362) от 13.02.2018
 
 Andromeda - 2 Albums (2004-2005) [APE|Lossless|image + .cue] <Psy-Trance, Progressive Trance>
@@ -640,60 +694,6 @@ VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDB4268AA723F72B1ACBD225DE6BCADDE049407
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205972   (782952) от 12.02.2018
-
-VA - Chilling Sounds, Vol. 4 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legendum - Amnesia (Original Mix) 04:09
-02. Andrew Dream - After Rain (Original Mix) 06:57
-03. ArcticA - Gates of Heaven (Original Ambient Mix) 09:51
-04. BRTD - Some Places Are Magical by Default (Original Mix) 05:23(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80AAED814704A5ECFD5BCB91F09D95986A7AC29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205603   (782955) от 12.02.2018
-
-VA - Vocal Trance 2k18 Vol.2 (2018) [MP3|320 Kbps] <Trance, Hard Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Solosizer  -  Now (Original Mix)  5:04
-02.  Sublimity  -  Angels (Original Mix)  3:18
-03.  Chris Spring  -  Now (Trance Cut)  3:03
-04.  DJ Rosso  -  Make Me Wonder (Trancephonic Radio Edit)  3:32(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400C5972588F90DFB84B2693942F1DE358CA3100
 ```
 
 

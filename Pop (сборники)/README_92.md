@@ -1,3 +1,30 @@
+###  Публикация: 1127747   (731145) от 22.04.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127753   (731149) от 22.04.2017
 
 VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217135   (743356) от 04.04.2018
-
-VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dream Squad - Flow With the Fantasy
-002. E-Type - Back in the Loop
-003. The Free - Born Crazy
-004. 2alive - Tell it to My Heart Tonight(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
 ```
 
 

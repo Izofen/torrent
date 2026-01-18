@@ -1,3 +1,30 @@
+###  Публикация: 1453565   (1026887) от 11.03.2021
+
+VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop, Rap, Classic>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026887.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Intro
+002 Lamar - Let Your Lovelight Shine (Remix)
+003 A.K.-S.W.I.F.T. - In The Game
+004 Pappa Bear - Cherish (feat. Jan Van Der Toorn)(   Читать дальше...   )Жанр: Hip-Hop, Rap, ClassicПродолжительность: 04:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453290   (1026920) от 11.03.2021
 
 VA - Sexy Vocal Deep House (2021) [MP3|320 Kbps] <House, Pop>
@@ -665,33 +692,6 @@ VA - Shazam Хит-парад World Top 200 Февраль (2021) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFB33FCFA245B2AECD66887BC08559D7216222DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451711   (1028174) от 03.03.2021
-
-Queen - We Will Rock You! (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc one:
-01. Death On Two Legs (Dedicated To...)
-02. Killer Queen
-03. We Will Rock You(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A0C60E629CD9844963BD1767777304A3BE7EF4
 ```
 
 

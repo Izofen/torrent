@@ -1,3 +1,30 @@
+###  Публикация: 1049773   (542242) от 06.09.2016
+
+John Mayall - USA Union (1970) [WavPack|Lossless|image + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature's Disappearing (5:59)
+02. You Must Be Crazy (3:58)
+03. Night Flyer (5:36)
+04. Off The Road (2:51)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769620446F699528F0C0C041F102EA82330B6FD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049824   (542259) от 06.09.2016
 
 Bill Evans - Momentum, Vol. 1 (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -680,33 +707,6 @@ VA - The Best Of Jazz: Multimedia Music (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFAAD581E4422BF8255EAF6D6AF1C21C53BF8A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049212   (544863) от 04.09.2016
-
-Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homesick     [03:51]
-02. Cry For Me Baby     [04:02]
-03. Whispering Fields     [03:17]
-04. I Walked A Mile With Sorrow     [04:18](   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCEA4C822B5EC8E37502C5875EE6300D7E254E2
 ```
 
 

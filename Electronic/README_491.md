@@ -1,3 +1,63 @@
+###  Публикация: 613278   (984229) от 03.02.2013
+
+V.A. - Lounge Del Mar (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Chillout, Lounge, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc1
+Продолжительность: 00:55:36
+
+01. Johannes Huppertz - The Swing
+02. Line - Stay Awhile
+03. Superchrome - U'Bar
+04. Aerobium - Xerotix
+05. Five Seasons - Bridges Of Amsterdam
+06. Newton feat Twila.Too - New Beautiful Life
+07. Jane Maximova feat. Dmitry Raschepkin - Morning Bird(   Читать дальше...   )Жанр: Chillout, Lounge, Deep HouseПродолжительность: 01:55:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 730370   (984390) от 25.01.2020
+
+Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ha T'annah (03:50)
+02. Siferah (04:05)
+03. Ai-Lu (04:04)
+04. Iillah (01:02)(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44502443FC9C388AA7E55651986DB4BE2B8E1C67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971138   (984599) от 04.01.2016
 
 VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
@@ -670,66 +730,6 @@ VA - Winter Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5EF5FF04B410638A51062B84759CB2C6B8DC8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354532   (987881) от 22.01.2020
-
-Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|image + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Inside Out [5:17]
- 02 - Monkey In The Moon [3:53]
- 03 - Guardian Angel [4:14]
- 04 - Wishful Thinking [3:48](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611584   (987973) от 31.01.2013
-
-V.A. - Vintage Cafe 7 - Covered In Gold (4CD) (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout, Jazzy>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987973.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:17:43
-
-01. Topazz - Corcovado
-02. Bassa Nostra - Roxanne Nao Ligar
-03. Sagi Rei - Right In The Night
-04. Montefiori Cocktail - Gypsy Woman
-05. La Natives - Beautiful
-06. Rajaton - Voulez-Vous
-07. Moondust Feat. Querubyna - In Between Days(   Читать дальше...   )Жанр: Lounge, Chillout, JazzyПродолжительность: 05:12:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 

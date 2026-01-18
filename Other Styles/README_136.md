@@ -1,3 +1,28 @@
+###  Публикация: 1510460   (790799) от 17.11.2021
+
+Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight
+02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201908   (790939) от 27.01.2018
 
 Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
@@ -668,33 +693,6 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <Ne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3C19711572EEDFE794368392E6124DDEFD5964B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122646   (793428) от 06.04.2017
-
-Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ch'ien (Heaven) 8:03
-02. K'un (Earth) 8:25
-03. Chen (Thuder) 5:41
-04. Sun (Wind) 8:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
 ```
 
 

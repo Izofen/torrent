@@ -1,3 +1,36 @@
+###  Публикация: 602269   (997854) от 12.01.2013
+
+VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997854.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Glass Army Ft. Banzai Ferarri - Sizzle Puzzles
+2. Hooverphonic - Autoharp
+3. Everything But The Girl - Single
+4. Motorcycle - As The Rush Comes
+5. Bruno From Ibiza - One
+6. Makossa & Megablast - Like A Rocket
+7. Jhelisa - Freedom From Pity
+8. Alif Tree - Au Revoir
+9. Blue Pilots Project - Senta
+10. Emancipator - Jet Stream(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC62AE05FC67FFCD0946FD04DD0C02F2ED4D9225
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601847   (997961) от 11.01.2013
 
 VA - Экспресс Хиты От Европа Плюс (2013) [MP3|256 кб/с]<Pop,Dance>
@@ -808,39 +841,6 @@ VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6AD70716829AA9BECB735210539094BE5E15F51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597000   (1000470) от 02.01.2013
-
-VA - Новогодний Хит За Хитом 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ну Погоди - Расскажи Снегурочка (Ilsur Energy & Dj Pitchugin Remix)
- 02. Лера Кондра - Без Тебя
- 03. Дискотека Авария - Новогодняя 2013
- 04. Витас - Только Ты
- 05. Алексей Кабанов feat. Dj Beast - Я Тебя Люблю
- 06. Оксана Краски - А Девочке Хочется (Vlas Project Remix)
- 07. White Project - Новогодняя (Radio Version)
- 08. Artik pres. Asti - Сладкий Сон (DJ Pasha Lee & DJ Vitaco Remix).(AGRMusic)
- 09. Константин Легостаев & DJ Kirill Clash - Самый Настоящий Новый Год
- 10. Руки Вверх - Я Тебя Люблю (Club Mix)Жанр: PopПродолжительность: 05:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44BB6D24F0213D3EB538AE4C768B5B60783EF01
 ```
 
 

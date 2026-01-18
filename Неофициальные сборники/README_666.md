@@ -1,3 +1,30 @@
+###  Публикация: 1463637   (1020284) от 19.04.2021
+
+VA - Three Shaman (2021) [MP3|320 Kbps] <Native American, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Nativity - Three Shaman
+02. Soulfood - Vision Quest
+03. Joseph Fire Crow - War Dancer
+04. Navajo - Ly-O-Lay Ale Loya(   Читать дальше...   )Жанр: Native American, World musicПродолжительность: 04:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DBB3736F9DD0D276EC4693C78A95D91C6A11AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463376   (1020375) от 18.04.2021
 
 VA - Зайцев.нет Лучшие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A136385C112B699E83F5D2B657DA40EA56EC49D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462116   (1021238) от 13.04.2021
-
-VA - Громкие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moby, Jim James - Porcelain (Reprise Version) (5:53)
-02. Монатик - Ресницы безопасности (4:54)
-03. Taylor Swift - Mr. Perfectly Fine (4:37)
-04. БАСТА, РЕМ ДИГГА, Каста, Белый Будда - Годы неправды (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5600DBBBF5B141CBD1B5AAA85FCE20925DB963
 ```
 
 

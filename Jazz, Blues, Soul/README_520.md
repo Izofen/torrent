@@ -1,3 +1,247 @@
+###  Публикация: 872307   (875685) от 24.02.2015
+
+Frank Sinatra - Sings His Greatest Hits (1997) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. All Of Me [02:44]
+02. I Could Write A Book [02:45]
+03. I've Got A Crush On You [03:18]
+04. Night And Day [03:42]
+05. Saturday Night (Is The Loneliest Night Of The Week) [02:46](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A469F80BCC9A3EBC3E58F829AC191F627C7BA255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495866   (875700) от 15.09.2021
+
+Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Guitar (4:44)
+02. Electric Memphis Blue (4:17)
+03. All Night Long (4:14)
+04. Born Bad (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A1BE35AE23369376D11D5A43EB91544417F11F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495954   (875706) от 15.09.2021
+
+Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treat Her Right (3:20)
+02. Lonely Mile (4:45)
+03. Secret Agent (4:50)
+04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495949   (875717) от 15.09.2021
+
+Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holler If You Hear Me (3:33)
+02. Guilty of a Good Time (3:26)
+03. If You Go Away (She Might Come Back) (3:32)
+04. Holding on with One Hand (3:56)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B7BEBDCF4E2EB835381B15915E80F1BED896DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495957   (875818) от 15.09.2021
+
+Beat brutality - A blues detour (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for the damned (3:06)
+02. Sweet little furry (2:56)
+03. First wave (2:39)
+04. Treasure that you pleasure (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E68A2158419ABB532AC2A1DD0C183E20FE7274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495988   (875824) от 15.09.2021
+
+Brad Vickers & His Vestapolitans - The Music Gets Us Thru (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dumb Like A Fox (2:00)
+02. Take It Slow (4:09)
+03. Please Don't Say (3:36)
+04. Big Wind (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524C77E789E0CCD6F5DB13C10C0779A1EC9E069A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495945   (875825) от 15.09.2021
+
+Adam Schultz - Soulful Distancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Real Mother for Ya (feat. Clarence Spady) (4:34)
+02. Early in the Mornin' (feat. Clarence Spady) (4:55)
+03. Good Conversation (feat. Michael Angelo) (5:03)
+04. Harlem Tonight (feat. Michael Angelo) (3:58)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A36D4E997E4A7A59FF20650255D5C7F1FE7D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495987   (875829) от 15.09.2021
+
+Bobby Powell - Spread Your Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Love You (3:23)
+02. The Night Time Is the Right Time (4:58)
+03. Spread Your Love (3:39)
+04. I Can't Stop Loving You (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9119FCB2D63F03F46639F48A0C43982C58414829
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997251   (875830) от 16.03.2016
+
+Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Actual Proof [10:17]
+ 02.Mysterious Traveller [06:59]
+ 03.Footprints [08:46]
+ 04.D Flat Waltz [11:58](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194DC436DACB852FAF46CE5996D9313595C8F335
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495984   (875831) от 15.09.2021
 
 Bluhauz - Bluhauz (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -497,295 +741,6 @@ Ken Navarro - Dreaming Of Trains (2010) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24E46F83C30F29C0E88FF992797116BD5CED59BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765390   (876452) от 11.03.2014
-
-Kenny Wheeler, Norma Winstone, London Vocal Project - Mirrors (2013) [FLAC|Lossless]<Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Humpty Dumpty
- 02. The Broken Heart
- 03. The Lover Mourns
- 04. Black March
- 05. Through The Looking Glass
- 06. The Hat
- 07. Breughel
- 08. Tweedledum
- 09. The Bereaved Swan
- 10. The Deathly Child(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5F81C60CB1AC8482275435BFC94D1AC609B1B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765401   (876453) от 11.03.2014
-
-Ken Peplowski - Maybe September (2013) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All Alone by the Telephone - 4:58
- 02. Moon Ray - 7:33
- 03. Always a Bridesmaid - 5:31
- 04. (Now and Then There's) A Fool Such as I - 6:44
- 05. Romanza - 4:47
- 06. Caroline, No - 7:58
- 07. For No One - 1:58
- 08. I'll String Along With You - 6:48
- 09. Main Stem - 5:24
- 10. Maybe September - 8:15(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23771F88EBD73DA65AA1CD9C3ABE491D409CFB4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765184   (876454) от 11.03.2014
-
-Julian & Roman Wasserfuhr - Running (2013) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Weary Journey
- 02. Bachelor (Over The Ear Look)
- 03. Behind Blue Eyes (Pete Townshend)
- 04. Adonis
- 05. Stoned Remote
- 06. Nowhere Man (Lennon/McCartney)
- 07. 7 Gegner
- 08. Rocholz-Korosak
- 09. Go On
- 10. Joy And Sorrow(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD1290B16C7E082CF2F2C0E8602EE852997CAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765393   (876455) от 11.03.2014
-
-Ken Peplowski - In Search of (2011) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The Thespian - 5:15
- 02. Love's Disguise - 8:03
- 03. When Joanna Loved Me - 5:18
- 04. Falsa Baiana - 7:05
- 05. A Ship Without A Sail - 5:55
- 06. With Every Breath I Take - 4:57
- 07. In Flower - 5:34
- 08. Peps - 5:32
- 09. This Nearly Was Mine - 4:41
- 10. No Regrets - 6:22(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1C8326A693B9C666AAAD963C84646792FEF53C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765404   (876521) от 11.03.2014
-
-Ken Peplowski Quintet - The Natural Touch (1992) [FLAC|Lossless]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Close My Eyes - 5:01
- 02. The One I Love Belongs To Somebody Else - 6:08
- 03. Guess I'll Hang My Tears Out To Dry - 5:31
- 04. Evidence - 5:03
- 05. Evenin' - 4:39
- 06. You Never Know - 3:41
- 07. You Must Believe In Spring - 4:24
- 08. Flunk Blues - 4:28
- 09. Circle Of Threes - 4:58
- 10. My Buddy - 5:32(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D543235BF06821F6417A50BA17542BF4E4D4F0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765410   (876523) от 11.03.2014
-
-Joe Temperley - Double Duke (1999) [FLAC|Lossless]<Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Check [06:15]
-02. Creole Love Call [08:05]
-03. Tricotism [05:52]
-04. Black and Tan Fantasy [08:22]
-05. Double Duke [04:56]
-06. Try a Little Tenderness [05:46]
-07. Elsa [05:12]
-08. Fascinatin' Rythm [07:17]
-09. Danny Boy [05:04]Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1C8814CF630E9A414BAEF418E12D77246554CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765365   (876524) от 11.03.2014
-
-Kenny Werner with The Brussels Jazz Orchestra - Institute Of Higher Learning (2011) [FLAC|Lossless]<Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Cantabile - First Movement (10:46)
- 02. Cantabile - Second Movement (10:54)
- 03. Cantabile - Third Movement (6:28)
- 04. Second Love Song (7:47)
- 05. The House Of The Rising Sun (10:11)
- 06. Compensation (13:00)
- 07. Institute Of Higher Learning (10:25)Жанр: Modern Big BandПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384892126DBD3DCA6D03C4A83A31A96002A94F43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765348   (876526) от 11.03.2014
-
-Kenny Garrett - Prisoner Of Love (1989) [FLAC|Lossless]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. May I Have This Dance?
- 02. Blue Moon
- 03. Prisoner Of Love
- 04. Put A Smile On Your Face
- 05. Sayydah's Single File Groove
- 06. Big 'Ol Head
- 07. Free Mandela
- 08. Peace For Dream
- 09. Lift Ev'ry Voice And SingЖанр: Contemporary Jazz, FusionПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96231956FFAB8AE11634EBCF42356B0F4C77671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765363   (876527) от 11.03.2014
-
-Kenny Werner Trio - Peace: Live at the Blue Note (2004) [APE|Lossless]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Pinocchio
- 02. All Things Are You
- 03. Jabali
- 04. Peace
- 05. Stella by Starlight
- 06. Evidence
- 07. ChachЖанр: Post-Bop, Piano JazzПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5446525ABC706ED95C5D4E3E40DA18609CC18F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 987061   (927897) от 16.02.2016
+
+VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue] <Euro House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquapura - 17 (6-20) AM Radio Edit (3:21)
+02. Deepest Blue - Deepest Blue (Radio Edit) (3:23)
+03. K.K. - Where Do We Go (3:34)
+04. Echoes Of Sound - Need Somebody (Who Needs Me) (V.O.C.O Radio Mix) (4:09)(   Читать дальше...   )Жанр: Euro House, Deep House, Tech House, Hard HouseПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0535DFE18B08A564AD209E1CBDFA364D04B0DD02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094785   (927919) от 19.01.2017
+
+VA - Wind In The Field (Downtempo Series)  Vol.005 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Valefim Planet - Mainsail (Original Mix)  4:20
+02.  Oleg Blaze - I Want Your Love (Original Mix)  5:42
+03.  Phillipo Blake & Nika Lenina - Take Me Away (Hardmaniac Remix)  4:55
+04.  Jean Luvia - Sunlight (Original Mix)  5:16(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112B1362E9C4AE55A6A6964CCBCC713ADEA9011B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365770   (929010) от 08.03.2020
 
 Evanton - Flavors - The Best Of Evanton Vol.2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Italo-Disco>
@@ -641,60 +695,6 @@ VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB771BE2032C602B4037EBD2297D4E4DE8045AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365324   (932244) от 06.03.2020
-
-VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christos Fourkis - Funky Feelings (Afro Mix) [06:19]
-02. Raul Soto Inaky Garcia - You Are the One (Jack n Brothas Remix) [06:50]
-03. Teejay Walton Gina Glover - Rescue Me (Nikos Diamantopoulos Remix) [06:48]
-04. Walterino Plastik Guys - Aje-Ajo (Plastik Guys Remix) [05:35](   Читать дальше...   )Жанр: House, Afro HouseПродолжительность: 01:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939AEBD77421F156D5770DDE7162546BB4CA9973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365105   (932249) от 06.03.2020
-
-VA - Urban Sports Music, Vol. 4 (2019) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey Warriors - In Your Face (Radio Edit) [03:07]
-02. SRNDR - Sandstorm (Radio Edit) [02:37]
-03. Phun and Key - System Crash (Radio Edit) [03:05]
-04. Whitemaxx - Let's Do the Sh..! (Short Mix) [02:57](   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2054F91C3D20A82DE9D0F9E3CCDFD9D1CCB6B64
 ```
 
 

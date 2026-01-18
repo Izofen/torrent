@@ -1,3 +1,246 @@
+###  Публикация: 1509126   (795670) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Introduction into Let's Dance [1:23]
+02. Mission to Moscow [3:01]
+03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509124   (795671) от 11.11.2021
+
+Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Dance [1:02]
+02. Don't Be That Way [3:14]
+03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509120   (795677) от 11.11.2021
+
+Wes Montgomery - Three Classic Albums Plus (1959, 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795677.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 'Round Midnight [4:58]
+02. Yesterdays [3:20]
+03. The End of a Love Affair [3:18](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 02:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D9907EBCE1A1CD2B7596DB91998670401AA0956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011923   (795684) от 29.04.2016
+
+Azie Mortimer - Feeling Of Jazz (1963) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Feeling Of Jazz [03:03]
+ 02.Lover Man (Oh Where Can You Be) [03:09]
+ 03.Capricious [02:25]
+ 04.Whisper Not [02:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B66C2B8FC2DCFA356A33B5047251ACF35CB2EA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011967   (795685) от 29.04.2016
+
+Javier Colina & Antonio Serrano - Colina Serrano Project (2009) Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.El blues de la alegria [04:59]
+ 02.El comandante [08:41]
+ 03.Estudio [11:58]
+ 04.Zyryab [07:51](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C7017E177C3495CEB2D4AD31404E1DD6734A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011917   (795687) от 29.04.2016
+
+George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Great Escape, or Run John Henry Run [04:43]
+ 02.Seriously Speaking [08:03]
+ 03.Soft Seas [07:21]
+ 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385974   (796065) от 27.05.2020
+
+Don Friedman Trio - Waltz For Debby (2003) 441 Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 35 W. 4th St. [4:17]
+02. I Concentrate on You [6:41]
+03. Waltz for Debby [4:34]
+04. Bud Powell [8:41](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B48C3B3266CB815F90105DD6D224915D71FC2CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508964   (796270) от 10.11.2021
+
+Bill Evans - Behind the Dikes: The 1969 Netherlands Recordings 2CD (2021) [FLAC|Lossless|tracks + .cue] <Cool Jazz, Post Bop, Modal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One for Helen (4:41)
+02. Quiet Now (5:36)
+03. Someday My Prince Will Come (6:04)
+04. Announcement by Aad Bos (0:47)(   Читать дальше...   )Жанр: Cool Jazz, Post Bop, ModalПродолжительность: 01:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9B1B6DB1A24B3E511E4B3E261B66B75AAC88EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508845   (796277) от 10.11.2021
+
+Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak Low [7:51]
+02. A Hard Day's Night [5:30]
+03. Don't You Know I Care [5:55]
+04. Misterioso [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879F3202C4C88864D8BD8234B81732DDA09FC9FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508931   (796281) от 10.11.2021
 
 Yoko Miwa Trio - Songs of Joy (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -452,249 +695,6 @@ Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8471A7609FC2172B78E3CF71F48F8EFFD7FA0E36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011420   (797039) от 27.04.2016
-
-The Blues Experience - Coming Your Way (2005) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Loose What You Never Had (06:20)
-02. My Credit Didn't Go Through (04:53)
-03. Stand Back (04:01)
-04. The Way It Goes (03:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C78FE8628545EE9751234093BF305F3528E249
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011242   (797044) от 27.04.2016
-
-Dave Weckl Band - Perpetual Motion (2002) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Up
-02. Child's Play
-03. Mesmer-Eyes
-04. Skipper(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8F9C7DDA1A4F88596E6BDC38ACB0ECC4F2A252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011255   (797054) от 27.04.2016
-
-Alexey Lapin & Yury Yaremchuk (Алексей Лапин и Юрий Яремчук) - Anatomy of Sound (2010) Solyd Records[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birth [06:51]
- 02.Transformations [07:25]
- 03.Transmutations [06:03]
- 04.Transconfigurations [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC865A85A091D2A5CD5AA5BD7E5F679722E83D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385649   (797208) от 25.05.2020
-
-Cymande - Second Time Round (2014) [FLAC|Lossless|tracks + .cue] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthracite 5:32
-02. Willie's Headache 4:50
-03. Genevieve 3:13
-04. Trevorgus 3:25(   Читать дальше...   )Жанр: FunkПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1893F80C28C85D11E76F99604DDB636F9E29E5D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385591   (797278) от 25.05.2020
-
-Oscar Peterson - Swingin' On A Star 1949 - 1953 (2004) Giants Of Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek To Cheek [5:22]
-02. Tenderly [5:41]
-03. Sweet Georgia Brown [3:00]
-04. Seven Come Eleven [3:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4184F259E887EEBB3FF2D275BAA277AAF2D91926
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508372   (797519) от 08.11.2021
-
-Joe Henderson - 5 Original Albums (1964 - 1985) 5CD, 2016, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797519.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Our Thing:
-01. Teeter Totter [8:33]
-02. Pedro's Time [10:05]
-03. Our Thing [5:36](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 03:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5200DEA74EECAE3E3F8DF10352A11DBF6FFA64F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011125   (797620) от 26.04.2016
-
-VA - Chilled Jazz Vol.1 (2016) [MP3|320 кб/с] <Jazz, Broken Beat, Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PNFA - Water Path (05:28)
-02. Luke Hampton - Jazz Music (Lemongrass Remix) (05:42)
-03. Jose Delgado - Summerset Area (05:27)
-04. Jazzamor - Lucent Touch (03:07)(   Читать дальше...   )Производство: Floating MusicЖанр: Jazz, Broken Beat, Nu Jazz, LoungeПродолжительность: 01:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39EDE03A4B0387F49A6C9325BD2AF8C0ACBA597
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011097   (797646) от 26.04.2016
-
-Kris Barras Band - Lucky 13 (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart on Your Sleeve (03:55)
-02. I Got Time (04:30)
-03. Rock 'n' Roll Running Through My Veins (05:10)
-04. Can't Help You Now (04:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7761846648A39DD5F2020194E90616F963A987D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011073   (797650) от 26.04.2016
-
-The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Witchdoctor    04:48
-02. Depression    04:12
-03. Voodoo Guitar    07:27
-04. Broken Down Car    04:36(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D6FF272D765085020D63341D529FB6057AFFBC
 ```
 
 

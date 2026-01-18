@@ -1,3 +1,30 @@
+###  Публикация: 1391520   (773247) от 21.06.2020
+
+VA - German Top 100 Single Charts 19.06.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UFO361 - Emotions
+02. Pashanim - Airwaves
+03. DaBaby - ROCKSTAR (feat. Roddy Ricch)
+04. Apache 207 - Boot(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54E37903550BE2964CD732C893C7DB103258A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213104   (773347) от 15.03.2018
 
 VA - German Top 100 Single Charts 16.03.2018 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA57A6DF287D559E9499128C219AFD95F27BD938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211484   (777550) от 07.03.2018
-
-VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777550.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stars On 45 - Proudley Presents Star Sisters (4:00)
-002. Shorts - Comment Ca Va (3:14)
-003. Michael Jackson - Beat It (4:12)
-004. Lionel Richie - All Night Long (6:20)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1096776   (917293) от 25.01.2017
+
+VA - The Best Music for your Auto - Top 130 Vol. 1 (2017) [MP3|192-320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Era Istrefi vs. Nutz, BrainDeaD - Bonbon (DJ Shade Edit 2017)
+002. Abraham Ruiz - 212 vs, Boogie Vice - What A Day (DЭ GAME SOUND REMIX 2017)
+003. K-Maro – Lets Go (DMC Mikael & Denis Zubov Bootleg 2017)
+004. In-Grid - Tu M'as Promis (Chapa's Drinking Red REMIX 2017)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8553C00A99C6A12B5DAF3ECF4BDA4C6F34E38A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367378   (917301) от 15.03.2020
 
 VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Top 100 шансон зимний. Выпуск № 2 (2017) [MP3|256 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA4A3ED33F9411132515BEAEF60536ABB535DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096695   (917751) от 25.01.2017
-
-VA - Лучшие зимние хиты года. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mamikon - Отойди 2:42
-002. Craig David - Warm It Up 3:11
-003. Женя Отрадная - Губы 3:04
-004. James Arthur - Remember Who I Was 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D09BCA19676E0EFB91C395696527DEB45B76429
 ```
 
 

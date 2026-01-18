@@ -1,3 +1,297 @@
+###  Публикация: 1277711   (775000) от 22.01.2019
+
+Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эпоха Большой Нелюбви
+2. Я Рисую Тебя
+3. Она Идет По Жизни Смеясь
+4. Паузы(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF91F5CA1A73B33A19A424513DF59AA9C0E6631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277818   (775017) от 22.01.2019
+
+TattooIN (Татуин) - Маленький фрагмент вселенной (2018) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё, кроме любви
+02. До свидания, Земля
+03. Думай о хорошем
+04. Точка невозврата(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DA7B1CCEC8268335F0E3A8B769CC751BF89AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015024   (775069) от 10.05.2016
+
+Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, Blues Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Railway Tracks    04:59
+02. Nothing To Do    04:24
+03. Testing The Water    05:10
+04. Sometimes    03:47(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80075FFEA4EE27BA2576B23980F4D0FFA1B189E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015280   (775071) от 10.05.2016
+
+VA - Nigeria Rock Special - Psychedelic Afro-Rock & Fuzz Funk In 1970's Nigeria (2008) [MP3|192 кб/с] <Afro-beat, Funk, Afro-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ofege - AdieuЖанр: Afro-beat, Funk, Afro-RockПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD211F2D14D10CAE739E05D63422776F2928F3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015241   (775076) от 10.05.2016
+
+Unhoped - Sonic Violence (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775076.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whole World Gone To Hell
+2. Assimilation
+3. Sonic Violence
+4. Human Disgrace(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F967B62522EF76FDE0CF05DF2B8C6CD823AECDE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277820   (775086) от 22.01.2019
+
+TattooIN (Татуин) - Татуин (2017) [MP3|320 Kbps] <Alternative Rock, Space Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уеду
+02. Хабиби
+03. В песках Татуина
+04. Разные(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Pop RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECAC0A10A1497A5489687D8C43FB11FD5D2A46B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277790   (775092) от 22.01.2019
+
+ТимерТау - Иди за мной (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как воздух
+02. Твари
+03. Иди за мной
+04. Стюардессы(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2500186102185CADF0F7C20EA56C57CBEF3845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277784   (775093) от 22.01.2019
+
+Shrezzers - Relationships (2019) [MP3|320 Kbps] <Progressive Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreword
+02. Mystery (feat. Dmitry Demyanenko of Shokran)
+03. Knuckles (feat. Slicky D)
+04. Anaraak (feat. Ronnie Canizaro of Born Of Osiris)(   Читать дальше...   )Жанр: Progressive Metal, ExperimentalПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F072E36D5AF6AFC554F4E7C6062B984DE89AF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277854   (775099) от 22.01.2019
+
+Helevorn - Aamamata (2019) [MP3|320 Kbps] <Gothic Metal, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sail to Sanity
+02. Goodbye, Hope
+03. Blackened Waves
+04. Aurora(   Читать дальше...   )Жанр: Gothic Metal, DoomПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E0CFDC221B01192055767B484162AEBE958B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212561   (775113) от 13.03.2018
+
+Аффинаж - Ты, который нашёл (2018) [MP3|320 Kbps] <Русский рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнце
+02 - Лучше Всех
+03 - Твой Главный Враг
+04 - Я - Печаль(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80003F77CB949A843AAA5F1FF892005D971F12E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212524   (775115) от 13.03.2018
+
+Axel Rudi Pell - Knights Call (2018) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Medieval Overture (Intro)
+02.The Wild And The Young
+03.Wildest Dreams
+04.Long Live Rock(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3C303E5F04A67537906E64B20DCD5504CD0AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277766   (775162) от 22.01.2019
 
 Obscura - Akroasis (2016) [FLAC|Lossless|image + .cue] <Technical Death Metal>
@@ -399,303 +693,6 @@ Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49463F37CAD195D3BA93D365FC6C95A52CCA607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212470   (775825) от 12.03.2018
-
-Elvenstorm - Blood Leads To Glory (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanguis Ad Gloriam (01:43)
-02. Reign In Glory (04:39)
-03. Werewolves Of The East (05:17)
-04. Temple Of The Sun (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE4AE3FC773FE76E579969E402477A039DAA854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014892   (775947) от 08.05.2016
-
-Radiohead - A Moon Shaped Pool (2016) [MP3|320 кб/с] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Witch
-02. Daydreaming
-03. Decks Dark
-04. Desert Island Disk(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33DBC7C1594F3594A33CEE88CD63EFD68B7A113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014896   (776019) от 08.05.2016
-
-Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Witch
-02. Daydreaming
-03. Decks Dark
-04. Desert Island Disk(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92932EAF589FA09E212133F27AE2F22A00684408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212256   (776095) от 11.03.2018
-
-Fastway - Fastway + All Fired Up! (1991) Remastered, 2000, guitar Fast Eddie Clarke (ex - Motorhead) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Easy Livin'
-02 Feel Me, Touch Me (Do Anything That You Want)
-03 All I Need Is Your Love
-04 Another Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15FD2982F6FA5198413BFDAB5B4A2C0615B27958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212276   (776098) от 11.03.2018
-
-Лесьяр - Мы Два Крыла (2018) [MP3|320 Kbps] <Pagan Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тропа
-02. Брошусь птицей в длань рассвета
-03. Пьяный апрель
-04. Мы два крыла(   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBFC41C03E4A1820AB0DA97DDC1D8A3392D47E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014600   (776169) от 08.05.2016
-
-Aunt Mary - NewDawn (2016) [FLAC|Lossless|tracks] <Rock, Classical Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slave Parade (03:49)
-02. Unconditional Love (03:35)
-03. Hopelessly Lost (03:10)
-04. Happily Ever After (04:53)(   Читать дальше...   )Жанр: Rock, Classical Rock, Progressive RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84362BF9F7944F03DF7C46CA37FF3F957001674C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014727   (776172) от 08.05.2016
-
-John Illsley - Long Shadows (2016) [MP3|320 кб/с] <Rock, Blues, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning    02:20
-02. In The Darkness    04:56
-03. Comes Around Again    04:19
-04. There's Something About You    04:49(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F2E97AC30F564363B778AEF3FAF0BBCA22E7CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014504   (776174) от 08.05.2016
-
-Wet Willie - Wet Willie (1971) Remaster, 2015, Capricorn Records [FLAC|Lossless|image + .cue] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Good Time
-02. Dirty Leg
-03. Faded Love
-04. Spinning Round(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E04BC267F03BD4121411437ECF36391947686EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014485   (776180) от 08.05.2016
-
-Wet Willie - Wet Willie (1971) Remastered, 2015, Capricorn Records [MP3|320 кб/с] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Good Time
-02. Dirty Leg
-03. Faded Love
-04. Spinning Round(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F799C2B0554C649A36AB5CAAEDF86ACBCCAFE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014566   (776187) от 08.05.2016
-
-Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ride The Ship Of Fools
-2. Cry For Love
-3. Gangster Of Love
-4. I Want To Be Free(   Читать дальше...   )Жанр: Psych Hard RockПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72525C52168696C36430C4459E9C02C9B5C515B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014649   (776192) от 08.05.2016
-
-The Artwoods - Art Gallery (1966) Remastered, 2014, RPM Records [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Hear Me
-02. Down In The Valley
-03. Things Get Better
-04. Walk On The Wild Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7C832DC83EADC7DAC7E0FDFE2F9D98A3A87E04
 ```
 
 

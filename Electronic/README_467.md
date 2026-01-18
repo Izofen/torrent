@@ -1,3 +1,57 @@
+###  Публикация: 1368711   (907426) от 21.03.2020
+
+Flowjob - Beatpolar (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beatpolar (Original Mix) (7:32)
+2. Reverse Vacation (Original Mix) (7:39)
+3. Hidden Beauty (Original Mix) (7:17)
+4. Gipsy Juice (Original Mix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A165112AA27BAFA973456FDB3E0900511E345D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991299   (907792) от 27.02.2016
+
+Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [FLAC|Lossless|tracks+.cue] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Nuits Blanches (4:08)
+02. Blank & Jones with Coralie Clément - J'en Reste Là (3:28)
+03. Blank & Jones - Coming Home (Afterlife Mix) (5:05)
+04. Blank & Jones with Cathie Battistessa - Happiness (Milchbar Terrace Mix) (4:12)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1DEDBC7347A195EEFCED1CE600E32B7D4A6DC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991314   (907908) от 27.02.2016
 
 Coming Soon!!! - The Album (2016) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance , Progressive Psy-Trance>
@@ -632,60 +686,6 @@ Pensees (Pensées) - Discography 23 Releases (2015-2020) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC0CF9DC24D42ED94EF11018770648F65E3E617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098403   (910305) от 29.01.2017
-
-Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Ten Seconds Before Sunrise (First State Remix) (7:57)
-02. Tiesto feat. JES - Everything (Cosmic Gate Remix) (8:48)
-03. Tiesto feat. Julie Thompson - Do You Feel Me (Roger Martinez Remix) (7:09)
-04. Tiesto - Carpe Noctum (Fire Element Mix) (7:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 03:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05ECB08755EFC475094DAC176E48FBD168D0DA42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098417   (910442) от 29.01.2017
-
-Abiogenesis - Biosynthesis (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trigonometry Conception (08:19)
- 02. Organic Structure Part 2 (10:32)
- 03. Animation (09:01)
- 04. Emergence (09:36)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2D69251483D6ECDFC3AD7B96B150E66F45CE74
 ```
 
 

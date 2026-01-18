@@ -1,3 +1,246 @@
+###  Публикация: 902759   (660282) от 29.05.2015
+
+Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek to Cheek [03:31]
+02. Let's Call the Whole Thing Off [03:23]
+03. A Fine Romance [03:32]
+04. April in Paris [03:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221B1BF0F201C2B597BDE4D0A30388D612DD37E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538982   (660331) от 23.03.2022
+
+Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Time [6:18]
+02. Jitterbug Waltz [5:22]
+03. Out South [5:28]
+04. Tin Tin Deo [4:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD75948E074A2282A8A6D25A081D8E80D51E228
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902931   (660364) от 29.05.2015
+
+Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton's Bail [13:44]
+02. The Moontrane [10:49]
+03. Farallone [13:25]
+04. Song Of Songs [14:04]Жанр: Jazz, Post-BopПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A64020C83768CE4AE44213B6CFE78D25742027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225362   (660748) от 15.05.2018
+
+Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Strings Attached
+02. Follow Me
+03. Selfie Face
+04. My Mood(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E91AC22BE0CD76DF8D3ADD90BF2DB98DD6FB61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225329   (660750) от 15.05.2018
+
+Molly Johnson - Meaning To Tell Ya (2018) [MP3|320 Kbps] <Contemporary Jazz, Rock, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner City Blues
+02. Better Than This
+03. Lady Day And John Coltrane
+04. Boogie Street(   Читать дальше...   )Жанр: Contemporary Jazz, Rock, PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369C2AFE6B200CB80C01544FF5F39DC7A05E5B18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225383   (660817) от 15.05.2018
+
+Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [04:11]
+02. Journey into Love [05:11]
+03. Floating Through Space [04:36]
+04. Bright Moments [06:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A7C8BA435076038F044895DBD607E9BBF51EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225380   (660819) от 15.05.2018
+
+Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monsieur Slide [04:23]
+02. Miniscropique Blues [04:26]
+03. No Monopoly On Hurt [05:45]
+04. Body And Blues [04:44](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE8E2BF54584D2A7C5A9542DC267CFA99B5D68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902367   (660886) от 28.05.2015
+
+Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Misunderstand
+02. Don't Talk
+03. It Gonna Come
+04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538940   (661080) от 22.03.2022
+
+Hurricane Ruth - Live At 3rd & Lindsley (2022) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll Little Sister (4:21)
+02. Hard Rockin' Woman (4:07)
+03. What You Never Had (4:12)
+04. Dirty Blues (4:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C47E1B55A92714A69D1D009225B40CA1026B5D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138990   (661108) от 01.06.2017
 
 Justin Johnson - Smoke & Mirrors (2014) 2 CD [FLAC|Lossless|WEB-DL|tracks] <Guitar Blues, Instrumental>
@@ -449,249 +692,6 @@ VA - Afternoon Jazz Time for You (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3DC35A59277995029C5A650418FDFA6AE9920F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138646   (662324) от 31.05.2017
-
-Howlin' Wolf - The Back Door Wolf (1973) 1995 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving 2:47
-02. Coon On The Moon 3:47
-03. Speak Now Woman 4:53
-04. Trying To Forget You 3:36(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697BA4D806BB8BB260DA84E8BD180FFCF0655E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538519   (662389) от 21.03.2022
-
-Scott Ellison - There's Something About The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half A Bottle Down (4:05)
-02. There's Something About The Night (4:46)
-03. Ain't No Love (In The Heart Of The City) (4:33)
-04. Bury Your Bone At Home (5:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAD685017F119F481DA75AD47274921153E8169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538520   (662394) от 21.03.2022
-
-Sean McKee Band - So Long My Queen (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Outside The Lines (2:15)
-02. Under Command Of The Admiral (3:08)
-03. To Keep On Loving You (3:57)
-04. Drove Me Crazy (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60F07E4B1E3C12DCF4210DA5A4C099844964DFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538504   (662397) от 21.03.2022
-
-North Mississippi Allstars - Set Sail (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Sail, Part I (4:58)
-02. Bumpin' (2:53)
-03. See the Moon (3:22)
-04. Outside (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBC3F0A711054661119BA45808A4893FE036505
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538511   (662398) от 21.03.2022
-
-Pierce Dipner - Goin' Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fool's Gold (2:54)
-02. Higher Ground (5:59)
-03. Empty Bed Blues (3:41)
-04. Nobody but Myself to Blame (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF15E1A5CEA580558A40BCF360C68CC5D1BAD394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538500   (662399) от 21.03.2022
-
-Nik Clovsky - Wooden Music - Wooden Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost in Her Eyes (3:43)
-02. Runnin' Down in Dixie (3:20)
-03. See the Blues (3:54)
-04. Mama (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9CE552C56EBC067EA2D0AC458411E504DDB2531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538516   (662401) от 21.03.2022
-
-Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Comin' Down (3:39)
-02. Summertime Ghost (3:03)
-03. Cold Water (3:27)
-04. Truth Don't Rhyme (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E88BA4B808FA171CAA366418EA52D07C67D843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538506   (662405) от 21.03.2022
-
-Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raidho (4:16)
-02. Poison Man (3:16)
-03. Left is the Blues (4:28)
-04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538509   (662406) от 21.03.2022
-
-Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Done with Bad Luck (4:28)
-02. I've Got the Blues This Morning (4:25)
-03. I Miss You So (5:16)
-04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
 ```
 
 

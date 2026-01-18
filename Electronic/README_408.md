@@ -1,3 +1,57 @@
+###  Публикация: 1235599   (788821) от 14.01.2019
+
+I:Scintilla / I-Scintilla - 18 Releases (2004-2018) [MP3|320 Kbps] <Industrial, Alternative, Electronic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788821.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - The Approach
+2006 - Havestar (EP)
+2007 - Optics (Two CD Limited Edition)
+2009 - Prey On You (EP)Жанр: Industrial, Alternative, ElectronicПродолжительность: 10:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7603D20EE121B9F29E5A8554CB5155D3BBFA068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511655   (788950) от 21.11.2021
+
+Rational Youth - 5 Studio Albums (1982-2013) [MP3|320 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rational Youth - канадская синти-поп группа, была сформирована в 1981 году в Монреале, Квебек,  барабанщиком Tracy Howe и синтез-клавишниками Bill Vorn и Mario Spezza, боготворивших немецких пионеров синти-попа Kraftwerk . Группа считается одной из первых синти-поп групп Канады. В раздаче представлены только студийные альбомы.Список альбомов:
+1982 - Cold War Night Life
+1983 - Rational Youth
+1985 - Heredity(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 03:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1895973BE49113CC3B8E16922642915E3B3C4A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202593   (789025) от 31.01.2018
 
 Cj Rcm - Vol.1 Legends Of Chillout Music (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -641,60 +695,6 @@ Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202755   (789120) от 31.01.2018
-
-VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike La Funk - Alive (Extened Mix) (feat. Lyla Bull)
-02. Reggie Steele - Higher (BPM Experience Vocal Mix)
-03. Lesamoor - All You Got To Do (Samy K Remix) (feat. Fat Groovyz Band)
-04. Disk Nation - Kandido (David Grant Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065046   (789294) от 30.01.2018
-
-Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cubicolor - Dead End Thrills
-2. CamelPhat - Raabta
-3. Jerome Isma-Ae & Alastor - Reflection
-4. Moby - Natural Blues (Sander van Doorn remix)(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 15:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA9C1FC0065A0149AB0FA438D8FE802038B0747
 ```
 
 

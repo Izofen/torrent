@@ -1,3 +1,30 @@
+###  Публикация: 1457766   (1023462) от 31.03.2021
+
+Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023462.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:52] 01. Themyscira
+[05:18] 02. Games
+[07:05] 03. 1984
+[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457977   (1023463) от 31.03.2021
 
 Oscar Lopez - Guitar Masters (2002) Compilation [MP3|320 Kbps] <Flamenco, Guitar>
@@ -671,33 +698,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450418   (1029003) от 26.02.2021
-
-Simon Chylinski - Subnautica (Original Game Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salutations (01:50)
-02. Into the Unknown (02:58)
-03. Tropical Eden (01:43)
-04. God Rays (01:30)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4A2FE3ACAE93BC6A6E4B55F0E62169C2C4646A
 ```
 
 

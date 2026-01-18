@@ -1,689 +1,669 @@
-###  Публикация: 1305343   (557111) от 30.05.2019
+###  Публикация: 1046127   (553117) от 26.08.2016
 
-Векторный клипарт - Vector Amphibians #05 [AI]
+Nanna Baudelaire - Wild Ones (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557111.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Земноводные
-50 AI + PreviewФормат: AI
+1. Wild Ones (4:02)
+2. Fever (3:24)
+3. I Will Pretend (3:57)
+4. Sinner (3:56)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:31:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F27A27C800D9B4788E3C72525EC21FC8DA183619
+magnet:?xt=urn:btih:AD7328F769A7A9BD1AD5273A4EA0A978CA854306
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556790   (557113) от 11.06.2022
+###  Публикация: 1046182   (553118) от 26.08.2016
 
-Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557113.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Prologue (00:01:35)
-02 - Behind The Shades (00:07:14)
-03 - Dreammaster (00:04:09)
-04 - Living The Dream (00:03:44)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
+001. Zhu - Hometown Girl
+002. Stereo Isterika - Кит
+003. Delyno & Remakeit - Passion
+004. Медойти - Поймав Мелодию(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
+magnet:?xt=urn:btih:B8C1D4EC3C4FED92A7821F0940790A403D0BB450
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556689   (557114) от 11.06.2022
+###  Публикация: 1046349   (553119) от 26.08.2016
 
-Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap Metal>
+Человек и закон (26.08.2016) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557114.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Maintain
-2. Blackest Of Days
-3. New Respect
-4. Won't Forget(   Читать дальше...   )Жанр: Rapcore, Hardcore, Rap MetalПродолжительность: 00:36:29
+Крым, лето, диверсанты. Кто организовал, чего добились и каким был сценарий терактов. Сценарий несбывшихся трагедий. Хотя жертвы все равно были. Медали вопреки. Больше, чем могли. Победители, проигравшие, отсутствующие. Сложная Олимпиада, сложные судьбы. Герои не в отпуске. Те, кто не прошел мимо. В обычной жизни побил все рекорды: добежал, доплыл, поймал. Вторая (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:49:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
+magnet:?xt=urn:btih:E484CD9303DD14A2AC5F70BEE6849E34D723A8BE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556692   (557116) от 11.06.2022
+###  Публикация: 1046326   (553120) от 26.08.2016
 
-Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
+Denise Donatelli - Find A Heart (2015) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557116.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Paradise
-2. Dead Inside
-3. Flames
-4. Locked(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:41:21
+01. Big Noise, New York
+02. Love And Paris Rain
+03. Spaced Out (En Babia)
+04. Practical Arrangement(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
+magnet:?xt=urn:btih:94FA6E0AE2A4BC74F7842F4DB9FEF417B9956973
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556878   (557117) от 11.06.2022
+###  Публикация: 1046112   (553121) от 26.08.2016
 
-To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557117.jpg" />
-</div>
-
-
-###  Подробнее
-
-To/Die/For — финская готик-метал-группа. Основана в 1996 году под названием Mary-Ann, с 2000 года стала называться To/Die/For (умереть за...)01. In Black
-02. Screaming Birds
-03. Unknown III
-04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556478   (557118) от 11.06.2022
-
-Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Love (3:35)
-02. Kitty Can (2:42)
-03. In The Summer Of His Years (3:13)
-04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556642   (557119) от 11.06.2022
-
-The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557119.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Judgment (feat. Burton C. Bell from Fear Factory)
-2. Punishment
-3. A Lifetime Ago
-4. Chasing Ghosts(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556801   (557121) от 11.06.2022
-
-Ларс Браунворт | Морские волки. История викингов (2022) [MP3, Владимир Овуор]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557121.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 793 г. н. э. норвежские воины напали на английский остров Линдисфарн и полностью его опустошили. Волна за волной скандинавские «морские волки» следовали за добычей, землей или славной смертью в битве. Большая часть Британских островов пала под их мечами, а континентальные столицы Париж и Аахен были по очереди разграблены. Повернув на восток, они плыли по неизведанным (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПродолжительность: 09:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F8E555CFC70ADA7895C28AB33B201DDD0DA47E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556680   (557122) от 11.06.2022
-
-NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hero of Our Time
-2. The Evil King
-3. Drowning
-4. Mangled(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Pop RockПродолжительность: 01:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556765   (557124) от 11.06.2022
-
-Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pandemonium (instrumental)01:38
-02.Subversive Mind 06:21
-03.Time of Slaughters 05:17
-04.Entrapped 05:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556693   (557125) от 11.06.2022
-
-Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Deathcore, Atmospheric>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557125.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Approaching of Atonement
-2. Silvered Shadows
-3. Apparitions in Candlelight
-4. Dissever(   Читать дальше...   )Жанр: Death Metal, Post-Metal, Progressive Metal, Deathcore, AtmosphericПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556771   (557126) от 11.06.2022
-
-Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Der flammen Preis (00:03:00)
-02 - Windgeist (00:03:36)
-03 - Form des Todes (00:06:01)
-04 - Bald ersaeuft die Menschenbrut (00:03:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556698   (557127) от 11.06.2022
-
-Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. How To Leave Painlessly
-2. Disintegrate
-3. Constrict
-4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556767   (557128) от 11.06.2022
-
-Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Open Skies closed Minds 01:52
-02.Who let the Night in? 02:36
-03.Where there is God there is Nothing 03:59
-04.Once upon a Death 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556682   (557129) от 11.06.2022
-
-Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Connections
-2. The Cycle
-3. Ebb & Flow
-4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305354   (557132) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #66 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD2CE332F095BBD4EAFE78B0C586D899063A986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305346   (557133) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #59 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5A312DE39DEDB640453319693F08D0A60C5102
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305373   (557135) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #68 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36213A053A11692D3EB74146EC80665469398D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305193   (557136) от 30.05.2019
-
-Peter's Dance Factory - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Servus Grüezi und Hallo (1:33)
-02. Alle Mann nach Palma (3:08)
-03. Appenzeller Jodler (2:40)
-04. We love Mallorca (3:41)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4999234BA32862F7657C291D9A3C123EFEA7E58C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305350   (557137) от 30.05.2019
-
-Векторный клипарт - Vector Animal Collection #60 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-50 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C76A3212B61F04BB79ECFEE97A9644B47A51D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305291   (557138) от 30.05.2019
-
-Монахиня Амвросия (Оберучева) | История одной старушки [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очерки из многолетней жизни одной старушки, которую не по заслугам Господь не оставлял Своею милостью и которая считала себя счастливой всегда, даже среди самых тяжёлых страданий.
-
-Есть такое распространённое в современной духовной литературе выражение: кончилась жизнь - началось житие.
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71876B871DDECE77F21A5A0205A91BB005202B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305191   (557141) от 30.05.2019
-
-Happy Holiday Singers - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino-Party>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wir haben ein Idol (Harald Juhnke) (3:21)
-02. Augen zu und durch (3:20)
-03. Peter Ortloff Schlagerparty (3:51)
-04. Ritmo De La Noche (5:38)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0F56368B3F83024D216D4FF3696056AFDED9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305324   (557146) от 30.05.2019
-
-Vectoraster 7 v7.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vectoraster - программа для создания векторной графики на основе растровых моделей и полутонов из растровых изображений. Вы можете всячески конфигурировать растровые и точечные узоры для создания различных стилей изображений.
-
-Растры могут быть легко экспортированы в качестве векторов в EPS или PDF-файлы, как изображения, JPEG, PNG или TIFF, или просто скопировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.05.2019Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879F2D5581DEB5755D472ECC6DFED717DC6DEA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305430   (557147) от 30.05.2019
-
-Футбол. Лига Европы УЕФА 2018-2019. Баку (Азербайджан). Финал. Челси (Англия) — Арсенал (Англия) (2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Футбол. Чемпионат Англии 2016-2017 / 2-й тур / Match Of The Day HDTVRip [H.264/720p-LQ] [EN]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557147.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 мая 2019, среда. 22:00 МСК
-Лига Европы УЕФА 2018-2019. Баку (Азербайджан).
-Финал.
-Челси (Лондон, Англия) — Арсенал (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:34
+Выпуск "Match of the Day", посвященный прошедшим матчам 2-го тура АПЛ.Телекомпания: BBCЖанр: ТелепередачаЯзык озвучки: АнглийскийПродолжительность: 02:23:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1998A6AC3AD5F0E4ECCA3F0296D8D83542AB50BB
+magnet:?xt=urn:btih:0F2A3BCD0B24BB9FDF3757A1027E8A90C163572A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305304   (557150) от 30.05.2019
+###  Публикация: 1046369   (553122) от 26.08.2016
 
-VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
+Большинство. РИО-2016; Победа или поражение? (26.08.2016) SATRip
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557150.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Komflux - Logarithm
-002. Komflux - Hard Seek
-003. Nitrous Oxide - Avalon
-004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
+В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.В этом выпуске: Едва мы успели порадоваться успехам наших олимпийцев в Рио, как стало окончательно ясно, что российская сборная в полном составе пропустит паралимпийские игры. Наша надежда на здравый смысл и спортивную солидарность не оправдались. Что ждать дальше? Как мы будем отстаивать репутацию российского спорта?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:59:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
+magnet:?xt=urn:btih:3D3CC695F9889B14F068A1E5D43E5E73EA3EB87C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235602   (557152) от 13.07.2018
+###  Публикация: 1046004   (553123) от 26.08.2016
 
-Windows 10 (x86/x64) 10in1 + LTSB +/- Office 2016 by SmokieBlahBlah 12.07.18 [Ru/En]
+Christopher Hollyday - And I'll Sing Once More (1992) [FLAC|Lossless|image + .cue] <Jazz>
 
->>3
->>11
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557152.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 редакций Windows 10 (русские и английские) с обновлениями по июль 2018, основанных на оригинальных образах Redstone 4 (1803) и LTSB 1607 (образа LTSB новее не существует!!!) и интегрированными системными библиотеками
-+10 таких же редакций со встроенным MS Office 2016 Pro Plus x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.) Язык офиса зависит (   Читать дальше...   )Язык интерфейса: русский, английский
+01. Heroes
+02. Hate The Roomate
+03. The Sound Of Music
+04. Storm(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB0C60A023C94429162FBE116DADB11EECF68F68
+magnet:?xt=urn:btih:EA425A0F2E53D8FDAC298795D9550E16C8FD8769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046272   (553124) от 26.08.2016
+
+VA - EDM Summer Closing (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emmiel - Every Hour Of Every Day (Kooky Electro Funk Remix) 03:15
+02. Massimo Vanoni - I See You 08:30
+03. Jane Doe - Knight Rider (Ray Livingstone Rework) 04:26
+04. Luke Meyers - Play House (Vocal Edit) 05:40(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEED170FC1CBD4115404D8D2DEB43484209DE3F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046177   (553125) от 26.08.2016
+
+Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Sailor's Song [04:45]
+ 02.Silver Hollow [04:13]
+ 03.Un Poco Loco [08:22]
+ 04.Love Song [04:39](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07B3418378EA3D9DD1FA4CDEE1D55A775C0304D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046259   (553127) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 5 (2015) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Carry You Home
+02. Fobee - Samsara
+03. Chris LeBlanc - Left Without a Kiss
+04. Stepo Del Sol - Siesta(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 01:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004CD34EEDD7ADB9FE0A86B64EBF916BB8480213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045958   (553128) от 26.08.2016
+
+Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Put The Meat In My Bed (4:02)
+02. Oh Girl (4:10)
+03. Amazon (5:44)
+04. For The Father (1:14)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065504C9C3BFD0929595A5749274AF50034230B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046334   (553129) от 26.08.2016
+
+Место встречи. Праздник или поминки?! (26.08.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: На что Украина потратила 25 лет независимости? Кого винит в своих бедах и какое будущее себе готовит?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE142B0B81AC2E9337E24217F22418D51A8F015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046156   (553130) от 26.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris LeBlanc - Beyond the Sunsets
+02. PNFA - Talk to Me
+03. Christos Fourkis - Feel Me - Chillout Version
+04. Vitali and his Lounge Orchestra - Dreaming(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A50A4FD7CA6EEACC167206A303C59AEC73A4F4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046178   (553131) от 26.08.2016
+
+Cannonball Adderley Quintet - Music, You All (1972) 2016, Real Gone Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Brakes [11:59]
+ 02.Cannon Raps [02:24]
+ 03.Capricorn [05:26]
+ 04.Walk Tall [05:43](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16076F547D9B4DFC42897A2AB8F0CD9AB58A9070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045970   (553132) от 26.08.2016
+
+David 'Fathead' Newman & Marchel Ivery - Blue Greens & Beans (1990) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Greens & Beans [07:44]
+ 02.Montana Banana [08:30]
+ 03.I've Grown Accustomed To Her Face [05:02]
+ 04.Night In Tunisia [10:44](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E3BC861F25CE8DFD9C8A5E9649F39A174B8C8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046234   (553133) от 26.08.2016
+
+Футбол. Лига Чемпионов 2016-2017. Раунд плей-офф. 2-й матч. Виктория Пльзень (Чехия) - Лудогорец (Болгария) (23.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553133.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 августа 2016, вторник. 21:45 МСК
+Раунд плей-офф. 2-й матч
+
+Стадион: Дусан Арена - Места Плзне (Пльзень, Чехия) , 10 312 зрителей (82 % при вместимости 12 500)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 01:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E9EF1D6D0475DCF023CB2A2D695C920E9541D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044579   (553134) от 26.08.2016
+
+Лёгкая атлетика. Олимпийские игры 2016. День 8. Утро (19.08.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553134.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 августа 2016 года, пятница.
+Лёгкая атлетика. День 8. Утро:
+14:00 МСК Мужчины. Ходьба 50 км
+20:30 МСК Женщины. Ходьба 20 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортПродолжительность: Мужчины 50 км-02:18:03, Женщины 20 км-01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42FF7AD32DC329419FECAAE03271B2DA02928F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046133   (553135) от 26.08.2016
+
+Хоккей. КХЛ 2016-2017. Сибирь (Новосибирск) - Барыс (Астана) (25.08.2016) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553135.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 августа 2016, четверг. 15:30 МСК
+Матч № 13
+Стадион: ЛДС «Сибирь» (Новосибирск, Россия) , 7400 зрителей (100 % при вместимости 7400)
+(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Александр Неценко, Александр Бойков)Продолжительность: 02:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDD5F3DDF87CFC6D7387EAA23129E22495A4818
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237240   (553141) от 22.07.2018
+
+Бокс. Всемирная Суперсерия 2018. Финал. Александр Усик (Украина) - Мурат Гассиев (Россия) (21.07.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553141.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июля 2018 года
+Главные бои боксёрского вечера.
+Центральным событием шоу стал финал WBSS (Всемирной боксёрской Суперсерии) в 1-м тяжёлом весе.
+Александр Усик (Украина) — Мурат Гассиев (Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EF020B608452C4EFFB426F5D2712C92065334B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237306   (553143) от 22.07.2018
+
+Оксана Путан | Энциклопедия современной русской кухни. Подробные пошаговые рецепты (2018) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оксана Путан – профессиональный повар, автор кулинарных книг и известный кулинарный блогер. Ее рецепты отличаются практичностью, доступностью и пользуются огромной популярностью в русскоязычном интернете. Они расписаны настолько подробно, что приготовить по ним способен даже человек, решившийся первый раз подойти к плите. Независимо от возраста, будь то 12-летняя (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFA28424C20E44BB7B032F7D2BDEFABD569A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237159   (553145) от 22.07.2018
+
+Счастливая жизнь Ксении (2017) WEB-DLRip (серии 1-2 из 2)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ксения, студентка первого курса, скромница и отличница, оказывается на перепутье. Она выбирает между двумя парнями. С одной стороны — скромный и стеснительный фотограф Миша, живущий, как и она, бедно. С другой Дима — богатый красавчик, мечта любой женщины, чьи ухаживания кружат голову. Ксения делает выбор — выходит замуж за Диму. И вскоре ее жизнь превращается в (   Читать дальше...   )Производство: Россия / Медиапрофсоюз, Тесей продакшнЖанр: мелодрамаРежиссер: Алексей БогдановАктеры: Анастасия Дергаус, Станислав Ткаченко, Павел Гончаров, Анна Лапина, Кристина Убелс, Евгений Зарубин, Дмитрий Ткаченко, Никита Чеканов и др.Продолжительность: ~01:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1036A8A506A863244C5381626210E0BCA4F0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237026   (553147) от 22.07.2018
+
+The Andersen Accounts: Chapter One / Досье Андерсена: Дело №1 (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте первую часть в новой интригующей серии The Andersen Accounts. В городе Бей-Сити растет количество людей использующих магические чернила для получения невероятных сил. А тут еще и Вашу подругу Рейчел похищают прямо у Вас на глазах! Сможете ли Вы спасти её в этом опасном городе, наполненном легендарными противниками?! Есть ли у Вас всё необходимое для этого? (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94268485876E8927514FF392B6975ACF9F74909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691829   (553148) от 22.08.2013
+
+Антиллия - Последний звездопад (2013) EP [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последний звездопад
+02. Шаман
+03. La diosa fredda (Metal cover)Жанр: Symphonic Power Metal |Продолжительность: 00:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F1DFC078A75381DB79986F89390EE04F45D95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 691925   (553149) от 22.08.2013
+
+София Рукова | О таинствах Церкви в изложении для детей [2003] [DOC]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для детей и взрослых о таинствах Церкви - о том таинственном, превышающем наше разумение, когда в результате наших человеческих действий и слов, в нашу жизнь приходит что-то такое, что невозможно выразить словами, и мы становимся лучше, чище, сильнее…Жанр: Святоотеческое наследиеФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C920CBBDDE2BFFC784B69A805724EBBE6C43F59A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237151   (553150) от 22.07.2018
+
+Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License PLAZA [Definitive Version]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Помоги роботу Йозефу спасти его подругу Берту, похищенную бандитами из Братства Черных Шляп. Теперь с полноэкранным режимом, достижениями, новыми языками и полной поддержкой контроллера. Machinarium — обладательница множества наград от критиков, приключенческая игра-головоломка, созданная разработчиками популярных игр Samorost и Botanicula. Маленького робота выбросили (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure, LogicЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80862ECD1572FD6D39F2B7A3B67532515B4B3A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178696   (553152) от 22.07.2018
+
+Figment v.1.1.5 (2017) [Multi/Ru] [OS X Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальная игра, которая разворачивается в тайных уголках человеческого сознания... Добро пожаловать в мир Figment. Странный сюрреалистический мир; место, наполненное нашими тайными мыслями, желаниями и воспоминаниями, населенное множеством голосов, которые мы слышим в голове. Этот разум долгие годы был тихим и спокойным.Тип издания: OS X Native gameРелиз состоялся: 22 сентября 2017Разработчик: Bedtime Digital GamesПоддерживаемая ОС: Mac OS X 10.12.5 и вышеЖанр: Экшн, Приключение, ФэнтезиЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9932B7DD96545E2A096EFC4D6198DFFF910D6589
 ```
 
 

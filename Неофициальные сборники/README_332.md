@@ -1,3 +1,30 @@
+###  Публикация: 1235500   (558678) от 12.07.2018
+
+VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - YEAH (Extended Mix)
+02. Kevin Vergauwen & Chatry Van Hove - Glimmer Of Hope (Denis Sender Radio Edit)
+03. Glacial Storm - Tundra (Original Mix)
+04. Elite Electronic - Digital Age (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF61D96B94E231ECD79EE190C8198547F3C889E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924402   (558694) от 03.08.2015
 
 VA - 100 Хитов В Машине. Клубная музыка 2015 (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Vocal Trance>
@@ -713,33 +740,6 @@ VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86079F80381A7B58ED33F49970441353306B7CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045343   (559833) от 23.08.2016
-
-VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R3HAB & Quintino  -  Freak (VIP Remix)  4:13
-02. D.O.D  -  Night Cap  3:50
-03. Diskord  -  Out There  3:13
-04. Rochelle  -  All Night Long (Niam Blake Remix)  4:22(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
 ```
 
 

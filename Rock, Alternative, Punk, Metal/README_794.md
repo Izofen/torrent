@@ -1,3 +1,57 @@
+###  Публикация: 926224   (534957) от 09.08.2015
+
+VA - The Many Faces Of Pink Floyd - A Journey Through The Inner World Of Pink Floyd (2013) 3CD Set [FLAC|image + .cue]<Psychedelic Rock, Art Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из трёх дисков содержащий лучшие композиции группы Пинк Флойд, в исполнении выдающихся музыкантов прогрессив, арт рока.Записан членами групп King Crimson, Yes, The Doors, Toto, Asia и др.
+
+01. Adrian Belew (King Crimson) & Alan White (Yes) - Speak to Me / Breathe (5:35)
+ 02. Larry Fast (Peter Gabriel) & Alan White (Yes) - On the Run (3:17)(   Читать дальше...   )Жанр: Psychedelic Rock, Art Rock, Pop RockПродолжительность: 03:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280810C6AAB4C8F8F0752DBF01EEA036CE19BE1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155327   (534984) от 02.08.2017
+
+VA - Rock 'N' Roll America (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем недавно в релизе VA - Rock 'N' Roll Britannia (2016) я написал об истоках рока. Но как же вспоминая о них не вспомнить об американском роке (и ведь если совсем строго, то именно там рок и зародился). Поэтому логическим продолжением релиза (ссылка внизу раздачи) является ретроспектива первых рок'н'рольщиков Америки.CD1
+01. Bill Haley & His Comets - Rock Around The Clock  (2:12)
+02. Chuck Berry - Roll Over Beethoven  (2:25)
+03. Danny & The Juniors - At The Hop  (2:32)(   Читать дальше...   )Тип издания: Box Set, 3CDРелиз состоялся: 30 Aug. 2016Жанр: RockПродолжительность: 03:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E5844994472A6FD852569FD5C4CB2478B38C9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239779   (535000) от 07.08.2018
 
 Interstate Blues - Southern Lips (2000) Reissue, Unofficial Release [MP3|320 Kbps] <Hard Rock, Blues Rock>
@@ -635,60 +689,6 @@ The Waterboys - An Appointment with Mr Yeats (2011) Remaster, 2022, Cooking Viny
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B17C454A15710A45E981F3D106AA903516D1C2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557843   (535828) от 18.06.2022
-
-Collective Soul - Disciplined Breakdown (1997) Remaster, 2022, Craft Recordings [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious Declaration (3:42)
-02. Listen (4:13)
-03. Maybe (4:10)
-04. Full Circle (4:09)(   Читать дальше...   )Жанр: Alternative rock, Post-grungeПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1D7A3E984031BC78591A282989B5A3240F52AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557851   (535832) от 18.06.2022
-
-Oni - Loathing Light (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metalcore, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lie (3:17)
-02. Against My Sins (3:28)
-03. Secrets (feat. Iggy Pop and Randy Blythe) (4:47)
-04. Awaken (3:25)(   Читать дальше...   )Жанр: Progressive Metalcore, DjentПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16B65A5A8766CBDDA84E05B51375E7CBF1B07DA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1038344   (608711) от 27.07.2016
+
+VA - Zen Sounds Music For Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608711.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic & Denis Karpinskiy - They Wait For Us (Chillout Mix)
+002. Regression - When We Leave
+003. Seefeld Avec Mady - Ride On
+004. Chris Metcalfe & Jo Cartwright - Winter Sun (Moonnight Remix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58E63BBF92E4FDB4D5623B8FBF503127DE2C692
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038192   (608712) от 27.07.2016
 
 VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.1 (2015) [MP3|192-320 Kbps] <Chillout, Lounge, Ambient>
@@ -680,33 +707,6 @@ VA - Disco, Only the Best (2016) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353801800E1F0B35F64A868E81E2BFD407146F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296617   (610123) от 18.04.2019
-
-Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wannabe
-02. Viva Forever
-03. Let Love Lead The Way
-04. Right Back At Ya(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
 ```
 
 

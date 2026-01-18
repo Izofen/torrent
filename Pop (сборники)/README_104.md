@@ -1,3 +1,30 @@
+###  Публикация: 1009300   (809670) от 21.04.2016
+
+VA - The Best 80's Vol.1 - Maxi Version (2016) [MP3|192-320 кб/с] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Bedford - Tonight 05:12
+02. Eddy Huntington - Physical Attraction 05:01
+03. Bad Boys Blue - A World Without You (Michelle) (Remix) 06:20
+04. Mike Mareen - Love Spy (Night Mix) 08:42(   Читать дальше...   )Жанр: Pop, Eurodance, DiscoПродолжительность: 06:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6013174F1B423DB9A5F0E1CC65A4535D0CD11E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009421   (809908) от 21.04.2016
 
 VA - Весенняя Сенсация: Популярный Русский Микс (2016) [MP3|256 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Весенняя танцевальная вечеринка. Версия 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2304DAD5E223E23944A16A76167666F09D98E221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008144   (817457) от 17.04.2016
-
-Madonna - Like A (The Best of) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Like A Virgin.mp3
- 02 - True Blue.mp3
- 03 - Into The Groove.mp3
- 04 - Like A Prayer.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2938E12781ABD0AA52CF5810DE74E2D44AED05
 ```
 
 

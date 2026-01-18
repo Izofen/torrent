@@ -1,3 +1,57 @@
+###  Публикация: 1138353   (664497) от 29.05.2017
+
+VA - Deep-House Aloha Vol.1: 20 Summer Smoothies (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raviv - Good Together - Luca Minoli Suite Remix
+02. Bella Donna - Merge - Tunnel Mix
+03. Klod Rights - Amber Eyes - Original Mix
+04. NJ Producer - Hold Love - Germany Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF4FEC7A106674072573F489D9C5C5798E7D8A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138381   (664499) от 29.05.2017
+
+VA - Progressive Hits: May (2017) [MP3|320 Kbps] <Progressive House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlusion & Slam Duck - Lost Emotions (original mix) (07:10)
+02. Arthas - First Touch (original mix) (04:10)
+03. Andrey Plavinskiy - Starfall (Bobby Deep remix) (08:50)
+04. Following Light - Bulge (Ewan Rill remix) (06:50)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 01:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9660A4F8EE143C94CB3BDD0BDB9402CEF59B9030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138262   (664563) от 29.05.2017
 
 VA - Sensual Beach Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -638,60 +692,6 @@ ScAnDroid Experiment's - Erunt Omnia (2018) Авторская раздача [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74FCE00B9D79736B807C0B919AB94C1654754C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224324   (667184) от 09.05.2018
-
-VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Vicent Ballester - The Sound Of Nylo (Non Stop DJ Mix) [01:07:55]
-02 Studio Deep - Happy End (ft. Oli Head) (Original Mix) [04:57]
-03 DJ Ixsxi - Chasing Sunrise (Misharev Remix) [03:30]
-04 Medsound - I Dont Wanna Be In Love (Original Mix) [05:03](   Читать дальше...   )Жанр: Deep House, Nu Disco, DowntempoПродолжительность: 05:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E79592B2F750F7A69E57AEAC92DC9D5128BE7244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224217   (667236) от 09.05.2018
-
-VA - Selected Moments I (2008) Shoreless Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. bvdub - Glimpse Of Infinity (08:02)
- 02. Quantec - Interlude  (03:02)
- 03. Atheus - Adagio For Drone (08:35)
- 04. Quantec - The Rising Tide (06:40)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:655F16BEEB427299916DE5017AC6BE9D7C976A16
 ```
 
 

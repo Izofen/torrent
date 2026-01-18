@@ -1,3 +1,30 @@
+###  Публикация: 1145819   (619827) от 26.06.2017
+
+VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nature Meditation Academy - The True Nature Of Happiness  2:41
+02.  New Age Anti Stress Universe - Ambient Energetic Relaxation  2:52
+03.  Serenity Music Relaxation - Sanctuary Of Existence  3:13
+04.  Mothers Nature Music Academy - Bright And Shining Moment  3:17(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 03:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145076   (619829) от 26.06.2017
 
 VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
@@ -704,33 +731,6 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035707   (624489) от 18.07.2016
-
-VA - Me Before You / До встречи с тобой (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Jury - Numb (04:06)
-02. HOLYCHILD - Happy With Me (02:48)
-03. X Ambassadors - Unsteady (Erich Lee Gravity Remix) (03:24)
-04. Jessie Ware - Till The End (03:00)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281AEF1FBE9369D024B13D9612273BBF45E7360E
 ```
 
 

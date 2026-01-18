@@ -1,3 +1,30 @@
+###  Публикация: 1238414   (547110) от 29.07.2018
+
+VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. El Profesor, Hugel - Bella ciao (HUGEL Remix)
+003. Clean Bandit - Solo (feat. Demi Lovato)
+004. Drake - In My Feelings(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048158   (547142) от 01.09.2016
 
 VA - Музыка Хорошего Настроения на Ретро FM  (2016) [MP3|320 Kbps] <Pop, Disco, Retro>
@@ -674,33 +701,6 @@ VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047413   (549251) от 30.08.2016
-
-VA - 100 Dance Vol.2 (2016) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Flechette - Fallback
-002. Ostblockschlampen feat. Abaz & Talina Rae - Echo
-003. Wlady - Ginevra (Radio Edit)
-004. Bassjackers feat. Luciana - Fireflies (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28EBE4798AB0751244310BD6F33A7FB39B3BFB9
 ```
 
 

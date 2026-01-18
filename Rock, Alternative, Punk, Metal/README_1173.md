@@ -1,3 +1,312 @@
+###  Публикация: 622942   (955353) от 26.02.2013
+
+Сегодня Ночью (Сегодняночью) - 6 Альбомов (1999-2012) [MP3|256-320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лучшие годы нашей молодости (03:21)
+02. Именно (03:21)
+03. Нигилист (02:52)
+04. В ладонях осени (03:37)
+05. Ты вряд ли сможешь меня понять (04:03)
+06. Сентябрь (03:01)
+07. Вика (02:22)
+08. Sunshine (03:35)
+09. Цацки и шпильки (03:40)
+10. Не надо пить чай лица (04:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20292720DBE68FC7A1654753906E1F5657845767
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361468   (955641) от 19.02.2020
+
+Shakra - Mad World (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireline (3:51)
+02. Too Much Is Not Enough (3:42)
+03. A Roll Of The Dice (4:26)
+04. Mad World (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F990668ABED5114A5E7355825538716939468A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980464   (955696) от 29.01.2016
+
+Pink Floyd - The Dark Side Of The Moon (1973) 3rd Japan Issue [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955696.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me / Breathe In The Air 3:57
+2. On The Run 3:34
+3. Time 7:05
+4. The Great Gig In The Sky 4:47(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3E30CDCA48870F76EBA2AD86EE8D5B16E8BB29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361294   (955729) от 19.02.2020
+
+Этил - Яд - Этил - Яд (2020) [MP3|320 Kbps] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая горячка
+02. Сверхприбыль
+03. Странное виденье
+04. Черная принцесса(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C350BBB13595E3E01623047955F1BA713665936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 622932   (955801) от 26.02.2013
+
+Точка Росы - Два ветра (2002) [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Флоксы (02:20)
+02. Е2-Е2 (03:32)
+03. Далеко (02:24)
+04. Трамваи (02:43)
+05. Там (03:56)
+06. 300 шагов (03:55)
+07. Утоли (03:10)
+08. Ничего не изменилось (04:17)
+09. Два ветра (03:02)
+10. Небо в полруки (03:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534695   (955844) от 24.01.2014
+
+Ost+Front - 3 альбома (2012 - 2014)  Discography [MP3|320 кб/с]<NDH, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mensch
+02. Ost+Front 2014
+03. Sonne, Mond und Sterne
+04. Liebeslied(   Читать дальше...   )Жанр: NDH, Industrial Metal |Продолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DBD5D4E7B379C5A7C11DEA7222F16B0FF774E8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361513   (955911) от 19.02.2020
+
+Blind Ego - Preaching To The Choir (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Massive (05:25)
+02.Preaching to the Choir (06:06)
+03.Burning Alive (04:32)
+04.Line in the Sand (04:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61668B226DFC9764CE18D27D1ED768FD968645B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361474   (955912) от 19.02.2020
+
+Коrsика - Red (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955912.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На газ
+2. Боевик
+3. Танцуй
+4. Умереть молодым(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B098BF67B76966518CF5AC8D40980D2771030A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361529   (955914) от 19.02.2020
+
+Mariana Semkina (Iamthemorning) - Sleepwalking (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Matter                                                           [03:15]
+02. Am I Sleeping or Am I Dead                                            [04:27]
+03. Turn Back Time                                                        [04:08]
+04. Ars Longa Vita Brevis                                                 [03:03](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BADD9B2996EF4E459CD67BBF66772850E109A7C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361525   (955916) от 19.02.2020
+
+Kruel (Krüel) - Mud, Blood, Guts And Glory (2020) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cant You See [04:05]
+02. Coming N' Going [03:44]
+03. Not Coming Back [04:06]
+04. Misery [03:53](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A5CB5622EBA2098A9E729E5D8B9AE3DE0190A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361505   (955923) от 19.02.2020
+
+Guided By Voices - Surrender Your Poppy Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year of the Hard Hitter (04:01)
+02. Volcano (03:05)
+03. Queen Parking Lot (01:28)
+04. Arthur Has Business Elsewhere (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE4395793B3B176DAC66384B6B2A34FE1F510D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980357   (956017) от 29.01.2016
 
 U137 - Dreamer On The Run (2013) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Epic Instrumentals, Indie Rock>
@@ -398,303 +707,6 @@ Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2359C57F923DC400028254B828E8D9BC6C4000F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980209   (956392) от 29.01.2016
-
-Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956392.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Demon's Hunt
-2. Guardian Knight
-3. The Giant
-4. The Last of Light(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42741555EA74AA497626F3797C8B9BACE97EDECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361113   (956845) от 18.02.2020
-
-VA - 100 Greatest Heavy Metal Hits (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956845.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Metallica - Enter Sandman 5:31
-002. Slayer - Raining Blood 4:15
-003. Slipknot - Duality 4:13
-004. Rammstein - Du Hast 3:54(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 07:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D945EA86BC1371C67F01C7AF9FBD0ECFEC46C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980024   (956905) от 28.01.2016
-
-Пикник - Большая игра (2015) 3CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большая игра (03:55)
-02. Нет берегов (05:10)
-03. Египтянин (05:11)
-04. Немного огня (04:07)(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486B3F7F6A6A7FA44DAF8D1097E1B5FFEFADA7A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361104   (957069) от 18.02.2020
-
-VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biffy Clyro - Many of Horror
-02. Bad Company - Feel like Makin' Love (2015 Remaster)
-03. Starship - Nothing's Gonna Stop Us Now
-04. Faith No More - Easy(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361239   (957076) от 18.02.2020
-
-СадЪ - Ещё раз про любовь (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957076.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кино
-2. Ребро
-3. У Серёги
-4. Сиськи(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8436374786EC4514CB71B03B30612C9820B88A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979962   (957098) от 28.01.2016
-
-Linkin Park - Underground 15 (2015) [MP3|320 кб/с] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANIMALS (2011 Demo)
-02. Basil (2008 Demo)
-03. Pods 1 of 3 (1998 Demo)
-04. Pods 2 of 3 (1998 Demo)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A3C40A06E985C2607BC57E503A68F7F790F4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979916   (957336) от 28.01.2016
-
-The Casualties - Chaos Sound (2016) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Chaos Sound
-03. Visions of Greed
-04. Running Through the Night(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E4DF4FE67977D605C860C193F95F6C2926E2BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980286   (957344) от 28.01.2016
-
-Гевал - Скорбящий ангел (2016) EP [MP3|320 кб/с] <Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Олег Юргенс: «Скорбящий ангел» - это пять песен объединенных общей концепцией, написанный в тяжелый период моей жизни. Он посвящен ушедшим из жизни моим родным и друзьям. Я очень благодарен всем, кто поддерживал в это трудное для меня время.1. Млечный путь
-2. Чёрно-белое
-3. Скорбящий ангел
-4. Старик у моря(   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E08F13448C0E3EFB7608A2DC08D5829014B174D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979968   (957345) от 28.01.2016
-
-Orangefall - Orangefall (2016) [MP3|320 кб/с] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepest Prayers
-02. Brand New Morning
-03. Shy
-04. Never Let You Go(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC67AF028F281F8CC4821A3340B23142A1767EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979967   (957359) от 28.01.2016
-
-C.O.P. UK - No Place For Heaven (2016) [MP3|320 кб/с] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Core
-02. My Blood
-03. Kiss Of An Angel
-04. Take It To The Grave(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873E685E3B50DEEE347F0A70ECB352657A6C46E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979978   (957402) от 28.01.2016
-
-The Casualties - Die Hards (2001) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nightmare
-02 - City Council
-03 - Ruining It All
-04 - Get Off My Back(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7745355CF6B019B9AD0FA54D167BF03DDCA26903
 ```
 
 

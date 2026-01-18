@@ -1,3 +1,57 @@
+###  Публикация: 1046884   (551024) от 28.08.2016
+
+Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turns Out You're Not A Cowgirl After All 03:39
+02. Deadrie Fell's Dog Park Blues 04:01
+03. Future Wolf & The Gay Parisian Milk Incident 03:23
+04. House Fire In The Origami District 02:21(   Читать дальше...   )Жанр: Hard rock & BluesПродолжительность: 01:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F1800D933A661644E0407D7F66E4737D678AF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046725   (551028) от 28.08.2016
+
+Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive  04:04
+02. Let It Rain  03:07
+03. Run For Your Life  03:41
+04. The Innocent Ones  03:18(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F334ADDAA0E8FF77281E19EBB2567AE55F5E6EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309510   (551052) от 19.06.2019
 
 Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
@@ -641,60 +695,6 @@ The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237229   (552460) от 23.07.2018
-
-Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552460.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I'm Funky
-2. Road Fever
-3. Going To Canada
-4. Waitin' For My Ship(   Читать дальше...   )Жанр: Psychedelic Rock, BluesПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCD45ED92A4A1E780FD7C14EFEC90AFBE13D9B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237463   (552462) от 23.07.2018
-
-Bighorn - Bighorn (1978) Reissue, 1999, SME Records [MP3|320 Kbps] <Classic Rock, Art Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552462.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Penny For Your Dreams
-2. (I Love You) I'm Not Afraid Anymore
-3. Star Rocker
-4. Mary-Anne(   Читать дальше...   )Жанр: Classic Rock, Art Rock, AORПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76A592ADCA7FCF8CD1FADDB66CEB98EB6E5A9F8
 ```
 
 

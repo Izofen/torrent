@@ -1,3 +1,57 @@
+###  Публикация: 1044241   (567456) от 19.08.2016
+
+Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run
+02. Poor Old John
+03. Sonova Faith
+04. Loosen Up The Grip(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990FAD046DD45D0B77FDA7DC839DF7EB10EC5B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044206   (567460) от 19.08.2016
+
+Fatal Embrace - Slaughter To Survive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Upcoming Cruelty (Intro) 01:23
+02. Revelation 04:42
+03. Hellhounds 04:13
+04. Dungeons of Dread 04:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867D584F94B7137F4DC83F064A0A5EFFA2793E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044230   (567461) от 19.08.2016
 
 Amon Ra - We Never Said Good-Bye (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
@@ -641,60 +695,6 @@ Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922562   (568229) от 29.07.2015
-
-Desert - Never Regret (2015) [FLAC|image+.cue]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing The Prey
-02. Assassin's Fate
-03. Son Of A Star
-04. The Wolf’s Attack(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2F2AAFED0537CBDD717CB95DD9EBAFE385C529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922584   (568347) от 29.07.2015
-
-The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rondo (7:54)
-02.  she belongs to me (11:52)
-03.  Azrael revisited (5:55)
-04.  The thoughts of emerlist Davjack (4:14)(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7935ABBB4C7623939128FE97051545BDCB2FCD4
 ```
 
 

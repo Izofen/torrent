@@ -1,3 +1,57 @@
+###  Публикация: 1097193   (916036) от 26.01.2017
+
+VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mass Digital – The Wall (06:28)
+02. Maximiljan – This World (07:17)
+03. DJ Le Roi – Avoid (07:12)
+04. Darlyn Vlys & Forrest – ColoursЖанр: Tech HouseПродолжительность: 01:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097234   (916055) от 26.01.2017
+
+VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lamar Ensemble - Zero Hour  5:33
+02.  The Sura Quintet - Keep Me Company  6:05
+03.  Logophilia - Gaillardia  5:49
+04.  The Biosnakes - Sav  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097202   (916067) от 26.01.2017
 
 VA - River's Lounge: Stage Selection (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -638,60 +692,6 @@ VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F2B74F96BA7BC6D62A2D8D87E7F994D05DE3691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490289   (919025) от 20.08.2021
-
-VA - Cafe Italiano: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robertinho De Paula - Overjoyed (5:30)
-02. Massimo Faraò - Winchester Cathedral (3:03)
-03. Sergio Coppotelli - Summer Dream (5:49)
-04. Brava HitMakers - Pasos De Cero (In the Style of Pablo Alboran) (Tribute Version) (3:55)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DFE4D6F9F96F8AF55540C089D1A1EA8E49B39B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366994   (919130) от 14.03.2020
-
-VA - Goa Trance Vol.42 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flexus - Paradise (6:54)
-2. Serenity Flux - Bombay Sapphire (7:37)
-3. Orisma; Spinney Lainey; Dewaan - Creative Process (9:22)
-4. Entropia; Serenity Flux - Fluxtropia (7:32)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EB2A566B8A3CAA4B6BABE6230EC7AD62FDD95D
 ```
 
 

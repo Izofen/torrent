@@ -1,3 +1,246 @@
+###  Публикация: 1476741   (1011279) от 13.06.2021
+
+Joe Bonamassa - Now Serving: Royal Tea Live From The Ryman (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When One Door Opens
+02. Royal Tea
+03. High Class Girl
+04. Lookout Man!(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42B46D949F62972306B93EBCF853926B15900E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476944   (1011292) от 13.06.2021
+
+Tony Joe White - Smoke From The Chimney (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke From The Chimney (5:04)
+02. Boot Money (3:28)
+03. Del Rio, You’re Making Me Cry (4:25)
+04. Listen To Your Song (5:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75B4081C1D2FFF0C8C7E077863B70BEB35414F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476207   (1011853) от 10.06.2021
+
+Ella Fitzgerald - Sing Song Swing (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Home [4:30]
+02. Mister Paganini (Swings for Me) [4:19]
+03. How High the Moon [3:35]
+04. Old Mother Hubbard [1:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB665C82BF8B96DE9F3CDBFD57705E6D7D59E40D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476204   (1011854) от 10.06.2021
+
+Ella Fitzgerald - Best Of The BBC Vaults (1940 - 1949) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:46]
+02. Mack the Knife [4:05]
+03. Manhattan [3:14]
+04. Ev'ry Time We Say Goodbye [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77126BC2482F19407E4117A14AE714A39E96977B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475929   (1012025) от 09.06.2021
+
+Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outrospection [6:28]
+02. New Sunday [4:12]
+03. Dollah Hollah [3:31]
+04. Bridge to Nashua [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10867BA08B170D02C662AF5440AAD166986CE68B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475926   (1012027) от 09.06.2021
+
+Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evan's-ville [6:28]
+02. Love Me a Long, Long Time [2:51]
+03. My Brother Don [5:50]
+04. Christina [7:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049113   (1012119) от 08.06.2021
+
+VA - Casino Lights: Recorded Live At Montreux (1982) Warner[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Smooth Jazz, Jazz-Pop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Al Jarreau & Randy Crawford - Your Precious Love [05:48]
+ 02.Al Jarreau & Randy Crawford - Who's Right, Who's Wrong [05:15]
+ 03.Al Jarreau & Randy Crawford - Sure Enough [04:30]
+ 04.Randy Crawford Accompanied By Yellowjackets - Imagine [06:00](   Читать дальше...   )Жанр: Vocal Jazz, Smooth Jazz, Jazz-Pop, Jazz FusionПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CE266856FB0720C63EBE25284BCAA034A9422D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475746   (1012146) от 08.06.2021
+
+Lee Konitz & Gerry Mulligan - Konitz Meets Mulligan (1953) 1988, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Marvelous for Words [3:44]
+02. Lover Man [3:07]
+03. I'll Remember April [4:15]
+04. These Foolish Things [3:28](   Читать дальше...   )Жанр: CoolПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E903B3665A4AEC63CB33F61A4D4028E94E3C64B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475747   (1012155) от 08.06.2021
+
+Richie Cole & Art Pepper - A Piece Of Jazz History (1982) 2006, Jazz Excursion [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Alto Acres [6:26]
+02. Things We Did Last Summer [5:19]
+03. Art's Opus #2 [7:05]
+04. A & R [5:22](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561EBB1DC4CCBDC50475A44E3C57648DFFA01362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475748   (1012157) от 08.06.2021
 
 Richie Cole - Pure Imagination (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -450,249 +693,6 @@ VA - Smooth Jazz 2021 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9836D6625D382433A5A260F66F0950F27E268B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473593   (1013553) от 30.05.2021
-
-Marc Antoine - Something About Her (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013553.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Still In Love (4:11)
-2. Something About Her (feat. Brian Simpson) (3:26)
-3. Marco Polo (4:40)
-4. Groovy Sunday (3:47)(   Читать дальше...   )Жанр: Guitar Jazz, Smooth JazzПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6638F5BC235F05286E44C03DAF504ADDAA66C49E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473636   (1013569) от 30.05.2021
-
-David Kikoski With Boris Kozlov - Sure Thing (2021) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Flat Tune [6:02]
-02. E [6:45]
-03. Fugue From 'The Endless Enigma' [2:31]
-04. Strength For Change [9:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF464A1AD63E1AEFAF0EA39F4498A7422E0FF81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473422   (1013654) от 29.05.2021
-
-Tommy Z - Plug in and Play (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pumpin' (Let's Have Fun) (5:35)
-02. Tommy Guns (4:22)
-03. My Alarm Clock (4:08)
-04. Please Come Back to Me (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6319B2DD8E5BA9E9B461F9C2C719783D1BA3A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473418   (1013679) от 29.05.2021
-
-Rosalie Drysdale - Mumbo Jumbo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mumbo Jumbo (4:02)
-02. One More Chance (4:50)
-03. Kiss You Goodbye (4:24)
-04. Blurry in the Rain (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B03CAA3D3B9F2511F65374FC91D224B2BD6D220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473428   (1013723) от 29.05.2021
-
-Andy LaVerne - Rhapsody (2021) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waltz For Debby [9:14]
-02. Retroactive [6:36]
-03. My Foolish Heart [8:48]
-04. Autumn Leaves [5:42](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEC6BFA0F713022FE47568483E15B16D8774F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473105   (1013875) от 28.05.2021
-
-Carol Welsman - Dance with Me (2020) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and the Night and the Music (2:13)
-02. A Taste of Paradise (4:15)
-03. Femme Fatale (Amor Fugaz) (3:58)
-04. Dance with Me (Si Tu No Bailas Conmigo) (4:29)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5663765A1A03EA1B9C78CFF3DB3C6FE7A4287778
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473162   (1013884) от 28.05.2021
-
-Ella Fitzgerald - Ella Fitzgerald At Mister Kelly's 1958 (2017) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013884.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Your Red Wagon [3:00]
-02. Nice Work If You Can Get It [2:36]
-03. I'm Glad There Is You [2:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0468019204C4C00C58C37D3766958D6E18968637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473245   (1013888) от 28.05.2021
-
-Dawda Jobarteh - Northern Light Gambian Night (2011) [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Afro-Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Namo
-02.  Tama Silo
-03.   Bamba Bojang
-04.   Sama Kebbalu(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, Afro-BeatПродолжительность: 01:05:39.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BCDE1EB367A66F5A7CEC7B5F5919FB5767C519
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472925   (1014061) от 27.05.2021
-
-Benny Goodman - Florida Sessions (1959) 1992, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep [3:05]
-02. Sometimes I'm Happy [4:02]
-03. Rosetta [4:27]
-04. Dark Shadows [4:21](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6846B46B3C7B8851EB67CF34E96145184FA93940
 ```
 
 

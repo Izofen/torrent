@@ -1,3 +1,30 @@
+###  Публикация: 1219051   (717519) от 12.04.2018
+
+VA - Душевный шансон в хорошей компании (2) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Edik Salonikski & Elli Mouratidou - Улетим
+002. Вера Верба - Мы Будем Жить
+003. Федосей - Ведьмочка
+004. Олег Карпович - Истина(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712A0EB7917CE79AC4D1F150B1ACCC3AAE375CF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218965   (717527) от 12.04.2018
 
 VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
@@ -668,33 +695,6 @@ VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5FBCB06225BF76480A8009B7EBA71D379865F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531851   (718549) от 17.02.2022
-
-VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booker T. & The MG's - Green Onions (02:55)
-02. Pink Floyd - Alan's Psychedelic Breakfast (2011 Remastered Version) (13:00)
-03. The Spencer Davis Group - Gimme Some Lovin' (Single Mix) (02:58)
-04. Al Kooper - Stop (04:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1004489   (838622) от 06.04.2016
+
+VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Pasquini - Qoaster 05:01
+02. Tara Mcdonald Feat. Snoop Dogg - Vay-K (Adam Trigger Remix) 04:30
+03. Talemono - Overload (Radio Edit) 03:11
+04. Relika & Dj Turtle - Jungle Them 04:52(   Читать дальше...   )Жанр: Progressive, Club, House, Bigroom, TropicalПродолжительность: 08:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113214   (838628) от 11.03.2017
 
 VA - Vocal Drum & Bass Vol.11 [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <Drum & Bass>
@@ -662,33 +689,6 @@ Keb' Mo' - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB3C32A6FA046227D43257D02A5F096F0A19128
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112902   (839871) от 10.03.2017
-
-VA - Хиты в тачку. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Archi-M - Неприкасаемый 3:18
-002. Dельфина - Текила И Соль 3:20
-003. Александр Прокофьев - Милая 3:13
-004. Инфинити Feat. Гена Дудин - Воланчик 3:18(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEBD8D0539318DE6E48787514D156DC252AE4A0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1033914   (634360) от 13.07.2016
+
+Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will I Be Faithful? (radio edit)    04:06
+02.  Will I Be Faithful? (forever mix)    04:36
+03.  Will I Be Faithful? (heaven cut)    04:37
+04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519981   (635203) от 07.07.2012
 
 VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-песни и танцы Донских и Кубанских казаков - 3 Альбома (2008) [MP3|320 кб/с]<Folk Казачья песня>
@@ -724,39 +751,6 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519180   (639003) от 05.07.2012
-
-V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639003.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:19:19
-
-01. Pedro Del Mar - Playa Del Lounge (intro mix)
-02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
-03. The Movement - Rainmaker (Chillout mix)
-04. System F - Exhale (Tim Besamusca's Lounge mix)
-05. Steve Forte Rio - Blossom (Lounge mix)
-06. Hysteria - Talking Eyes (Chillout mix)
-07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 

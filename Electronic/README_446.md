@@ -1,3 +1,57 @@
+###  Публикация: 1109702   (857456) от 28.02.2017
+
+VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
+02.  Jens Mueller - Freshness (Original Mix)  7:18
+03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
+04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109598   (857458) от 28.02.2017
+
+VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anthony Spears - Lady  4:53
+02.  Jazz Lounge - Bass In System  4:59
+03.  Frank Tornell - Antologia  4:06
+04.  Steven Summers - Virgin Grooves  3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109597   (857460) от 28.02.2017
 
 VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
@@ -640,60 +694,6 @@ Marc Hartman - Walk the Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listeni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46EBCCBE246C31A9D638BE5A033989324CC43AD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376271   (860375) от 17.04.2020
-
-VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Adina Butar - Indestructible (Extended Mix) 6:39
-02. Solarstone & Orkidea - Slowmotion V (Extended Mix) 7:28
-03. Menno De Jong & Kristina Sky feat. Fiora - The Sun (Extended Mix) 7:51
-04. Cold Blue - Golden Leaves (Extended Mix) 7:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ElectronicПродолжительность: 02:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D12D6A8316147E3E4BBACED88A478F90E949F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376302   (860485) от 17.04.2020
-
-VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Speedmaster - We're Not Gonna Take It Anymore (Fitness Version) (3:56)
-2.Speedmaster - Pour Some Sugar on Me (Fitness Version) (3:09)
-3.DJ Kee - This Club Is Closed Forever (Fitness Version) (3:45)
-4.Speedmaster - You Wreck Me (Fitness Version) (3:53)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E16A72ABFFD379297139AF0624B254D33568C9
 ```
 
 

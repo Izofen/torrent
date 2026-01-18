@@ -1,3 +1,30 @@
+###  Публикация: 1469936   (1016099) от 14.05.2021
+
+Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Hypnosis, Nature Music (4:01)
+02. Above the Clouds (with Rain Sound) (3:13)
+03. Beyond The Mind (4:17)
+04. No Space (Flute) (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469997   (1016129) от 14.05.2021
 
 Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -670,33 +697,6 @@ magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457766   (1023462) от 31.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023462.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:52] 01. Themyscira
-[05:18] 02. Games
-[07:05] 03. 1984
-[04:56] 04. Black Gold(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:30:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6F9B061A998978472BB45B79C61637848BEE8D
 ```
 
 

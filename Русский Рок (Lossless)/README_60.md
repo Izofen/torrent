@@ -1,3 +1,57 @@
+###  Публикация: 1536954   (669323) от 15.03.2022
+
+Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue] <Speed Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Baptized By Smoke And Fire
+03. Green People Of Barsoom
+04. Exile King(   Читать дальше...   )Жанр: Speed Metal, Black MetalПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0B85E6F284403A356DD637A77704920AB32902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 678311   (669643) от 11.07.2013
+
+Мураками - Моя (2013) [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_669643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет [03:22]
+ 02. Бред [04:03]
+ 03. Догвилль [03:32]
+ 04. Андеграундная тётя [03:56](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509961   (670204) от 14.06.2012
 
 Константин Никольский - Мне только снится жизнь моя (2004) [FLAC|Lossless]<Rock>
@@ -659,57 +713,6 @@ Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4931C05E0EBBA828D157A3AD0AF13361D0B64145
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402938   (698032) от 16.08.2020
-
-Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Птицы [00:04:18]Жанр: Progressive Metalcore, Groove MetalПродолжительность: 4 CD, 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61A4BE59D0E445DC279CFC9DC8F5F8F3CE828B66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132379   (698495) от 10.05.2017
-
-Браво - Бравоспектива (2017) 2xCD [FLAC|Lossless|tracks+.cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698495.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Двойной CD, в котором представлены все наши песни, вся история группы «Браво» в песнях. Плюс два трека, которые никогда не издавались. Там будет песня, которая должна была войти в саундтрек к фильму «Асса», но не вошла по разным причинам. И совершенно случайно она обнаружилась у одного из московских меломанов. Также на этом сборнике «Бравоспектива» будет песня, (   Читать дальше...   )01. Этот город (3:07)
-02. Это за окном рассвет (3:20)
-03. Ветер знает (3:31)
-04. Вера, надежда, любовь (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F20463C162591ECBAA69E9BBB1BE3D0A86564D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1095357   (924458) от 21.01.2017
+
+VA - Снежный хит-парад. 100 русских хитов. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924458.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Моника - Корпоратив 3:08
+002. Evidelle - Ну Почему 3:40
+003. Александр Шоуа - Я Там Где Ты Оставила Меня 3:46
+004. Megirov - Стану Твоей Тенью 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE67005BE056F30809563BFB599B09F48355A07F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095353   (924462) от 21.01.2017
 
 VA - Снегопад новинок. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - I Put A Spell On You — Mesmerising Jazz (2014) [MP3|320 кб/с] <Jazz,Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A938E77FC5CD2A1C573A11DA744A19F4F472002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987375   (925904) от 17.02.2016
-
-VA - Jazz Electro Swing (2016) [MP3|320 kbps] <Electro Swing Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925904.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avelino - Monday Morning
-002. Mano Meter - Puppet on a String
-003. Stereo Swing - Champagne Swing (feat. Gabi Szucs)
-004. Hiroshima - Shine(   Читать дальше...   )Жанр: Electro Swing JazzПродолжительность: 08:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C7DED08EA5CE395B1C94E3D2B25D90072AC1F6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1351766   (1001049) от 14.01.2020
+
+VA - German Top 100 Single Charts 10.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Weeknd - Blinding Lights (3:21)
+2.Tones and I - Dance Monkey (3:29)
+3.Apache 207 - Roller (2:38)
+4.Regard - Ride It (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 05:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5FFF4E5DF4CBE4A8EDAC305B812E154627418A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351111   (1002663) от 08.01.2020
 
 VA - The Best Caucasian Hits (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Dance, Pop, Lyric>
@@ -668,33 +695,6 @@ VA - Killer Sound: Hardstyle Mixtape (2021) [MP3|320 Kbps] <Hardstyle, Hard Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F48BDE62C6BEC569F43223822B3CE41580ED86E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474649   (1012806) от 03.06.2021
-
-VA - Русское Радио. Лучшее 03.06.2021 (2021) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amri - Звезда Тик-Ток
-002. Bulava & Mischa - Ближе
-003. Burito - Острова
-004. DIP Project - Случайная(   Читать дальше...   )Жанр: ПопПродолжительность: 06:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF8C3F153147A18738126C3ECB302D091FD39FA
 ```
 
 

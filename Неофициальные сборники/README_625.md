@@ -1,3 +1,30 @@
+###  Публикация: 1363325   (943700) от 27.02.2020
+
+VA - Beatport Progressive Trance: Electro Sound Pack #15 (2020) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ontune - Toronto
+002. Andy Elliass - Octagon (Extended Mix)
+003. Anoikis, Jerom - Breath Of Life
+004. Cold Face & Dj Geri - Monarch (Extended Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198B20FBCD4F0819E1E63776B62842D53F8D733F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363293   (943702) от 27.02.2020
 
 VA - Beatport Trance: Electro Sound Pack #14 (2020) [MP3|192-320 Kbps] <Techno>
@@ -679,33 +706,6 @@ VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363102   (944932) от 26.02.2020
-
-VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944932.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luther Vandross  -  Any Love (Single Mix)
-002.  Peabo Bryson  -  Closer Than Close
-003.  Earth, Wind & Fire  -  That's The Way Of The World
-004.  The Isley Brothers  -  Between The Sheets(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 10:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE01F47CA3F69F90803E425B890846C2AD044F7F
 ```
 
 

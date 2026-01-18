@@ -1,3 +1,55 @@
+###  Публикация: 1370633   (895143) от 28.03.2020
+
+Steve O'Sullivan & Mike Schommer - Submerged (2020) Mosaic [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dub Techno>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Submerged (Deepchord Negative-space Exploration Version) (09:05)
+ 02. Submerged (Original Mix) (07:31)Жанр: Dub TechnoПродолжительность: 00:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFFB8CDC65F33F9369E50CF77918A65C6790305
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370754   (895190) от 28.03.2020
+
+Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Arthur Project - Intro
+02. DJ Arthur Project - Лето Уйдёт
+03. DJ Arthur Project - Моя Луна (Radio edit)
+04. DJ Arthur Project - Обернись(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6487F02FCEEF6870BF011F2B807D0CB740AEB2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370710   (895201) от 28.03.2020
 
 Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|320 Kbps] <Trance>
@@ -651,60 +703,6 @@ VA - Ausklang Entspannung Spa (2016) [MP3|256-320 кб/с] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FFFC828363BBCC8754065DF93310582CFA8EACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101023   (897916) от 05.02.2017
-
-VA - Goa 2017 Vol.1 (Compiled By DJ Bim) (2017) [MP3|320 Kbps] <Trance, Psychedelic, Full On>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Static Movement - Sian  8:48
-02.  Sirion - As You Are (Ellinio & Orisma Remix)  8:10
-03.  Orisma - Balance Of the Universe  7:50
-04.  Microlin - What I Really Need  8:29(   Читать дальше...   )Жанр: Trance, Psychedelic, Full OnПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D018917F2D503CF663B373B96282048C2B416392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100944   (897938) от 05.02.2017
-
-VA - Chill Soul (Life + Love + Relax) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mauri J - Ceppo Statico
-02. Lounge Dreamers - Borabora
-03. Guido Mandreoli - Synth My Bell
-04. Novo Som - Acapulco Express(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 03:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C9DEF8C41BE88D140F93BA01666E3D5879FE1D
 ```
 
 

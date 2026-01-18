@@ -1,687 +1,672 @@
-###  Публикация: 1203540   (788218) от 02.02.2018
+###  Публикация: 1205829   (782971) от 12.02.2018
 
-Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
-02. 3 Is Family 3:39
-03. Got To Give Me Love 4:10
-04. Show Me 4:03(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE5890999212FF326A144ACE94F1A5727F2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276410   (788219) от 16.01.2019
-
-VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
-002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
-003. The Regrettes - Don't Stop Me Now
-004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276401   (788220) от 16.01.2019
-
-Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ma Mama
-02. Naleki
-03. Youwile
-04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276592   (788221) от 16.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Her Future Ghost
-02. Tonal Axis - Rainfall (Monoverse Remix)
-03. Louis Botella - Sueno Latino (Paradise Slave Mix)
-04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276413   (788222) от 16.01.2019
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maite Kelly - Die Liebe Siegt Sowieso
-02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276610   (788223) от 16.01.2019
-
-VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Surok & AirLab7 – Urabe Mikoto (Original Mix)
-02. Varsente – Athena (Original Mix)
-03. Blue Moon & DreamLife – Last Farewell (George Crossfield Emotional Remix)
-04. Sothzanne String – Live Your Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF9EDA52421DA856201AF053E0279FD0E27CB73C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276583   (788224) от 16.01.2019
-
-Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle of Arcane Might (5:07)
- 02. Powerwind (5:17)
- 03. Guardian of the Seas (5:39)
- 04. Flight of the Sapphire Dragon (5:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276391   (788225) от 16.01.2019
-
-Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alger 69
-02. Day by Day
-03. My Girlfriend
-04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276348   (788226) от 16.01.2019
-
-Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust And Dirt (04:06)
-02. Die Sonne Innere (08:00)
-03. Acid Kiss (06:41)
-04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276603   (788227) от 16.01.2019
-
-VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anden State - Dogma (Extended Mix)
-02. Formal One - Neon City (Original Mix)
-03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276598   (788228) от 16.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
-02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
-03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
-04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276460   (788229) от 16.01.2019
-
-VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
-02. Eros Pandi - Second Chances (Radio Mix) 2:43
-03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
-04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276492   (788230) от 16.01.2019
-
-Money Pro 2.0.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEC44C6B8CDDFB89AE675B5980AD2F3EA65F129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276409   (788231) от 16.01.2019
-
-VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788231.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Altson 45 - Back To You
-002. Clarv - Blizzard
-003. Savoir Adore - When The Summer Ends (Rac Mix)
-004. Bbno$, Y2k, Lewis Grant - Thankful(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3BA139987C8179F64F9469E282BDBBEC5898F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276589   (788232) от 16.01.2019
-
-VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grandaddy - Alan Parsons in a Winter Wonderland (02:59)
-02. The Dandy Warhols - Little Drummer Boy (03:12)
-03. The Webb Brothers - Every Day Is Christmas (02:55)
-04. Eels - Everything’s Gonna Be Cool This Christmas (02:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DD6B7AC4362CD5DE30A614B3283CD8BB4C7003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276576   (788233) от 16.01.2019
-
-Suffocation - Human Waste (1991) EP, 1994, Relapse Records [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infecting the Crypts (4:38)
- 02. Synthetically Revived (3:38)
- 03. Mass Obliteration (4:29)
- 04. Catatonia (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5A9576FCDBF253444AE242397AA60BAA43A939
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276471   (788234) от 16.01.2019
-
-KCNcrew Pack 01-15-19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788234.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9238CF9CB909F5CF4CF9054E961DB2D105910D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276482   (788235) от 16.01.2019
-
-Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock With You [6:59]
-02. Blues For McCoy [6:36]
-03. Little Mary [6:39]
-04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276596   (788236) от 16.01.2019
-
-Disgorge (US) - Cranial Impalement (1999) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deranged Epidemic (3:07)
- 02. Atonement (3:18)
- 03. Cognative Lust of Multilation (2:41)
- 04. Period of Agony (3:15)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146FF9AE43C9B9F3854EED2ECAB2AC08684BE978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203142   (788237) от 02.02.2018
-
-А. Янтарев | Тактика ВКП(б) по отношению к буржуазным и мелкобуржуазным партиям (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из основных задач брошюры — показать, как меньшевики, являвшиеся уже с момента возникновения РСДРП чистейшими оппортунистами, силою вещей должны были сами превратиться, и превратились, в одну из мелкобуржуазных партий, полностью перейдя в лагерь врагов рабочего движения.
-
-Специальная глава брошюры посвящена изложению, правда, по необходимости очень краткому, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD831DE9A0041AE5AEC409B62114D66ACE0BEDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203519   (788238) от 02.02.2018
-
-VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+VA - Underside 5 LP (2018) [MP3|320 Kbps] <Drum & Bass>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cosmic Tone  -  Spirit Technology (Original Mix)  7:28
-02.  Static Movement & Mindwave  -  Sources (Original Mix)  8:14
-03.  Arunarush  -  Reactivate (Original Mix)  7:28
-04.  Juiced  -  Under The Rain (Original Mix)  5:20(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+01. Block Control - Collaps [4:58]
+02. Fatloaf & oneBYone - Roller [4:14]
+03. Paimon & Place 2b - Complete Me [4:39]
+04. Limtek - July [4:28](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:05:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+magnet:?xt=urn:btih:BE6BD393483C0A372165BEA13BD06F3746759A2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203279   (788239) от 02.02.2018
+###  Публикация: 1205744   (782972) от 12.02.2018
 
-VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+О. Танин, Е. Иоган | Военно-фашистское движение в Японии (1933) [PDF]
 
->>Electronic
->>Trance
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788239.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  Feel  -  The Nutcracker (Original Mix)  3:27
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Hamzeh & Ahmad Ai  -  Lachrymose (Original Mix)  3:56(   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:34:25
+Предлагаемая работа двух советских востоковедов представляет большую научную и политическую ценность. Военно-фашистское движение Японии является одним из тех механизмов, которые должны перевести Японию из состояния скрытой в состояние открытой мировой империалистической войны. Знание этого фугаса, заложенного на Дальнем Востоке под дело мира, является необходимым. (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86D1BAAF1DB7DC988F9F2799ACD69DD1AD7262E6
+magnet:?xt=urn:btih:2638DD40BCDE89AC9A18C15F15E2FF6FBFC7B214
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203550   (788240) от 02.02.2018
+###  Публикация: 1205925   (782973) от 12.02.2018
 
-Freddy  Johnson  And  His  Orchestra - 1933 - 1939 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Финал (10.02.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps] [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782973.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 15:35 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Прыжки с трамплина.
+Мужчины. Трамплин HS-109. Финал(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: Английский, ИнтершумСубтитры: отсутствуютПродолжительность: 03:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14432A9722A47018B0FD5152C2FE0FC2BF5FCD00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205917   (782974) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Конькобежный спорт. Женщины. 3000 м (10.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782974.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 14:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Конькобежный спорт. 1-й День соревнований:
+Женщины. 3000 м(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBF72AA01E42AC17C3AE51CE9D545E5E9A4AF56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205750   (782975) от 12.02.2018
+
+Владимир Ермилов (сост.) | Воля [Сборник] (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы и стихи для среднего и старшего школьного возраста.Жанр: Детская проза, СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E0C17D272AB2A3F7132E7B37E3B637DC633EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206071   (782976) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 6-й тур. Швейцария — Южная Корея (10.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782976.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 6-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D83117B7AC57A4BD250C8C96DEC23EFCBCB364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205995   (782977) от 12.02.2018
+
+VA - 2003 Hands (2003) Hands Productions [FLAC|Lossless|tracks+.cue] <Noise, Experimental, Industrial>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ah Cama-Sotz – Quatrâlh (04:29)
+02. Ah Cama-Sotz – Ôm-Rach (01:53)
+03. Ah Cama-Sotz – Zmeü-Kh (Part II) (08:44)
+04. Synth-Etik – N_Loop (04:08)(   Читать дальше...   )Тип издания: CDЖанр: Noise, Experimental, Industrial •Продолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:301922C6A2C966E876CED8A2070A82078EED20F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206064   (782978) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 6-й тур. Норвегия — США (10.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782978.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 февраля 2018 года, суббота. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 6-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE78C5F617CC6B0252FF70D668B2109B8566FEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206082   (782979) от 12.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 7-й тур. Норвегия — Китай (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782979.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 февраля 2018 года, воскресенье. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 7-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEB14638EB72EF78E1218BA02F47AD4EF86FD10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206111   (782980) от 12.02.2018
+
+Sherri Roberts - Anybody's Spring (2017) Pacific Coast Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788240.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sing About The Swanee [03:18]
-02. My Baby's Gone [02:59]
-03. Sweet Georgia Brown [03:11]
-04. Foxy And Grapesy [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:15
+01. It's Anybody's Spring [05:34]
+02. Spring Sprang Sprung [06:15]
+03. They Say It's Spring [05:25]
+04. It Might as Well Be Spring [05:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DC06924F764E70F95A85063ECCD107B95A59DE3
+magnet:?xt=urn:btih:817A538AFD3BDD52221CB3C039B736A143C2241E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502252   (788241) от 22.11.2021
+###  Публикация: 1205806   (782981) от 12.02.2018
 
-Avira Phantom VPN Pro 2.37.4.17510 RePack by elchupacabra [Multi/Ru]
+VA - Bigroom Miami Smasher Vol.3 (2018) [MP3|320 Kbps] <House, Big Room, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blaster Maxter  -  Armageddon (Original Mix)  5:47
+02.  Bassjunx  -  Carnival (Original Mix)  5:07
+03.  Leopardgecko  -  Yogurt (Original Mix)  6:01
+04.  DoranSilver  -  Portal (Original Mix)  4:00(   Читать дальше...   )Жанр: House, Big Room, ClubПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4570314F2788782296FBBF87E557E232ED5A30DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205544   (782982) от 12.02.2018
+
+VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Warren Clarke & Tara McDonald - Love Crazy (Triple D remix) (6:59)
+02.Disco International - Ready 4 More (feat Miss Lynsey) (5:06)
+03.No Halo - What Is This Feeling (7:43)
+04.Wawa & Herd - The Right Way (feat Amanda Wilson - Triple D remix) (6:39)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205552   (782983) от 12.02.2018
+
+VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DJ Neo - Groove With You (feat Soraya Vivian - Soulgangsters Groove dub) (6:33)
+02.Jonni Black - I'm Over This (feat Lauren Rose) (7:18)
+03.Steven Quarre & Morris Mavado - The Reason (feat Stanford) (7:01)
+04.Sosua & Mad - Supaconstellation (7:32)(   Читать дальше...   )Жанр: House, Disco, ElectroПродолжительность: 02:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205960   (782984) от 12.02.2018
+
+VA - Deep Booty House Vol.1 (2018) [MP3|320 Kbps] <Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archion – Don’t Lose Control (Instrumental Mix) 3:25
+02. Betamine – Eyes (Original Mix) 3:31
+03. Deepoow – Yep (Original Mix) 6:07
+04. Dimix – State Of Mind (Vocal Mix) (Feat. Taylor William) 4:19(   Читать дальше...   )Жанр: Future HouseПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7F99141E76FD498D6D94F908B07C41D7071AF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380886   (782985) от 15.06.2020
+
+Navitel / Навител: Официальные карты релиза Q1 2020 [Ru]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
+• Это первое обновление в 2020 году. Поэтому и пишут 2020-Q1
+• Вышли они в свободный доступ 02.05.2020.
+• Карты для Навител обновляются 3 раза в год.
+• Актуальные карты для программы Навител(   Читать дальше...   )Релиз состоялся: 02.05.2020Разработчик: NavitelПоддерживаемая ОС: Android, WinCEЯзык интерфейса: Ru/MultiФормат: nm7
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26EACFCE872905CB1B6363675A49F9C1B4C66CA8
+magnet:?xt=urn:btih:473DEBB4CB633DB01A6DEF822813C4CCAE6BF128
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093424   (788242) от 22.11.2021
+###  Публикация: 671950   (782986) от 15.06.2020
 
-F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Дополненное издание]
+Kuroshitsuji / Black Butler / Темный дворецкий [2008, TV, 24 ep] BDRip 720p Raw+Eng+Rus x4(int)
 
->>3
->>След.
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-F.E.A.R. 2: Project Origin — продолжает популярную серию шутеров от первого лица F.E.A.R. Вас снова ждет захватывающий, пропитанный ужасом сюжет, всепоглощающая атмосфера постоянного необъяснимого страха, реалистичная детализированная графика, новое суперсовременное оружие и множество безжалостных врагов.
-Вечно молодая наводящая ужас девочка Альма вырывается из разрушенной (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action (Shooter, Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+Мистическая, с чёрным юмором и детективным уклоном пародийная комедия на тему взаимоотношений господина и слуги. Альтернативная Англия XIX-го века, роскошное поместье графа Фантомхайва, дружная компания нерасторопных слуг, над которыми возвышается (во всех смыслах этого слова) безупречный Себастьян. Юный граф Сиэль любит разные игры, и многочисленные способности (   Читать дальше...   )Жанр: комедия, мистика, историяРежиссер: Синохара ТосияСубтитры: Формат: MKV
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
+magnet:?xt=urn:btih:6467C518C0ABA748B3FFFFED1CA9BF77D07A30CE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 641155   (788243) от 22.11.2021
+###  Публикация: 271343   (782987) от 15.06.2020
 
-Стервятники / Scavengers (2013) HDRip [VO]
+Генрих Наваррский / Henri 4 (2010) DVDRip (серии 1-2 из 2)
 
->>След.
->>Зарубежные Фильмы (SD)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788243.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_782987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научно-фантастический фильм про космических искателей «ничейных» товаров, энергии и сокровищ. Когда команда под предводительством Эмерсон находит инопланетный Генератор Хаоса, их ждет неприятная встреча с бывшим партнером — злобным капитаном Джекелем.Производство: США, California PicturesЖанр: фантастика, боевик, триллерРежиссер: Трэвис ЗаривныАктеры: Шон Патрик Флэнери, Джереми Лондон, Луиз Линтон, Келли Вилден, Джэми Стрэйндж, Марк Выстрач, Расселл Ричардсон, Тайлер Поэлль, Джон Ли Амес, Pavlos SkountzouПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 01:33:27
+После смерти матери королем Наварры провозглашается Генрих, и вскоре он женится на Маргарите Валуа, известной как «королева Марго». Брак этот политический и имеет целью примирение католической и протестантской партий, которые ведут кровавую борьбу за землю и власть.
+Свадьбу празднуют несколько дней, которые заканчиваются жестокой расправой над протестантами — Варфоломеевской (   Читать дальше...   )Производство: Германия, Франция, Австрия, Испания / Ziegler Film & Company, Banijay Studios France, Institut del Cinema Català (ICC)Жанр: драма, история, биография, войнаРежиссер: Йо БайерАктеры: Жюльен Буасселье, Йоахим Круль, Андреас Шмидт, Рохер Касамахор, Армель Дойч, Хлоя Стефани,
+Свен Пиппиг, Сандра Хюллер, Ханнелоре Хогер, Ульрих НётенПеревод: Многоголосый профессиональныйСубтитры: Русские (отдельными файлами)Продолжительность: 01:28:27 + 01:26:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:562A88AADEE5ECEA09809D1EC0E279804A0D104D
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346516   (782988) от 15.06.2020
+
+Семён Афанасьев | «Доктор» [5 книг] (2019-2020) [FB2]
+
+>>След.
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл «Доктор» книги 1-5.
+
+Где-то в другом мире отряд из 25 десантников неверно оценивает свои силы, "вязнет" в "обороне" и вместе с собой подрывает ТЯ-боеприпасом остров, с которого идёт в эфир очень мощная трансляция сигнала, которую нужно прекратить (как кажется) любой ценой.
+Последний двадцать пятый человек отряда, который активировал подрыв, (   Читать дальше...   )Жанр: Социальная фантастика, Героическая фантастика, Альтернативная история, попаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6342153752267F3B78AB4E8FFD654C508C828EC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389323   (782989) от 15.06.2020
+
+Gabriel Dropout | Габриэль Бросает Школу [2017, TV, 12 ep + 2 OVA] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет об одной выдающейся ученице академии ангелов по имени Габриэль. После выпуска всех ангелов отправляют на Землю, чтобы они могли познать людскую жизнь. Возложив большие надежды, руководство академии отправляет Габриэль на Землю для выполнения важной миссии. Однако по прибытии она очень удачно знакомится с видеоиграми. Так удачно, что те постепенно (   Читать дальше...   )Производство: Doga Kobo, ЯпонияЖанр: КомедияРежиссер: Ота МасахикоОзвучка: Двухголосая, Многоголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 12 Эпизодов по 23 Мин; 2 Эпизода по 15 Мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DEAD722F87DF2BA7A95D68F59ED522588EA005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390368   (782990) от 15.06.2020
+
+Giorgio Costantini - Universound (432 Hz) (2012) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alba Mundi: The Sound of the Planets (432 Hz version) (3:07)
+ 02. Life (432 Hz version) (2:46)
+ 03. Stardust - (432 Hz version) (3:18)
+ 04. Perdutamente (432 Hz version) (3:48)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EE87121340583ACD1DC4F37FD22243E75789CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390471   (782991) от 15.06.2020
+
+VA - Зайцев.нет Лучшие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Astrid S - Dance Dance Dance (2:39)
+2. Big Russian Boss & Young P&H - Монстр (2:07)
+3. CYGO - Что потом (2:11)
+4. Noize MC feat. Damilola Karpow - Давай Сбежим (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979901B6B684AFDF40A7E246C4A070D94742D276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390016   (782992) от 15.06.2020
+
+Алекс Райдер / Alex Rider (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) SDI Media
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_782992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Алекс Райдер узнаёт, что его дядя погиб при исполнении, и что он был английским шпионом (а его смерть не стала результатом несчастного случая, несмотря на то, что Алексу всегда говорили), для обычного во всех отношениях подростка всё меняется. На него выходит Алан Блант, руководитель засекреченного отделения спецслужбы МИ-6, и сообщает, что Алекс уже прошёл (   Читать дальше...   )Производство: Великобритания, США / Eleventh Hour Films, ITV - Independent Television, Sony Pictures TelevisionЖанр: Боевик, триллер, приключения, семейныйРежиссер: Андреас Прохаска, Кристофер СмитАктеры: Отто Фаррант, Стивен Диллэйн, Вики МакКлюр, Эндрю Бакан, Брэнок О’Коннор, Ронки Адеколуэхо, Эйс Бхатти, Томас Левин, Марли Сиу, Халук Бильгинер и др.Перевод: Многоголосый профессиональный (SDI Media)Субтитры: РусскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390453   (782993) от 15.06.2020
+
+Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 Enterprise LTSC v1809 17763.1282, включающая в себя 8 русских и 8 английских редакций x86/x64, с обновлениями по 06.2020, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5299235342609D1887B74BD8D413BA6A61939D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390388   (782994) от 15.06.2020
+
+Агент Лев / Le lion (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психиатр пытается понять, в чём проблема его нового пациента: тот утверждает, что он секретный шпион международного уровня по кличке Агент Лев. Но когда на глазах доктора похищают его невесту, ему ничего не остаётся, как обратиться за помощью к этому странному «спецагенту».Производство: Франция / Бельгия, Monkey Pack Films, TF1 Studio, PathéЖанр: КомедияРежиссер: Людовик Кольбо-ЖюстенАктеры: Дани Бун, Филипп Катрин, Энни Серра, Самуэль Жуи, Софи Вербек, Кароль Брана, Бенуа Петре, Аксель Устун, Матью Ларду, Оливье СаПеревод: Многоголосый закадровый,  любительский (AlphaProject)Субтитры: ОтсутствуютПродолжительность: 01:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580B5E1014A195847BDC0FB85CD34D1F9E292231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390395   (782995) от 15.06.2020
+
+Услышь меня (2019) WEB-DL [H.264/1080p-LQ] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782995.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летний городской мальчик Вася вместе с родителями и старшей сестрой приезжает в деревню, в которой чудом уцелело несколько домов. Оставшиеся немногочисленные жители деревни живут без света, связи и прочих благ цивилизации. Но это совсем не мешает им быть счастливыми. Васю и его сестру ждут невероятные, захватывающие (   Читать дальше...   )Производство: Россия / СИБИРЬ ФИЛЬМЖанр: Приключения, драма, фантастикаРежиссер: Василий КузовлевАктеры: Тимур Хасанов, Ирина Алибекова, Евгений Мелядин, Марина Кузовлева, Шамиль Дайтов ...Субтитры: ОтсутствуютПродолжительность: 02:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F068A002F2EB76EB2FF862012A60F1C2C7E9A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390367   (782996) от 15.06.2020
+
+Убийственная команда / The Kill Team (2019) BDRemux [H.264/1080p]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_782996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой американский солдат попадает в Афганистан. Поведение старшего сержанта раскачивает моральные устои парня, а война ставит перед ним дилеммы, которые он должен разрешить здесь и сейчас.Производство: Испания, США / Marc Graue Recording Studios: Voiceover and Post, Nostromo Pictures, Temple Hill EntertainmentЖанр: Боевик, триллер, драма, военныйРежиссер: Дэн КрауссАктеры: Александр Скарсгард, Нат Вулф, Адам Лонг, Джонатан Уайтселл, Брайан «Сене» Марк, Ози Икхайл, Роб Морроу, Анна Франколини, Оливер Ричи, Йен Кейр АттардПеревод: Дублированный (iTunes)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:27:32
+
+## Скачать торент
+```bash
+нет
 ```
 
 

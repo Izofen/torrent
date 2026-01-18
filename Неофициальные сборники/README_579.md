@@ -1,3 +1,30 @@
+###  Публикация: 1106125   (873649) от 19.02.2017
+
+VA - German Top 100 Single Charts 17.02.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker)
+003. The Chainsmokers - Paris
+004. Ed Sheeran - Castle on the Hill(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F0C667AB260AF86E5A0C19AB8B84D14CD7B39F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106049   (873651) от 19.02.2017
 
 VA - Лучшие блатные хиты года. Выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
@@ -680,33 +707,6 @@ VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496157   (874631) от 16.09.2021
-
-VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merol - Vol (02:42)
- 02. AMMNNEZI - Пьяная Мадам (02:51)
- 03. AMRAX feat. Тестостерович - Курим Кальян (02:39)
- 04. Anette Olzon - Sad Lullaby (05:20)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD14227C242E1D2CD1F9765657D911FAED3FB717
 ```
 
 

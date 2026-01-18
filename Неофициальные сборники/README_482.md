@@ -1,3 +1,30 @@
+###  Публикация: 1018002   (759017) от 18.05.2016
+
+VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred V & Grafix - Constellations
+ 02. Mona (Ex. Монокини) - Слушай Сердце
+03. Илья Гуров - Знаешь Я Скучаю
+04. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57E6E62EA4B941056E33A5D36D957F52B736E86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017925   (759088) от 18.05.2016
 
 VA - Союз XXXL - Весенний Драйв (2016) [MP3|320 кб/с] <Pop, Dance, Disco, Rock>
@@ -665,33 +692,6 @@ VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:261D202BF478B31ADFD3BD30654CC1F04D075707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522250   (760343) от 06.01.2022
-
-Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Gipsy Wanderer
-02. It's Goodbye
-03. No Tears Anymore
-04. Lonely is the Night(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D00C07F53EF89C5E4B3E57CE74681ABD0999C4
 ```
 
 

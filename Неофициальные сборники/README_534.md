@@ -1,3 +1,30 @@
+###  Публикация: 1505337   (802843) от 28.10.2021
+
+VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альянс - На Заре (ИИ Gertrudda Edit) (8:59)
+02. Electric Youth - Modern Fears (Pilotpriest Come True Version) (4:03)
+03. DRYVE - The Fading Light (4:01)
+04. Turbo Knight & Vosto - Celestial (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3EA705A33AE9CC00C0E350478DC16C8893E755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198981   (802849) от 14.01.2018
 
 VA - Record Super Chart #519 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -669,33 +696,6 @@ VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010208   (804308) от 24.04.2016
-
-VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5Beat feat. Irina Makosh - Legend (Maglev Remix) 05:32
-002. 63S - Surround Me (Original Mix) 05:41
-003. Adip Kiyoi & Cari - Deeper Into You (Original Mix) 05:32
-004. Ahmed Romel - Kenopsia (Extended Mix) 08:14(   Читать дальше...   )Жанр: TranceПродолжительность: 11:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
 ```
 
 

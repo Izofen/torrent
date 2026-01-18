@@ -1,3 +1,30 @@
+###  Публикация: 1226528   (654706) от 21.05.2018
+
+VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
+002. Loewenhertz - Irgendwann
+003. Run Vaylor - Disco Cross
+004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226531   (654711) от 21.05.2018
 
 VA - Music Live (2018) [MP3|320 Kbps] <Pop>
@@ -717,48 +744,6 @@ VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515248   (655634) от 26.06.2012
-
-VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655634.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
-002 Мира - Пока, Пока Мой Мальчик (Leo.k Remix)
-003 Gravitonas - Call Your Name
-004 Градусы - Не Надо Париться
-005 Roxette - It's Possible (version One)
-006 Kishe - Город (Dub Makers Remix)
-007 Black Eyed Peas - The Time (Dirty Bit) (Afrojack Remix)
-008 Ирина Билык И Ольга Горбачева - Люблю Его (Remix)
-009 Ferry Corsten - Check It Out(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:30:18
-01 Время и Стекло - Серебряное море (DJ Melloffon radio edit)
-02 Joe Made - The Ring (Original mix)
-03 БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
-04 Blackman feat. MC Freedom - Bring me down
-05 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
-06 The Crystal Method feat. The Heavy - Play For Real (Dirtyphonics remix)
-07 MM Dance - Отдыхаем (Dj Alfred extended mix)
-08 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
-09 Lika Star - Точка росы (Tone Project club mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
 ```
 
 

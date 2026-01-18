@@ -1,3 +1,30 @@
+###  Публикация: 1367214   (912018) от 18.03.2020
+
+VA - Foreign Disco Of The XX Century From Ovvod7  - 2019 (01-10) (2019) [MP3|320 Kbps] <Rock, disco, pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magazine 60 - Rendez-Vous Sur La Costa Del Sol ( Maxi-Single 1985 )
+02. Numero Uno - Tora Tora Tora ( Extended Version 1984 )
+03. Green Ice - Gigolo ( 1987 )
+04. Max Him - No Escape ( 12'''' Version 1984 )(   Читать дальше...   )Жанр: Rock, disco, popПродолжительность: 13:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA6D05A593133AD9875A8013429EDE70AD14A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368018   (912031) от 18.03.2020
 
 VA - Kiss FM: Top 40 [15.03] (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -680,33 +707,6 @@ VA - Axe Bahia 2017 (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A875D9F905148526C15D70579D392C0EC76A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096695   (917751) от 25.01.2017
-
-VA - Лучшие зимние хиты года. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917751.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mamikon - Отойди 2:42
-002. Craig David - Warm It Up 3:11
-003. Женя Отрадная - Губы 3:04
-004. James Arthur - Remember Who I Was 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D09BCA19676E0EFB91C395696527DEB45B76429
 ```
 
 

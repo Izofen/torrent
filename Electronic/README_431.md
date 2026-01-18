@@ -1,3 +1,57 @@
+###  Публикация: 1008124   (817601) от 17.04.2016
+
+Karma Fields - New Age | Dark Age (2016) [FLAC|Lossless|tracks] <Drum n Bass, Dubstep, Electro>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Edge of the World
+02.  Stick Up (feat. Juliette Lewis)
+03.  For Me
+04.  Skyline(   Читать дальше...   )Жанр: Drum n Bass, Dubstep, ElectroПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69334D2FC982B608621AF51A405E312B688D9A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503701   (817636) от 20.10.2021
+
+VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Force - Born For This (Fitness Version) (05:03)
+02. DJ Kee - Get Busy (Fitness Version) (04:21)
+03. D'Housemasters - House Arrest (Fitness Version) (04:37)
+04. DJ Kee - Blood Is Pumpin' (Fitness Version) (04:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A43AE9D507BF50CFAB88267EE29A7591EA99FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197115   (817698) от 06.01.2018
 
 VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -639,60 +693,6 @@ VA - Blue Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B6E9F602E77195185C4B6F1DF4F58B59F49D81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117331   (819376) от 22.03.2017
-
-VA - Chill Vibes On Air (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda - Festa Do Sol  5:05
-02.  Enrico Donner - Something New (Feat. Theresa Thomason)  4:37
-03.  Cane Garden Quartet - 2 Steps To The Sun  5:42
-04.  Solanos - Estranha (Feat. Adriana Macedo)  5:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304EF21F34111FB9599848AA0F71F9C3E5CE05BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117353   (819378) от 22.03.2017
-
-VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sendoo - Drinks At The Bar  3:42
-02.  Breeze - Spectral Sonic (Extended Mix)  4:06
-03.  Jay Benson - Touch  5:31
-04.  Premeson - Save Me (The Ironix Remix)  5:49(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15226BDAC63AA02C6B72AB226548D33629B4ABEF
 ```
 
 

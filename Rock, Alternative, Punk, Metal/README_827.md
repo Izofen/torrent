@@ -1,3 +1,111 @@
+###  Публикация: 922171   (571876) от 27.07.2015
+
+Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rail road bill (1:50)
+02.  Sex beat (2:12)
+03.  She's Like Heroin To Me (3:08)
+04.  Devil in the woods (2:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555211   (572111) от 02.06.2022
+
+Bleed from Within - Shrine (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Melodic Death Metal, Groove Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Damnation (4:42)
+02. Sovereign (3:35)
+03. Levitate (4:31)
+04. Flesh And Stone (4:10)(   Читать дальше...   )Жанр: Melodic Death Metal, Groove Metal, MetalcoreПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221BA859AC6693011FE7A11CCBCED4B9690BFC28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555078   (572115) от 02.06.2022
+
+Ancient Door - A Tribute to (Music from) The Elder (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fanfare (00:01:32)
+02 - Just a Boy (00:03:07)
+03 - Only You (00:04:49)
+04 - Under the Rose (00:05:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B41C849CEE4A32C778ED8068BDA89822324E73B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555226   (572348) от 02.06.2022
+
+Tedeschi Trucks Band - I Am The Moon: I. Crescent (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear My Dear (5:35)
+02. Fall In (5:48)
+03. I Am The Moon (5:14)
+04. Circles 'Round The Sun (6:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010D69F1A4ED7C6AFB66E00535E4C05E397BD7F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043307   (572349) от 16.08.2016
 
 Jon Bon Jovi - Destination Anywhere (1997) Japanese Edition, 1999 [FLAC|Lossless|tracks + .cue] <Rock>
@@ -586,114 +694,6 @@ Asylum - Psalms of Paralysis (2017) [FLAC|Lossless|tracks + .cue] <Technical Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCD7DCDA3FADF052B78D62D2E91B592AF28FC28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303117   (573033) от 21.05.2019
-
-The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way In (02:41)
-02. Put Some Miles On (04:00)
-03. Black Light (04:40)
-04. Bullet Holes (04:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303110   (573097) от 21.05.2019
-
-Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Dakota Sky (04:51)
-02. Mystery Lady (05:07)
-03. Everytime (05:15)
-04. Kentucky Heartbreak (03:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528053   (573190) от 28.07.2012
-
-Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Up (4:18)
-02. Native Blood (5:21)
-03. Dark Roots Of Earth (5:45)
-04. True American Hate (5:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0055484BA7D577A1BD4A6F54CA9602C24D7692E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921953   (573244) от 26.07.2015
-
-Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of Steel
-02. Warriors Of The World United
-03. Return Of The Warlord
-04. Fighting The World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FA36CD4A9CC52A801D42D1566D9004E8704C68
 ```
 
 

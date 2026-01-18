@@ -1,668 +1,663 @@
-###  Публикация: 818245   (796953) от 27.04.2016
+###  Публикация: 1201806   (791449) от 26.01.2018
 
-Percussion Bullet - Future Accommodation (2006) [FLAC|Lossless]<Progressive Trance>
+Сергей Самаров | Зачеркнутому верить (2017) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796953.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Transparent Thought (7:06)
-02. Wool Gather (7:22)
-03. Music Is Our Future (7:15)
-04. Project (Remix for Iraklis and Dimitri) (6:46)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:12:57
+Череда роковых событий преследует капитана спецназа ГРУ Максима Онучина. Вертолет, на котором он летел в Моздок, расстреляли свои; на фуру, подобравшую Максима после приземления, напали бандиты, переодетые в полицейскую форму; местный спецназ пытался штурмом взять военный городок, где находился капитан. Только благодаря хорошей боевой подготовке Максиму удалось выйти (   Читать дальше...   )Жанр: БоевикиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97C5CACD64B8FC526DC604E8991345D98C5F1CE1
+magnet:?xt=urn:btih:8986BA76ABED52604503AF70019C6D602C2CC9BB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200012   (796954) от 19.01.2018
+###  Публикация: 1201803   (791450) от 26.01.2018
 
-Журнал | Золотые рецепты наших читателей №1 (январь 2018) [PDF]
+Сергей Самаров | Тату с координатами (2018) [FB2]
 
->>Журналы
->>Кулинарные журналы
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796954.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+Взвод старшего лейтенанта ГРУ Геннадия Сеголетова воюет с исламскими экстремистами в горах Кавказа. В ходе одного из боев спецназовцы уничтожили бандитского эмира с необычной татуировкой на руке. Спустя некоторое время на телах убитых боевиков обнаружены еще две похожие татуировки. Древние арабы таким образом обозначали географические координаты. У разведчиков появилась (   Читать дальше...   )Жанр: БоевикиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADA0E273D0DCED96DD6263B34F4BAF1CB063306F
+magnet:?xt=urn:btih:3D8D3EB4323CD1DF2867DD3CA7C76E4AB22463A3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011090   (796956) от 27.04.2016
+###  Публикация: 1510475   (791451) от 16.11.2021
 
-Ричард Старк | Паркер (Книга 05). Ограбление (2016) [MP3, Сергей Пухов]
+Артуро Перес-Реверте | Кожа для барабана (2021) [MP3, Владимир Голицын]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совершить дерзкое ограбление, захватив при этом целый город — в таком деле профессиональному вору Паркеру участвовать еще не приходилось. Он вносит коррективы в предложенный план налета, сокращает количество участников, закупает оружие и транспорт. Операция идет успешно, но за полчаса до ее окончания неожиданно раздаются взрывы, гибнут люди, начинается пожар...Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 06:34:01
+Неизвестный хакер проникает в личный компьютер Папы римского и оставляет сообщение о севильской церкви, которая «убивает, чтобы себя защитить». Секретная служба Ватикана отряжает в Севилью эмиссара по особым поручениям, и отец Лоренцо Куарт погружается в хитросплетения церковной политики и большого бизнеса. Он вынужден не только вести детективное расследование, но (   Читать дальше...   )Жанр: Зарубежный детектив, Исторический детективПеревод: Наталья КирилловаПродолжительность: 18:01:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:341208BDABE2D4BA0C9813C94C73F673AB102A3B
+magnet:?xt=urn:btih:5C400E25ECBCABD35D933F8E891F566093BE2E65
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 828674   (796957) от 19.01.2018
+###  Публикация: 1510468   (791452) от 16.11.2021
 
-Virulent - 3 Альбома (2012-2017) [MP3|320 кб/с]<Progressive Deathcore, Djent, Experimental>
+Николай Лейкин | В собачьем мире (2021) [MP3, Станислав Федосов]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2012 - The Great Destroyer
-2014 - Empire
-2017 - New PlaguesЖанр: Progressive Deathcore, Djent, ExperimentalПродолжительность: 02:06:00
+Две повести, объединённые общими героями, и герои эти – не люди. Автор «Наших за границей» пишет на этот раз о собаках. Вот только вопросы, которые их волнуют, и отношения их друг к другу совсем уж человеческие...Жанр: Русская классика, Юмористическая прозаПродолжительность: 10:21:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF6BA62BEAA18DCB28F6C0B1A0CC3D02B293C85
+magnet:?xt=urn:btih:A401C3923A4B19A59D381F03427114B6FACB8D35
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199996   (796958) от 19.01.2018
+###  Публикация: 1510412   (791453) от 16.11.2021
 
-Kev Spencer - .​.​. For Reasons Unknown (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Ways (03:02)
-02. Bluesman (04:07)
-03. They Call It The Blues (03:14)
-04. Funky Kinda Stride (03:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B419E53196F83ABD525201D10C39F5533940E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011273   (796959) от 27.04.2016
-
-Cyberfox 46.0 for AMD + Portable [Ru/En]
+DesktopOK 9.33 Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796959.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
+DesktopOK - небольшая бесплатная и портативная (не требующая установки) программа, предназначенная для сохранения и восстановления местоположения иконок на рабочем столе. Утилита запоминает настройки для различных пользователей, позволяет сохранять позицию иконок для разных разрешений экрана, автоматически скрывает и отображает иконки, а также умеет сворачивать все (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF05DE9861DB18EF396BBF9B464D1D5EED935E9E
+magnet:?xt=urn:btih:48D259D86E6D4B46FF343CB615AF26459017B1BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011216   (796960) от 27.04.2016
+###  Публикация: 1510454   (791454) от 16.11.2021
 
-Картинки - Подборочка настроений 1920x1080 - 7360x4912 30шт-часть 2 [JPG]
+Fancy - Locomotion (2021) [AAC|~336 Kbps] <Pop, Disco>
 
->>Графика, Арт, Разное
->>Картинки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796960.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборочка настроений на каждый день, приятного просмотра!)Формат: JPGРазрешение файлов: 1920x1080 - 7360x4912
+01. A Voice In The Dark (4:00)
+02. Die For You (3:14)
+03. Fools Cry (3:16)
+04. Pretty Woman (2:53)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CBEE6A499754CE9AC96A89086E919B293BC2EF4
+magnet:?xt=urn:btih:3CC25FDBCF28E80B5BC660C80E301682926F5F25
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200043   (796961) от 19.01.2018
+###  Публикация: 1510450   (791455) от 16.11.2021
 
-VA - Sun:Sets 2018 (Selected by Chicane) (2018) [MP3|320 Kbps] <Deep House, Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halftribe  -  Outward Momentum (Original Mix)  2:59
-02.  Thomas Datt  -  The Edge (Original Mix)  4:11
-03.  Alex Blest  -  Fragments Of Bliss (Magdelayna Chilldown Mix)  4:10
-04.  Tontario  -  Late (Original Mix)  4:16(   Читать дальше...   )Жанр: Deep House, Progressive House, TranceПродолжительность: 02:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44B59C3D40D268210357AA6E0D80CE07CBEAA91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199960   (796962) от 19.01.2018
-
-XMedia Recode 3.3.9.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796962.jpg" />
-</div>
-
-
-###  Подробнее
-
-XMedia Recode - отличная утилита, цель которой - помочь Вам преобразовать видео почти любого формата в видео, совместимое с мобильными телефонами, плеерами, портативными носителями, игровыми приставками. Дружественный интерфейс позволит Вам сориентироваться в функционале и возможностях программы. XMedia Recode способна производить изменение размеров кадра видео, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892D6EA9479BD75E51CDBEF54A9E141FB9DD6B53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011094   (796963) от 27.04.2016
-
-Журнал | Вязание ваше хобби. Cпецвыпуск №2 EXTRA KIDS (2016) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вязать для детей - одно удовольствие. В новом выпуске вас ждёт новая коллекция детских вязаных вещей. «Вязание — ваше хобби» — журнал по вязанию на спицах. В этом выпуске: вязаная мода для детей от немецких дизайнеров. Модели на любой вкус, для девочек и мальчиков, для самых маленьких и постарше, на любое время года, для дома и прогулок на свежем воздухе. Стильные (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E293C5F4F3DA2268E35BCDE94665B2858067A98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200037   (796964) от 19.01.2018
-
-Navicat Premium 12.0.21 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.
-
-Navicat Premium совмещает в себе функции других приложений Navicat. При наличии соединений, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2018Разработчик: PremiumSoftПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D62877AA8CCF295AB9EF3860E00233313EA337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011367   (796965) от 27.04.2016
-
-Жириновский (2016) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный документальный фильм Игоря Кожевина к 70-летию одного из самых ярких политиков современности позволит зрителю заглянуть за кулисы жизни лидера ЛДПР. Владимир Вольфович сам откроет двери своего дома и кабинета, объяснит, что в обстановке из детства, почему он хранит Библию и требует, чтобы его поручения выполняли бегом. Что скрывается за его эпатажем, (   Читать дальше...   )Телекомпания: Россия, ВГТРКЖанр: ДокументальныйПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0597395E862EC8C23B2B5F617EC678EBD3CB6A83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011392   (796966) от 27.04.2016
-
-Фальшивомонетчики. Гении и злодеи (2005) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796966.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 70-е годы Виктор Баранов сделал поддельные 25 рублей, очень близкие по качеству к Гознаку. 12 лет он создавал у себя в сарае собственный Гознак, а когда его поймали - получил 12 лет с конфискацией имущества. Владимир Гуринов напечатал пятирублевку в конце 80-х. Примерно через десять лет химик-технолог из Пензы сумел сделать фальшивые 500 рублей. Несмотря на то, (   Читать дальше...   )Телекомпания: Россия, Кинокомпания "Восьмой этаж", ФГУП ГТК "Телеканал "Россия"Жанр: ДокументальныйПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7C4931F9CAC81950EC8AF2216B72328DB03818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200009   (796967) от 19.01.2018
-
-Журнал | Цветники в саду №2 (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный и очень полезный журнал для тех, кто действительно любит жизнь, для всех ценителей красоты и любителей цветов, будь то садоводы-любители или профессионалы, владельцы небольших участков или современных коттеджей. Журнал станет незаменимым помощником при проектировании и разработке цветников, поможет вам правильно подобрать цветы и растения для оформления (   Читать дальше...   )Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2038688D7B22477E4BDA68971D96A547AD46BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200086   (796968) от 19.01.2018
-
-Coolmuster iOS Assistant 2.0.133 RePack by вовава [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Coolmuster iOS Assistant – это менеджер iPhone, способный экспортировать фотографии, песни и другие типы файлов с iPhone на компьютеры. Он также может выполнять обратную операцию для пользователей, которые хотят заполнить свои устройства iOS новым контентом с жесткого диска. Передавайте фотографии, сообщения, контакты, фильмы и другие типы файлов между iPhone и компьютерами, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091839AC1954C4451DB424C11914EBB5C7C7CBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200133   (796970) от 19.01.2018
-
-VA - Deep House Hits (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lost Frequencies & Zonderling  -  Crazy (Extended Mix)  3:28
-02.  Loud Luxury  -  Body (feat. Brando) (Extended Mix)  3:36
-03.  Sultan + Shepard  -  Almost Home (feat Nadia. Ali & IRO) (Melosense Extended Remix)  4:31
-04.  Armin van Buuren feat. Vera Ostrova  -  What If (feat. Vera Ostrova) (Extended Mix)  8:03(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555343FFEF90494834EAD8074A93531D5607EBBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199970   (796971) от 19.01.2018
-
-Rameses B - Spacewalk (2018) [MP3|320 Kbps] <Chillout, Drum & Bass, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nycto
-02.  Orbit
-03.  Lunar
-04.  Heal Again (feat. Ghost Wars)(   Читать дальше...   )Жанр: Chillout, Drum & Bass, AmbientПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EDD71881E2F82FD7E4977F0867F659B04414EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200101   (796972) от 19.01.2018
-
-Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Pop, Indie Pop>
+Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796972.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Alternative Pop, Dream Pop, Indie Pop, Synth PopПродолжительность: 00:42:22
+01. Objection (Tango) (3:44)
+02. Underneath Your Clothes (3:45)
+03. Whenever, Wherever (3:16)
+04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F449DC556E25F2723B6D63317C04C53D20B46D
+magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200011   (796973) от 19.01.2018
+###  Публикация: 1510245   (791456) от 16.11.2021
 
-VA - Tech House For Runing: House Garden Music (2018) [MP3|320 Kbps] <Club, Dance, Tech House>
+Rod Stewart - The Tears Of Hercules (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time (3:58)
+02. Gabriella (3:33)
+03. All My Days (3:37)
+04. Some Kind Of Wonderful (3:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C94B84AD6E74B026D66C380F5E76D38D9BBFF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510354   (791457) от 16.11.2021
+
+VA - Music News vol.148 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796973.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Hammer - Rails
-002. Five T - Graale (Guido Schneider Remix)
-003. Florian Carpentier - Lulumatata (Asem Shama Remix)
-004. Nils Hoffmann - Storms(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 11:49:23
+01. Jelly Nide - Зависимость (03:31)
+ 02. Alyona Poli - Стекло (02:37)
+ 03. Andrea Crocicchia - In The Silence (02:10)
+ 04. Anitta - Envolver (03:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:08:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8893EDB01135ED26F31102727212C20DA2BE4E41
+magnet:?xt=urn:btih:AAAE8B7898261649EB17DF25477B9AE8095BBA1B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200124   (796974) от 19.01.2018
+###  Публикация: 1510369   (791458) от 16.11.2021
 
-para bellvm - Сердцебиение (2017) [MP3|320 Kbps] <Dark Rock, Gothic Rock, Post Punk>
+Роман Шиян | Рота вирусов и батальон бактерий. Книга о детских инфекциях (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791458.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ребенок заболел! Что делать?!» — с этим вопросом сталкивается каждый родитель, порой, по несколько раз в год. Причиной для беспокойства может стать температура, кашель, насморк, красное горло или боль в животе. Когда дело касается ребенка, важно действовать быстро и правильно. И, самое главное, спокойно, без тревог.
+
+Роман Шиян — врач-педиатр с более чем десятилетним (   Читать дальше...   )Жанр: Педиатрия, Популярно о медицинеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A820FD4189610C58C74F3639BCE4506DDD678B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510295   (791459) от 16.11.2021
+
+Оружейный барон / Lord of War (2005) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители братьев Орловых, старшего Юрия и младшего Виталия, покинули Украину и обосновались в Америке, на Брайтон-Бич, где открыли маленький ресторанчик. Дети же не рвались идти по родительским стопам. Юрий, раздумывая, чем заниматься, пришел к выводу: самое выгодное — торговать оружием. Потому что в мире, переполненном агрессией, оружие никогда не бывает лишним. (   Читать дальше...   )Производство: Франция, Германия, США / Entertainment Manufacturing Company, VIP 3 Medienfonds, Ascendant Pictures, Metro-Goldwyn-Mayer (MGM)Жанр: боевик, драма, криминалРежиссер: Эндрю НикколАктеры: Николас Кейдж, Бриджет Мойнэан, Джаред Лето, Шейк Тухманян, Жан-Пьерр Ншанян, Джаред Бурк, Эрик Уйс, Дэвид Шамбрис, Стюарт Морган, Джаспер ЛенцПеревод: Дублированный, двухголосый профессиональный, авторский одноголосыйСубтитры: русские, английскиеПродолжительность: 02:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9172CFF0043C3D9292CDA14FD7682D3BBA0C39B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510393   (791460) от 16.11.2021
+
+VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton, Merge Of Equals - Beautiful (4:26)
+02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
+03. Brass, Alessio Ventura, Dario Benedetti - Ordinary World (Cover) (6:12)
+04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513BE017AB8601E6F115A62B1AEBD8336465F49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510312   (791461) от 16.11.2021
+
+Смешанные единоборства. UFC Fight Night 197: Макс Холлоуэй - Яир Родригез / UFC Fight Night 197: Holloway vs. Rodriguez. Prelims & Main Card (13.11.2021) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791461.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 ноября в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC Fight Night 197. Главным событием которого стал бой в полулегком весе между Максом Холлоуэй и Яиром Родригезом. Макс Холлоуэй в декабре 2019 года уступил австралийцу Александру Волкановски единогласным решением судей и потерял пояс чемпиона UFC в полулегком весе. Промоушен решил, (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3596EABA7B63CD4101647A68041E12A054B38A59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510391   (791462) от 16.11.2021
+
+VA - Mediterraneo 4 by Billy Esteban (2021) [AAC|~331 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cafe De Anatolia, Bob Zopp - Barceloneta Beach (4:23)
+02. ThroDef, Michalis Koumbios, Thomas Konstantinou - Kos (4:34)
+03. Cafe De Anatolia, Billy Esteban, Alex Mihalakis - Halkidiki (6:38)
+04. Cafe De Anatolia, Bob Zopp - Gothic Quarter Street Music (5:50)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398311366EBA45320AC57B02028C84F4CCF96CB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510400   (791463) от 16.11.2021
+
+VA - Study With Relaxing Jazz (2021) [AAC|~334 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lo Greco Bros Quartet - In A Sentimental Mood (5:50)
+02. Papik, Peter De Girolamo - Sunny (3:48)
+03. Paolo Sessa, Polose - The Moon (3:53)
+04. Gazzara - Berimbau (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:28:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28ED8A57CBA560C919C95E98103C1B5B8829424
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510413   (791464) от 16.11.2021
+
+VA - Dark Sessions Live At The Recoverworld Club Lounge (Mixed by Chris Hampshire) (2021) [FLAC|Lossless|WEB|tracks|image] <Tech Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Downey - Grade A (Mandy Reid Remix) (7:26)
+02. Danny Oliveira - Drop It Your Love (John O'Callaghan Remix) (7:21)
+03. Cristian Ketelaars - Tank (Original Mix) (6:59)
+04. Craig Forsyth - Salamanca's Bell (Original Mix) (6:14)(   Читать дальше...   )Жанр: Tech TranceПродолжительность: 03:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD4D2E66488813ADBD343C7A84E788555F47F65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510488   (791465) от 16.11.2021
+
+VA - Deep In Chill: Instrumental House (Irma Dancefloor Chill House Selection) (2021) [AAC|~321 Kbps] <Deep House, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penford, Pearson - Let The Sun Shine Thru (5:36)
+02. The Love Mods - Mystify (DJ Umbi Instrumental Vision) (4:14)
+03. Belladonna - Melodies (Belladonna Parfumed Remix) (7:00)
+04. G.Pantelidis - Mindscapes (6:24)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A308B0E580D713AB23C66C9B61DEB6828CF77B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510323   (791466) от 16.11.2021
+
+Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796974.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Голод
-02. Саламандра
-03. Победитель
-04. Чужая любовь (feat. Анны Лыхмус)(   Читать дальше...   )Жанр: Dark Rock, Gothic Rock, Post PunkПродолжительность: 00:37:14
+1. One More Time
+2. Gabriella
+3. All My Days
+4. Some Kind Of Wonderful(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38F4A83A0B33948A5740ECE8AD6B94BE2BB4110E
+magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508685   (796975) от 09.11.2021
+###  Публикация: 1510409   (791467) от 16.11.2021
 
-VA - Airport Lounge, vol. 10 (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+Factor B - Theatre of the Mind (2021) [FLAC|Lossless|WEB|tracks] <Trance, Progressive House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796975.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Oberhon, Ideo Hijima - A Quiet Place (Original Mix) (5:30)
-02. NsE - Purple Rain (Original Mix) (3:58)
-03. Rex Kramer - Margarets Hope (Original Mix) (4:48)
-04. Dig It All, Rahul Talwar - There Is Snow (Original Mix) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:21:00
+01. Factor B & Highlandr - Fading Into You (5:45)
+02. Factor B, Highlandr & Susie Ledge - Don't Hide (6:21)
+03. Factor B & Highlandr - Feel Surreal (6:45)
+04. Factor B & Arielle Maren - Connected (Highlandr's Sunday Morning Mix) (6:18)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 02:06:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFCB5661E6EF3D335946B8A79B3F9FC9AFFDA584
+magnet:?xt=urn:btih:31621F0C2ECFEB10A4140D55106F102574AF76EA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508670   (796976) от 09.11.2021
+###  Публикация: 1510379   (791468) от 16.11.2021
 
-VA - Airport Lounge, vol. 6 (2015) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Trance Pioneers (2021) [FLAC|Lossless|WEB|tracks] <Trance>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796976.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pnfa - Along the Way (6:01)
-02. Yiddu Delhi - Tender Touch (4:28)
-03. Tranquillo - Elaborated Compassion (4:32)
-04. Hijos De La Playa - Playa D'en Bossa Jam (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:12
+01. John Askew - Bad Apple (Original Mix) (7:32)
+02. John Askew - Z List Uber Star (Reaky Remix) (6:21)
+03. John Askew & John O'Callaghan - Game Over (John O'Callaghan Remix) (9:05)
+04. Manuel Le Saux - Reflex (Activa Intro Rework) (6:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81C42D879C250597A131323621E09C08F84F0330
+magnet:?xt=urn:btih:87AF016A1243BE2110210FD7E521432DFB322E75
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508683   (796977) от 09.11.2021
+###  Публикация: 1510375   (791469) от 16.11.2021
 
-VA - Airport Lounge, vol. 9 (2020) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+И снова жить (Второе рождение) / Hwajang / Revivre (2014) BDRip [H.264] [DVO]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796977.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Twentyeight - Stars (Original Version) (5:52)
-02. Dreamhunter - Illusion (Original Mix) (4:15)
-03. Dub Mars - You Give Me the Honor (Original Mix) (4:19)
-04. Counterweight - Close to You (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:49
+О Сан Мо — вице‑президент крупной косметической компании и верный и любящий муж. Он пользуется огромным авторитетом среди своих подчинённых. Когда он узнаёт, что его жена больна раком, О Сан Мо не бросает свою жену, а ухаживает и заботится о ней. Каждый день после работы он идёт в больницу. Даже через четыре года такой утомительной жизни он всё еще не сдаётся (   Читать дальше...   )Производство: Южная Корея, Myung FilmsЖанр: драмаРежиссер: Лим Гвон-тхэкАктеры: Ан Сон-ги, Ким Гю-ри, Ким Хо-джон, Пак Чон-щик, Чон Хе-джин, Ким Бён-чхун, Ким Ги-чхон, Мин Гён-джин, Хан И-джин, Ан Сок-хванПеревод: любительский двухголосый (АрхиAsia)Субтитры: русские (АрхиAsia), английскиеПродолжительность: 01:33:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55B7DD79CB839CF55DB81332F7AC09392B3126DC
+magnet:?xt=urn:btih:A386CA62492EBDFDBA80AE052C360C932CAACC65
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508681   (796978) от 09.11.2021
+###  Публикация: 1510273   (791470) от 16.11.2021
 
-VA - Airport Lounge, vol. 6 (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+Architects (UK) - For Those That Wish To Exist (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock, Metalcore, Post Hardcore, Arena Rock>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chambre 19 - La Pluie d'eté (Original Mix) (5:59)
-02. Tranquillo - As Days Go By (Original Mix) (6:42)
-03. Black Orpheus - Touching the Sky (Original Mix) (3:55)
-04. Weathertunes - Down the River (Original Mix) (6:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:33:23
+01. Do You Dream Of Armageddon! [00:01:38]
+02. Black Lungs [00:03:51]
+03. Giving Blood [00:03:32]
+04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Post Hardcore, Arena RockПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A5E425F3B4BA9EDE41E21C0E6BC3207FCCB8A59
+magnet:?xt=urn:btih:C5F2514D78A2CA538CC396EB4099CADEF41179E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508660   (796979) от 09.11.2021
+###  Публикация: 1140891   (791471) от 09.01.2019
 
-VA - Airport Lounge, vol. 3 (2014) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+Dragon's Dogma: Dark Arisen (2016) [En] (1.0.0.18) License GOG
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796979.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bessie Boni, Gianna Partner - Mystic Revelation (5:01)
-02. B & W - U Feel 4 U (4:37)
-03. Middle - Warm Sunset (4:51)
-04. Didascalis - Così... (7:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:12
+События Dragon’s Dogma развиваются в огромном открытом для исследования фэнтезийном мире. Главный персонаж в группе трех героев отправляется в долгое путешествие, чтобы найти и убить таинственного дракона.Тип издания: LicenseРазработчик: CapcomЖанр: Add-on (Standalone), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D8F1038BE699FCB9457284FD167B889AE1DA7D3
+magnet:?xt=urn:btih:BF39C1497FEB7E9148A10ED3691ABEEA5EBC390E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011201   (796980) от 27.04.2016
+###  Публикация: 1259184   (791472) от 09.01.2019
 
-Penny McLean - 3 Albums (1975-1978) LP [MP3|320 кб/с] <Disco, Funk, Soul>
+Rise: Race The Future (2018) [Multi] (1.2) License PLAZA
 
->>Pop
->>Зарубежная поп-музыка
+>>След.
+>>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796980.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Penny McLean, наиболее известная как участница и прима вокалистка группы "Silver Convention", выпустила параллельно еще три, предлагаемых вашему вниманию, сольных альбома  в том-же, набирающем оборот, стиле "Диско". Родилась  в городе Клагенфурт, Австрия.Список альбомов:
-01. 1975 - Lady Bump
-02. 1977 - Penny
-03. 1978 - Midnight ExplosionЖанр: Disco, Funk, SoulПродолжительность: 01:56:32
+Rise: Race The Future — это мультиплатформенный аркадный рейсинг, события которого разворачиваются в недалеком будущем, где возникли сверхновые технологии, позволяющие автомобилям перемещаться по любой поверхности, в частности, по воде.Тип издания: LicenseРазработчик: VD-devЖанр: Racing (Cars), Arcade, 3DЯзык интерфейса: Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE21481CA01E02F26D130F930B98E44C7C8EE255
+magnet:?xt=urn:btih:7A569CB31A1796969A62404A319BC1E47F207A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274859   (791473) от 09.01.2019
+
+T-FLEX CAD 16.0.32.0 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791473.jpg" />
+</div>
+
+
+###  Подробнее
+
+T-FLEX CAD - профессиональная конструкторская программа, объединяющая в себе мощные параметрические возможности 2D и 3D-моделирования со средствами создания и оформления чертежей и конструкторской документации. Технические новшества и хорошая производительность в сочетании с удобным и понятным интерфейсом делают T-FLEX CAD универсальным и эффективным средством 2D (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12ACA7D8088B73031049B20E29A066FEBB6F291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273956   (791474) от 09.01.2019
+
+03.04 (2019) [Ru/En] (1.4) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра предлагает вам пройти путь к искуплению, попасть в лучшее место, избавившись от диссонанса в своей душе. Главный герой после оглушающе-громкого взрыва просыпается в незнакомом ему месте без единого намека на присутствие по-близости людей. У игрока имеется телефон, на который приходит сообщение от неизвестного абонента. Вам ничего не остается, кроме как последовать (   Читать дальше...   )Тип издания: LicenseРазработчик: JPEG OF PAIN GAMESЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440F5A8CF3806071479E40FB19E443A19A3D8FD5
 ```
 
 

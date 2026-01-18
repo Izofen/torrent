@@ -1,3 +1,271 @@
+###  Публикация: 1376162   (860238) от 17.04.2020
+
+Fiona Apple - Fetch the Bolt Cutters (2020) [FLAC|Lossless|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You to Love Me (03:57)
+02. Shameika (04:08)
+03. Fetch the Bolt Cutters (04:58)
+04. Under the Table (03:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A656C2148496A8F92A20AC23A52762CF18FEEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376182   (860376) от 17.04.2020
+
+The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Devil Was Christ [00:10:46]
+02 - Purple Kiss [00:05:42]
+03 - Stone [00:08:44]
+04 - Buffalo [00:09:36]Жанр: Heavy Blues RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848C309F445484207D82B6BE403963A16646B1A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768341   (860423) от 20.03.2014
+
+Jim Byrnes - St. Louis Time (2014) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Get Evil
+02. Somebody Lied
+03. Nadine
+04. Old Dogs, New Tricks
+05. You'll Miss Me (When I'm Gone)
+06. The Duck's Yas Yas Yas
+07. The Journey Home
+08. St. Louis Blues
+09. Cake Alley
+10. I Need A Change(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC48F465683FF7742B1AF7633583BE155443A653
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768376   (860436) от 20.03.2014
+
+Toots Lorraine - Make It Easy (2014) [MP3|320 кб/с]<Blues, Blues-Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Easy (5:14)
+02. When Did You Stop Tryin' (6:45)
+03. Let Your Tears Fall Baby (3:11)
+04. Get Back To Lovin' (5:38)
+05. Satisfied (Feat. Kid Andersen) (3:48)
+06. Wade In The Water (4:18)
+07. Built For Comfort (4:00)
+08. Wrong Side Of Love (5:34)
+09. Chad Mo Shuffle (4:15)
+10. Low Down Dog (3:16)(   Читать дальше...   )Жанр: Blues, Chicago Blues, Blues-JazzПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE85880FE0451F722CF0F4DDEC4A6FE3D7DAFDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768598   (860546) от 20.03.2014
+
+Joe Zawinul - Brown Street 2CD (2007) [APE|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Lost Children (5:50)
+02. A Remark You Made (8:07)
+03. Night Passage (6:27)
+04. Procession (9:02)
+05. Carnavalito (10:41)Жанр: Jazz, Fusion /Продолжительность: 01:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4840D848EDFF47965EB163FAFDC65A94874AF0E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768539   (860548) от 20.03.2014
+
+Erroll Garner - Collection Vol.6: That's My Kick & Gemini (1999) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. That's My Kick [02:47]
+02. The Shadow of Your Smile [03:56]
+03. Like It Is [02:44]
+04. It Ain't Necessarily So [03:31]
+05. Autumn Leaves [03:21]
+06. Blue Moon [02:47]
+07. More [02:54]
+08. Gaslight [04:28]
+09. Nervous Waltz [03:24]
+10. Passing Through [02:36](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB4CCD93F8FD1106A667727FA9F5D831D85A4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768369   (860549) от 20.03.2014
+
+The Audreys - 'Til My Tears Roll Away (2014) [MP3|320 кб/с]<Blues, Roots, Alt-Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. My Darlin’ Girl (02:59)
+02. Baby, Are You There (03:53)
+03. Keep Your Company (04:09)
+04. Ballad For The Fallen (04:30)
+05. Roll Away (03:50)
+06. Comfort Me (Feat. The Nymphs) (03:35)
+07. Bring The Stars Out (04:38)
+08. Lady Luck (04:25)
+09. Come On Back To Bed (03:15)
+10. Why Must I Wait (04:48)(   Читать дальше...   )Жанр: Blues, Roots, Alt-CountryПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080B88B779F4FB65BFA8365D1DEE89097DA24443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376411   (860692) от 17.04.2020
+
+Harry Allen with John Pizzarelli Trio - Plays The Hits of Stage & Screen (2004) Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Could Write A Book [5:09]
+02. You Are Too Beautiful [4:35]
+03. Let's Face The Music And Dance [5:10]
+04. But Not For Me [4:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99E0938CE77F5910830B6216ED0D244F022D274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376243   (860703) от 17.04.2020
+
+Harry Allen - Dreamer (2001) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change Partners [4:37]
+02. A Night In Tunigsia [6:31]
+03. Out Of This World [5:37]
+04. The Shining Sea [3:15](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E179135DF60100F881102D76E085E86718887057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000071   (860725) от 24.03.2016
 
 Kenny G - Greatest Hits (1997) [FLAC|Lossless|tracks] <Smooth Jazz>
@@ -470,257 +738,6 @@ Dewa Budjana - Dawai In Paradise (2013) [FLAC|Lossless]<Fusion, Jazz-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E4D4A9A57D15F3045A1108A7F93D1114099AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874899   (861278) от 04.03.2015
-
-Nir Felder - Golden Age (2014) [FLAC|Lossless]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lights
-02. Bandits
-03. Ernest / Protector
-04. Sketch 2
-05. Code(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44B4F56EAB343726497F5C848ED645DDA343D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874699   (861279) от 04.03.2015
-
-Nighthawks - As The Sun Sets (2004) [FLAC|Lossless]<Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Descend (6:02)
-02. Norways (5:46)
-03. Receptions In Brazil (5:15)
-04. Managing The Beatles (4:44)
-05. Capetown Unvisited (5:53)(   Читать дальше...   )Жанр: Future JazzПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49E62E4B792AD9DF11EDC4A65EB06678839D8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874790   (861371) от 04.03.2015
-
-Rosa King - The Best Of Rosa King & Upside Down (1995) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You've Changed Your Mind (05:44)
-02. Georgia On My Mind (04:44)
-03. I Never Knew (04:02)
-04. Why (07:54)
-05. Lonely Me (03:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD32924458330FFDA48FEB31E29B0A56F6C657EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874706   (861372) от 04.03.2015
-
-Nighthawks - Today (2010) [FLAC|Lossless]<Nu Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Boutique Korkut
-02. To The Bar And Back
-03. Male Tesknoty (feat. Anna Maria Jopek & Dominic Miller)
-04. Rialto Hotel
-05. The Consul Is Driving(   Читать дальше...   )Жанр: Nu Jazz, LoungeПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1443050D38ACFAFEFCCB3663B24DB04399060764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874651   (861373) от 04.03.2015
-
-Dewa Budjana - Hasta Karma (2015) [FLAC|Lossless]<Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Saniscara
-02. Desember
-03. Jayaprana
-04. Ruang Dialisis
-05. Just Kidung(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9632AB16CA66A879D8597A6623C606551CBD9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874865   (861374) от 04.03.2015
-
-Masada (John Zorn) - Vav (Six) (1995) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Debir [08:03]
-02. Shebuah [08:10]
-03. Mikreh [03:58]
-04. Tiferet [04:06]
-05. Nevalah [02:11](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE07FE4EB0EA863F8991A78B27C1DD76E96D536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874879   (861375) от 04.03.2015
-
-Nikolay Sidorenko Trio - Troika (2014) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Abkhazia
-02. To Mom with Love
-03. Carusel
-04. Clown
-05. Tunes(   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2738D9AEDA4C5936A712CB978EF46BFA45A1B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874880   (861376) от 04.03.2015
-
-Oliver Nelson - Stolen Moments (2015) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments [07:52]
-02. St. Thomas [04:02]
-03. Three Seconds [06:33]
-04. Mission Accomplished [06:36]
-05. Midnight Blue [04:15](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C5147ACE006E8664DCD23F2D6EF74E61DDCCA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375966   (861804) от 16.04.2020
-
-Ana Popovic - Live for Live (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro / Ana's Shuffle
-02. Can You Stand the Heat
-03. Object of Obsession
-04. Love You Tonight(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C39A762AB1651533FB2216CCE090FF43DED740
 ```
 
 

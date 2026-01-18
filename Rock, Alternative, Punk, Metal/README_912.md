@@ -1,3 +1,303 @@
+###  Публикация: 903997   (655138) от 02.06.2015
+
+Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy World [05:10]
+02. Alien Nation [05:44]
+03. Tease Me Please Me [04:37]
+04. No Pain No Gain [03:47](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31CE3E38B029A512904EBA3B78F0F3CDBF62F52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904235   (655182) от 02.06.2015
+
+СерьГа - Чистота (2015) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время готовить костёр (3:23)
+02. Хоровод (2:55)
+03. Ромео и Джульетта (4:52)
+04. Чистота (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561B0FBCE78B87D68A131E4BBC0693B2A7934AEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512970   (655198) от 26.06.2012
+
+The Offspring - Days Go By (2012) [FLAC|Lossless]<Alternative Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Future Is Now
+02. Secrets From The Underground
+03. Days Go By
+04. Turning Into You(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904274   (655239) от 02.06.2015
+
+Yes - Progeny: Seven Shows From Seventy-Two (2015) 14CD Box Set [FLAC|image+.cue]<Progressive Rock, Symphonic Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To The Edge 19:47
+I. The Solid Time Of Change
+II. Total Mass Retain
+III. I Get Up I Get Down(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, Art RockПродолжительность: 11:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178D2E06367F792FCED346A975831282427052C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904386   (655240) от 02.06.2015
+
+The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossless]<Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655240.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 апреля 2015 года новый амбициозный проект вышел от одного из ведущих оркестров мира! Особую ценность записи придает участие в ней членов знаковых прогрессив-рок-групп!
+Особенно Вам понравится симфонические версии Pink Floyd’s "Comfortably Numb" с Alan Parsons Project,  мульти-инструменталист Ian Bairnson вместе с  King Crimson’s в "21st Century Schizoid (   Читать дальше...   )01. ELP Suite: Tarkus / From The Beginning / Tarkus (Reprise)  (6:39)
+02. Comfortably Numb feat. Ian Bairnson  (6:47)
+03. Thick As A Brick feat. Richard Harvey  (6:28)
+04. 21st Century Schizoid Man feat. Gavin Harrison and Guthrie Govan  (6:55)(   Читать дальше...   )Жанр: Rock, ClassicalПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2870BBEE4D8A364553BFC756700AD8857BA61B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904328   (655244) от 02.06.2015
+
+BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Lights Go Out (4:14)
+02. Snow Falls In Reverse (3:17)
+03. Непокой (3:39)
+04. Stay Young And Beautiful (3:33)(   Читать дальше...   )Жанр: Brit-pop, pop-rockПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8966A1C7036482BF51AB5F314E0ACAB4E2C62140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515450   (655329) от 26.06.2012
+
+Hidria Spacefolk - 7 albums (2001-2007) [FLAC|Lossless] <Space, Progressive, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symetria (06:57)
+02. Futur Ixiom (07:28)
+03. 322 (06:30)
+04. Flora/Fauna (06:50)
+05. Radien (08:32)
+06. Sine (11:28)Жанр: Space, Progressive, Psychedelic RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515092   (655429) от 26.06.2012
+
+If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Post-Rock, Atmospheric, Math-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breath of Life (01:48)
+02. The First Fire (06:30)
+03. Barren Lands of the Modern Dinosaur (05:57)
+04. They Speak with Knives (05:40)(   Читать дальше...   )Жанр: Post-Rock/Atmospheric/Math-RockПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904020   (655456) от 02.06.2015
+
+Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Universal-Island Records/ [FLAC|image+.cue]<Rock, Blues Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy Satisfier 04:39
+02. Two Time Love 03:30
+03. Kyle 03:47
+04. Woman And Gold 03:41(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive RockПродолжительность: 08:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBF84C2474A95201E21A35B2D63A6CB8F5736C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904389   (655467) от 02.06.2015
+
+Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End Of Infinity
+02. We've Had Enough
+03. Bring Us More
+04. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9052F8B1D2804E294063AC4DA3ED3470E1D25291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904014   (655469) от 02.06.2015
+
+Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/ [FLAC|image+.cue]<Symphonic Rock, Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Understand 10:09
+02. Let It Grow 05:40
+03. Sounds Of The Sea 06:11
+04. Carpet Of The Sun 03:38(   Читать дальше...   )Жанр: Symphonic Rock, Art Rock, Prog RockПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333E58837A76D89F6367C2279FF4B37348A1CB80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515768   (655480) от 26.06.2012
 
 Облачный край - 9 альбомов (1982-2003) [MP3|320 kbps] <Hard Rock>
@@ -414,312 +714,6 @@ Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226205   (655838) от 20.05.2018
-
-Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Temple Of Lies
-03. On The Wings Of An Angel
-04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D5EAD57B13E0AAD923BF77DB2340AEC702A8C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226407   (655841) от 20.05.2018
-
-Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo (Queen Cover)
-02. Only (Anthrax Cover)
-03. Tears of the Dragon (Bruce Dickinson Cover)
-04. Edge of the Blade (Journey Cover)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226232   (655844) от 20.05.2018
-
-Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep It Alive
-02. Mantis Anthem
-03. Time Can Heal
-04. 39 Years(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF901CDD541681A46C7206F70E6090B8434FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515424   (655929) от 26.06.2012
-
-Well -  Нове життя (2012) [MP3|320 kbps] <Alternative Romantic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нове життя (02:51)
-02. Пробач (03:17)
-03. Нет смысла (04:48)
-04. Сколько раз (05:13)
-05. Дарунок (04:10)
-06. Ти не сама (04:18)
-07. Отпусти меня ( акустик. ) (02:26)
-08. Дождь (03:47)
-09. Спотыкаясь и падая (03:19)
-10. Птица (02:29)(   Читать дальше...   )Жанр: Alternative Romantic RockПродолжительность: 01:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A8BB1731192A2F61B5BDD0FCE83C04661B6162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514964   (655934) от 26.06.2012
-
-Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decadent Blossoms. (01:19)
- 02. Thy Heavens Wept In Mourn. (06:26)
- 03. Winter Shades. (05:15)
- 04. The Field Where I Died. (08:00)
- 05. When I Gave Her My Eden. (05:37)
- 06. Embittered Silence. (05:31)
- 07. Beauty Entwined. (05:22)
- 08. Fall The Dusk. (06:33)
- 09. Burning Horizon. (06:53)
- 10. Beneath An Abstract Sun. (03:08)Жанр: Gothic Doom MetalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226213   (655947) от 20.05.2018
-
-Veil Of Maya - [Id] (2010) [FLAC|Lossless|image + .cue] <Progressive Metalcore, Technical Deathcore, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive Metalcore, Technical Deathcore, Progressive Death MetalПродолжительность: 00:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A4417E22F8426BBAB51264622E7BACE9B9F6B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226237   (655949) от 20.05.2018
-
-Bucovina - Nestramutat (2015) [FLAC|Lossless|image + .cue] <Folk Metal, Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Încape-ntr-o Vorbă (Intro) (01:20)
-02. Dă-mi Mâna, Toamnă (04:52)
-03. Cărări În Suflet (04:29)
-04. Ultima Iarnă (04:39)(   Читать дальше...   )Жанр: Folk Metal, Pagan Black MetalПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BB6C5E9A5E639872C9BFEF636B2562381F31BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226203   (655952) от 20.05.2018
-
-Blitzkrieg - Judge Not! (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heretic
-02. Who Is Blind
-03. Forever Is a Long Time
-04. Reign of Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2471E723FE25D20C7EF4BFBE659A3D766931032B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226233   (655953) от 20.05.2018
-
-Traumer - History (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude to Infinity
-02. History
-03. Lullaby
-04. Guardians of Time(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959DA2BF16C3BA63DA4B7C4386087E47B8857BE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226200   (655955) от 20.05.2018
-
-Axe Minister - Comatose (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morbid End
-02. Endless Fate
-03. Comatose
-04. Stalker(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BA3D8AE41A0521BAFF4C083958B0F7BAE6EF10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140440   (655976) от 06.06.2017
-
-Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mobius (05:27)
-02. Beacon (04:11)
-03. Cast Out (02:50)
-04. The Beetroot Parade (05:24)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
 ```
 
 

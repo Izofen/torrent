@@ -1,3 +1,30 @@
+###  Публикация: 1102669   (889333) от 10.02.2017
+
+VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
+02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
+03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
+04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102799   (889353) от 10.02.2017
 
 VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -674,33 +701,6 @@ VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA74EB3BF092574D3258BAA47C9E9331CB69EF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994418   (891342) от 07.03.2016
-
-VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kilye Minogue - Confide In Me
-02 Phill Collins - Another Day
-03 Iggi Pop - In The Death Car
-04 Sandra - Free Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
 ```
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 593522   (532427) от 07.09.2013
+
+Shaun Murphy - 4 Альбома (2009-2012) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 - Livin' The Blues
+2010 - Trouble With Lovin'
+2011 - Live At Callahan's Music Hall
+2012 - Ask for the MoonЖанр: BluesПродолжительность: 03:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA909E2DAB9B68F7AFEE46D8EA92D1B965167C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051498   (532578) от 11.09.2016
 
 Shakatak - Times And Places (2016) [FLAC|Lossless|image + .cue] <Smooth-Jazz>
@@ -668,33 +696,6 @@ Josh Smith - Over Your Head (2015) [FLAC|image+cue]<Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9D9501EA293291D127FDB4446B88DD4D9C2DF6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926148   (535473) от 09.08.2015
-
-Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backbite 03:52
-02. Pop Collar Jockey 04:23
-03. Fetch Your Spade 03:52
-04. Hold On 05:03(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D0695919616B9C31C8D9F765D813D05EADD0EE
 ```
 
 

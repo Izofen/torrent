@@ -1,3 +1,30 @@
+###  Публикация: 1200853   (794919) от 22.01.2018
+
+Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794919.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. At the Center Is Love (6:08)
+2. Communication (12:17)
+3. Person to Person (4:31)
+4. Shared Values (9:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250A529EA8D34DC73A89B3D1423FBAED3A60CDE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011032   (795447) от 29.04.2016
 
 Andreas Vollenweider - White Winds (1984) [FLAC|Lossless|image + .cue] <Electronic>
@@ -671,33 +698,6 @@ Ola Strandh - Tom Clancy's The Division (Original Game Soundtrack) (2016) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DACCD869CE9C7D00ECEA4F36D087564F3538D15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121803   (799220) от 04.04.2017
-
-Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holly Jolly Christmas
-02. So This Is Christmas
-03. We Wish You A Merry Christmas/Feliz Navidad
-04. Jingle Bell Rock(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
 ```
 
 

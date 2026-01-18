@@ -1,3 +1,30 @@
+###  Публикация: 1053064   (526035) от 17.09.2016
+
+Swingrowers - (Pronounced Swing Grow'ers) (2013) [FLAC|Lossless|image + .cue] <Electronic , Jazz, Electro, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senza Ciatu (5:38)
+02. Crazy People (3:26)
+03. Craziness (3:50)
+04. Kiawami (3:53)(   Читать дальше...   )Жанр: Electronic , Jazz, Electro, SwingПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9044577B7A42CAA740DF45C96BA7ABBAEBF3A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053261   (526120) от 17.09.2016
 
 Lester Bowie - The Complete Remastered Recordings On Black Saint & Soul Note (2010) 3 CD Set [WavPack|Lossless|image + .cue] <Avantgarde Jazz, Post-Bop>
@@ -668,33 +695,6 @@ BBC Band - Big Band Classics (2015) [FLAC|tracks|WEB-DL]<Swing, Jazz, Big Band>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90915C8B38051ED0E0C9598F136FBCBC0B93DE13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927529   (528696) от 13.08.2015
-
-Sam & Dave, Solomon Burke - Les Genies du Rock - Hold On I'm Coming (1993) [MP3|320 кб/с]<Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold on I'm coming (2:41)
-02.  6-3-4-5-7-8-9 (2:57)
-03.  Respect (2:37)
-04.  Funky street (2:39)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066C617368C5B2830FFEC18B18FEB3E03F538D23
 ```
 
 

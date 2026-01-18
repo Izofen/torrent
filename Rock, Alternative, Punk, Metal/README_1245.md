@@ -1,3 +1,301 @@
+###  Публикация: 1456733   (1024915) от 23.03.2021
+
+Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted (Live At The New Theatre Oxford, UK / 1979) 04:53
+02. Rock Brigade (Live At The New Theatre Oxford, UK / 1979) 02:58
+03. Let It Go 04:43
+04. Mirror Mirror (Look Into My Eyes) 04:07(   Читать дальше...   )Жанр: Hard Rock
+Страна: UKПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEDA23DBAE45EA808E237D56F9738AB9FFAADE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456534   (1024930) от 23.03.2021
+
+Alae Noctis - Eternal Rest For The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Target: Renegade 05:05
+02. Battle Beyond The Stars 05:36
+03. Lords Of The Wasteland 04:44
+04. Falcon Spirit 04:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F896986B2ECEFF0069E7641CCC91C68F1527A0E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456473   (1024939) от 23.03.2021
+
+Ghost Brigade - IV - One With the Storm (2014) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched Blues (6:19)
+02. Departures (4:58)
+03. Aurora (6:57)
+04. Disembodied Voices (5:36)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom Metal, Progressive MetalПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1BCC787FD02F40CC17D7C68B9FD643AD3764B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456616   (1024947) от 23.03.2021
+
+Forcefield - Saucer Separation (2021) [MP3|320 Kbps] <Progressive Metal, Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saucer Separation (05:44)
+ 02. Diluted to the Point of Evil (09:31)
+ 03. Scarifice (10:20)
+ 04. My Garambah (04:37)(   Читать дальше...   )Жанр: Progressive Metal, Power Metal, Thrash MetalПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C38EC798E8B25F9A0C29EC612CCB1B1C206A32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456740   (1024949) от 23.03.2021
+
+Zarpa - El Loco (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fahrenhait (00:04:31)
+02 - El Heavy es Mi Destino (00:03:42)
+03 - Hermano del Rock (00:05:51)
+04 - El Loco (00:03:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0883B770694759464FF1D6C336F1F18E45C5B38C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456737   (1024950) от 23.03.2021
+
+Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Final (00:01:23)
+02 - Los Olvidados (00:03:43)
+03 - La Jauria Humana (00:03:59)
+04 - Rebelion (00:03:47)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1561D3008C1023E2C13BEB7E9E001669C32C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456746   (1024951) от 23.03.2021
+
+The Settlement - Departures (2021) [MP3|320 Kbps] <Psychedelic, Progressive Rock, Jam Band>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude [00:06:13]
+02. Stars [00:10:44]
+03. Recognize [00:10:05]
+04. Enter Mission [00:04:33](   Читать дальше...   )Жанр: Psychedelic, Progressive Rock, Jam BandПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F982D7CDC86350CDE28A509C373386C473F79132
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456566   (1024952) от 23.03.2021
+
+Nodo Gordiano - Sonnar (2020) [FLAC|Lossless|image + .cue] <RPI, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Fool! Only Poet! (9:06)
+02. Limbic Rendez-vous (6:59)
+03. Charun (3:53)
+04. After Dusk (20:48) :(   Читать дальше...   )Жанр: RPI, Prog RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165F35C59780F8F8602E3D80982B651B7C553595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456667   (1024955) от 23.03.2021
+
+Noumena - Anatomy of Life (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misanthropolis (4:18)
+02. Burden of Solacement (5:19)
+03. Retrospection (5:20)
+04. The Burning (3:57)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F4CB05B981AC2D5B98197862D80FBB8A3A4E1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456671   (1024956) от 23.03.2021
+
+Noumena - Myrrys (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kohtu (0:52)
+02. Metsan Viha (4:26)
+03. Kirouksen Kantaja (5:39)
+04. Sanat Pimeydesta (4:11)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1EA9FA7CCA26B1E2AF3AEA6686AA1DA9A83059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456680   (1024959) от 23.03.2021
+
+Boulevard - IV Luminescence (2017) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Blue
+02. Life Is A Beautiful Thing
+03. Laugh Or Cry
+04. What I'd Give(   Читать дальше...   )Жанр: AORПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2881ACE53DECB84E44BC9FA82E3B99C419589332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456610   (1024960) от 23.03.2021
 
 Noumena - Pride/Fall (2002) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -398,303 +696,6 @@ Serj Tankian - Elasticity (2021) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Alt. Rock, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AACF844E9FC2383A485D9BA0592C397AEFE040A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455258   (1025482) от 20.03.2021
-
-Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Headhunter (Apr. 1983 Arista)
-
-01. Headhunter
-02. Eat The Rich(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BC5C474A83CD28752B3B4E7060293304DA6C4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455878   (1025486) от 20.03.2021
-
-Paradise Lost - Gothic Live at Roadburn (2016) 2021 [MP3|320 Kbps] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desolate - Gothic [00:06:43]
-02. Dead Emotion [00:04:42]
-03. Shattered [00:04:36]
-04. Rapture [00:05:59](   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A3E977CC2FEE037E371EBEFAB5E62D4CAC3DBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455632   (1025488) от 20.03.2021
-
-Gothic Sky - In Search of a Lost Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven [00:05:34]
-02. Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
-03. Dark flame (feat. Arthur Berkut) [00:06:47]
-04. Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7631D90EFE9EC3DC1629B72683509658EA3E75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455797   (1025489) от 20.03.2021
-
-Disturbed - The Vengeful One (2015) Single [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vengeful One (4:12)
-02. Immortalized (4:20)
-03. The Vengeful One (Instrumental) (4:12)
-04. Immortalized (Instrumental) (4:18)Жанр: Nu Metal, Alternative MetalПродолжительность: 00:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FF5C41A787985E12E0ECF6F5E43DE7FFEC3C0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455831   (1025495) от 20.03.2021
-
-Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Protoxidation (Ouverture) 02:08
-02. The Space Between Us 04:04
-03. No More Pain 04:50(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ADBE6E0540A17A6C03E97D4B7FBF2CC9E76368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455677   (1025497) от 20.03.2021
-
-A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <Post-Black Metal, Post-Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Me Thru the Phone (December) [00:02:44]
-02. The Power of Powers (November) [00:03:16]
-03. Song for Peaches (October) [00:04:40]
-04. The Agent & Attendant (September) [00:04:15](   Читать дальше...   )Жанр: Post-Black Metal, Post-Rock, HardcoreПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAA8A180346F214599A35E5C0344EBE1D2ECF8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455808   (1025498) от 20.03.2021
-
-Those Who Ride With Giants - Forlorn (2021) [MP3|320 Kbps] <Post-Rock, Electronic, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lure (00:43)
- 02. The Passage of Wonder (03:54)
- 03. The Resilience Born in Fire (04:58)
- 04. The Cry of Silence (09:23)(   Читать дальше...   )Жанр: Post-Rock, Electronic, InstrumentalПродолжительность: 01:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D279CEED5994EE277A6D6309517E906451071B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455601   (1025583) от 19.03.2021
-
-The Blue Stones - Hidden Gems (2021) [MP3|320 Kbps] <Blues Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lights On [00:03:09]
-02 Shakin' Off The Rust [00:03:42]
-03 One By One [00:04:11]
-04 Careless [00:03:35](   Читать дальше...   )Жанр: Blues Rock, SoulПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFDFA4643B392B0F720C5B2F69DAD02BA553C2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455464   (1025619) от 19.03.2021
-
-VA - Tribute To Красная плесень (2014) 2CD [FLAC|Lossless|image + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старый газовый котёл - Клава              [3:12]
-02. Мазер факер - Мы е... первый раз          [2:48]
-03. Палата № 6 - Г.Ю. Рок-н-ролл              [3:11]
-04. Зюг-Вест - Желтая подводная лодка         [2:15](   Читать дальше...   )Жанр: PunkПродолжительность: 02:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4286C4ABDCDFAC2BAFFC8B4640CB543F3CA50C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455610   (1025637) от 19.03.2021
-
-Serj Tankian - Elasticity (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elasticity
-02. Your Mom
-03. How Many Times?
-04. Rumi(   Читать дальше...   )Жанр: Alt. Rock, Alt. Metal, ExperimentalПродолжительность: 00:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09A4BC60381BC1E650DF3CFB45D86D78DA1B4D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455468   (1025641) от 19.03.2021
-
-Ringo Starr - Zoom In (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's To The Nights
-02. Zoom In Zoom Out
-03. Teach Me To Tango
-04. Waiting For The Tide To Turn(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C75948935917DD1CE9FA8D5A336E8104EA0D06B
 ```
 
 

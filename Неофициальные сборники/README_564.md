@@ -1,3 +1,30 @@
+###  Публикация: 1111326   (848854) от 05.03.2017
+
+VA - Козырная песня на Шансоне. Версия № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848854.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Куприк - Молва 4:06
+002. Алексей Брянцев - Тайна 4:10
+003. Дмитрий Романов - Пожалей Ты Меня 2:27
+004. Анатолий Мякушкин - Моя Звезда 4:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48F6C435657D244EB4E52E19055383C8CDDB246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002220   (848894) от 31.03.2016
 
 VA - Healing Meditation Zone (2016) [MP3|320 кб/с] <Relax, Meditation, Downtempo>
@@ -668,32 +695,6 @@ VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002056   (850655) от 30.03.2016
-
-VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Groove Avenue - Sweet Summer Days [02:20]
-02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
-03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
 ```
 
 

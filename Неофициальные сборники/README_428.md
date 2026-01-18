@@ -1,3 +1,30 @@
+###  Публикация: 1222397   (684440) от 29.04.2018
+
+VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fedde Le Grand - You Got Me Runnin
+02. Grivina - I Love Deep House (Ramirez & Rakurs Remix)
+03. Filatov & Karas Vs. Виктор Цой - Остаться С Тобой (Vox Mix)
+04. An.Du - She's A Bitch (X-Tropic Remix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289690   (684457) от 17.03.2019
 
 VA - The Official UK Top 40 Singles Chart 15.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -671,33 +698,6 @@ VA - Весенний хитовичок молодежный. Выпуск № 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F20B3572D33402FC34E1DCD7E51BC88CCA2272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134920   (685083) от 17.05.2017
-
-VA - LUXEmusic - Dance Super Chart Vol.117 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Hello (DJ Denis Rublev & T'Paul Sax Mix) 4:23
-002. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix) 4:15
-003. Alex Milano - Rockin' (Misha Klein & No Hopes Remix) 6:22
-004. Andrey Keyton, Chunkee - The Omen (Original Free Mix) 6:57(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431DA38891A9BE617854841596DA5697E77D037C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1562124   (512501) от 07.07.2022
+
+Neil Young with Crazy Horse - Toast (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quit (5:24)
+02. Standing in the Light of Love (4:19)
+03. Goin' Home (7:53)
+04. Timberline (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98A8DD1119C439631455A4CA7523927D8FF6AD13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561814   (512510) от 07.07.2022
 
 Bruce Cockburn - Greatest Hits (1970-2020) 2 x CD, Compilation, 2021, True North [FLAC|Lossless|image + .cue] <Folk-Rock>
@@ -675,39 +702,6 @@ HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34EDB47B7A6E571C6E0C1A2AB175B6FA0031B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536115   (513308) от 19.08.2012
-
-Rage - 25Albums+7EP (1984-2012) [FLAC|Lossless]<Heavy Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage — группа в жанре хэви-метал из Германии. Группа была основана в 1983 году под именем Avenger, под которым выпустила свои первые два альбома. Музыканты вскоре вынуждены были сменить название, обнаружив, что оно совпадает с названием другой группы. Основателями группы являются Петер Вагнер, Йохан Шредер, Йорг Михаэль и Томас Грюнинг. В то время руппа играла спид-метал и пауэр-метал со значительной долей трэш-метала.01. Intro (1:16)
-02. Speak of the Dead (2:52)
-03. No fear (6:36)
-04. Sent by the devil (2:56)
-05. Soul survivor (3:46)
-06. Enough is enough (4:08)
-07. Baby, I'm your nightmare (5:07)
-08. Morituri te salutant (0:57)
-09. Prelude of souls (2:51)
-10. Innocent (5:33)(   Читать дальше...   )Жанр: Heavy Metal/Power Metal/Thrash MetalПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

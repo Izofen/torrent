@@ -1,3 +1,30 @@
+###  Публикация: 1501927   (831750) от 12.10.2021
+
+VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Unison feat. Isupov - На Чиле (3:04)
+002. SAMURAMI - Ua-Ya (2:42)
+003. BITTUEV - Братик (1:53)
+004. JONY The Limba - Босс (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC33A5D0776372EB8E083C64BA676B0135EFFDF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114667   (831762) от 15.03.2017
 
 Howlin' Wolf - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114238   (833490) от 14.03.2017
-
-VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abriviatura IV - Never Gonna Say Goodbye (Original Mix) 5:38
-002. Adana Twins - Etah (Original Mix) 6:57
-003. Andre Gazolla - Follow The Groove (Original Mix) 6:41
-004. Aida, Berkhan Baser - All (Original Mix) 5:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6825F908C4332F6CBD76CCC5604A33D7C6706276
 ```
 
 

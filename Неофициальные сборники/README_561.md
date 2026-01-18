@@ -1,3 +1,30 @@
+###  Публикация: 1111991   (844789) от 07.03.2017
+
+VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844789.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC/DC - Hail Caesar 05:15
+002. Ozzy Osbourne - See You On The Other Side 06:11
+003. Deftones - Root 03:42
+004. Rammstein - Seemann 04:49(   Читать дальше...   )Жанр: Classic Hard Rock, Metal, AlternativeПродолжительность: 10:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378631   (844803) от 26.04.2020
 
 VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6188FB8644A97FEE1B7012CA134A382BC35E75F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378204   (846290) от 25.04.2020
-
-Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey And Gin
-02. Mysterios Ways
-03. Shylina
-04. I Came Home At Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F18660F9E9AFFD6D09458EB5E494F847E5EACC
 ```
 
 

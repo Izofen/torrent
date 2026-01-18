@@ -1,3 +1,252 @@
+###  Публикация: 305229   (855292) от 08.03.2011
+
+Joe Beck - Brazilian Dreamin' (2006) [FLAC|Lossless]<Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Vivo Sonhando (5:18)
+02. Manha De Carnaval (4:53)
+03. Aquarius (6:51)
+04. O Grande Amor (4:53)
+05. Felicidade (5:31)
+06. And Here's To You (5:54)
+07. Brazil (5:52)
+08. Ela E Carioca (4:55)
+09. Falando De Amor (6:26)
+10. Zanzibar (5:19)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109946   (855563) от 01.03.2017
+
+Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Give Up (04:43)
+02. What Did I Do (03:54)
+03. It's Gonna Be Alright (03:16)
+04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000980   (855596) от 27.03.2016
+
+VA - New Jazz Divas (2016) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Krall - This Can’t Be Love (04:32)
+02. Youn Sun Nah - Jockey Full of Bourbon (03:41)
+03. Terez Montcalm - Docteur (04:09)
+04. Fay Claassen - Conception / Deception (04:15)(   Читать дальше...   )Производство: Wagram MusicЖанр: JazzПродолжительность: 02:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5E61E396645C85EB9631CA85163E32142B765E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000993   (855598) от 27.03.2016
+
+Keiko Matsui - Wildflower (2003) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashback
+02. Facing Up
+03. Sense of a Journey
+04. Brand New Wind(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823A845F7CB5D5993FCF7F1B3C31D848501FED3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001003   (855600) от 27.03.2016
+
+Stevie Wonder - Number Ones (2007) [FLAC|Lossless|image + .cue] <Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fingertips Pt. 2
+02. Uptight (Everything's Alright)
+03. Blowin' in the Wind
+04. I Was Made to Love Her(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2C9C5D4BE64ADFC2DCF877B0DF34AA1A47A76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110174   (855615) от 01.03.2017
+
+Dana Gillespie - Cat's Meow (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dana Gillespie (Дана Гиллеспи) - родилась 30 марта 1949 года в Англии. Будучи дочерью знаменитого трубача, тромбониста и мастера эпатажа Джона Биркса Гиллеспи, с успехом унаследовала творческий талант. Свой первый диск она записала в 15 лет. В 60-е она исполняла фолк, в 70-е перешла к року (ее продюсировал Дэвид Боуи), а в 80-е вернулась к своей давней любви - блюзу. (   Читать дальше...   )01. Cat's Meow (3:28)
+02. Love Matters (4:44)
+03. Eternally Yours (5:17)
+04. Eureka Moment (4:22)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364AEE754E656710C6095BED9E70C13A33DE5DFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110048   (855623) от 01.03.2017
+
+Deep In The Top - Blues In Different Colours (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greed (03:53)
+02. Girls (05:00)
+03. Tell Me That You Love Me (And I'm Good) (03:08)
+04. Sinner Man (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA6EFFB93A494AC13A6C6B5CE0C13812BD06634
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110209   (855672) от 01.03.2017
+
+Dave Fields - Unleashed (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anticipating You (06:36)
+02. Going Down (04:38)
+03. Child Of The World (05:15)
+04. My Mama's Got The Blues (04:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F095E84F7677BF63E49D41F4F1B871266414BC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110181   (855673) от 01.03.2017
+
+Angel Forrest - Mother Tongue Blues (2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Do You (4:04)
+02. Mother Tongue Blues (3:46)
+03. Blue Firegirl (5:12)
+04. Morningstar (3:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0CCDBDA232C5F9A0F02BFD6D5F00BA502CB6DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107528   (855676) от 01.03.2017
 
 Beau Williams - Bodacious! (1984) 2011, Remastered, Funky Town Grooves [FLAC|Lossless|image + .cue] <Funk, Soul>
@@ -485,291 +734,6 @@ Jack Jezzro with The Beegie Adair Trio - Jazz on Broadway (2005) [FLAC|Lossless]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED73BE0BE9AA47FD8063D5BEA10DACCFE13D27AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769203   (856986) от 22.03.2014
-
-Kim Pensyl - Under The Influence (1996) [FLAC|Lossless]<Smooth-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Minute By Minute
- 02. Home At Last
- 03. A Short Walk From Home
- 04. Morning Isle
- 05. That's The Way Of The World
- 06. Love Light In Flight
- 07. Mornin'
- 08. Little Willy C.
- 09. Casting Shadows
- 10. BucklesЖанр: Smooth-JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123792882D22CFBF686C9B9764EFAA8743AD7D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305700   (856990) от 07.03.2011
-
-Sara Wasserman - Solid Ground (2009) [FLAC|Lossless]<Vocal Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bird (3:31)
-02. I Am A Song (4:02)
-03. Leap Of Faith (3:48)
-04. Fly Away (4:18)
-05. Sara Smile (3:13)
-06. Fresh Out Of Tears (3:49)
-07. Solid Ground (5:06)
-08. Somehow Forever (4:20)
-09. Need To Know (3:59)
-10. Hindsight (4:08)(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376907   (857013) от 19.04.2020
-
-Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Send Me [6:09]
-02. I Just Called to Say I Love You [4:24]
-03. You Make Me Feel Brand New [5:57]
-04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376805   (857014) от 19.04.2020
-
-Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The A Train [2:57]
-02. Perdido [1:59]
-03. Frankie And Johnnie [3:10]
-04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647577   (857029) от 23.04.2013
-
-Badi Assad - 2 альбома (1997-2003) [FLAC|Lossless]<Jazz, Guitar, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Ondas [03:47]
-02. Ballada de la doncella enamorada [05:48]
-03. Asas da Pan air [04:41]
-04. La huida de los amantes por el valle de los ecos [05:06]
-05. Vrap [04:00]
-06. Preludia e tocatina [03:08]
-07. Joana Francesca [04:53]
-08. Pro meu pai tocar [04:38]
-09. Saudade no 3 [06:19]
-10. Valseana [03:03](   Читать дальше...   )Жанр: Jazz, Guitar, VocalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647384   (857034) от 23.04.2013
-
-Jeremy Monteiro Trio - A Song For You, Karen (2003) [FLAC|Lossless]<Contemporary Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Song For You [08:49]
-02. When I Fall In Love [05:52]
-03. This Masquerade [05:26]
-04. We've Only Just Begun [05:42]
-05. Top Of The World [04:03]
-06. For All We Know [03:26]
-07. Rainy Days And Mondays [06:28]
-08. There's A Kind Of Hush [03:57]
-09. All You Get From Love Is A Love Song [04:38]
-10. I Won't Last A Day Without You [05:43](   Читать дальше...   )Жанр: Contemporary Jazz, Smooth JazzПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647261   (857038) от 23.04.2013
-
-Harvie S with Kenny Barron - Два Альбома (2008, 2013) [FLAC|Lossless]<Post-Bop/Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Nocturne
-02. Deep Night
-03. For Heaven's Sake
-04. Creepin'
-05. Juan's Theme
-06. Rio
-07. Sonia Braga
-08. Until Tomorrow
-09. Wig Wise
-10. WitchcraftЖанр: Post-Bop/Mainstream JazzПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769176   (857096) от 22.03.2014
-
-Kevin Mahogany - You Got What It Takes (1995) [FLAC|Lossless]<Vocal-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Baby You Got What It Takes
- 02. Stockholm Sweetnin'
- 03. Just In Time
- 04. Sophisticated Lady
- 05. Route 66
- 06. Here's That Rainy Day
- 07. Yardbird Suite
- 08. My Funny Valentine
- 09. Old Times Sake
- 10. BG's Groove(   Читать дальше...   )Жанр: Vocal-JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00D5BD58915FCD557363D9B7058EC9AF9873143
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769326   (857102) от 22.03.2014
-
-Erroll Garner - Contrasts (1998) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. You Are My Sunshine [03:28]
-02. I've Got The World On A String [04:01]
-03. 7-11 Jump [07:18]
-04. Part Time Blues [04:32]
-05. Rosalie [02:39]
-06. In A Mellow Tone [04:19]
-07. Don't Worry Bout Me [05:03]
-08. All Of A Sudden My Heart Sings [03:22]
-09. There's A Small Hotel [03:10]
-10. Misty [02:48](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF11C13A333D9836FDE12EB4B8712ED6B580065
 ```
 
 

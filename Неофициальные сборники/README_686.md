@@ -1,3 +1,30 @@
+###  Публикация: 1609684   (1043139) от 04.02.2023
+
+VA - Музыка для машины Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маракеш  - Молодой, Горячий (02:51)
+02. Rita Ora  - You Only Love Me (02:29)
+03. Андрей Картавцев  - Моя Любовь-Это Ты (04:02)
+04. Ольга Шультайс  - Happy End (03:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A28079DDB36B1B2A2A316A4A480E69398B9BEC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609741   (1043140) от 04.02.2023
 
 VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -668,33 +695,6 @@ VA - Simply Dance Vol. 04 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:809BE1DDC949405C5DCB0CB414EA8429AF303BB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606996   (1044246) от 24.01.2023
-
-VA - Simply Dance Vol. 05 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Jacobson - I Love You Stop
-02. Ruesche - Sometimes (Radio Mix)
-03. Tony S3rmani - Be With Me
-04. Paul Damixie - Crazy(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:39:22 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9E89254BBF557A0B64933BF51EBDA3153CD0BF
 ```
 
 

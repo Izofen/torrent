@@ -1,3 +1,30 @@
+###  Публикация: 1236240   (554604) от 16.07.2018
+
+VA - Club Dance Ambience Vol.156 (2018) [MP3|320 Kbps] <Club Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 740 Boyz - Shimmy Shake  (KaktuZ Remix)
+002. Addal - Lies (Merk & Kremont Extended Remix)
+003. Alejandro Penaloza - Fairy (Original Mix)
+004. Albin Lee Meldau - I Need Your Love (Just Kiddin Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06437059DEBEDCAAB8E2C42D4FFC49EFA7C4CACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307779   (554633) от 11.06.2019
 
 VA - Heartbreack Hotel Vol. 02 (2019) [MP3|320 Kbps] <Jazz, Blues, Soul>
@@ -664,33 +691,6 @@ VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C7E55B824F089BF6EBF487ECEF8DB4919E70AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236051   (556162) от 15.07.2018
-
-VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-01. DJ Cargo - Summer Night (3:01)
-02. Mesto - Give Me Love (3:22)
-03. Sunrise Blvd ft Nelita - Can't Hide (Radio Version) (3:46)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBC602593FAFE9904D771DCA419F3E7C528FB87
 ```
 
 

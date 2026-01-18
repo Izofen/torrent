@@ -1,3 +1,57 @@
+###  Публикация: 1145262   (621760) от 25.06.2017
+
+Bjm Mario Bajardi - Schengen (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Officium 1 (03:57)
+02. Officium 2 (05:23)
+03. Transmigration (02:24)
+04. Kaos Therapy (03:59)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A2D2FB198C805ABE5E909C4206EF3F4F0A1361C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144221   (621764) от 25.06.2017
+
+VA - Clubbers Culture: Chill Out At Sunset Beach (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jan Van Den Bergh - Yesterday Was A Good Day (Original Mix)  4:51
+02.  Lazy Hammock & Ivan M - Equinox (Original Mix)  6:53
+03.  San Savalle - The James Jam (Original Mix)  3:52
+04.  Dreamweavers - Silent Moon (Original Mix)  5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DAAD07C907C8354C703F6B95EAFB3B363DDD839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544215   (621997) от 15.04.2022
 
 Space - Magic Fly (1977) Reissue, 2010, Repertoire Records [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
@@ -638,58 +692,6 @@ VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145155   (623897) от 24.06.2017
-
-2raumwohnung - Achtung Fertig (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Euphonia (0:44)
- 02. Ich mag's genau so (3:46)
- 03. Ein neues Gefühl (3:50)
- 04. Bei Dir bin ich schön (3:15)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0175D92ACED0AF107097B059F050BE503F25033A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145307   (623900) от 24.06.2017
-
-Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Castle (04:30)
- 02. Recovery (05:00)Жанр: Deep Drum & BassПродолжительность: 00:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
 ```
 
 

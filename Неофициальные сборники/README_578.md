@@ -1,3 +1,30 @@
+###  Публикация: 1496410   (872864) от 17.09.2021
+
+VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872864.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scott Sellers - Back To Reality
+002. Authority Zero - Fire Off Another
+003. Riskee & The Ridicule - Millwall Brick
+004. Tim Vantol - You Will Never(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 05:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496435   (872865) от 17.09.2021
 
 VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -663,33 +690,6 @@ VA - I Love Music! - Trap Edition Vol. 36 (2017) [MP3|320 Kbps] <Trap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E502AC562F63B560DCABF72FF449B79B01A0C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106125   (873649) от 19.02.2017
-
-VA - German Top 100 Single Charts 17.02.2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You
-002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker)
-003. The Chainsmokers - Paris
-004. Ed Sheeran - Castle on the Hill(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F0C667AB260AF86E5A0C19AB8B84D14CD7B39F
 ```
 
 

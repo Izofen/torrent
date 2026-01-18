@@ -1,3 +1,291 @@
+###  Публикация: 435374   (982582) от 13.01.2012
+
+Mississippi Heat - One Eye Open (2005) [FLAC|Lossless]<Blues, Harp>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rosa's Strut (8:31)
+02. 19 Years Old (5:24)
+03. I've Got To Sleep With One Eye Open (7:46)
+04. Dirty Deal (6:31)
+05. Honest I Do (6:38)
+06. Rock Steady (5:31)
+07. Jukin' (5:26)
+08. Cold, Cold Feeling (7:14)
+09. Cool Twist (4:03)
+10. She Ain't Your Toy (5:30)(   Читать дальше...   )Жанр: Blues, HarpПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435469   (982636) от 13.01.2012
+
+Norman Brown - West Coast Coolin' (2004) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I Might (4:50)
+02. Up 'N' At 'Em (4:00)
+03. West Coast Coolin' (4:31)
+04. Missin' You (4:17)
+05. Come Over (4:27)
+06. What's Going On (4:40)
+07. Let's Play (4:52)
+08. Right Now (3:56)
+09. Angel (4:31)
+10. Remember The Time (4:12)2004Жанр: Smooth JazzПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164640   (982642) от 10.01.2010
+
+Larisa Dolina & Igor Butman's Big Band (Лариса Долина, Игорь Бутман) - Carnival of Jazz II, Live in Saint-Petersburg (2xCD+DVD9) (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Спустя 6 лет после премьеры первого «Карнавала джаза», Лариса Долина и Игорь Бутман решили осуществить новый совместный проект, в результате чего было создано неподражаемое джазовое шоу «Карнавал джаза-2. No comments». В программу вошла целая ретроспектива мировых джазовых хитов, ранее исполняемых суперзвездами, такими, как Билли Холидей, Фрэнк Синатра, Элла Фитцджеральд и другими. Среди них - How High The Moon, I Can't Give You Anything But Love, Mister Paganini, Everything Must Change. Именно с этой программой одна из самых прославленных и признанных мировыми корифеями джаза российских певиц и самый известный из российских джазовых саксофонистов выступили перед восторженной питерской публикой. Северная столица еще не видела джазового шоу такого уровня. Зрительный зал рукоплескал стоя.Жанр: JazzРежиссер: Игорь МасловФормат: DVD Video
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 436152   (982723) от 13.01.2012
+
+Koko Taylor - Old School (2007) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Piece Of Man
+02. Gonna Buy Me A Mule
+03. Black Rat
+04. Money Is The Name Of The Game
+05. You Ain't Worth A Good Woman
+06. Better Watch Your Step
+07. Bad Avenue
+08. Bad Rooster
+09. Don't Go No Further
+10. All Your Love(   Читать дальше...   )2007Жанр: BluesПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435509   (982729) от 13.01.2012
+
+Kim Waters - This Heart Of Mine (2011) [FLAC|Lossless]<Smooth Jazz, Jazz Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Seeker (4:46)
+02. Free Fall (4:11)
+03. Am I A Fool (5:17)
+04. Empire State Of Mind (4:43)
+05. The Groove's Alright (4:31)
+06. Step To This (5:04)
+07. I Love My Girl (4:41)
+08. Love Letter (5:36)
+09. Stay With Me Tonight (4:53)
+10. Running To Love (4:23)(   Читать дальше...   )2011Жанр: Smooth Jazz, Jazz FunkПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613576   (982794) от 04.02.2013
+
+John Pizzarelli - 5 альбомов (1995-2010) [FLAC|Lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Mellow Tone [04:12]
+02. East St. Louis Toodle-oo - Don't Get Around Much Anymore [03:41]
+03. Satin Doll [03:39]
+04. C Jam Blues [07:59]
+05. In My Solitude [03:52]
+06. Just Squeeze Me [03:22]
+07. Perdido [04:11]
+08. All Too Soon [03:10]
+09. I'm Beginning To See The Light [04:07]
+10. Love Scene [03:48](   Читать дальше...   )Жанр: Jazz, SwingФормат: image+cueПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 435471   (982829) от 13.01.2012
+
+Frank Russell - Circle Without End (2011) [APE|Lossless]<Smooth-Jazz,Fusion,Bass>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Code MD (6:50)
+02. Her Name is Roz (6:41)
+03. Quick Pix (6:59)
+04. Desi in Sedona (6:46)
+05. Ladysmith (Black Mambazo) (2:52)
+06. I Would If Could (5:42)
+07. Noble Street Five (6:18)
+08. Orchards Groove (4:47)
+09. Put Up Your Dukes Interlude (1:06)
+10. Shirley's Prayer (6:57)(   Читать дальше...   )2011Жанр: Smooth-Jazz,Fusion,BassПродолжительность: 01:13:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 740554   (982868) от 03.01.2014
+
+Louis Sclavis Atlas Trio - Sources (2012) [FLAC|Lossless]<Jazz, ECM>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Près d'Hagondange (6:10)
+02. Dresseur de nuages (8:20)
+03. La Disparition (5:00)
+04. A Road to Karaganda (8:43)
+05. A Migrant's Day (4:11)
+06. Sources (5:21)
+07. Quai sud (4:07)
+08. Along the Niger (5:46)
+09. Outside of Maps (3:06)
+10. Sous influences (7:09)Жанр: Jazz, ECMПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F99BA2DF5648AD8C0471015ABEB86F04F9EA54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164517   (982953) от 10.01.2010
+
+Jimi Hendrix - LIVE 1968 - Paris/Ottawa (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Floor [04:32]
+02. Catfish Blues [08:46]
+03. Foxey Lady [05:29]
+04. Red House [04:24]
+05. Driving South [09:24]
+06. The Wind Cries Mary [03:55]
+07. Fire [04:16]
+08. Little Wing [03:40]
+09. PurpleHaze [05:59]
+10. Sgt. Pepper's Lonely Hearts Club Band [02:16](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971325   (983205) от 05.01.2016
 
 Sam Levine - Hi Fi Sax (2005) [FLAC|Lossless|image + .cue] <Smooth Jazz, New Age>
@@ -506,302 +794,6 @@ Beegie Adair - Christmas Jazz (2004) [FLAC|Lossless]<Jazz, Christmas>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E3A51A37D9C0A8C2C71083BD4C0D09F031C838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740464   (983745) от 03.01.2014
-
-The Stephen Kummer Trio with The Chris McDonald Orchestra - Christmas in the City (2005) [FLAC|Lossless]<Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year (3:42)
-02. Baby It's Cold Outside (3:58)
-03. Have Yourself a Merry Little Christmas (4:06)
-04. The Christmas Waltz (3:19)
-05. The Christmas Song (3:40)
-06. I'll Be Home for Christmas (4:01)
-07. Christmas Time is Here (4:10)
-08. Let It Snow, Let It Snow, Let It Snow (3:40)
-09. Blue Christmas (3:48)
-10. I've Got My Love to Keep Me Warm (3:46)(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355F0408F9AF433CA51A953DB76844B243AE6793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740966   (983746) от 03.01.2014
-
-Jacques Loussier - Reflections Of Bach (1987) [FLAC|Lossless]<Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Concerto In F Minor, BMV 1056
-01. i. Allegro [04:49]
-02. ii. Largo [03:24]
-03. iii. Presto [05:23]
-04. Passacaglia In C Minor, BMV 582 [03:21]
-05. Partita In E Major, BMV 1006 [03:18]
-06. Pastorale In C Minor, BMV 590 [04:49]
-07. Vivace - Concerto In C Minor, BMV 1062 (1st Movement) [04:57]
-08. Gavotte In B Minor (Partita No.1 In B Minor, BMV 1002) (4th Movement) [03:45]
-09. Minuet In G Major - From The Notebook Of Anna Magdalena Bach, BWV Anh. 114 [03:56]Жанр: Jazz, Classical, Piano JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD37E22DB625FEA90EB4D7933D67B76839C028E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741001   (983747) от 03.01.2014
-
-Andy LaVerne & John Abercrombie - Natural Living (2005) [FLAC|Lossless]<Post Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [05:02]
-02. Actual Sighs [06:03]
-03. John's Waltz [04:49]
-04. All the Things You Are [05:20]
-05. Among Tall Trees [05:25]
-06. Natural Living [08:21]
-07. Archetypal Schemata [04:14]
-08. Magnetic Flux [04:05]
-09. Labour Day [05:20]
-10. When you wish upon a star [07:33](   Читать дальше...   )Жанр: Post Bop, Contemporary JazzПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AED447D16728EADFA58704206C29E813AB45BCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740551   (983748) от 03.01.2014
-
-Enrico Rava - Rava on the Dance Floor (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Speechless (6:37)
-02. They Don't Care About Us (7:55)
-03. Thriller (6:17)
-04. Privacy (5:44)
-05. Smile (3:30)
-06. I Just Can't Stop Loving You / Smooth Criminal (9:13)
-07. Little Susie (3:53)
-08. Blood on the Dance Floor (5:06)
-09. History (8:08)Жанр: Jazz, ECMПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65ED5B6B837C48989E9B3604F036007BC90D39D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740781   (983803) от 03.01.2014
-
-Denis Solee - Christmas by Candlelight (2003) [FLAC|Lossless]<Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Home for Christmas (3:29)
-02. O Christmas Tree (2:57)
-03. The Christmas Song (4:24)
-04. Winter Wonderland (3:59)
-05. The Christmas Waltz (3:30)
-06. You're a Mean One Mr. Grinch (4:19)
-07. Christmas Time is Here (3:36)
-08. White Christmas (5:23)
-09. Santa Baby (4:20)
-10. Have Yourself a Merry Little Christmas (5:14)(   Читать дальше...   )Жанр: Jazz, ChristmasПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57569E540BBAECEDD5E7B741088065E20FC9154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741404   (983809) от 03.01.2014
-
-Quercus - Quercus (2013) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Lassie Lie Near Me (5:12)
-02. Come Away Death (6:35)
-03. As I Roved Out (6:00)
-04. The Lads in Their Hundreds (5:41)
-05. Teares (3:58)
-06. Near but Far Away (7:32)
-07. Brigg Fair (2:30)
-08. Who Wants the Evening Rose (4:46)
-09. This Is Always (4:39)
-10. A Tale from History (The Shooting) (4:36)(   Читать дальше...   )Жанр: Jazz, ECMПродолжительность: 00:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E1C7D842C9E3BBAC775159B431EF56E5A94B97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741310   (983813) от 03.01.2014
-
-Dans les arbres - Canopee (2012) [FLAC|Lossless]<Jazz, ECM>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. La Fumée (5:15)
-02. L’Émanation (3:52)
-03. La Vapeur (7:11)
-04. La Buée (1:58)
-05. L’Éther (4:25)
-06. Le Vertige (1:55)
-07. L’Immatériel (9:23)
-08. Les Cimes (7:56)
-09. La Brume (1:20)
-10. La Transparence (6:11)Жанр: Jazz, ECMПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9370B00BD0BF697A894F7913966A4BD57B3689F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435358   (983929) от 12.01.2012
-
-Little Axe - Champagne & Grits (2004) [FLAC|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. People Grinning In Your Face 03:57
-02. Finger On The Trigger 05:09
-03. Mean Things 06:17
-04. The Way I See It 00:37
-05. Walk On Water 04:49
-06. Go Away Devil 04:43
-07. Say My Name 04:44
-08. Take Me Back To The Country 01:00
-09. All In The Same Boat 04:10
-10. Living And Sleeping In A Dangerous Time 05:44(   Читать дальше...   )2004Жанр: Modern Electric BluesПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613596   (984198) от 03.02.2013
-
-Ross Lovegrove - Piano Jazz Lounge (2013) [MP3|320 кб/с]<Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Groove
- 02. In From The Rain
- 03. The Latino Vibe
- 04. Chance Meeting
- 05. Reflections
- 06. Reach Up
- 07. Cuban Skies
- 08. The L Train
- 09. Through A Window
- 10. Village Vanguard(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63E28BCCE1A40D8B8749EAD86D686531BEC8C1B
 ```
 
 

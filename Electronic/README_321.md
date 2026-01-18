@@ -1,3 +1,63 @@
+###  Публикация: 519134   (633884) от 08.07.2012
+
+VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Macarize (Intro Mix) 06:36
+02. Alandanat - Voyager (Original Mix) 07:08
+03. Outlook - Airplane (Original Mix) 06:30
+04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
+05. Eximinds - August (Original Mix) 07:56
+06. Mick Elsa - Significant Others (Original Mix) 08:07
+07. Vitodito - Pisha (Original Mix) 06:42
+08. Allan V. - What If (Original Mix) 07:56
+09. Michael Elliot - Pool Splash (Original Mix) 08:00
+10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908339   (633981) от 14.06.2015
+
+VA - Dark Rooms - Selection Erotic, Vol 1 (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camille St. Vincent - L'etrangere (The Stranger) (02:55)
+02. Tracing Arcs - Wildworld (05:50)
+03. Sideway - Headspace (02:41)
+04. Catya Mare - Tell Me Why (02:16)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Electronic, Lounge, ChilloutПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623A083BD0728EA7F02E576AD45193E64FD8469F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228814   (634116) от 02.06.2018
 
 Erik Wøllo (Erik Wollo) - Wind Journey (Special Remastered Edition) (2018) Spotted Peccary [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -642,60 +702,6 @@ Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C16936E653D3684FBFB8D13465EEB11DE2BC1B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293201   (635669) от 04.04.2019
-
-Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Закрой глаза  (3:27)
-02 - Люби меня  (3:33)
-03 - Больше не надо  (3:51)
-04 - Запомни меня  (3:18)(   Читать дальше...   )Жанр: Dance, EDMПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293345   (635670) от 04.04.2019
-
-VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slavko Blanco - Sugar Ball (Original Mix)
-02. Angelique Leroy - Rainbow In Me (Original Mix)
-03. Markus B - Alien Technology (Original Mix)
-04. Edelrost - Pizza (Extended Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:29:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1139396   (659910) от 02.06.2017
+
+Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks+ .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rupert Gregson-Williams - Amazons of Themyscira (06:48)
+02. Rupert Gregson-Williams - History Lesson (05:16)
+03. Rupert Gregson-Williams - Angel on the Wing (03:45)
+04. Rupert Gregson-Williams - Ludendorff, Enough! (07:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADDB831BFD28C4A9325062B5F02323159DE5DB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139395   (660006) от 02.06.2017
 
 Rupert Gregson-Williams - Wonder Woman / Чудо-женщина (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -689,33 +716,6 @@ Out of Berlin & Luke Woodapple - Sounds of Piano (Works of Glass, Einaudi, Richt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27117DA459CC6D3842820E0718277DEDB09D227A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031221   (668428) от 03.07.2016
-
-Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi mai (from "The Professional" & "Maddalena") [3:35]
-02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
-03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
-04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
 ```
 
 

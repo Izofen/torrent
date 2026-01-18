@@ -1,3 +1,30 @@
+###  Публикация: 980482   (955958) от 29.01.2016
+
+VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Witherspoon. Jack McDuff – Good Rocking Tonight (02:15)
+02. B.B. King. Ruth Brown – You’re the Boss (04:05)
+03. Nina Simone – My Baby Just Cares For Me (03:02)
+04. Charlie Barnet & His Orchestra – The Great Lie (03:06)(   Читать дальше...   )Жанр: Blues, Rock, SoulПродолжительность: 02:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EAC56E52BCA25E46C4C9E1F7E900DF050495189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980597   (956098) от 29.01.2016
 
 VA - Instrumental Piano Lyric (2016) [MP3|320 кб/с] <Instrumental>
@@ -670,33 +697,6 @@ VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979256   (959771) от 26.01.2016
-
-VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roy Orbison - You'll Never Walk Alone
-002. Prince - Baltimore
-003. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey)
-004. Trey Songz & DJ Drama - 03 Trey Songz - BlessedЖанр: eurodance, pop, houseПродолжительность: 07:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
 ```
 
 

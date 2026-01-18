@@ -1,3 +1,30 @@
+###  Публикация: 924619   (543078) от 05.08.2015
+
+VA - Драйвовая энергия клубного танцпола (2015) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norda - Dance For Me (Extended)
+02. Rocco - One Two Three (Phobia & Shaker Club Attack!)
+03. Mike Posner - I Took A Pill In Ibiza (Seeb Radio Edit)
+04. Gunter feat. Samanta Fox - Touch Me 2015 (Dj Dizma Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9255B49CA65EFA4925D10D80F78E029ADE239FA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925038   (543085) от 05.08.2015
 
 VA - Tampa Sunset: Ambient Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -666,33 +693,6 @@ VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6344FD9FD47057FD04AE25E0831306C23B3910C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048798   (545401) от 03.09.2016
-
-VA - Горячие Новинки От Зайцев.Нет часть 1 (2016) [MP3|189~320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Город 312  -  Времени Осталось Мало  3:45
-002. Alan Walker  -  Sing Me to Sleep  3:09
-003. In-Grid  -  Chico Gitano  3:23
-004. Hozier  -  Better Love (OST Тарзан. Легенда 2016)  3:13(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB627713C17D6C2E5706E8FBAC876981A6850DE
 ```
 
 

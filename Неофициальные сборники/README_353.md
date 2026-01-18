@@ -1,3 +1,30 @@
+###  Публикация: 1041045   (584517) от 07.08.2016
+
+VA - Жаркие танцы. Сборник 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lx24 - Недоступная
+002. Dinah Nah - If I Were Sorry
+003. Ваня Чебанов - Все Хорошо
+004. V.L.A.D. - Цунами(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE0B74F1168A8C7DDC184FFEF991F2EAE357D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041027   (584522) от 07.08.2016
 
 VA - TOP летние хиты на Русском радио 7 (2016) [MP3|256 Kbps] <Pop>
@@ -659,33 +686,6 @@ VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB31E4869A7947F3637E9BC1FE52CC5E73F2D1C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918660   (585797) от 16.07.2015
-
-VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585797.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hot Chip, Felix Martin - Ready For The Floor (Album Version)
-002. Whitesnake - Here I Go Again (USA Remix)
-003. Lily Allen - LDN
-004. Simple Minds - Don't You (Forget About Me)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 07:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5839309616C3AB1A17D3337C72391D34EA7B025A
 ```
 
 

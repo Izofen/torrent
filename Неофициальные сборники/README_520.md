@@ -1,3 +1,30 @@
+###  Публикация: 1386838   (792504) от 31.05.2020
+
+VA - Music for You vol.2 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Tension Experiment - Acid Rain (06:36)
+ 02. Haken - Nil by Mouth (06:52)
+ 03. Soen - Lascivious (05:37)
+ 04. Arch Echo - Immediate Results! (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4BA591B03AA1B50CB688E9C8CDD98B92576D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387063   (792517) от 31.05.2020
 
 VA - Music News vol.12 (2020) [MP3|320 Kbps] <Pop, Hard Rock, Dance>
@@ -669,33 +696,6 @@ VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386629   (793466) от 30.05.2020
-
-VA - Late Night Vibes Playlist Spotify (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tame Impala - Posthumous Forgiveness (6:05)
-2. Rayland Baxter - Small Worlds (5:36)
-3. Beach House - Space Song (5:18)
-4. Phoebe Bridgers - Scott Street (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 04:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:479B6C0FD49D79AA48EFF502A8D68E0A15958694
 ```
 
 

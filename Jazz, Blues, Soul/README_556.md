@@ -1,3 +1,251 @@
+###  Публикация: 1093561   (934022) от 15.01.2017
+
+VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, Vocal Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Scott - Upbeat 90's [04:28]
+02. David Benoit / Russ Freeman - Smartypants [05:43]
+03. Dr. John - Television [04:38]
+04. Diane Schuur / B.B. King - Spirit In The Dark [05:02](   Читать дальше...   )Жанр: Post-Bop, Vocal Jazz, Jazz FusionПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AE917E2063EFDAC517F390F6DF75023FD3B2E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093557   (934023) от 15.01.2017
+
+Natalie Cole - Sophisticated Lady (1996) MCPS[APE|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This will Be [02:52]
+ 02.Good Morning Heartache [04:21]
+ 03.Touch Me [04:15]
+ 04.Unpredictable You [03:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593771DDBA5A0ECD77F5ADB4F6FCB8328C53AF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985804   (934096) от 12.02.2016
+
+Dion - New York Is My Home (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aces Up Your Sleeve (3:04)
+02.  Can't Go Back To Memphis (4:21)
+03.  New York Is My Home (Feat. Paul Simon) (4:27)
+04.  The Apollo King (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A0C6B29328815C5903425CCC413DE856FE3B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985784   (934117) от 12.02.2016
+
+Erik Truffaz Quartet - Doni Doni (2016) Foufino Productions[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Comptine (feat. Rokia Traore) [01:25]
+ 02.Kudu [05:18]
+ 03.Djiki'n (feat. Rokia Traore) [04:22]
+ 04.Pacheco [06:09](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35F9B4A25B23C576A093B859FADB83FA368836F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985638   (934120) от 12.02.2016
+
+Christian McBride Trio - Live At The Village Vanguard (2015) Mack Avenue Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fried Pies [09:14]
+ 02.Band Introduction [02:38]
+ 03.Interlude [07:19]
+ 04.Sand Dune [09:07](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED86EA5C2F26F1AC4E8C37D9530F7C6001474AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985648   (934138) от 12.02.2016
+
+Elvin Jones & Masabumi Kikuchi - Hollow Out (1972) Remaster, 2015, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Apple [10:28]
+ 02.Ginkai [08:31]
+ 03.Little Abi [06:07]
+ 04.Bell [04:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6AB7F786135CEBC81C4EE54697C706D510088D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364677   (934471) от 04.03.2020
+
+100 Watt Vipers - Salvation Blues (2017) [MP3|320 Kbps] <Garage Blues, Hard Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't Gonna Break 03:40
+02. As The Waters Rise 03:58
+03. 2 Wheels Of Thunder 04:06
+04. Today These Fields Are Barren 04:15(   Читать дальше...   )Жанр: Garage Blues, Hard Rock, Blues RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DF7801F0938791A68FD085FFBBE77C243A726F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364664   (934653) от 04.03.2020
+
+Dexter Gordon - Clubhouse 1965 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanky Panky [6:32]
+02. I'm a Fool to Want You [6:45]
+03. Clubhouse [7:06]
+04. Devilette [7:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A941B8A289AC5FD4330AEE67AC7D3070379D8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176601   (934673) от 18.02.2010
+
+VA - 100 Хитoв Блюзa (Баллады) / 100 Hits Blues Ballads (2009) [MP3|192 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Since I've Been Loving You (Page / Plant) / Led Zeppelin / 1970
+2. I Love You More Than You'll Ever Know (Kooper) / Blood, Sweat & Tears / 1967
+3. I Loved Another Woman (Green) / Fleetwood Mac / 1968
+4. Red House (Hendrix) / Jimi Hendrix / 1967
+5. Cry Baby (Ragavoy / Berns) / Janis Joplin / 1971
+6. Oh! Darling (Lennon / McCartney) / The Beatles / 1969
+7. Tears Of Rage (Dylan / Manuel) / The Band / 1968
+8. Long As I Can See The Light (Fogerty) / Creedence Clearwater Revival / 1970
+9. Merry Go Round (Green) (   Читать дальше...   )Жанр: BluesПродолжительность: 08:01:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 176427   (934749) от 18.02.2010
 
 St. Germain - Tourist (2000) [FLAC|Lossless]<Elecrtonic Jazz, Future Jazz>
@@ -510,255 +758,6 @@ Anita O'Day - And The Three Sounds / Time For Two (2012) [MP3|320 кб/с]<Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A57377F1CB04098FF6A7949426E2BFA927ADF551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 753833   (935332) от 06.02.2014
-
-Andy Ausland - Lifescapes: Unwind: Piano Jazz (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Daydreamin
- 02. Manhattan Love
- 03. Cool Tuesday
- 04. Sidwalk Stroll
- 05. Out On the Town
- 06. Take It Easy
- 07. Clave Cafe
- 08. Clear Skies
- 09. Raindrops
- 10. She's the One(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3977FA2FE10149AC2AEF3B63FD72EB591BE8B470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093248   (935358) от 14.01.2017
-
-Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935358.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Time Out:
-01.Blue Rondo A La Turk [06:49]
-02.Strange Meadow Lark [07:26]
-03.Take Five [05:29](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AE9BCD7C842C5343602C8FAA3D8B580093E5FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093119   (935420) от 14.01.2017
-
-Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Glenn Kaiser Band / Broken Love  (03:35) 
-02|  Streetcorner Blues  (03:51) 
-03|  Roller Coaster  (03:00) 
-04|  Depends On Where You Stand  (03:39) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E820F1718C0D129370D650228F1CC64A5007A62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093255   (935428) от 14.01.2017
-
-The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What A Little Moonlight Can Do [05:15]
- 02.Easy Living [07:23]
- 03.I Wished On The Moon [06:52]
- 04.Love Letters [05:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECE603317AE9280C356CDC0EDA4A995FF58FD91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092981   (935430) от 14.01.2017
-
-Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cue] <Jazz-Rock, Free Improvisation, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Wishes
-02. Bourgeois Boogie
-03. Happy Hour
-04. Virgin Beauty(   Читать дальше...   )Жанр: Jazz-Rock, Free Improvisation, FusionПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB12639C25E73DC81B00DC9B794709122A349FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093254   (935435) от 14.01.2017
-
-Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Things Ain't What They Used to Be [11:00]
- 02.Blue Farouq [10:45]
- 03.Barefoot Sunday Blues [12:53]
- 04.Shoo, Shoo Baby [08:43]Жанр: Hard BopПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366D01F4287121678121D3D32EABA222E8C1CDD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093262   (935437) от 14.01.2017
-
-Seamus Blake & Chris Cheek - Let's Call The Whole Thing Off (2016) WEB [FLAC|Lossless|WEB-DL|tracks + .cue] <Mainstream Jazz, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Let's Call The Whole Thing Off
-2. Choro Blanco
-3. Lunar
-4. La Cancion Que Falta(   Читать дальше...   )Жанр: Mainstream Jazz, Cool JazzПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAEA14BBC242C3A21ED1F474C7E0C3E2D1D889E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985401   (935567) от 11.02.2016
-
-Dave Douglas Quintet - Brazen Heart (2015) Greenleaf Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Brazen Heart [07:24]
- 02.Deep River [03:59]
- 03.Hawaiian Punch [07:32]
- 04.Inure Phase [05:38](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 01:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7259E9CDC9E0F60DC1785EC7317717DB413CFA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985411   (935568) от 11.02.2016
-
-Billy Taylor - With Four Flutes (1959) Remaster, 2006, Victor [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Song Is Ended [03:58]
- 02.Back Home [06:48]
- 03.St. Thomas [02:34]
- 04.Lady Be Good [04:47](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDE42F521C28D540616551CE06187050CAE92FC
 ```
 
 

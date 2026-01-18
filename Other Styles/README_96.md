@@ -1,3 +1,30 @@
+###  Публикация: 1149227   (600216) от 11.07.2017
+
+Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds (6:49)
+02. Fall in Love (5:10)
+03. After the Rain (6:19)
+04. Inspiration (5:27)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547692   (600253) от 02.05.2022
 
 Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
@@ -664,33 +691,6 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546870   (603350) от 27.04.2022
-
-VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск 01
-01. Sanctuary 3 - Michael McCann (7 min 18 s)
-02. Landing on Athenas - Michael McCann (4 min 13 s)
-03. Liberating Athenas - Michael McCann (4 min 21 s)(   Читать дальше...   )Жанр: Game OSTПродолжительность: 05:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1B5783847552EB87C0E4693376FC380345A0E6
 ```
 
 

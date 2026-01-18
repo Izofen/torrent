@@ -1,3 +1,300 @@
+###  Публикация: 1394854   (760607) от 07.07.2020
+
+The Last Renegades - Valley of the Kings (2020) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colonel Kill (07:56)
+ 02. Mr Smile (04:18)
+ 03. 300 Strong (05:49)
+ 04. Valley of the Kings (06:34)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35BF227D348E9624E14D8274550ECB38B2F0496
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394786   (760609) от 07.07.2020
+
+Fire Tiger - All The Time (2020) [MP3|320 Kbps] <Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Take Me Home (02:27)
+ 02. So Many Fishes (03:51)
+ 03. Magical Brew (02:50)
+ 04. Undeniable (04:05)(   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A2DE7C966DBE4E4B5770AAFBF0F2618B1D4BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394806   (760613) от 07.07.2020
+
+Megatherium - GOD (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (generate) (2:51)
+02. The One (6:33)
+03. The Holy (6:09)
+04. The Truth (8:20)(   Читать дальше...   )Производство: Argonauta RecordsЖанр: Doom Metal, Stoner RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CF002614196A0AC48A7D882ADB0E79D0D1238C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394741   (760616) от 07.07.2020
+
+J.T. Wilde - Enjoy the Show (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enjoy the Show (03:27)
+ 02. One Last Drag (03:46)
+ 03. Beautiful Black Sky (03:40)
+ 04. Digital Soldiers (03:22)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF0A518B602CE73E870E50DC6F32B0A03CE44AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280404   (760626) от 03.02.2019
+
+Methods Of Mayhem - A Public Disservice Announcement (2010) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drunk Uncle Pete (2:47)
+ 02. Time Bomb (3:23)
+ 03. Louder (4:38)
+ 04. Fight Song (3:57)(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6274441CCAB59FE12FC74B6566F7D5F1EF206BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017729   (760687) от 17.05.2016
+
+Ляпис Трубецкой - Лучшее. Часть 1: Любовь и романтика (2016) [MP3|320 кб/с] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ау
+02. Ранетое сердце (Абы чо)
+03. Ты кинула
+04. В платье белом(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CB02E04E2DA30ED5606CD9FCB9E668467DBCEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215042   (761154) от 24.03.2018
+
+Константин Никольский - Любимые песни.RU (2006) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг художник и поэт (6:07)
+ 02. Я сам из тех (3:56)
+ 03. Прошедший день (5:14)
+ 04. От любви к любви (5:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6152385CC93D2D090F279AF16C758562E06B1E99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215050   (761280) от 24.03.2018
+
+Воскресение - Мы Вас Любим (1994) 2001, Bomba Music [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Есть У Меня (2:59)
+ 02. Я Тоже Был (3:21)
+ 03. Мчится Поезд (4:03)
+ 04. Сколько Было Звёзд (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0795000D80B49D5431A91208A33A8B6838BE640E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215131   (761287) от 24.03.2018
+
+Анатолий Крупнов - Я остаюсь (2018) Часть 1 - 3 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761287.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 февраля, в День Памяти артиста, стартует предзаказ на первые три пластинки, объединенных под общим названием «Я остаюсь». Летом 1993 года на студии «SNC» Анатолий Крупнов и группа «Чёрный обелиск» записали два альбома. Будучи абсолютным перфекционистом, Толя всегда скрупулезно подходил ко всем этапам работы. Случилось так, что при сведении Крупнов присутствовать (   Читать дальше...   )01. Мы в пути
+02. Дом жёлтого сна
+03. Я остаюсь
+04. Пятая песня(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5462461E4B5BBDDEF4FCA419A2BAD20642156B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214903   (761289) от 24.03.2018
+
+Lumen - Забытое и найденное (2018) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Домой
+02. Пули
+03. Вечность
+04. Самый главный человек(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A1D9A6C52239DD391E72504AA069D447B696B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215073   (761378) от 24.03.2018
+
+The Alan Parsons Project  - Eye In The Sky (1982) 1983, Arista Records [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sirius (1:54)
+ 02. Eye In The Sky (4:37)
+ 03. Children Of The Moon (4:51)
+ 04. Gemini (2:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E24CB20CC433C18C8CFBDBD59FE6F7A129A809C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214965   (761454) от 24.03.2018
 
 Blessthefall - Hard Feelings (2018) [MP3|320 Kbps] <Post-Hardcore, Electronic>
@@ -398,302 +695,6 @@ Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886689   (762430) от 10.04.2015
-
-Van Halen - 12 альбомов (1978-2012) [MP3|320 кб/с]<Classic Rock & Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Van Halen — американская хард-рок-группа. В 1972 году в городе Пасадена, штат Калифорния братьями Эдвардом и Алексом Ван Хален была образована рок-группа под названием «Mammoth». В 1973 году к ней присоединился вокалист Дэвид Ли Рот, а в 1974 году басист Майкл Энтони. В том же 1974 году коллектив получил своё нынешнее название Van Halen.
-
-Эдвард Ван Хален был признан (   Читать дальше...   )Жанр: Classic Rock & Hard RockПродолжительность: 08:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED383FD7D226C85265DBCDFE5C5DA275E90B23B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886637   (762568) от 10.04.2015
-
-Bad English - Greatest Hits (2003) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Stood Still (5:25)
-02. Straight To Your Heart (4:09)
-03. When I See You Smile (4:20)
-04. So This Is Eden (5:08)(   Читать дальше...   )Производство: Sony Music Media – 4805435Жанр: Melodic Hard RockПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E912D1E7FABE785D9D04855479D911CD16D8ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214861   (762883) от 23.03.2018
-
-Дельфин - 442 (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 520
-02. 660
-03. 744
-04. 713(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CFCEFFDF68C1D06774B29D930678CEF842906B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017164   (762946) от 16.05.2016
-
-Shexna - Вы Завийте, Витерочики... (2016) [MP3|320 кб/с] <Doom Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762946.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вы Завийте, Витерочики...
-2. Пташечка
-3. А И Повою-Ка Я
-4. Волга(   Читать дальше...   )Жанр: Doom Metal, Folk MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581E2B0AE87414CF0878AD58035EA236722E4852
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016963   (762952) от 16.05.2016
-
-Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One
-02. I (Who Have Nothing)
-03. What's Goin On
-04. Chain Of Fools(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61907322AEDFC884CF7433A868D3B1CDF959CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214735   (762998) от 23.03.2018
-
-Хитобои (Волга-Волга) - Не оригинальные - 2 (2018) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вите надо выпить
-02. Земля в иллюминаторе
-03. Мало половин
-04. Имена(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3ACFE9173AA18A1034A7DC013BE97F430BB0638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017335   (763029) от 16.05.2016
-
-Danger Zone - Closer To Heaven (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up (4:13)
-02. Go! (Closer To Heaven) (3:42)
-03. Higher Than High (4:01)
-04. I’m All In (5:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9311A62C0274674806D3243351BD7DEB4D40C7E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017061   (763031) от 16.05.2016
-
-Морэ & Рэльсы - Медленно стекать в море (2016) [MP3|320 кб/с] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Простой
-02. 1999
-03. Азия
-04. Питер(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C79E08E6B38256A6F4ABEA7282802341F61A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016941   (763035) от 16.05.2016
-
-Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medusa    05:57
-02. How The Cookie Crumbles    02:45
-03. Kill Or Kiss    04:21
-04. Move It    02:53(   Читать дальше...   )Жанр: Rock, Alternative Rock, Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1635F300385450C92594AFA6288987C34F788AE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214880   (763077) от 23.03.2018
-
-Deuce - Nightmare (2018) EP [MP3|320 Kbps] <Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed (4:41)
- 02. Do You Think About Me (5:26)
- 03. Famous (feat. Gadjet) (4:33)
- 04. Look At Me Now (5:01)(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C697EE99D749C7812F4198B543456359ADF62DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016907   (763258) от 16.05.2016
-
-Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Pay
-02. 2AM
-03. Boss
-04. Déjà Vu(   Читать дальше...   )Жанр: Experimental Rock, Indie Rock, Post-PunkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AACB4E48CC8D17F804B2E2E7511AE0E8C493E7
 ```
 
 

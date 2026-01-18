@@ -1,3 +1,300 @@
+###  Публикация: 1439091   (1040273) от 11.01.2021
+
+VA - Billboard Top Hits 1990-1994 (2000) Rhino Records, 5CD [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот должок висел за мной почти 6 лет. Уже не многие помнят серию публикаций о проекте Rhino Records. Поэтому позволю себе напомнить, что эти диски охватили практически половину столетия музыкальной жизни планеты. На них собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1995 года. Вот такая (   Читать дальше...   )1. Billboard Top Hits 1990
+2. Billboard Top Hits 1991
+3. Billboard Top Hits 1992
+4. Billboard Top Hits 1993(   Читать дальше...   )Релиз состоялся: c 15 февраля по 15 августа 2000 годаЖанр: Rock, Rock & Roll, BluesПродолжительность: 03:22:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0558B6B31E0712AF64B16B3B1AA836B4CD0AB054
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612530   (1040313) от 15.02.2023
+
+Lift The Curse - Rise With The Flames (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise With The Flames
+02. Burn It All
+03. Believe
+04. Call It What It Is(   Читать дальше...   )Жанр: Alternative Metal, RockПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0405DF0B586F861944F1D8EF1B9149E8C55882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439109   (1040336) от 11.01.2021
+
+Solstafir - Еndlеss Тwilight Оf Соdереndеnt Lоvе (2020) [FLAC|Lossless|image + .cue] <Post Metal, Dark Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akkeri
+02. Drysill
+03. Rokkur
+04. Her Fall From Grace(   Читать дальше...   )Жанр: Post Metal, Dark Metal, Viking MetalПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4ED9F7CFA26B3DEA8D1ABAFFC6FD16AF49FF997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612281   (1040352) от 15.02.2023
+
+Калевала - Пляска святого Вита (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гори по полной! [00:03:46]
+02. Пляска святого Вита [00:03:50]
+03. Ловец змей [00:04:33]
+04. Проснись во мне Зверь [00:04:38](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440857A109ED0845A4454E36A6680AF83395FA17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612339   (1040358) от 15.02.2023
+
+Обе-Рек - Персональный ад (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Персональный ад [00:04:33]
+02. Радость моя [00:05:01]
+03. Дом [00:04:15]
+04. Весна [00:05:49](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDC4A650918A0B166989326D1B682B5F0C13794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439069   (1040371) от 11.01.2021
+
+Eclipse - Viva La VicTOURia (2020) 2xCD, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040371.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Viva La Victoria (live) (3:50)
+02. Mary Leigh (live) (3:19)
+03. Blood Wants Blood (live) (3:25)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5E3AB18FC6AA44E02E7AF9581B9901798FA801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439075   (1040374) от 11.01.2021
+
+Autumn's Child - Angel's Gate (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Angels Cry
+02. Aquarius Sky
+03. Don't Say That It's Love
+04. Tear From The Sky(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100C9D152F962D78058A9B08A5063A3B3D1FE21B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439073   (1040376) от 11.01.2021
+
+Cats In Space - Аtlаntis (2020) [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dive!
+02. Spaceship Superstar
+03. Revolution
+04. Sunday Best(   Читать дальше...   )Жанр: Rock, Classic Rock, Art RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5666B65BD34559E1CE1863205119CD8D45CD0BAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439053   (1040378) от 11.01.2021
+
+Champlin, Williams, Friestedt - CWF 2 (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Rock, Melodic Hard Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Dancer
+02. 10 Miles
+03. Love In The World
+04. Amanda's Disguise(   Читать дальше...   )Жанр: Rock, Melodic Hard Rock, Soft RockПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B633EDB61C830276032D8CCCFB64F554E48AF934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439125   (1040381) от 11.01.2021
+
+Crippled Black Phoenix - Ellenaest (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Post Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Fools
+02. Lost
+03. In The Night
+04. Cry Of Love(   Читать дальше...   )Жанр: Progressive Rock, Post Rock, Stoner RockПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4413219ED9F8F39710BAED4FDA355CD54A3EF2B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612394   (1040385) от 15.02.2023
+
+Behrosth - Проделки поганого черта (2023) [MP3|320 Kbps] <Black'N'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бесопарк [00:05:10]
+02 - Имя Его - Война [00:08:29]
+03 - Преступление Без Выгоды [00:03:06]
+04 - Проделки поганого чёрта [00:03:57](   Читать дальше...   )Жанр: Black'N'RollПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB6ACA091253F8491DB86F788E4CA686DBD27FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612504   (1040391) от 15.02.2023
 
 Калевала - Пляска святого Вита (2023) [MP3|320 Kbps] <Folk Metal>
@@ -395,300 +692,6 @@ VA - Millennium Hits, 1970 -1979, Rock (1999) The Unique Collection [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF14BD71646FE253689019A242852271C255660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612074   (1040593) от 14.02.2023
-
-Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chrome City (4:20)
-02. Dirty Lungs (4:34)
-03. Marasma (5:08)
-04. Thunder of the South (4:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9063F7DC49D341AFAEE1014F1F7E0347C719B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612068   (1040596) от 14.02.2023
-
-Child's Play - Long Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe (4:28)
-02. Long Way (3:11)
-03. Foolish Pride (5:54)
-04. Kinda Life (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F6B12315BAB9FDB4323CB98901F6AA0F153055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612043   (1040598) от 14.02.2023
-
-Elyose - Deviante (2023) [FLAC 2.0|44/24|tracks|WEB-DL] <Symphonic Metal, Nu Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ils t'ont dit (03:47)
-02. Le glaive (04:37)
-03. Vendredi noir (03:56)
-04. L'emblème (04:33)(   Читать дальше...   )Жанр: Symphonic Metal, Nu Metal, Alternative MetalПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A1835C6A8F5EDA8B1FB1DA29BA7C0F391C15E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612063   (1040599) от 14.02.2023
-
-Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1991 - Black Cat Moan
-2019 - Symbols
-2023 - DepartureЖанр: Hard RockПродолжительность: 3 CD, 01:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901F4B053BECFD356A00347ACFDEF7CDEDD7CB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612049   (1040603) от 14.02.2023
-
-Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death at Dawn [00:02:08]
-02. This Is Your Calling [00:02:59]
-03. BETTER RUN! [00:03:09]
-04. Promise You're Coming Home [00:03:42](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Female VocalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5052A8C708910188D7C8253F78BC16ADF9290AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612066   (1040604) от 14.02.2023
-
-Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:51)
-02. Departure (3:49)
-03. Molotov Cocktail (3:46)
-04. Boogie Woogie Man (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612071   (1040605) от 14.02.2023
-
-Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fate (3:21)
-02. Magical (3:23)
-03. My Sweet Mary (3:11)
-04. Dreams (4:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E81593353737A62E3D9F700E663B9699C27B77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612081   (1040606) от 14.02.2023
-
-Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of the Dark (4:28)
-02. High n Dry (3:34)
-03. Forevermore (4:56)
-04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A9385916801658A0961BBC86B0B9FD617B9E14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612079   (1040608) от 14.02.2023
-
-The Poor - High Price Deed (2023) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Payback's A Bitch (4:09)
-02. Lover (4:10)
-03. Hurricane (2:59)
-04. This Is The Story (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6ABC38FE6E92F7B4BC66C098FCCAC6B7C2045C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438886   (1040617) от 10.01.2021
-
-Thrudvangar - Vegvisir (2020) [FLAC|Lossless|image + .cue] <Viking Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vegvisir (Intro)
-02. Wachter Der Brucke
-03. Jormungandr
-04. Ran(   Читать дальше...   )Жанр: Viking Metal, Pagan MetalПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C2D9532FE8BB23B6448F4AFB000D6F0BEA519A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438497   (1040620) от 10.01.2021
-
-Юрий Сучков - Проводы 2020. Посвящение ковидологам (2021) Single [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Проводы 2020. Посвещение ковидологам [00:04:36]Жанр: Alternative RockПродолжительность: 00:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1896165A7D09CF0A36076B39EFFFF7634E0046F
 ```
 
 

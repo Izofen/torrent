@@ -1,3 +1,57 @@
+###  Публикация: 1097879   (912483) от 28.01.2017
+
+VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joris Voorn - Esquape (07:12)
+02. Ten Fe - Turn (Ewan Pearson remix) (06:55)
+03. Oliver Schories - Metris (06:49)
+04. Animal Trainer & Manuel Moreno - MDMA (09:10)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91195DDF3AE416BBE65B85927CE3591C99D60F53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097848   (912586) от 28.01.2017
+
+VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diversion & Tania Zygar - On Your Mind (Intro Mix) (7:57)
+02. Christian Monique - Seven (Dimuth K Remix) (8:02)
+03. Max Graham - BCN (Radio Edit) (3:52)
+04. Conjure One - Serac (Eddie Murray Remix) (3:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F83AD40CD8B387BCE764B82D7EF149073E40EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097858   (912631) от 28.01.2017
 
 VA - Steyoyoke Black Onyx Vol.2 (2017) [MP3|320 Kbps] <Techno, Tech House, Progressive House>
@@ -647,60 +701,6 @@ VA - Sweet Vocal Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E1CB073CCBF94619657165D8F57771970A897C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097193   (916036) от 26.01.2017
-
-VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mass Digital – The Wall (06:28)
-02. Maximiljan – This World (07:17)
-03. DJ Le Roi – Avoid (07:12)
-04. Darlyn Vlys & Forrest – ColoursЖанр: Tech HouseПродолжительность: 01:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D696DDE97C3A2350A9063EB6FAF988ED93EE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097234   (916055) от 26.01.2017
-
-VA - Chillout Fantasies (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lamar Ensemble - Zero Hour  5:33
-02.  The Sura Quintet - Keep Me Company  6:05
-03.  Logophilia - Gaillardia  5:49
-04.  The Biosnakes - Sav  6:03(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A68134E7C3ABC84947DA5C59445FAD8BB6BC9F
 ```
 
 

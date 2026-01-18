@@ -1,3 +1,36 @@
+###  Публикация: 537846   (509737) от 23.08.2012
+
+VA - Capital Gold - Soul Legends (2003) 2CD [MP3|320 кб/с]<Soul, Pop, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - What's Love Got to Do With It [03:19]
+02. Marvin Gaye - Sexual Healing [04:04]
+03. Deniece Williams - Free [02:38]
+04. Isley Jasper Isley - Caravan of Love [04:21]
+05. Freddie Jackson - Rock Me Tonight [0For Old Time's Sake] [04:04]
+06. Harold Melvin & The Blue Notes - If You Don't Know Me by Now [03:22]
+07. Rose Royce - Wishing on a Star [03:57]
+08. Dionne Warwick - Heartbreaker [04:18]
+09. Ashford & Simpson - Solid [03:21]
+10. Rufus & Chaka Khan - Ain't Nobody [03:20](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65D017AFE799EE59C150BBFC00BBDEBBB5226AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931591   (510188) от 28.08.2015
 
 VA - The Dirt Lounge (Smooth Chillout & Jazz) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
@@ -693,33 +726,6 @@ Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E7AA662159DDD95AAA1B8611CB173E2DFBC391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242817   (513169) от 24.08.2018
-
-Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, American Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ole [6:30]
-02. New Blue [5:44]
-03. Blues For Kapp [5:12]
-04. Ultimate Rejection [6:18](   Читать дальше...   )Жанр: Hard Bop, Modern Big BandПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A04E26AD5A6A8E6842B6180FB066473708ACD21
 ```
 
 

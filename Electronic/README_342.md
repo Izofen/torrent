@@ -1,3 +1,57 @@
+###  Публикация: 1136280   (675065) от 22.05.2017
+
+VA - Chillout Music Mix. Wonderful Journey 2017 Vol.02: Mixed By Deep Dreamer  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giriu Dvasios - Zemaicio Zodis
+02. Ko-Dan - Township Hope
+03. Denis Rusnak - Sonnenwind
+04. Fresh Moods - Apricot - Radio-Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5023FFED554787B8BFC6AEE68CDA5079B6EE905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136260   (675077) от 22.05.2017
+
+VA - Selfhealing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Robert Scharnke - Echoes 4:10
+02.  Sertax - You Play Me So Well 7:07
+03.  Marty Bobgarner - Atome At Home 4:24
+04.  Vune - Gralm 7:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72180B32F3B447BEFA16425FC7CB95D4B6635DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223362   (675115) от 04.05.2018
 
 VA - Workout Vol 6 (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -644,60 +698,6 @@ VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223343   (677408) от 03.05.2018
-
-VA - This Growing Love - Best Love Music To Close The Perfect Date (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Caldwell - Then And Now [00:04:04]
-02. Steve Dafoe - Will You Still Love Me [00:04:37]
-03. Henrik Skanfors - Dance (Original Mix) [00:05:17]
-04. Vagabond Beach - Permission To Dream [00:03:12](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2172A0D438FE1A140EECBC30988ADA59D56A37D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135894   (677412) от 21.05.2017
-
-Maine - Scores (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chaque Etoile Est Un Soleil Qui Se Couche (04:28)
-2. Sauvette (03:24)
-3. Uncommon Places (03:23)
-4. Cadence (04:17)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61007BAAB4EFFE681D4F1B7F8C17F97B7F12559
 ```
 
 

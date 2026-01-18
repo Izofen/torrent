@@ -1,3 +1,36 @@
+###  Публикация: 755729   (927110) от 11.02.2014
+
+Eric Paslay - Eric Paslay (2014) [MP3|320 кб/с]<Country rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(3:19) 01. Keep On Fallin
+(2:50) 02. Friday Night
+(4:45) 03. Less Than Whole
+(4:15) 04. Country Side Of Heaven
+(3:27) 05. Never Really Wanted
+(3:05) 06. Here Comes Love
+(2:48) 07. Like A Song
+(3:40) 08. Good With Wine
+(4:27) 09. She Dont Love You
+(3:50) 10. Song About A Girl(   Читать дальше...   )Жанр: Country rockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C57ECDF5E0A2402762AC5553128DDF05FAC482E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588402   (927849) от 10.02.2014
 
 Parijat - 5 albums (2004 - 2013) [MP3|320 кб/с]<New age, Meditative, Relax>
@@ -752,33 +785,6 @@ Kate Jaconello - Earth and Sky (2011) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D05211415ACF65843570BA0FC9D2CD94BE0BF5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364916   (930399) от 07.03.2020
-
-VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nox, Krys Mach - Ancestral Circle
-02. Nox, Krys Mach - Navajo Pride
-03. Nox - Too Many Things to See
-04. Nox - Ancestral Circle(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
 ```
 
 

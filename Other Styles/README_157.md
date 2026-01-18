@@ -1,3 +1,36 @@
+###  Публикация: 642928   (877867) от 12.04.2013
+
+Mario Suzuki - Touching Folklore Music. Masterpiece (2007) [MP3|320 кб/с]<Instrumental, Folk, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(4:21) 01. Preludio de Romanza Confesion
+(2:48) 02. Tarde
+(4:10) 03. Recordarse de Andalucia
+(4:03) 04. Barcelona de Triste
+(3:35) 05. Milonga Olvido
+(3:39) 06. Edificio de Sueno
+(2:05) 07. Tango Pasado
+(3:23) 08. Tiempo de Corriente...Ventilacion
+(3:17) 09. Celos
+(7:23) 10. Preludio de Ventaja dos Guitarra(   Читать дальше...   )Жанр: Instrumental, Folk, Acoustic GuitarПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFFDE3858B13F4E0A9AA3570D60762532BEF8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299791   (877886) от 23.02.2011
 
 Various Artists - Lounge Del Mare Vol. 2 (Chillout Cafe Pearls) (2008) [MP3|192-224 kbps]<Ambient, chillout, lounge>
@@ -711,33 +744,6 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104121   (881710) от 14.02.2017
-
-VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (07:32)
-02. Your Greatest Enemy (02:42)
-03. The Arrival of Robin (02:52)
-04. Joker Crashes the Party (01:33)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:32 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893E9EC4D66D227258C3F473F851FEBBB1AB149A
 ```
 
 

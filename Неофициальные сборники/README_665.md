@@ -1,3 +1,30 @@
+###  Публикация: 1466099   (1018777) от 28.04.2021
+
+VA - House of the Spirit NA (2020) [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alborada - Flying Condor
+02. Ah Nee Mah - The Red Tower
+03. Wayra - Song of the River
+04. Indian Spirit - Native Dance 2(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 05:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E59453CB13CD311C1A13D8E4B4D7BA385DFA9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465883   (1018792) от 28.04.2021
 
 VA - Melodic Chill House (2021) [MP3|320 Kbps] <Chill, Deep House, Chillout>
@@ -668,33 +695,6 @@ VA - Best 80s Disco Hits 3 (2021) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F32EC03C3F6B6BB496CC1C8A0F1E8A8D28F0C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463637   (1020284) от 19.04.2021
-
-VA - Three Shaman (2021) [MP3|320 Kbps] <Native American, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Nativity - Three Shaman
-02. Soulfood - Vision Quest
-03. Joseph Fire Crow - War Dancer
-04. Navajo - Ly-O-Lay Ale Loya(   Читать дальше...   )Жанр: Native American, World musicПродолжительность: 04:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DBB3736F9DD0D276EC4693C78A95D91C6A11AD
 ```
 
 

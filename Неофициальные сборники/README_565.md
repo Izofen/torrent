@@ -1,3 +1,29 @@
+###  Публикация: 1002056   (850655) от 30.03.2016
+
+VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lounge Groove Avenue - Sweet Summer Days [02:20]
+02. Elisha La'Verne - Love It When We Do (The Antidotes Instrumental Mix) [06:07]
+03. Cool Million - Running Around (Roberto Di Carlo Remix)Жанр: House, Tech House, Deep HouseПродолжительность: 01:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8CFEE52D5016439F1CCE3E662EC201CA084421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377631   (851373) от 22.04.2020
 
 VA - Шансон Весна (2020) [MP3|320 Kbps] <Шансон>
@@ -666,33 +692,6 @@ magnet:?xt=urn:btih:3622A340FA909B4533CD98EFF33B811E515B71B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D9EA90D9A7A4D95D9CA81E7F9B987BC34BA3C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001812   (852291) от 29.03.2016
-
-VA - Super Bomb Electro 57 (2016) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACTI & Done Heavy — Ravelation (Original Mix) (4:29)
- 02. Aspyer feat. Chris Reeder — Tear It Down (Original Mix) (3:49)
- 03. Autoerotique — Ratchet (Original Mix) (3:33)
- 04. AvAlanche — Jungleland (Original Mix) (4:56)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DDBD3948C949C0227784D97D581C2C3A2AEB07
 ```
 
 

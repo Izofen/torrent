@@ -1,3 +1,57 @@
+###  Публикация: 1368672   (903662) от 23.03.2020
+
+VA - KID Recordings presents: Compilations Collection - 6 Releases (2016-2019) [MP3|320 Kbps] <Downtempo, Deep House, Chillout, Future Disco>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903662.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Subterranean Disco • Volume One
+2016 - KID Recordings presents: Tropicana Vol. 1 • Poolside Rendezvous
+2017 - Subterranean Disco • Volume Two: Nite Romantics
+2018 - KID Recordings presents: Snowed In • A Fireside Companion(   Читать дальше...   )Жанр: Downtempo, Deep House, Chillout, Synth-Pop, Future Disco, Lounge, AmbientПродолжительность: 09:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B92620AD8B97EA45168E4B102F1F3B073EA425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099388   (903669) от 02.02.2017
+
+VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chill Factory - Dark Glassed  3:34
+02.  Yves St. Pierre - Only Presence  2:53
+03.  Caanall Groove - Around The Planet  3:13
+04.  Chill Ars Project - Attached To Life (International Mix)  3:13(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86001B52B71FDF61ECCBDEB6CBA3E469B2812E13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099605   (903678) от 02.02.2017
 
 VA - Smoking Lounge: Luxury Chill-Out & Lounge Tunes Vol.7 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -629,60 +683,6 @@ Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C568A194F2F9764442BB4E049260678A5537C210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369137   (905702) от 22.03.2020
-
-Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Despina Vandi - Gia (Milk & Sugar Dub Mix) (5:42)
-02. Bocagrande - Push (Main Mix) (4:51)
-03. Tanja Monies - It's Only A Test (Andrea T. Mendoza vs. Tibet Tribal Mix) (4:36)
-04. Global Brothers - Clap Your Hands (Main Mix) (5:59)(   Читать дальше...   )Жанр: House, Disco, Progressive HouseПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:006B6C13FB1D6AF25CD6A795C38A6AB54526CD97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369205   (905703) от 22.03.2020
-
-VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Code Hypnotic Influence (Always Listen) (The McKenn-apella) (6:47)
-02. D:Facto - PDG (4:31)
-03. Bill Payer And Fat Hippy - Moon Musik (Kingkade vs. Bpfh Remix) (Guitar From H.C.B. - Hard Club Band (Bolls Mix) (3:05)
-04. Deepgroove - Electricity (5:15)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4D36305F8CB516BCE0316ABD8B3C2F12A302C6
 ```
 
 

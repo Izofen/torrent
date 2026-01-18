@@ -1,3 +1,30 @@
+###  Публикация: 1111856   (842927) от 08.03.2017
+
+ДиДюЛя - MP3 Play (2014) [MP3|320 Kbps] <Flamenco, Folk, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842927.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Фламенко
+002. Айседора
+003. Водопад
+004. Жасмин(   Читать дальше...   )Жанр: Flamenco, Folk, New AgeПродолжительность: 07:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE4D44F68BC8EA1F8DF1C657D05A3BAEC373C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112093   (842935) от 08.03.2017
 
 VA - Blues Forever vol.69 - vol.72 (2017) [MP3|320 Kbps] <Blues>
@@ -671,33 +698,6 @@ John Lee Hooker - 30 most slow Blues (2017) 2CD  [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43CA901FD93CB231C5D65DF3497796636EF59E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111991   (844789) от 07.03.2017
-
-VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844789.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC/DC - Hail Caesar 05:15
-002. Ozzy Osbourne - See You On The Other Side 06:11
-003. Deftones - Root 03:42
-004. Rammstein - Seemann 04:49(   Читать дальше...   )Жанр: Classic Hard Rock, Metal, AlternativeПродолжительность: 10:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
 ```
 
 

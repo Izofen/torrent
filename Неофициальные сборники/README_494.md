@@ -1,3 +1,36 @@
+###  Публикация: 318519   (772590) от 06.04.2011
+
+VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Tas - Without You (V I F Remix)
+02. Alex Barattini - Let Me Kiss You (Radio
+03. Alisiya - Колыбельная (Dj Pomeha Remix)
+04. Arnej - The Day Will Come (Sied van Riel Remix)
+05. Axwell - Nothing But Love (Radio Edit)
+06. Benassi Bros feat. Dhany - Hit My Heart (DJ Freedom Remix)
+07. Bob Sinclar Feat. Ben Onono - Rainbow Of Love
+08. Candi Lynn - Hopn Popn (Disco Fries Clean Radio Edit)
+09. Cher - You Haven't See The Last Of Me (Almighty Radio Edit)
+10. Coolio - Gangsta's paradise (Bernasconi & Farenthide radio mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EB0761FA3F1E204E1C68EEBBCFB17EC36E9F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015908   (772671) от 12.05.2016
 
 VA - Хиты для хорошего настроения (2016) [MP3|256-320 кб/с] <Pop>
@@ -667,33 +700,6 @@ Part 1 (Discoteka 2019!):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89571573710719430A370BDF5AE3DDC6404C3FFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278106   (773960) от 23.01.2019
-
-VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gianni Blu feat. Sansa - Thinking About You (JYYE Remix)
-02. Lipless & Patrick Baker - Stranger (Original Mix)
-03. Stravan - Eat Pussy Not Cake (Original Mix)
-04. Georgian - Closer (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:25:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
 ```
 
 

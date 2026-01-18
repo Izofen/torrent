@@ -1,3 +1,64 @@
+###  Публикация: 1541800   (642471) от 04.04.2022
+
+The London Promenade Orchestra - A Romantic Evening of Operetta: The World's Most Beautiful Melodies (2001) [FLAC|Lossless|image + .cue] <Classical, Stage & Screen, Opera>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642471.jpg" />
+</div>
+
+
+###  Подробнее
+
+London Promenade Orchestra базируется в Лондоне, Онтарио, Канада. Он был основан в 1946 году музыкантами других небольших оркестров, распавшихся во время Второй мировой войны. Сегодня в их составе 35 музыкантов, два раза в год они исполняют программы популярной классической и легкой концертной музыки.
+"Мы музыканты-любители в оркестре, играем легкую классику, (   Читать дальше...   )01. London Promenade Orchestra - Show Boat Medley: Introduction/Make Believe/You Are Love  (5:43)
+02. London Promenade Orchestra - Italian Street Song  (1:38)
+03. London Promenade Orchestra - 'Neath the Southern Moon  (2:55)
+04. London Promenade Orchestra - Tramp, Tramp, Tramp  (2:26)(   Читать дальше...   )Жанр: Classical, Stage & Screen, OperaПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C6FFF37095B9D45FECE1990B3A4CDB23618D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517397   (642879) от 03.07.2012
+
+André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_642879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade - A. Rieu / J. Tieu [04:13]
+02. Cavalleria Rusticana: Intermezzo Sinfonico - P. Mascagni [03:27]
+03. Air - J. S. Bach [05:01]
+04. The Gadfly: Romance - D. Dhostakovich [03:33]
+05. Romance In F - L. Van Beethoven [04:53]
+06. Send In The Clowns - S. Sondheim [04:05]
+07. La Traviata: Overture - G. Verdi [03:33]
+08. Carnival Of The Animals: The Swan - C. Saint-Saens [03:11]
+09. Peer Gynt Suite No.1 Opus 46: 1. Morning - E. Grieg [04:04]
+10. Salut D'Amour Opus 12 - E. Elgar [03:19](   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292775   (642932) от 31.03.2019
 
 Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
@@ -680,58 +741,6 @@ Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79FF684696C6D9AD254FBBAFE9DF7F3765FC08A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223925   (669532) от 07.05.2018
-
-VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - Gloria (1990) 1998 [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669532.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Magnificat, BWV 243 Composed By – Johann Sebastian Bach
-2. Gloria, RV 589 Composed By – Antonio VivaldiЖанр: ClassicalПродолжительность: 01:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF230557641E155C1C120597BD94E58ADA36ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136896   (670638) от 24.05.2017
-
-VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.S. Bach: Partita For Violin Solo No.3 In E, BWV 1006-Arr. For Piano By Rachmaninov-1. Preludio - Hélène Grimaud
-02. Grieg: Lyric Pieces Book X, Op.71-3. Puck - Emil Gilels
-03. Chopin: Waltz No.1 In E Flat, Op.18-"Grande valse brillante" - Alice Sara Ott
-04. Prokofiev: Toccata, Op.11 - Martha Argerich(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 06:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
 ```
 
 

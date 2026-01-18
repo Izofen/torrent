@@ -1,3 +1,30 @@
+###  Публикация: 1131285   (708777) от 05.05.2017
+
+VA - Hits Cocktail Vol.6 (2017) [MP3|320 Kbps] <Dance , Club House , Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708777.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AJR - Weak (Steve Smart Club Mix) 5:01
+002. Vanotek feat. Eneli - Tell Me Who (Deeperise Remix) 4:13
+003. Kygo & Ellie Goulding - First Time 3:14
+004. Hurts - Wonderful Life (Rakurs & Mike Prado Radio Edit) 3:34(   Читать дальше...   )Жанр: Dance , Club House , ElectroПродолжительность: 08:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE962AE9D1FC3B3ECBE5159027ECC60ED2C822F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131415   (708783) от 05.05.2017
 
 VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - Bass Edition) (2017) [MP3|320 Kbps] <Bass House, Tech House, G-House>
@@ -665,33 +692,6 @@ VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D357FB293FD5463D0A8DA62A091339AAEA94FD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401421   (709390) от 10.08.2020
-
-VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709390.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mohlavyr - Smеlands Paris
-002. Dopamoon - Time Is Money
-003. Kidbug - Lovesick
-004. The Amazing Devil - The Horror(   Читать дальше...   )Жанр: Indie Pop-RockПродолжительность: 07:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9F9233979A6F954A42954A104E7DA8339FD068
 ```
 
 

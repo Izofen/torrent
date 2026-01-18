@@ -1,3 +1,57 @@
+###  Публикация: 1147032   (609723) от 02.07.2017
+
+VA - Top Cocktail Music: From Lounge to Deep House Beats (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfonso Anagni - Steel Cool
+02. Roberto Conrado - Caravan of Dreams
+03. Daniele Benati - Funky Mission
+04. Roberto Speranzini - Autumn Life(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F7CC7D1DD645B952834812200295945DBDD896
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147039   (609736) от 02.07.2017
+
+VA - Summer Music Lounge. Selection for Dj and Clubs (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabio Tullio - Berimbau
+02. Fabio Tullio - Bailar la salsa
+03. Fabio Tullio - Bossa Luv
+04. St Project - Never Lies in Love(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4E3ECB4CA3C5ADFC0CF51075CCBF0B8DC1E976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037960   (610108) от 26.07.2016
 
 VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
@@ -653,60 +707,6 @@ aus - Discography 10 Releases (2004-2013) [FLAC|Lossless|tracks+.cue] <IDM, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF2F235F8BFB3A0BE06AB37E8B1442BFF659F92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037522   (612136) от 25.07.2016
-
-Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet (Original Mix) (7:37)
-02. Green Leaf (Extended Vocal Mix) (6:50)
-03. Elements (6:34)
-04. Some People Will Never Learn (7:40)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB16269E3628A297751807A99AEEA9F778B6EBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230843   (612332) от 14.06.2018
-
-VA - Techno Club Vol.54 - (Mixed By Talla 2XLC & Neelix) (2018) [MP3|~ 247-252] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aly & Fila With Emma Hewitt - You & I
-02 Talla 2XLC - Innuendo
-03 Darren Porter - Colours
-04 Dash Berlin Feat. Bo Bruce - Coming Home (STANDERWICK Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADED5EB714A1BEC0B2894A8FE9B0A47C420A73DE
 ```
 
 

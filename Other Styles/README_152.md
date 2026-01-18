@@ -1,3 +1,30 @@
+###  Публикация: 1109184   (860664) от 26.02.2017
+
+The City of Prague Philharmonic Orchestra - The Game of Thrones Symphony (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Classical, Epic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title ("from Game of Thrones")
+02. Goodbye Brother
+03. Season 1 Finale
+04. Warrior of Light(   Читать дальше...   )Жанр: Soundtracks, Classical, EpicПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C5B5163DC7975BDCA967B4DA751B2C3F44F1862
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 646757   (860687) от 21.04.2013
 
 Cristina Branco - Fado / Tango (2011) [FLAC|Lossless]<Fado, Tango, Vocal>
@@ -711,33 +738,6 @@ VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375666   (865391) от 14.04.2020
-
-Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aska (03:25)
-02. En dag till (06:03)
-03. Nåt (03:42)
-04. Inte här (03:44)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FE2B05D316A09297C31D006426C7D91C769D01
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1119978   (805013) от 29.03.2017
+
+VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chambers Brothers - Time Has Come Today (11:02)
+02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
+03. Jefferson Airplane - White Rabbit (02:31)
+04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119632   (805015) от 29.03.2017
 
 Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -667,31 +694,6 @@ The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BDA68C6341FB0F27A5E4FB08F1FCC7FFCE787B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383507   (807999) от 17.05.2020
-
-Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .cue] <New Age, Ambient, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambience (29:32)
-02. Ethereal Dreams (30:23)Жанр: New Age, Ambient, HealingПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B332EF11C5B2803A37E48ECA7C1AE52F46EAD5
 ```
 
 

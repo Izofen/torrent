@@ -1,3 +1,36 @@
+###  Публикация: 461747   (630369) от 04.07.2014
+
+Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe - The Drunken Sailor
+02. Theo Vaness - Bad Bad Boys
+03. Ottawan - You're OK
+04. T.H.P. - Good To Me
+05. Doris D. & The Pins - Shine Up
+06. A La Carte - Ring Me, Honey
+07. Methusalem - The Black Hole
+08. Gepy & Gepy - Body To Body
+09. Gilla - Tom Cat
+10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034732   (630427) от 15.07.2016
 
 Spawn - In the Demon's Hand (2000) (Yuki Iwai, Takayuki Iwai, Isao Abe, Crankshaft) [MP3|320 кб/с]<Score>
@@ -734,39 +767,6 @@ VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F79520E9850AD50D919AD06C71628403246899E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520805   (631744) от 09.07.2012
-
-VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блестящие - Любовь
-02. Горячие головы - Лето в Крыму
-03. DJ Fisun - History 2012
-04. Biffguyz - Bum bum bum (DJ Andy Wait remix)
-05. Milena & MaXimA - Города
-06. Elvira T - Все решено (Fresh Tunes remix)
-07. Секрет Разума - В Мире Всё Возможно
-08. Корнелия Манго - Запретная Любовь
-09. А-Студио и Quest Pistols - Медведица
-10. USB & Сергей Жуков - Скажи Зачем(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACDBA7A58B8E76E616D9D96AC5DBA9751AED7B5
 ```
 
 

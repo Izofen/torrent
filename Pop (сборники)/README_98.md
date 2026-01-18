@@ -1,3 +1,30 @@
+###  Публикация: 1211484   (777550) от 07.03.2018
+
+VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777550.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stars On 45 - Proudley Presents Star Sisters (4:00)
+002. Shorts - Comment Ca Va (3:14)
+003. Michael Jackson - Beat It (4:12)
+004. Lionel Richie - All Night Long (6:20)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013358   (777587) от 04.05.2016
 
 VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - De Top 100 Aller Tijden 1980 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3779B36DB4F6CCDFE53C6F77E479B3EDAF9C639C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205116   (783754) от 09.02.2018
-
-VA - The Rhythms Of Disco (2018) [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Synth-pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veronica Unlimited - Gimme More... (3:42)
-02. Speed Limit - The Disco Twist (4:21)
-03. Beautiful Bend - Ah - Do It (4:25)
-04. Cosmic Gal - Keep On Moving (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Synth-popПродолжительность: 05:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0902CE54A3A4CD417FF6A412BEC9AD59EF70453
 ```
 
 

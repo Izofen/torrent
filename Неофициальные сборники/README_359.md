@@ -1,3 +1,30 @@
+###  Публикация: 1300111   (593685) от 05.05.2019
+
+VA - Record Super Chart 585 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593685.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aaron Smith - Dancin (Krono Remix) (4:15)
+2.Filatov & Karas - Au Au (2:54)
+3.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB2D58E7DFBE71AE6A365D999C03D8096AA9358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300231   (593699) от 05.05.2019
 
 VA - не Громкие новинки недели 14 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -667,33 +694,6 @@ VA - Шансон года (2015) [MP3|320 кб/с]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BFCC7A438383152E16F4174C44E723E4272028B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039797   (594791) от 02.08.2016
-
-VA - Trance Energy (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sneijder Ft Christina Novelli -  Love Of My Control 7:14
-02. Arctic Moon -  Starships Over Alice (Original Mix) 8:34
-03. A & Z vs. Flynn & Denton -  Scota 8:16
-04. Matt Bowdidge -  Final Rising (Original Mix) 6:58(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 05:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865F7C4ADC21662F15637043F1BEE08CEC2F809
 ```
 
 

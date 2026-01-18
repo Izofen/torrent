@@ -1,3 +1,30 @@
+###  Публикация: 1004919   (834270) от 08.04.2016
+
+VA - 100 Хитов в дорогу (2016) [MP3|256 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Бычков - Ясноглазая
+02. Михаил Дмитриев - Ярче только звёзды
+03. Сергей Клушин - Размышления Охранника
+04. Андрей Швидько - Пуля-Время(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA4A6A241184221B76C987AA78D270A9BED4B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005076   (834365) от 08.04.2016
 
 VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
@@ -668,33 +695,6 @@ VA - Beatport Techno Electronic: Sound Pack #73 (2020) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15DDFCD5E95C4278843A86A7AC4B733BD4FFA3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380329   (835050) от 02.05.2020
-
-VA - Reggae On The Roof Vol.11 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Regaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danakil - Oublions
-002. Pablo Vannichi - Icee
-003. Lady Lava - No Duty Gyal
-004. Tia - Father Forgive Me(   Читать дальше...   )Жанр: Reggae, Dancehall, RegaetonПродолжительность: 08:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84154BBDD93EFAA7603BDA8C13F4D0DB6F83C137
 ```
 
 

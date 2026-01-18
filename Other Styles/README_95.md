@@ -1,3 +1,30 @@
+###  Публикация: 1548349   (594731) от 05.05.2022
+
+Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasteland [00:03:40]
+02. Ship Will Sail [00:03:40]
+03. Party Like a Pirate [00:02:43]
+04. After the Rain [00:03:27](   Читать дальше...   )Жанр: Folk Punk, Sailor Punk, CelticПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526752   (595523) от 25.07.2012
 
 Andres Segovia - Collections 2 альбома - 6CD (1994 - 1998) [APE|Lossless]<Classical Guitar>
@@ -713,33 +740,6 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149227   (600216) от 11.07.2017
-
-Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds (6:49)
-02. Fall in Love (5:10)
-03. After the Rain (6:19)
-04. Inspiration (5:27)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
 ```
 
 

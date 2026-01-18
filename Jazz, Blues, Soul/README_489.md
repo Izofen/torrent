@@ -1,3 +1,246 @@
+###  Публикация: 1007333   (823556) от 14.04.2016
+
+Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823556.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heartsick (03:21)
+2. Hunny Little Day Dream (04:02)
+3. Colourblind (04:42)
+4. Let's Reinvent (Love) (07:12)(   Читать дальше...   )Жанр: Blues, Jazzy Blues, Blues RockПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80D59738C35B77CAE1518E08DF39BB98BA4755E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007149   (823562) от 14.04.2016
+
+Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|Lossless|image + .cue] <Jazz,  Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Gotta Right To Sing The Blues
+02. Moon Song
+03. Don't Get Around Much Anymore
+04. Let's Fall In Love(   Читать дальше...   )Жанр: Jazz,  DixielandПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F97FD521B50B4376607BD9F41EAFC12880BC02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007197   (823640) от 14.04.2016
+
+Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bags' New Groove [06:03]
+ 02.Sandy [03:57]
+ 03.Midget Rod [05:47]
+ 04.I'm Afraid the Masquerade Is Over [03:47](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74015DA9FEEE563A394181A37266EA5F10B4E2BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007204   (823643) от 14.04.2016
+
+Milt Jackson - The Ballad Artistry of Milt Jackson (1959) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Cylinder [02:47]
+ 02.Makin' Whoopee [03:03]
+ 03.Alone Together [04:51]
+ 04.Tenderly [04:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647219F09B602E78A4E9F2FCE9ACD99CE6A749BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007309   (823647) от 14.04.2016
+
+Elvin Jones - Coalition (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shinjitu [07:41]
+ 02.Yesterdays [11:00]
+ 03.5/4 Thing [05:28]
+ 04.Ural Stradania [08:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EBD6087808E0B281DA0ADF6C60709D532D4F13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839231   (824020) от 27.11.2025
+
+Max Magro and the Wolfgang - Old Smuggler Of Outlaw Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  See My Jumper Hanging On The Line (2:35)
+02.  Going Down That Dirt Road (4:59)
+03.  Going Down South (2:20)
+04.  New Crawling King Snake (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFC2129508CA899B05A7959DE4F175663102DD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839230   (824021) от 27.11.2025
+
+Matt Mann & The Shine Runners - Wrong Side Of History (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Difference (3:23)
+02.  Whiskey Tango (2:58)
+03.  Beggars (3:28)
+04.  O.C.D. (3:26)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CB731CA946D3E39E7B4F0D7DC97603B904FF04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839229   (824023) от 27.11.2025
+
+Leonard Lowdown Brown - Street Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Master - Theme (2:37)
+02.  Party - Street Party (5:29)
+03.  Gonna - I'm Gonna Take Care of You (4:41)
+04.  Need - I Need Help (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B5799B849D694CE9597154CDC6B6FDE5A40275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839227   (824024) от 27.11.2025
+
+John Brennan - Bring It On Back To Me (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Junkyard Blues (3:05)
+02.  Bring It On Back To Me (3:05)
+03.  It Hurts Me Too (3:32)
+04.  You'll Get Yours Someday (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5FFDD99D021E4D9359EB13E44485534B64D706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839224   (824027) от 27.11.2025
 
 Ivan Rojas - Whats up! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -453,249 +696,6 @@ Duke Robillard - Blues Full Circle (2016) [FLAC|Lossless|image + .cue] <Blues, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DC53B819D36AB5177E48CBF9AC63C3149207ECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116171   (824966) от 19.03.2017
-
-Kenny Neal - Bloodline (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824966.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Нилом не может быть путаницы – он точно практикует блюз, а не водит романов с роком. Респект. Однако тут и его козыри, и ахиллесова пята в одной упаковке. Поскольку блюзроковый релиз, особенно гитаристу его уровня, элементарно загрузить агрессивным звуком, пошуметь, поорать, подпустить дыма-огня – и привет, народ сбежался:) А с блюзом сложнее. Приходится оставаться (   Читать дальше...   )01. Ain't Gon' Let the Blues Die (3:19)
-02. Bloodline (3:50)
-03. Plain Old Common Sense (5:12)
-04. Funny How Time Slips Away (4:46)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B959B7CDA14C4195E840C45A18090BA0170267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116073   (825068) от 19.03.2017
-
-Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Barbados [04:06]
- 02.All The Things You Are [07:28]
- 03.The More I See You [04:07]
- 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502896   (825142) от 16.10.2021
-
-James Brown – I'm Real (1988) [FLAC|Lossless|tracks + .cue]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribute 0:24
-02. I'm Real 5:33
-03. Static ( Part 1 & 2 ) 4:52
-04. Time To Get Busy 5:17(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCA86FFE7BBEA9D7179690D32960117F2F0BA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006910   (825393) от 13.04.2016
-
-Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Baptist Beat [07:09]
- 02.Recado Bossa Nova [08:47]
- 03.You're My Everything [05:28]
- 04.Lotus Blossom [06:55](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A241D88736BA75F48CFC9F45AF996B1AD014F9D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006756   (825470) от 13.04.2016
-
-Dennis Jones - Both Sides of the Track (2016) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enjoy the Ride [0:03:46.28]
-02. It All Depends [0:03:32.35]
-03. Better than Him [0:03:16.33]
-04. Nobodys Slave [0:03:51.25](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC557664CA1627A43F5867131FC8557AD33478B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006788   (825479) от 13.04.2016
-
-Dennis Jones - Passion For The Blues (2006) [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Mo' (3:27)
- 2. Super Deluxe (5:02)
- 3. When I Die (3:47)
- 4. Passion for the Blues (5:38)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC2D833738E173AB5ACF61E6013C4F65838C964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007019   (825484) от 13.04.2016
-
-San2 And His Soul Patrol - Hold On (2016) [MP3|320 кб/с] <Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on to Me (03:13)
-02. Just a Little Bit More (05:07)
-03. Julie (03:04)
-04. The Joker (03:47)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E37B55DCA2785761745022686EF5F460B1910D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006960   (825489) от 13.04.2016
-
-George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amsterdam After Dark [08:31]
- 02.New Arrival [07:22]
- 03.Lo-Joe [04:59]
- 04.Autumn In New York [10:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D619AA742A86ADDB064D239E17BDFA07A709E854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006902   (825580) от 13.04.2016
-
-Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Windows [12:53]
- 02.Spring Can Really Hang You Up The Most [07:16]
- 03.Johnny Hodges [09:50]
- 04.Speak Low [10:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056E4D23045665825327C55F66DF5264738FF964
 ```
 
 

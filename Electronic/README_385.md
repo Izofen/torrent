@@ -1,3 +1,57 @@
+###  Публикация: 1125264   (767928) от 15.04.2017
+
+VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Parker Feat. Chris Burke - Only You (Calenzo Remix) 04:28
+02. Nick Austin - I.O.U. (Radio Version) 03:33
+03. Man 2 Man - Male Stripper (David Strong & Sanfrandisko Remix Edit) 03:31
+04. Winman - Fade To Grey (Radio Version) 03:34(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EBA0E4685FA468155354017F2BC5B9F30C937D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125299   (768063) от 15.04.2017
+
+Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Es Palmador (Coyote Remix)
+02. How Does It Feel (FSQ Remix)
+03. Makes Me Feel (Max Essa Remix)
+04. 5th & Avenida (Joy Circuit Remix)(   Читать дальше...   )Жанр: Electronic, Ambient, ChilloutПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3D0F3F4C9A1AD730CB9BE4E587F62FC84F2019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125674   (768066) от 15.04.2017
 
 VA - Spring Lounge 2017: Chill Sounds Like Sunshine (Mixed by DJ Maretimo) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ VA - Kiez Beats: Synthwave, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B39C5E51629CE7A91CA83786913D5033EAB23A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392348   (769233) от 26.06.2020
-
-Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Ninja (7:05)
-02. Star Polygon (6:33)
-03. Path To Mind (5:43)
-04. Flight To Unknown Planet (5:44)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD7CE5C1B6F2DF05B8EBBF15F6F1A60E4C7EB87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392536   (769236) от 26.06.2020
-
-VA - Work Body Extreme Top Selection (2020) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769236.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cristian Haze - Beam Me Up (4:22)
-2. Mark Rudis - Skillz (5:07)
-3. Ale B - U Took My Love (6:45)
-4. Tinder - The Real Bass on My Mind (4:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1673B657EA531633B90D7701D6CFFC68692A13A2
 ```
 
 

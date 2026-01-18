@@ -1,3 +1,30 @@
+###  Публикация: 928599   (522542) от 16.08.2015
+
+Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. River Deep, Mountain High
+02. I Gotcha
+03. In the Midnight Hour
+04. (Your Love Keeps Lifting Me) Higher and Higher(   Читать дальше...   )Жанр: Rock, Soul, BluesПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928297   (522553) от 16.08.2015
 
 The Nerves - Jack Lee - Plimsous - Les Genies Du Rock - West Coast Pop (1994) [MP3|320 кб/с]<Rock, Pop>
@@ -622,6 +649,30 @@ magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 143040   (523131) от 15.08.2015
+
+Linkin Park - Chiba City Japan Live (2009) [MP3|320 kb/s]<Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_523131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alt.RockПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928065   (523292) от 15.08.2015
 
 Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, Progressive Rock>
@@ -644,60 +695,6 @@ Dead Letter Circus - Aesthesis (2015) [OGG| 490-512 кб/с]<Alternative Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA0E3EA9F7DC8F2A1BE936017F4AA4B2687FA0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928007   (523328) от 15.08.2015
-
-Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternative Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh-My-Night
-02. What Did I Do With My Time
-03. Cotton Wads
-04. You Collect(   Читать дальше...   )Жанр: Piano Rock, Alternative Rock, PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D202DBB5325F94C3DA9306E8B4E8E2E40C4DA694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559573   (523425) от 26.06.2022
-
-The Warning - ERROR (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 404 [00:00:56]
-02. DISCIPLE [00:03:40]
-03. CHOKE [00:03:51]
-04. ANIMOSITY [00:04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8823ECE28CBA57E19FACD0F3BC0EF9D384314E9C
 ```
 
 

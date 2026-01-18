@@ -1,3 +1,30 @@
+###  Публикация: 1204628   (784228) от 07.02.2018
+
+Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Faded
+2. Sara Farel
+3. Edo remix
+4. Up MusicЖанр: Deep HouseПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204434   (784232) от 07.02.2018
 
 The Beloved - Sweet Harmony (2017) Remix [MP3|192 Kbps] <Deep House>
@@ -662,33 +689,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204529   (784671) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Touch - The Fire Of Love ( 1986 )
-02. Nation In Blue - Dancing On My Own ( 2017 )
-03. Petr Kotvald - Big City Calling ( 1987 )
-04. Proxyon - The Shuttle ( 1993 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
 ```
 
 

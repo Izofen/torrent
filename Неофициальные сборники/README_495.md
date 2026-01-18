@@ -1,3 +1,30 @@
+###  Публикация: 1278106   (773960) от 23.01.2019
+
+VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gianni Blu feat. Sansa - Thinking About You (JYYE Remix)
+02. Lipless & Patrick Baker - Stranger (Original Mix)
+03. Stravan - Eat Pussy Not Cake (Original Mix)
+04. Georgian - Closer (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015686   (773979) от 11.05.2016
 
 Ирина Аллегрова - Перезагрузка. Перерождение (2016) [MP3|320 кб/с] <Pop>
@@ -666,33 +693,6 @@ VA - Dance (2019)[MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2599849E6294C3B178AFD2F05CBEECFE1CF4D252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014929   (775073) от 10.05.2016
-
-Dosis - Technoir: Part 1 (2016) [MP3|320 кб/с|image+cue] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775073.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Henning Baer - Gemini
-2. Roberto Capuano - Flashback
-3. Julian Jeweil - Meteorite
-4. A.Paul - Inception (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A87A4C821F0D2431F5547230453393D17B08572
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1383710   (810102) от 16.05.2020
+
+Dimitri Vegas and Like Mike - Garden Of Madness (2020) EP [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimitri Vegas & Like Mike - Garden of Madness 2020 Megamix
+02. Dimitri Vegas & Like Mike - Ocarina (Bassjackers Remix)
+03. Dimitri Vegas & Like Mike - Beast (All As One)
+04. Timmy Trumpet & MATTN & Wolfpack ft. X-TOF - Carnival (Dimitri Vegas & Like Mike Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D376361BBDCA90321ABB79FB6501C27784BA0825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198090   (810127) от 10.01.2018
+
+VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Turbotronic  -  Big Dada (Extended Mix)  5:28
+02.  Clubhunter  -  Pump It! (Turbotronic Extended Mix)  3:56
+03.  Turbotronic  -  Bba Ra Bam (Extended Mix)  4:26
+04.  Turbotronic  -  Do It (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D9704510B7213FD389ABFE65CFEE120EBB6960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009415   (810168) от 21.04.2016
 
 VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
@@ -641,60 +695,6 @@ Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DCCFD1F5B5DD7D156632F8B0090C3D1004CB62A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197856   (812019) от 09.01.2018
-
-VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dan Smooth & Elena T  -  Follow You (Original Mix)  7:12
-02.  M.PRAVDA & HollyMy  -  Internal Voice (Original Mix)  7:12
-03.  Independent Art  -  Sonus (Original Mix)  5:34
-04.  Nytigen  -  Renessance (Original Mix)  8:52(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D77DDC99FD6CB1A025D48CE37598E10A50EECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197339   (812021) от 09.01.2018
-
-VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Talamanca  -  Escape (Original Mix)  7:37
-02.  Japeboy  -  Azure (Keith Harris Remix)  8:46
-03.  Deidian  -  Zanzibar (Original Mix)  6:49
-04.  AirTraffic  -  Playground (Original Mix)  7:52(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1626A8BE21678BCEEF83810F2A9C7314502FC771
 ```
 
 

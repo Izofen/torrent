@@ -1,3 +1,36 @@
+###  Публикация: 542848   (497484) от 04.09.2012
+
+VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fonzerelli - Moonlight party
+002. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
+003. Michael Calfan - Resurrection
+004. Sway feat. Kelsey McHugh - Level up (Cahill radio edit)
+005. Shakira feat. El Cata - Addicted to you
+006. Justin Timberlake - Cry Me a River
+007. Kelly Clarkson - Stronger
+008. T-Moor Rodriguez - Welcome to the night
+009. Britney Spears - Look Who's Talking Now
+010. Chicks N Fire - Price tag (Bbop & Roksteadi mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282A25E9C1BFB59371E0FC28B4B3E11DA9719BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318042   (497803) от 04.08.2019
 
 VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
@@ -746,33 +779,6 @@ VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933156   (507166) от 31.08.2015
-
-VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Brando - Love Is A Fantasy (Radio Remix)
-02. Boris Zhivago - Love In Russia (Radio Remix)
-03. Birizdo I Am - Maybe Baby (Radio Edit)
-04. Casanova - Angel Eyes (Short Version)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 04:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72B41D258492CDE415580840B399EE16A194A33
 ```
 
 

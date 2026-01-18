@@ -1,3 +1,36 @@
+###  Публикация: 597000   (1000470) от 02.01.2013
+
+VA - Новогодний Хит За Хитом 2 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ну Погоди - Расскажи Снегурочка (Ilsur Energy & Dj Pitchugin Remix)
+ 02. Лера Кондра - Без Тебя
+ 03. Дискотека Авария - Новогодняя 2013
+ 04. Витас - Только Ты
+ 05. Алексей Кабанов feat. Dj Beast - Я Тебя Люблю
+ 06. Оксана Краски - А Девочке Хочется (Vlas Project Remix)
+ 07. White Project - Новогодняя (Radio Version)
+ 08. Artik pres. Asti - Сладкий Сон (DJ Pasha Lee & DJ Vitaco Remix).(AGRMusic)
+ 09. Константин Легостаев & DJ Kirill Clash - Самый Настоящий Новый Год
+ 10. Руки Вверх - Я Тебя Люблю (Club Mix)Жанр: PopПродолжительность: 05:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44BB6D24F0213D3EB538AE4C768B5B60783EF01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597078   (1000491) от 02.01.2013
 
 VA - Best Of Lounge Music (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
@@ -674,33 +707,6 @@ VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488879   (1001452) от 13.08.2021
-
-VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001452.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Riddler - Riddle Me This
-002. Killshot & The Straikerz - Here We Go Again
-003. Bicipay feat Yumi - Dance All Day
-004. Hypnose - You & Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
 ```
 
 

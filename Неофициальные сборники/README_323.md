@@ -1,3 +1,30 @@
+###  Публикация: 1048798   (545401) от 03.09.2016
+
+VA - Горячие Новинки От Зайцев.Нет часть 1 (2016) [MP3|189~320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Город 312  -  Времени Осталось Мало  3:45
+002. Alan Walker  -  Sing Me to Sleep  3:09
+003. In-Grid  -  Chico Gitano  3:23
+004. Hozier  -  Better Love (OST Тарзан. Легенда 2016)  3:13(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB627713C17D6C2E5706E8FBAC876981A6850DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238584   (545487) от 31.07.2018
 
 VA - Digital Electro Ultimix (2018) [MP3|320 Kbps] <Club, Trance, House>
@@ -667,33 +694,6 @@ VA - Новая Жажда Скорости. Полный Драйв! (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA6AAA9AACE8CFB72F2135128BE73435D1D5FAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238414   (547110) от 29.07.2018
-
-VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dynoro & Gigi D'Agostino - In My Mind
-002. El Profesor, Hugel - Bella ciao (HUGEL Remix)
-003. Clean Bandit - Solo (feat. Demi Lovato)
-004. Drake - In My Feelings(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
 ```
 
 

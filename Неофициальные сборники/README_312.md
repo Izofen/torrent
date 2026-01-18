@@ -1,3 +1,30 @@
+###  Публикация: 1240478   (524466) от 12.08.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 10.08.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Demi Lovato - Solo 3:41
+02. Jax Jones feat. Ina Wroldsen - Breathe 3:28
+03. Calvin Harris & Dua Lipa - One Kiss 3:35
+04. Alvaro Soler - La Cintura 3:25(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81485D679AA50A87C39D09D2735DB79D441F47D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157921   (524489) от 13.08.2017
 
 VA - Beach House: 130 DJ Selection Progressive Mix (2017) [MP3|320 Kbps] <Progressive House>
@@ -692,33 +719,6 @@ VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580987F028F325C775B9CF602B564B7F1E07602E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053053   (526479) от 16.09.2016
-
-VA - Хиты 90-х. Зарубежные (2016) [MP3|128-320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Mix - Eurodance90's mix
-02. G.E. Con-X-Ion feat. Samira - Gotta Have The Music
-03. L.A. Style - Got to Move
-04. Beat Control - Dancing Madness(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 09:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E42D459448CF3D127F1597E9C1D7B4975BEEB5F
 ```
 
 

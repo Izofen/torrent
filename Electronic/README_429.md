@@ -1,3 +1,57 @@
+###  Публикация: 1197856   (812019) от 09.01.2018
+
+VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dan Smooth & Elena T  -  Follow You (Original Mix)  7:12
+02.  M.PRAVDA & HollyMy  -  Internal Voice (Original Mix)  7:12
+03.  Independent Art  -  Sonus (Original Mix)  5:34
+04.  Nytigen  -  Renessance (Original Mix)  8:52(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D77DDC99FD6CB1A025D48CE37598E10A50EECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197339   (812021) от 09.01.2018
+
+VA - Miroslav Vrlik - Best Of 2017 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Talamanca  -  Escape (Original Mix)  7:37
+02.  Japeboy  -  Azure (Keith Harris Remix)  8:46
+03.  Deidian  -  Zanzibar (Original Mix)  6:49
+04.  AirTraffic  -  Playground (Original Mix)  7:52(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1626A8BE21678BCEEF83810F2A9C7314502FC771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197379   (812022) от 09.01.2018
 
 VA - Lounge Cocktails Vol.3 (Delicious Grooves For Cafe Bar And Hotel Suites) (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -640,66 +694,6 @@ VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197228   (813929) от 08.01.2018
-
-VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer  -  Cosmodrome (Original Mix)  4:46
-02.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Instrumentall Mix)  5:48
-03.  Attila Syah  -  Malang Rain (Extended Mix)  7:08
-04.  NoMosk feat. Maria Milewska  -  Black Light (Dub Mix)  5:29(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5A1DF13EA6BF28A399D118E52014694AC832BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656336   (814331) от 16.05.2013
-
-Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0n35ou1 (Original Mix) (08:05)
-02. Altered States (Original Mix) (07:43)
-03. Bedouin (Original Mix) (07:49)
-04. Cosmic Dancer (Original Mix) (08:57)
-05. Disappear (Original Mix) (09:21)
-06. Inner Scream (Original Mix) (08:08)
-07. Magic In Your Eyes (Original Mix) (10:57)
-08. Space Shuttle Is Burning When She Plays The Piano (Original Mix) (08:37)
-09. The Ancient Galleries (Original Mix) (07:39)
-10. Yoruba (Original Mix) (09:46)Жанр: progressive houseПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B06ED40E209DC1A28A7B26C28A996511E8EE33
 ```
 
 

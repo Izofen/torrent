@@ -1,688 +1,665 @@
-###  Публикация: 1602999   (1045859) от 08.01.2023
+###  Публикация: 1438861   (1040586) от 10.01.2021
 
-Святитель Димитрий Ростовский | Руно Орошенное (2003) [PDF, DJVU]
+Холодная сталь / Cold Steel (1987) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рождественский вечер от рук психопата погибает отец полицейского Джона Мойдана. Потрясенный Джон клянется найти убийцу и покарать. Но, приступив к расследованию, он не подозревает, что сам становится мишенью в дьявольском плане мести коварного преступника.Производство: США, Cinetel Films, Honor BetrayedЖанр: Боевик, ТриллерРежиссер: Дороти Энн ПьюзоАктеры: Брэд Дэвис, Шэрон Стоун, Джонатан Бэнкс, Джей Аковоне, Адам Энт, Эдди Иган, Сай Ричардсон, Энн Хейни, Рон Карабацос, Уильям ЛантоПеревод: Двухголосый профессиональный, авторскийСубтитры: отсутствуютПродолжительность: 01:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E20D7A2113679EAB9EFAAF2ADB59144365CAFFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438806   (1040587) от 10.01.2021
+
+Bob Moses - Falling Into Focus (Live Concert Film) (2020) WEBRip [VP9/2160p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронная музыкальная группа Боба Мозеса (Bob Moses) недавно объединила свои усилия с компанией Twitch для эксклюзивного партнерства, которое началось 23 октября с большого часового концерта, снятого с заброшенной радиобашни в Топанге, Калифорния. Начиная с вершины небоскреба с наступлением ночи, Боб Мозес медленно продвигался вниз по башне, исполняя несколько (   Читать дальше...   )1. Love We Found (00:00:00)
+2. The Blame (00:07:06)
+3. Desire (00:13:39)
+4. Hold Me Up (00:19:31)(   Читать дальше...   )Жанр: Electronic, Deep-House, SynthpopРежиссер: Owen BrownАктеры: Bob MosesПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D31B03BDEA09F9479109C07378A251E6B42BAA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438934   (1040588) от 10.01.2021
+
+Firefox Browser 78.6.1 ESR Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC28B1CAD46D68CCB66EF91F487EF605AB015E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611986   (1040589) от 14.02.2023
+
+Татьяна Полякова | Деньги для киллера (2023) [MP3, Евгения Ибрагимова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня и Маргарита дружат много лет. Причем общение приятельниц строится исключительно на нежных взаимных подколках. И вот после одного необычного случая начинается череда невероятных событий, перевернувших жизнь обеих девушек…
+По пути на дачу к Соне Маргарита видит, как двое мужчин на кладбище хотят заживо закопать третьего. Она вызывает на подмогу подругу, и вместе (   Читать дальше...   )Жанр: Современные детективыПродолжительность: 08:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97926746C28933FC57C79F5A0C9D647DFB074DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612149   (1040590) от 14.02.2023
+
+Skype 8.93.0.408 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276EB1242729EE045D066571D45D81B3A5D65E54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612041   (1040591) от 14.02.2023
+
+Лов Джоунс / Love Jones (1997) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темнокожие афроамериканцы в этой картине не матерятся, не курят травку, не искалывают себе вены и не стреляют друг в друга под оглушительный рэп, оставаясь при этом живыми людьми. В фильме рассказывается история любви молодого писателя и очаровательной девушки, профессионально занимающейся фотографией. Авторы вставили в сюжет всё, что может произойти между двумя (   Читать дальше...   )Производство: США, Addis Wechsler PicturesЖанр: драма, мелодрамаРежиссер: Теодор УитчерАктеры: Лоренц Тейт, Ниа Лонг, Исайя Вашингтон, Лиза Николь Карсон, Билл Беллами, Леонард Робертс, Бернадетт Л. Кларк, Халил Кейн, Дэвид НисбетПеревод: авторскийЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66293D7D462E74959B788747E97A2E1CBB785929
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611983   (1040592) от 14.02.2023
+
+Люттоли (Луи Бриньон) | Докритум (2022) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня этой истории слепая кошка по кличке Джу. Согласно старой египетской легенде термин «Докритум» означает одновременное растворение нескольких людей связанных кровными узами. Следы таких людей способны обнаружить только кошки.Жанр: Мистика, триллерыПродолжительность: 04:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B11B7A45A6060A2C39C077DAE59DE93C4437EA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612074   (1040593) от 14.02.2023
+
+Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chrome City (4:20)
+02. Dirty Lungs (4:34)
+03. Marasma (5:08)
+04. Thunder of the South (4:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9063F7DC49D341AFAEE1014F1F7E0347C719B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612207   (1040594) от 14.02.2023
+
+CudaText 1.184.0.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040594.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60033D7A9A70CEB4C732BCF7FC8D28969802D0A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611895   (1040595) от 14.02.2023
+
+Владимир Гриньков | Я - телохранитель (Книга 3). Заказ на олигарха (2021) [MP3, Игорь Ященко]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководитель охранного агентства направляет телохранителя Китайгородцева на Рублёвку, в семью очень небедного человека. И предстоит не самого олигарха охранять, а его ослепительную жену с годовалым ребёнком. Шеф так говорит об охраняемой: «Молодая, красивая, ноги от ушей. Тебе понравится. Вот увидишь». Но там оказалось совсем не романтично, а смертельно опасно.Жанр: детектив, триллерПродолжительность: 05:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE05DC8400088454F664595BB4C083BCE05E8608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612068   (1040596) от 14.02.2023
+
+Child's Play - Long Way (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe (4:28)
+02. Long Way (3:11)
+03. Foolish Pride (5:54)
+04. Kinda Life (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F6B12315BAB9FDB4323CB98901F6AA0F153055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611989   (1040597) от 14.02.2023
+
+Мария Дубинина | Инг-Мари. Виртуоз магического сыска (2021) [MP3, Илья Сланевский]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эбби Лерой мечтала о головокружительной карьере и не подозревала, во что ей выльется это желание. Вместе с заветным повышением она получила легкомысленного снежного эльфа Реми, его бюро магического сыска и кучу проблем в придачу. Кто-то творит запрещенную магию и убивает фэйри, а безобидное на вид расследование превращается в охоту на маньяка. И пока Эбби идет по (   Читать дальше...   )Жанр: Любовное фэнтези, Магические академииПродолжительность: 10:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E2ABB2C2890E68A2621EEECCE88EE0BA0C5422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612043   (1040598) от 14.02.2023
+
+Elyose - Deviante (2023) [FLAC 2.0|44/24|tracks|WEB-DL] <Symphonic Metal, Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ils t'ont dit (03:47)
+02. Le glaive (04:37)
+03. Vendredi noir (03:56)
+04. L'emblème (04:33)(   Читать дальше...   )Жанр: Symphonic Metal, Nu Metal, Alternative MetalПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A1835C6A8F5EDA8B1FB1DA29BA7C0F391C15E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612063   (1040599) от 14.02.2023
+
+Black Cat Moan - 3 Albums (1991-2023) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1991 - Black Cat Moan
+2019 - Symbols
+2023 - DepartureЖанр: Hard RockПродолжительность: 3 CD, 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901F4B053BECFD356A00347ACFDEF7CDEDD7CB1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612005   (1040600) от 14.02.2023
+
+Дмитрий Семеник (сост.) | Душевный лекарь. О вере и маловерии (2009) [PDF, DJVU]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045859.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Замечательное произведение свт. Димитрия, Ростовского чудотворца, написано по следам многочисленных чудесных исцелений, происшедших при образе Пресвятой Богородицы в черниговском Свято-Ильинском монастыре в XVII веке. Чудесам исцелений предшествовало появление слёз на иконе, что позволило автору сравнить это событие с ветхозаветным чудом, когда Божественная роса, (   Читать дальше...   )Жанр: ПравославиеЯзык: Русский + ЦерковнославянскийФормат: PDF, DJVU
+Бог есть свет, и нет в Нём никакой тьмы. (1 Ин. 1, 5)
+
+Где начинается неверие, там начинается жалкое низкое рабство и упадок духа; и напротив, где вера, там — величие, возвышенность, свобода духа.
+Св. праведный Иоанн Кронштадтский (1829†1908)(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2625866C64C8358A5163DE7015C8AB4074A169E
+magnet:?xt=urn:btih:9480C1B5B6AE6773B09E67B9D1ABB6FA3DC82762
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602947   (1045860) от 08.01.2023
+###  Публикация: 1612132   (1040601) от 14.02.2023
 
-VA - Lounge & Chill Out Moods, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
+Skype 8.93.0.408 [Multi/Ru]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045860.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guenter Haas - Without You (Remastered) (5:21)
-02. Sunset Boulevard Project - Guitarra Y Sol (4:30)
-03. Project Blue Sun - Dame Tu Amor (6:18)
-04. Smooth Deluxe & Josephine Sinclar - My People (5:27)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 02:15:24
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09685FE77F9996A586AEF0590F586AC8875B0AC2
+magnet:?xt=urn:btih:5E34A04336180008A87F9D99FB08D6CFC3209C98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603033   (1045861) от 08.01.2023
+###  Публикация: 1611701   (1040602) от 14.02.2023
 
-White Skies - Black Tide (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+VA - Sahara Universe 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NuMar1 - Last Day We Met (Christian Desnoyers Remix) [06:18]
+02. Rodri Santos - The Orchid (Interstellar Remix) [05:47]
+03. Marc Hackenberg - Sol (Original Mix) [07:56]
+04. DJ Tony Magic - Spiritual Journey [05:52](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69574296298B11779FAD5EDEA84914F1A65BEE32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612049   (1040603) от 14.02.2023
+
+Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death at Dawn [00:02:08]
+02. This Is Your Calling [00:02:59]
+03. BETTER RUN! [00:03:09]
+04. Promise You're Coming Home [00:03:42](   Читать дальше...   )Жанр: Alternative Rock, Alternative Metal, Female VocalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5052A8C708910188D7C8253F78BC16ADF9290AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612066   (1040604) от 14.02.2023
+
+Black Cat Moan - Departure (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (2:51)
+02. Departure (3:49)
+03. Molotov Cocktail (3:46)
+04. Boogie Woogie Man (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12914C13834EE7F0F197BB6A7BE1BABC5A9FC66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612071   (1040605) от 14.02.2023
+
+Glenn - Inner Sanctum (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fate (3:21)
+02. Magical (3:23)
+03. My Sweet Mary (3:11)
+04. Dreams (4:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E81593353737A62E3D9F700E663B9699C27B77C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612081   (1040606) от 14.02.2023
+
+Wig Wam - Out of the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of the Dark (4:28)
+02. High n Dry (3:34)
+03. Forevermore (4:56)
+04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A9385916801658A0961BBC86B0B9FD617B9E14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611969   (1040607) от 14.02.2023
+
+Анна Маркова | Святые равноапостольные Кирилл и Мефодий (2011) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемый вниманию читателей настоящий сборник «Святые равноапостольные Кирилл и Мефодий» содержит жизнеописания святых братьев, сведения об их прославлении и почитании во всем мире. Кроме того, в него включен молитвенный раздел и ряд приложений.
+
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B346E706541483D2DE04E5A96B77567EC48D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612079   (1040608) от 14.02.2023
+
+The Poor - High Price Deed (2023) [FLAC|Lossless|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045861.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What Do You Know About Love (4:14)
-02. Emily (4:12)
-03. Midnight Rendezvous (5:05)
-04. Kiss Me (As I Say Goodbye) (4:59)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:39
+01. Payback's A Bitch (4:09)
+02. Lover (4:10)
+03. Hurricane (2:59)
+04. This Is The Story (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42773E25EA155A125BE999EC820660FAFA0E0106
+magnet:?xt=urn:btih:FC6ABC38FE6E92F7B4BC66C098FCCAC6B7C2045C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603089   (1045862) от 08.01.2023
+###  Публикация: 1438438   (1040609) от 10.01.2021
 
-Ram Cheung - 19-22 Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Классика
+>>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045862.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Swing That Thing (3:23)
-02. Shake That Thing (4:04)
-03. Worried Blues (4:33)
-04. I Just Want Someone (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:59
+01. Hans Vonk: Staatskapelle Dresden - Tchaikovsky: Eugene Onegin - Polonaise (4:44)
+02. Georges Bizet - Carmen - Auf In Den Kampf (4:49)
+03. György Lehel: Budapest Symphony Orchestra - Wagner: Lohengrin - Act 3: Prelude (3:08)
+04. Charles Gounod - Faust - La Das Gold Regiert Die Welt (2:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:02:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15F5DB7E963343AD317BD84F256B4E8E0A0E2E12
+magnet:?xt=urn:btih:F731FE80BEC5E39396D1FF16FD10A26450E4CFCC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603237   (1045863) от 08.01.2023
+###  Публикация: 1438778   (1040610) от 10.01.2021
 
-Heartscore - The Edge Of Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Монархиня / Monarca (2019) WEBRip (сезон 1, серии 1-10 из 10) ELYSIUM [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045863.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040610.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Final Hug 04:14
-02. Highway Killer 02:46
-03. The Coastline 03:26
-04. Spit It Out 02:37(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:48
+Спустя 20 лет Ана Мария возвращается в Мексику и борется за контроль над принадлежащей на протяжении нескольких поколений её семье бизнес-империей текилы, которой грозит крах из-за коррупции и множества тайн.Производство: Мексика / Lemon Films, Stearns Castle, Ventanarosa ProductionsЖанр: драмаРежиссер: Хосе Мануэль Кравиотто, Фернандо Ровзар, Наталия БеристайнАктеры: Ирене Асуэла, Хуан Мануэль Берналь, Освальдо Бенавидес, Джеймс Хайд, Рехина Павон, Роса Мария Бьянчи, Карла Аделл, Дали Гонзалез, Габриела де ла Гарса, Алехандро де Ойос Парера и др.Перевод: Двуголосый любительский (ELYSIUM)Продолжительность: ~00:49:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE69740A4EA191A7F27C6C696C071902CE69F445
+magnet:?xt=urn:btih:3DEFEC68AC93898C0000FB5A5F8F26D04716F77D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603024   (1045864) от 08.01.2023
+###  Публикация: 1438923   (1040611) от 10.01.2021
 
-Andrew Borg - Let Me Dream Our Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Путешествие по Китаю (2009) TVRip (222 серии)
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045864.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040611.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Let Me Dream Our Life (4:40)
-02. Way Down (3:09)
-03. Walk Into My Arms (5:26)
-04. Devil On My Back (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:07
+Цикл документальных фильмов о Китае, показываемых на центральном китайском телеканале CCTV. Вот как его аттестует сам канал: "Эта передача рассказывает об истории, народных обычаях, культуре и искусстве различных регионов, показывает древний и современный Китай. Она поможет телезрителям русскоязычных стран глубже познать эту страну".Производство: КНРЖанр: цикл документальных фильмовРежиссер: Юань СяояньПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские (на китайскую речь)Продолжительность: 222x ~00:25:00 ÷ ~00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D24CCF75784550EFB702CB6B9293EB6D2CD3D27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603041   (1045865) от 08.01.2023
-
-Number Nine - Guilty (1997) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Verdict (0:42)
-02. Livin' On My Own (3:33)
-03. Survive (3:59)
-04. Not Tomorrow But Today (3:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31EFC11E8758582A9223D927699318297B69673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602971   (1045866) от 08.01.2023
-
-Frost - Out In The Cold (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasting Your LuvЖанр: Heavy MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC55A81AC50643E4C52540CF6EEA39C2F157EDD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602911   (1045867) от 08.01.2023
-
-Epica - Consign To Oblivion (2005) [OGG Vorbis|480 Kbps] <Rock, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunab Ku - A new Age Dawns - prologue
-02. Dance of Fate
-03. The Last Crusade - A new Age Dawns - 1
-04. Solitary Ground(   Читать дальше...   )Жанр: Rock, Symphonic MetalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34D65A98CD9502AA4F1495EDF9AE187888A1266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603056   (1045868) от 08.01.2023
-
-Weeping Kin - Gnawing (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where Eras End (08:56)
-02 - One With Nothing (07:34)
-03 - The Gift You Gave (12:54)
-04 - Burgeoning (11:34)(   Читать дальше...   )Жанр: Melodic Doom MetalПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19588A08D3C0FD57E5CE9A805C8BE629595B30A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603063   (1045869) от 08.01.2023
-
-Allison - One (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Your Hair Down (4:08)
-02. Without A Woman (3:48)
-03. Sometimes (3:20)
-04. I've Been Waiting (3:32)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F200988F2CC4AF35EB189E4F1E026C2E18CDDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603028   (1045870) от 08.01.2023
-
-Douglas Avery - Take My Rider (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Luck Blues (4:34)
-02. Take My Rider (5:13)
-03. Malibu Burnin' (4:15)
-04. Just Keep Lovin' Her (2:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602864   (1045871) от 08.01.2023
-
-The Temple - Of Solitude Triumphant (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Me To Lichno Tou Astrou (03:03)
-02 - The Foundations (10:09)
-03 - Reborn in Virtue (07:10)
-04 - Profound Loss (07:01)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E85D048A3D3E180C2E43F629C3EA615498D454A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602949   (1045872) от 08.01.2023
-
-Tryckvag - Legacy (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Legacy (04:29)
-02 - Freak Of Nature (03:57)
-03 - Pull The Trigger (04:23)
-04 - I Surrender (03:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6EDFEFA00EA443F0E178B7CBA9662A40D8CB532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603019   (1045873) от 08.01.2023
-
-Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frosty the Snowman [4:39]
-02. O Holy Night [6:37]
-03. Carol of the Bells [3:43]
-04. Joy to the World [3:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FB654137DF1372A19A0DD6E98D6CA5BB5C13B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603013   (1045874) от 08.01.2023
-
-Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045874.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. You'd Better Love Me [4:12]
-02. Nice Work If You Can Get It [3:05]
-03. Ribbon of Sand [3:20](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 02:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192A9D58E3F352F236E8B95BE062A0F33818F3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602956   (1045875) от 08.01.2023
-
-Nails - Unsilent Death (2010) 10 Year Anniversary Edition, Remaster 2020 [APE|Lossless|image + .cue] <Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conform
-02. Scum Will Rise
-03. Your God
-04. Suffering Soul(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4C789FB4067BC00D41B4E41D7C5AA1AE7C6E95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603251   (1045876) от 08.01.2023
-
-Cryptopsy - Whisper Supremacy (1998) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emaciate
-02. Cold Hate, Warm Blood
-03. Loathe
-04. White Worms(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98B08A3043EA7F25A91F8015B7AEEA9488F90DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603072   (1045877) от 08.01.2023
-
-Where's My Bible - Circle (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter I: Escape (04:26)
-02. Chapter II: Void (04:42)
-03. Chapter III: Nest (03:43)
-04. Chapter IV: Origin (03:23)Жанр: Deathcore, Death 'n' RollПродолжительность: 00:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5B28DB1FD65048E6B5A791499EA8F7CAA283D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603007   (1045878) от 08.01.2023
-
-Vic Dickenson & Urbie Green - Slidin' Swing (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Were Young, Maggie [4:53]
-02. Nice Work If You Can Get It [4:43]
-03. You Brought A New Kind Of Love To Me [5:18]
-04. Everybody Loves My Baby [9:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1FC549AD1B4198E6AEDE98D84CC0A769F6C8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603132   (1045879) от 08.01.2023
-
-Brimstone - Carving A Crimson Career (1999) Promo CD [APE|Lossless|image + .cue] <Power Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Waves 3:50
-02. Pagan Sons 6:07
-03. Autumn 4:54
-04. Carving A Crimson Career 5:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602910   (1045880) от 08.01.2023
-
-Therein - The Void Affinity (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - And the Wind Guides Us into the Storm (01:10)
-02 - The Hollow Anthems (04:19)
-03 - A Coming Dead Generation (04:56)
-04 - Straightforward (04:53)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79124026C5F9C8549DCB54722A009F1A46C70EA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603128   (1045881) от 08.01.2023
-
-Carnal Forge - The More You Suffer (2003) [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.B.F. Suicide
-02. Deathblow
-03. Ripped & Torn
-04. Destroy Life(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED9A3F0A498E1A2261B1FA5AF98C6934DDCB619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603126   (1045882) от 08.01.2023
-
-Carnal Forge - Firedemon (2000) [APE|Lossless|image + .cue] <Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Much Hell Ain't Enough For Me
-02. Covered With Fire (I'm Hell)
-03. I Smell Like Death (Son Of A Bastard)
-04. Chained(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CE74C18E7971AECD07D072BAA5AB0ECBDD6D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420256   (1045883) от 07.01.2023
-
-The Dark Pictures Anthology: Little Hope (2020) [Ru/Multi] (1.10/dlc) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045883.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Dark Pictures Anthology — серия игр в жанре ужасов с одиночным и многопользовательским режимами и разветвлённым сюжетом. 4 студента и профессор застряли в заброшенном городе Литтл Хоуп и пытаются скрыться от демонов, которые неустанно преследуют их в непроходимом тумане.Тип издания: RepackРазработчик: Supermassive GamesЖанр: Adventure (Horror), Interactive Movie, QTEЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0079D923C5D57E883AE6E83243B2E42BEE15C61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601578   (1045884) от 07.01.2023
-
-СамоИрония судьбы (2022) WEBRip [H.264/1080p]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Традиционная встречи давних друзей в бане приводит к известным последствиям. Музыкальные звезды, актеры и комики разыгрывают самые узнаваемые сцены из любимых новогодних советских фильмов и исполняют знакомые всем песни.Производство: Россия, Комеди Клаб продакшнЖанр: Комедия, музыкаРежиссер: Миша Семичев, Роман КимАктеры: Тимур Батрутдинов, Ольга Картункова, Гарик Мартиросян, Филипп Киркоров, Азамат Мусагалиев, Михаил Галустян, Павел Воля, Андрей Гайдулян, Сергей Гореликов, Ольга БузоваПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:09:37
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:CDCCA0E905858E8DC0C8897BE41F3B3956F85943
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1031295   (668776) от 03.07.2016
+
+VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps] <House, Funky, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uberjak'd - Portland (Original Mix) 04:39
+02. Vicetone - United We Dance (Club Mix) 04:37
+03. Passenger 10 - Give Me Joy (Original Mix) 03:26
+04. Nicole Kollmann - L'amour Toujours (Instrumental Version) 02:44(   Читать дальше...   )Жанр: House, Funky, ProgressiveПродолжительность: 07:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031257   (668780) от 03.07.2016
 
 Dj ruS - Radioshow summer june 2016 Vol.1 (2016) [MP3|192 Kbps] <House, Dance Pop>
@@ -664,33 +691,6 @@ VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030768   (670246) от 02.07.2016
-
-Белое Золото - Музыкальная Коллекция (2016) [MP3|320 Kbps] <Chanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я буду только твоим (03:53)
-02. Настоящая любовь (03:41)
-03. Улетай (03:47)
-04. Любимая женщина (03:36)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD34558AD40F869ABE36F22FE89B74901B6C1BA
 ```
 
 

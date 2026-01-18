@@ -1,3 +1,30 @@
+###  Публикация: 1139217   (661200) от 01.06.2017
+
+VA - American Country Blues (3CD) (2017) [MP3|256-320 Kbps] <Country, Folk Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661200.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Coco Montoya - Truth Be Told
+02. Don Williams - Cryin' Eyes
+03. Charlie Daniels - Billy The Kid(   Читать дальше...   )Жанр: Country, Folk BluesПродолжительность: 07:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0B5A16CC2132824AA22D6654AF20994B06D848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139052   (661294) от 01.06.2017
 
 VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
@@ -656,33 +683,6 @@ VA - SpaceSynth & ItaloDisco Hits Vol.26 (2017) [MP3|320 Kbps] <Italo Disco, Spa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDC7F3AB431A843EED0492708F72AB1CF6E47F5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138642   (663170) от 30.05.2017
-
-VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Diorama - Off 7:02
-02.  VNV Nation - Sentinel 5:28
-03.  Antibody - Inferno 5:25
-04.  Leaether Strip - Can We All Forgive 4:33(   Читать дальше...   )Жанр: EBM, Futurepop, SynthpopПродолжительность: 03:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6EE2E2BB03C97DBD62E3C095AA187088C2ADFC
 ```
 
 

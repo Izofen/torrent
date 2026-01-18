@@ -1,3 +1,57 @@
+###  Публикация: 1133060   (695189) от 12.05.2017
+
+VA - Big City Beats Vol. 26 (World Club Dome 2017 Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Big City Beats - Take Off Vol. 26 (Intro)  2:24
+02.  Le Shuuk - Heartbeat  4:07
+03.  The Chainsmokers - Setting Fires (feat. XYLO) (Blasterjaxx Extended Remix)  4:50
+04.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C937336D59667E77F778D68C2DAC519EAAF858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133337   (695194) от 12.05.2017
+
+VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alizera - Fairy (Radio Edit)  3:30
+02.  Skyvol - Werewolf's Heart (Radio Cut)  3:55
+03.  Michael Milov - Voice Of An Angel (Radio Cut)  3:37
+04.  Ilya Chupriy - Foggy Morning (Radio Cut)  4:07(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 02:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A0717DDA13DFB056D16C452C2E0DA5C9CED374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133047   (695195) от 12.05.2017
 
 VA - Dubai Lounge Vol.1 (Compiled by Volcanuca) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -642,60 +696,6 @@ VA - Late Night Vibes Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3CF6E70EE3D4F30C7E9DB25A98CE8C62F42BBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132883   (697228) от 11.05.2017
-
-VA - Top 20 Chillout May (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56
-02.  Den Shender - Under The Water (feat. Esoreni)  4:06
-03.  Diamans - Magic (Original Mix)  5:46
-04.  Alex Lead - Tiran Island (Original Mix)  1:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F8A5640AB9602F8E42B9AC1C3CD57B47369AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132872   (697231) от 11.05.2017
-
-VA - Slow Down Ibiza Vol.1 (Balearic Calm Chill Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nicole Starling - Into It  3:17
-02.  Ardis & Newmann - Smooth Move  6:15
-03.  Peter Pearson - Sun Lover  6:07
-04.  Bodo Schopf - We Lost A Good Friend  6:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFF56AF0A4F403E7CB4EAC15985489795F00B0B
 ```
 
 

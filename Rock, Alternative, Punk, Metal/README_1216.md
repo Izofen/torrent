@@ -1,3 +1,300 @@
+###  Публикация: 1476333   (1011676) от 11.06.2021
+
+Sleater-Kinney - Path of Wellness (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path of Wellness (2:40)
+02. High In The Grass (4:06)
+03. Worry With You (3:52)
+04. Method (4:21)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298B0403E824AE609BCFED3D26784FE1030E75EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476400   (1011677) от 11.06.2021
+
+Go Ahead And Die - Go Ahead And Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truckload Full of Bodies
+02. Toxic Freedom
+03. I.C.E. Cage
+04. Isolated / Desolated(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E4489DCA0208B2002DC814705055E5DDE2EC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476337   (1011683) от 11.06.2021
+
+Distant - Aeons of Oblivion (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Pandemonium [00:00:29]
+02 Hellmøuth [00:03:39]
+03 Temple of Taglaroth [00:03:24]
+04 Aeons of Oblivion [00:03:41](   Читать дальше...   )Жанр: Downtempo DeathcoreПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9D5D24AB3146882945D9AE91BF2ACE00CB1F3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476402   (1011685) от 11.06.2021
+
+Brother Against Brother - Brother Against Brother (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Brothers
+02. What If
+03. City Of Gold
+04. Heaven Sent(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D78644F7765FBAAE06D8BEC1E1F02686CF3F4C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476393   (1011687) от 11.06.2021
+
+Vallendusk - Heralds of Strife (2021) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Soar as the Feathers Fall [09:28]
+02. Towards the Shimmering Dawn [09:32]
+03. Ethereal Echoes of Devotion [09:16]
+04. Solivagant Heart [07:35](   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55EFD22E24C38D81F29962DD614B978DE2E7EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476188   (1011690) от 11.06.2021
+
+Lofft - Start a Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick It Up
+02. You Are The Rock
+03. Start a Fire
+04. Swap For A Good One(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEC5EA3415F729B6809B8CDDECEB3300D8B705AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476289   (1011692) от 11.06.2021
+
+Kens Dojo - The Future Looks Bright (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wait For Nothing (ft. Age Sten Nilsen)
+02. Raining Down (ft. Rasmus Andersen)
+03. Touch The Sky (ft. Brandon Baumann)
+04. Gone (ft. Chesney Hawkes)(   Читать дальше...   )Жанр: Melodic Metal, Hard RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332B113A80EE5E7E71FBC31472D648B0F93D0B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476300   (1011694) от 11.06.2021
+
+Ed-El - Deprision (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prision (Intro)
+02. Deprisión
+03. El Regreso
+04. Tu Eres Senor(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0A39C4B9DA6EF8B0B55E76C9DB0672CF4D1002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476404   (1011697) от 11.06.2021
+
+Hammer King - Hammer King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken The Thunder
+02. Baptized By The Hammer
+03. Onward To Victory
+04. Hammerschlag(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDE2FA20E768541D2EDABAF546DBA433C968577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476350   (1011698) от 11.06.2021
+
+Тени свободы - Лучше хуже (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контроль
+2. Что это за хрень (Происходит со мной каждый день)
+3. Поговори со мной
+4. Лучше хуже(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E31B84E994E42D46084E616D194612AFF4C5D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475175   (1011827) от 10.06.2021
+
+Sunglasses For Jaws - Everybody's Made Of Bones (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Me Home [00:03:22]
+02. Parti en vacances [00:02:56]
+03. Bone [00:08:50]
+04. Woke Up from Something [00:03:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877C3C420CBFDCDD383B0B04F6DF0CF93BF00506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475949   (1011833) от 10.06.2021
 
 Motorpsycho - Kingdom Of Oblivion (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic, Progressive Rock, Alternative Rock>
@@ -398,304 +695,6 @@ The Ogre - Aeon Zero (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31C8179A9A115C176D8790C7E63EE0789B1B2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475824   (1012028) от 09.06.2021
-
-Caliban - Gravity (2016) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralyzed (4:29)
-02. Mein Schwarzes Herz (3:01)
-03. Who I Am (4:12)
-04. Left For Dead (3:24)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B7FBDBE86EF89DCE1DB7F1A84540D48AD7955E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475937   (1012029) от 09.06.2021
-
-Lalle Larsson's Weaveworld - Infinity Of Worlds (2010) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Demon's Kiss 06:10
-02. Otherworldly 06:20
-03. City Of Lost Souls 11:10
-04. Beyond Shadows 08:52(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C6C013E6C210D44FFA901A314091533439EA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475763   (1012030) от 09.06.2021
-
-Rancor - Release The Rancor (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wounded Wolf
-02. Violent Dreams
-03. Soul Chamber
-04. From Warrior To God(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76DD535ECF0B363C3D5B60EE03B720EDCBBEA22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475584   (1012115) от 08.06.2021
-
-Kings Hollow - How Do We Fall (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Are You Listening [00:03:46]
-02 - Chudoku [00:05:00]
-03 - Brake [00:03:32]
-04 - Medusa [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B338EE06836C0AE1A95F0A2D17631774CC25D17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475607   (1012126) от 08.06.2021
-
-Посторонним Вход Не Воспрещен (ПВНВ) - Всем п...да! (2021) [MP3|~245 Kbps (V0)] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:39]
-02 - В огонь [00:02:54]
-03 - Рабы-приматы [00:03:18]
-04 - Кнуты и пряники [00:03:31](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677A0C642C1DF38BED7A0D1537A007F730B733C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475589   (1012136) от 08.06.2021
-
-Seize Eternity - Transit of X (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Car Crash [00:05:02]
-02 - Give In [00:03:22]
-03 - Divine [00:04:01]
-04 - Conviction [00:05:23](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock
-Страна: USAПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B8066D33C995D671EC34BC13194BA5ADF71377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475613   (1012139) от 08.06.2021
-
-Arkaza - The Seven Year Plan (2021) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I. L X V I [00:02:21]
-02 - II. Collide [00:09:43]
-03 - III. Broken [00:08:53]
-04 - IV. V I X I [00:03:18](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFAAC4601D4297741AACF4506AC3C0F2BBD0B94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475581   (1012142) от 08.06.2021
-
-David Sean Simpson - The Radical Low (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never I Say 03:59
-02. Radical Low 05:24
-03. When Will The Lights Go Out 03:45
-04. Machine 04:15(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7044523C839A2FA68C79AF3AAC103B68CE84C697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475585   (1012154) от 08.06.2021
-
-Space-Man - Charged (2021) [MP3|320 Kbps] <Progressive Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dint [00:04:44]
-02 - Saturation [00:05:31]
-03 - EINZ [00:05:30]
-04 - Octaves [00:04:24](   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DD36448F7EB9D387F0197DE01E5114EE4CBCC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475645   (1012156) от 08.06.2021
-
-S.D.I. - Sign of the Wicked (1988) Reissue, 2005, Battle Cry Records [APE|Lossless|image + .cue] <Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - coming again 05:59
-02 - sign of the wicked 03:21
-03 - megamosh 02:17
-04 - alcohol 03:33(   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24950778875B458377A38EC43092E4336F74A9AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475510   (1012159) от 08.06.2021
-
-David A. Saylor - Strength Of One (2014) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Show
-02. Now You're Leaving
-03. Flying High
-04. Don't Say Goodbye(   Читать дальше...   )Жанр: AORПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90C1F826CEA5CEDD0C3CE4E2FEFF81F22423779
 ```
 
 

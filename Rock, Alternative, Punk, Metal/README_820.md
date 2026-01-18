@@ -1,3 +1,57 @@
+###  Публикация: 923324   (564549) от 31.07.2015
+
+Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|image + .cue]<Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Don't Tell [5:02]
+02. Chain Lightning [4:33]
+03. The Pass [4:51]
+04. War Paint [5:24](   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF78A04669A5F5A3AD67791A28B2E7D479C7AD09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505753   (564600) от 06.06.2022
+
+Сектор газовой атаки - 18 Albums + 4 Compilation + 7 Single (2002-2022) [MP3|320 кб/с] <Punk-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564600.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002 - Памяти Юрия Хоя...
+2002 - Романтика с перцем
+2003 - Мат для вампира
+2003 - Страшные сказкиЖанр: Punk Rock |Продолжительность: 15:51:33 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82601C7EF5B898A06ACA6AB5D205BF791D42079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923454   (564625) от 31.07.2015
 
 Kopecky - Drug For The Modern Age (2015) [OGG|430-505 кб/с]<Alternative, Indie Pop Rock>
@@ -669,60 +723,6 @@ Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304380   (565416) от 25.05.2019
-
-Fleshgod Apocalypse - Veleno (2019) 2CD Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565416.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Fury
-2. Carnivorous Lamb
-3. Sugar(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 01:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E7ACD17584C0CBC3D41A664CA504BE78C9D860
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304228   (565417) от 25.05.2019
-
-October Tide - In Splendor Below (2019) [MP3|320 Kbps] <Melodic Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I, The Polluter
-2. We Died in October
-3. Ögonblick Av Nåd
-4. Stars Starve Me(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D49413260449954D2B0A3EB7DF872B5C85EC25
 ```
 
 

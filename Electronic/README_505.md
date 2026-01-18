@@ -1,3 +1,57 @@
+###  Публикация: 1469668   (1016267) от 13.05.2021
+
+Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut My Heart Out
+02. Killed Our Love
+03. Sounds Of Blue
+04. Say It's Over(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469204   (1016417) от 12.05.2021
+
+VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN feat. Lanie Gardner - Dreams
+02. Dimitri Vegas & Like Mike & Scooter - We Love Hardcore (Extended Mix)
+03. Mike Candys - Sky (Original Club Mix)
+04. Steve Aoki & Ben Nicky feat. Spyro & Maikki - Like It Like That (Extended Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 06:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469200   (1016430) от 12.05.2021
 
 VA - Hardstyle XXL Megamix 2021 [MP3|320 Kbps] <House, Club House, Progressive>
@@ -637,60 +691,6 @@ Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0993C27DE8E96F4E9AFDEB1D2C9FA079ABACA91E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466589   (1018372) от 30.04.2021
-
-Yello - Yello 40 Years (2021) 4CD, Remastered [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It (Marky P. & Teri B. Dub) [00:07:47]
-02. Limbo (Circle Sky Remix) [00:07:12]
-03. Electrified II (Carl Craig Headphone Hookup) [00:06:53]
-04. How How (Papa-Who-Ma-Mix) [00:05:50](   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 4 CD, 04:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A4AC1F82FF1816D4F373C1894EC2FB475AA318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466633   (1018391) от 30.04.2021
-
-Beta Consciousness - Synesthesia (2021) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scope (13:14)
- 02. Use All Your Senses (08:39)
- 03. Synesthesia (05:25)
- 04. Audionom (07:50)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590B82ADE2B753702764CE3BF16E13C834C63AED
 ```
 
 

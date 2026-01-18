@@ -1,3 +1,57 @@
+###  Публикация: 1101023   (897916) от 05.02.2017
+
+VA - Goa 2017 Vol.1 (Compiled By DJ Bim) (2017) [MP3|320 Kbps] <Trance, Psychedelic, Full On>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Static Movement - Sian  8:48
+02.  Sirion - As You Are (Ellinio & Orisma Remix)  8:10
+03.  Orisma - Balance Of the Universe  7:50
+04.  Microlin - What I Really Need  8:29(   Читать дальше...   )Жанр: Trance, Psychedelic, Full OnПродолжительность: 02:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D018917F2D503CF663B373B96282048C2B416392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100944   (897938) от 05.02.2017
+
+VA - Chill Soul (Life + Love + Relax) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauri J - Ceppo Statico
+02. Lounge Dreamers - Borabora
+03. Guido Mandreoli - Synth My Bell
+04. Novo Som - Acapulco Express(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 03:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C9DEF8C41BE88D140F93BA01666E3D5879FE1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101013   (898085) от 05.02.2017
 
 VA - Chill Out Love Collection Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ VA - Project Zen. Ultimate Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1E7F39F64632DE3098885B57F927C37395CAFA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369979   (900162) от 25.03.2020
-
-Сергей Сиротин (Sergey Sirotin) - Эротическая музыка (3 альбома) (2001) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листок лотоса (3:32)
-02. До свидания (3:49)
-03. Фантазия (3:50)
-04. Колдовство (4:33)(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 02:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E30D6E63A747C51C7956A476430976966535070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369624   (900338) от 25.03.2020
-
-Sufjan Stevens and Lowell Brams - Aporia (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ousia (02:33)
-02. What It Takes (03:23)
-03. Disinheritance (01:13)
-04. Agathon (03:02)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1CC22F33B1A6D3DCBC0372731DFF862E69EEDA8
 ```
 
 

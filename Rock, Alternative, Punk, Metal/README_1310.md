@@ -1,3 +1,299 @@
+###  Публикация: 1602087   (1046230) от 04.01.2023
+
+Lost In Bohemia - 1 Album, 1 Single (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial metal, Doom, Gothic metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden of England [00:04:46]
+02. Those Who Built the Engines [00:03:20]
+03. The Man Machine [00:03:02]
+04. Sea and Sky [00:03:34](   Читать дальше...   )Жанр: Industrial metal, Doom, Gothic metalПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34B1E2702684FED9AFC77D66C305EC30055923F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602170   (1046231) от 04.01.2023
+
+Maladie - Wound of Gods (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Avant-garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eternity Denied (05:16)
+02 - Dying Immortality (04:00)
+03 - Wound of Gods (05:33)
+04 - A Fool's Joy (04:22)(   Читать дальше...   )Жанр: Progressive, Avant-garde Black MetalПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDF42B4478B0A5D211E2B39A1219CEA9B26E3DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602064   (1046254) от 03.01.2023
+
+Space Mirrors - Majestic Tapes (2022) [FLAC|Lossless|WEB-DL|tracks] <Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 12 Majic Eyes (00:05:01)
+02 - Tunguska (00:09:50)
+03 - Krill Revelations (00:06:38)Жанр: Space Rock, Psychedelic RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EE2D896696710B18158F5E2CFF5DF3F7DA304E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602044   (1046255) от 03.01.2023
+
+N.Y. Fury - I Want It All (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game [00:03:25]
+02. I Want It All [00:03:32]
+03. Danger I Face [00:03:39]
+04. Dance [00:03:06](   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB03B9633D91297036B912DF4B3DF131E6AEC89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602036   (1046260) от 03.01.2023
+
+Black Sky Giant - 5 Albums (2020-2023) [MP3|320 Kbps] <Heavy Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Orbiter (Remastered, 2021)
+2021 - Falling Mothership
+2021 - Planet Terror(   Читать дальше...   )Жанр: Heavy Psych, Stoner, SpaceПродолжительность: 5 CD, 03:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80739D3922EED91EF54DF069545B8D888ADDA515
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601924   (1046261) от 03.01.2023
+
+Турбогроб - Гипертурбореальность (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Погружение [00:02:19]
+02. Псионический луч [00:03:29]
+03. Мы за тобой следим [00:04:05]
+04. Королева черной дыры [00:05:15](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2964901B91B231B9ABDA71039DD982AEC270BEA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602072   (1046263) от 03.01.2023
+
+Heretic - Dominion (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Intro 01:38
+2.Dia Del Juicio 02:24
+3.Placer De La Tragedia 03:03
+4.Disembodied 02:37(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB9A5CC018E25459C030E3771A359B17D791385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601971   (1046264) от 03.01.2023
+
+Horrid Sight - Evil Made Flesh (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evil Made Flesh (04:15)
+02 - Sunk Ship (05:29)
+03 - World Of Slime (06:30)
+04 - Transitory Wealth (04:04)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA4A0108D6C8E411A50C962D9FADB50E0D4F382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602038   (1046265) от 03.01.2023
+
+Гаснет Свет - In Tenebris (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal, Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На распутье [4:27]
+02. Чёрная кровь [5:07]
+03. Осколки [4:03]
+04. Пленники шторма [6:42](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Epic MetalПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D50CF852F307F4F2A20E4334DF07AADBDAF1A39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601961   (1046266) от 03.01.2023
+
+Steele - Steele (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tricks Up My Sleeve
+02. Love Ain't Gonna Change Me
+03. 700 Miles
+04. Flirtin' With Fame(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC74A8F8BA6324FCA94DEC6A592570F2A3A8262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601993   (1046270) от 03.01.2023
+
+Imperium of Vanity - Countdown (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Countdown (01:08)
+02 - Shameless World (05:45)
+03 - Incoming Danger (06:43)
+04 - Alone (04:42)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85473084DE7BC221B8560D17D8D5461A094842C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602004   (1046273) от 03.01.2023
 
 Ingested - Ashes Lie Still (2022) [FLAC|Lossless|WEB-DL|tracks] <Slam, Brutal Death Metal, Deathcore>
@@ -398,303 +694,6 @@ Transcend All Negative Energy - Trust the Penguin (2022) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3070FA81313BCFACFC496957687FC0F01BD729B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601717   (1046350) от 02.01.2023
-
-Nova Epica - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe [00:02:16]
-02. Blood Stained [00:04:59]
-03. The Void of the Universe [00:04:31]
-04. The Breaking Point [00:03:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 2 CD, 01:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB63B4E50B194B9F854F6172A8410FBF48BB23ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601872   (1046352) от 02.01.2023
-
-Parkway Drive - Reverence (2018) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing Wells
-02. Prey
-03. Absolute Power
-04. Cemetery Bloom(   Читать дальше...   )Жанр: Metalcore, Heavy MetalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21A81F0CF2AFC97E71B138C9B8C861C8B4F8672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601802   (1046353) от 02.01.2023
-
-August Red - Sunshine Melodies (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Yacht Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046353.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Faded Memory Song (3:38)
-2. Sunshine Melody (4:07)
-3. Never-Ending Story (5:10)
-4. This Night Won't Last Forever (4:22)(   Читать дальше...   )Жанр: AOR, Yacht RockПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBEA03B0369F3A9497EFD81117F3DA6A7663B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601782   (1046355) от 02.01.2023
-
-Broken Silence - Discerning The Times (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streets Of The Empty Soul
-02. Higher
-03. Not Love At All (It's My Heart)
-04. Naked(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186DD794A6A6CCA53435769382B78381DD44D5A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601798   (1046356) от 02.01.2023
-
-Nilver Perez - Living In Desire (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking The Cycle (Lead Vocals – Daniel Vargas) (4:42)
-02. We Belong To The Stars (Lead Vocals – Fabio Cabral) (4:16)
-03. Secret (Lead Vocals – Caroline Breiter) (5:23)
-04. Keep The Dreams Alive (Lead Vocals – Ricardo DeStefano) (5:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59AE29696F5E7D5A78F3871AB43F3C51FC5EBCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601725   (1046357) от 02.01.2023
-
-Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2016 - Rascunho
-2017 - Caravela Escarlate
-2023 - IIIЖанр: Progressive Rock, Symphonic ProgПродолжительность: 3 CD, 02:12:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA62529CFBC5AC44B459A304835A75A14F19159A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601719   (1046358) от 02.01.2023
-
-Energema - Promised Land (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Rise of Ramses II (Overture) (01:02)
-02 - The Eyes of Pharaoh (04:35)
-03 - Promised Land (04:30)
-04 - The Burning Bush (07:02)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD336F1CE7924DC06E2D980ABCCEA2F44DEE608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601804   (1046360) от 02.01.2023
-
-Energema - Magical Force (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Manoah's Prayer (00:49)
-02 - My Destiny (03:36)
-03 - Sunset of a Seventh Day (05:27)
-04 - Samson's Vengeance (04:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764DD74DFE42037205E93EE86124EE148DC84372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601702   (1046361) от 02.01.2023
-
-Zombiophilia - 4 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Pay Taxes - Sponsor War
-2021 - Dead Brain
-2022 - Madness(   Читать дальше...   )Жанр: Death Metal, Pagan MetalПродолжительность: 4 CD, 02:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6623CBDF2B921ED332421CA89708A8FC019B921
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601799   (1046362) от 02.01.2023
-
-Energema - The King of the Giants (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Valley of Elah (01:06)
-02. The King of the Giants (04:42)
-03. The Last Hero (04:11)
-04. War of Nephilims (04:35)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63A0DC104036A4572DEEE6F9FAE098DB9A30A20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601664   (1046422) от 01.01.2023
-
-Eonia Rise - Rise From The Light Blast (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rebirth (02:17)
-02 - Eonia Rise (04:33)
-03 - Rotary Swords (05:13)
-04 - A million miles away (04:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC75089C198ED843E8352C5F1B3DEEA9B81797
 ```
 
 

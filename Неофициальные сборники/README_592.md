@@ -1,3 +1,30 @@
+###  Публикация: 1101934   (893070) от 08.02.2017
+
+VA - Ресторан Кураж зимний выпуск №3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - Дубай-Питер-Вологда 4:00
+002. Александр Курган - Сердце Прости 3:26
+003. Александр Казанцев (Сотник) - Никому Не Желаю Зла 3:21
+004. Владимир Захаров - Я Не Пойму 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18944E208EA528C87A51AA34587E81AD8D1F4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101933   (893129) от 08.02.2017
 
 VA - Отдыхаем душой на радио Шансон выпуск №2 (2017) [MP3|256 Kbps] <Шансон>
@@ -674,33 +701,6 @@ VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993797   (894114) от 06.03.2016
-
-VA - Spring Relaxation Cafe: Cool Ambient And Chillout Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillplaza - White Horse - Aurora Burials Mix
-02. Guilty by Innocence - Thief of Heart - Shades of Stalker Erotic Downbeat Buddha Mix
-03. Sterling Ground - El Nino - Spting Break Part Mix
-04. Marry Me - Deep Crush - Goa Beach Bar Lounge Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416D147B53CE0D73C020CB9D6263F938ABAB72BA
 ```
 
 

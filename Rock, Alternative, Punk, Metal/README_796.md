@@ -1,3 +1,57 @@
+###  Публикация: 925888   (536927) от 08.08.2015
+
+Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Ga Ga
+02. A Kind Of Magiс
+03. We Are The Champions
+04. Under Pressure(   Читать дальше...   )Жанр: RockПродолжительность: 02:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3131CC0AC270A10BC51F2A487CF9528B0E4FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925891   (536936) от 08.08.2015
+
+Queen - MTV Music History: The Greatest Hits III-IV (1999) 2CD [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Show Must Go On
+02. Mr. Bad Gay
+03. The Invisible Man
+04. The Miracle(   Читать дальше...   )Жанр: RockПродолжительность: 02:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3931668BDC290BC7CDE35F4C2A8B0B9B8AA6C717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239560   (536968) от 06.08.2018
 
 Monument - Hellhound (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -641,60 +695,6 @@ Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154792   (537242) от 01.08.2017
-
-Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bedlam Overture (14:40)
-2. Machina (05:17)
-3. Pile Of Ash (04:18)
-4. Our Last Goodbye (07:44)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE59F1472E2D7ADD24DE944B6EB419D298C48D12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155044   (537243) от 01.08.2017
-
-Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding And Ruling (3:25)
-02. Enemy Daggers (3:57)
-03. I Want It All (4:38)
-04. Face In The Rain (3:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ECB9AE0D4A74FF6BC2EA2F1A7FF8651991BAC3
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1018255   (755421) от 20.05.2016
+
+VA - В Ремиксах. Disco 90-х 100 hits (2016) [MP3|192-320 кб/с] <Club, House, Trance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Base - All She Wants (SNBRNxKLATCH Remix)
+ 02. Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)
+ 03. Adele feat. Capella - Move On Baby (DJ MiR Mush Up Mix Edit)
+ 04. Adriatique - Modern Talking (Original Mix)(   Читать дальше...   )Жанр: Club, House, Trance, RemixПродолжительность: 08:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395410   (755475) от 10.07.2020
 
 VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, Soul>
@@ -670,33 +697,6 @@ Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522768   (756766) от 08.01.2022
-
-VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756766.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lynnea M - Three Little Words (Syn Cole VIP Mix) (03:05)
- 002. ALIENKEY feat. NADVAMU - Чужая (03:23)
- 003. Alina Gerc - Hello (01:37)
- 004. Alison Wonderland - Fear Of Dying (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
 ```
 
 

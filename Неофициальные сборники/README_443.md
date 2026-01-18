@@ -1,3 +1,30 @@
+###  Публикация: 1131799   (705403) от 07.05.2017
+
+VA - Драйвовый молодежный весенний музон выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705403.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тимур Спб - Лучшая Подруга 3:27
+002. Евгений Дворянинов - На Желанье 3:25
+003. Наталья Морозова - Холодом 3:25
+004. Егор Крид & Molly - Если Ты Меня Не Любишь 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0339EFC21C6974BD342D7BF07DC4F68B2B3BF06D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287174   (705521) от 06.03.2019
 
 VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -679,33 +706,6 @@ VA - Brooklyn Bounce (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3D8013C99A3003D3E896EF7DDA1B81534B97387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287051   (707107) от 05.03.2019
-
-VA - Partybreaks and Remixes - All In One November 001 (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Electronic, Eras>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jeff92 & Sumania  Alan Cook - Do You Want To Stay (Jeff92 & Sumania Redrum)
-002. Collini  Basslovers United - A+ Superstar (C - Baumann Remix)
-003. Jeff92 & Sumania  Company B - Fascinated (Jeff92 & Sumania Redrum)
-004. Frankie Steel   Clean Bandit,  Julia Michaels - I Miss You (Trp Remix)(   Читать дальше...   )Жанр: Disco, Funk, Soul, Electronic, ErasПродолжительность: 10:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6E71039288104E47D0977DBBE81D17BAACF9DB
 ```
 
 

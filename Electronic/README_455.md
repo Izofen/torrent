@@ -1,3 +1,57 @@
+###  Публикация: 1373361   (880338) от 06.04.2020
+
+The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wave, Power Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_880338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Can You Fix Me Up With Her
+2 He's Takin' You To The Movies
+3 T.V. Private Eye
+4 You Are The One(   Читать дальше...   )Жанр: New Wave, Power PopПродолжительность: 00:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDAEAF9AAA7E0E47493CE729EF73FCD9B12B9C3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495447   (880529) от 12.09.2021
+
+Gregory - Unknown Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Universe (6:17)
+02. Invasion Of Mars (4:44)
+03. New Adventures In Space (6:10)
+04. The Laser Cannon (4:29)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2D2A2A9E575B9FAB981EA7D83398FA2AA1C593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495010   (880617) от 12.09.2021
 
 VA - VREMЯ VПERЁD! Russkiй Pizdэnц (1993) Air Fish Records [FLAC|Lossless|tracks + .cue] <House, Hardcore, Ambient, Trance>
@@ -637,60 +691,6 @@ VA - Arecibo Calling (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F97FF9EC2ABA5D56BFCAA81E035C8EEA4E7643D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373228   (882037) от 05.04.2020
-
-VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну чем ещё заниматься в период самоизоляции? Конечно, слушая хорошую и спокойную музыку, успокаивать себя, что всё будет замечательно, все будут живы и здоровы. Вот и вы медитируйте и будьте здоровы!01. Chambre 2 - Le matin se reveille (Original Mix)  (4:38)
-02. Jens Buchert - Fluffy Sky (Original Mix)  (5:51)
-03. Ladder & Rachel Rubinger - Infinity (Original Mix)  (4:32)
-04. Counterweight - Magic Night (Original Mix)  (5:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D94CFDFB37416E056E303E464AAA455342BE76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372954   (882061) от 05.04.2020
-
-VA - Psychedelic Selections Vol.004 (Compiled by Antinomy) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Antinomy - A New Dawn (7:46)
-2. Symbolic - The Future (Original mix) (8:17)
-3. Liquid Soul; Protonica; Ljuuba - Levitate (7:55)
-4. Modus - Disconnected (Original mix) (6:49)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:10:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB48FBE40FE4A34F05FA7578DABBD78CC7AD3813
 ```
 
 

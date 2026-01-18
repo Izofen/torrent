@@ -1,3 +1,30 @@
+###  Публикация: 1440072   (1039035) от 16.01.2021
+
+VA - не Громкие новинки недели 94 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passmurny - Блик (5:02)
+02. Йорш - В Сердце Игрушки (4:09)
+03. Санджая - Иллюзия Счастья (4:07)
+04. Екатерина Бродская - Любовь и Разлука (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E0CA84CA512EE8118AA107BB6E617A5B91CC18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439748   (1039513) от 14.01.2021
 
 VA - National Pop Dance Music Vol.10 (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846746   (1051647) от 
-
-VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Лазарев - Тут или Там (3:24)
-002. Marshall Jefferson feat. Maesic & Salome Das - Life Is Simple (Move Your Body) (2:52)
-003. KATSEYE - Gabriela (3:17)
-004. Coldplay feat. Little Simz & Burna Boy & Elyanna & Martina Stoessel - We Pray (Tini Version) (3:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
 ```
 
 

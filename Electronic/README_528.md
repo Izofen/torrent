@@ -1,3 +1,57 @@
+###  Публикация: 1616002   (1036980) от 28.02.2023
+
+Maxthor - Nothing (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Synth Rock, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons of Darkness [00:05:22]
+02. Silence [00:06:04]
+03. Colossus [00:04:07]
+04. The Last Dance [00:04:38](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65E3846490AB25DBBA14F003CAB84BEA7853730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615949   (1036987) от 28.02.2023
+
+VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) [6:10]
+02. Innellea - Targo (Original Mix) [5:16]
+03. Maxim Lany - Renaissance (5AM Extended Edit) [7:03]
+04. Agents of Time feat. Vicky Who? - Liquid Fantasy (Extended Mix) [5:30](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 04:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616036   (1037007) от 28.02.2023
 
 VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
@@ -637,60 +691,6 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC2EED720FDEE05BBC228CD013004B3E74B7C64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614785   (1038274) от 23.02.2023
-
-Yello - Yell40 Years — Non-Album Songs & Remixes (2022) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Synth-pop, Progressive House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038274.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. XS (First Ever Version) 5:22
-02. L.T. Splash 2:47
-03 There Is No Reason 3:57(   Читать дальше...   )Жанр: Synth-pop, Progressive HouseПродолжительность: 02:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04C370DDC0B458743869BC3FBA03DE581F54B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440870   (1038277) от 19.01.2021
-
-VA - Inspectrum Recordings Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nakhiya - Nathea (Original Mix)
-02. Muhamed Sherief - Night Watcher (Original Mix)
-03. Henry Caster - Summer Stay (Original Mix)
-04. Klassy Project - Serenity (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4333618CBC9081D0F40D20BF82820DE5AFEFEF73
 ```
 
 

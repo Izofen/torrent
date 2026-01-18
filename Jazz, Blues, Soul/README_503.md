@@ -1,3 +1,255 @@
+###  Публикация: 875988   (854236) от 08.03.2015
+
+Lyambiko - Muse (2015) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Muse
+ 02. I Went To Heaven
+ 03. Landslide
+ 04. Willow Weep For Me
+ 05. Do You Remember Me(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB307A1AD38888EB765E8E9D85A5E9B26553BB1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876021   (854340) от 08.03.2015
+
+Lucky 3 Blues Band - Howl! (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Maxwell Street Blues (02:51)
+02. Junkyard (04:32)
+03. Boogaloo Test (02:26)
+04. Too Much Funky Business (03:44)
+05. So Alone (04:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8885275C076CDE64B2389AF23D9417F3230B51B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876087   (854342) от 08.03.2015
+
+Aurora Nealand and The Royal Roses - The Lookback Transmission (2014) [FLAC|Lossless|WEB-DL]<Dixieland, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Man
+02. Le Richelieu
+03. Don't Let Your Love Go Wrong
+04. T'aint Nobody's Business
+05. Hongo Fongo(   Читать дальше...   )Жанр: Dixieland, Vocal JazzПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B928D40DCCA223291E910A095C5DFB9BE8DF409
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876018   (854343) от 08.03.2015
+
+Dinah Shore - Dinah Sings Some Blues With Red & Dinah, Down Home! (1998) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Blues [03:00]
+02. I Can't Face The Music [02:53]
+03. Someday Sweetheart [02:27]
+04. It's Funny To Everyone But Me [02:17](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66310F3E0E7A7C09BD81A782BEB3BE65A47DC5AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876072   (854345) от 08.03.2015
+
+Etta James - Blue Gardenia (2001) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. This Bitter Earth
+02. He's Funny That Way
+03. In My Solitude
+04. There Is No Greater Love
+05. Don't Let The Sun Catch You Crying(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC46773F97F462094FB41ACB653C26ED38B6CAE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876081   (854346) от 08.03.2015
+
+Akobastra - Gruss nach Hause (2014) [FLAC|Lossless|WEB-DL]<Klezmer Jazz, World Fusion, Balkan, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Gruss nach Hause
+02. Araber Tanz
+03. Freilach
+04. Haavalssi
+05. ProjectЖанр: Klezmer Jazz, World Fusion, Balkan, Ethnic JazzПродолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB6889743F6DA485C495A776C7F1F4075B4AEA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875690   (854348) от 08.03.2015
+
+Carmen McRae - Sarah, Dedicated to You (1991) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Carmen Mercedes McRae (April 8, 1920 – November 10, 1994) была американской джазовой певицей, композитором, пианистом и актрисой.
+Sarah: Dedicated to You это студийный альбом 1991 года Carmen McRae, совместно с the Shirley Horn trio. Записан в дань памяти Sarah Vaughan. Это была последняя запись Carmen McRae.01. "Poor Butterfly" (John Golden, John Raymond Hubbell) - 3:58
+02. "I've Got the World on a String" (Harold Arlen, Ted Koehler) - 3:25
+03. "Misty" (Johnny Burke (lyricist), Erroll Garner) - 4:10
+04. "Wonder Why" (Nicholas Brodszky, Sammy Cahn) - 2:46
+05. "Send in the Clowns" (Stephen Sondheim) - 3:51(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003C85621010E0ED2516DE7723961264498E9068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876071   (854352) от 08.03.2015
+
+Blue Mitchell - Bring It Home To Me (2014) [FLAC|Lossless]<Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bring It Home To Me [08:00]
+02. Blues 3 For 1 [06:06]
+03. Port Rico Rock [06:36]
+04. Ginger Bread Boy [06:38]
+05. Portrait Of Jennie [05:40](   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4722AECFA9C8FB496DC79298629C23EE76BB5F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876068   (854353) от 08.03.2015
+
+Kenny Clarke & Francy Boland - Jazz Is Universal (2013) [FLAC|Lossless]<Jazz, Modern Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Box 703, Washington, D.C [05:07]
+02. The Styx [03:54]
+03. Gloria [04:40]
+04. Los Bravos [05:04]
+05. Charon's Ferry [06:11](   Читать дальше...   )Жанр: Jazz, Modern Big Band, Mainstream JazzПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2721B4951134B3C36857B2C3364022A6534898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 876062   (854354) от 08.03.2015
 
 Muhal Richard Abrams - Young At Heart & Wise in Time (1996) [APE|Lossless]<Jazz, Avant-Garde Jazz>
@@ -521,255 +773,6 @@ Kirk Knuffke - Amnesia Brown (2010) [FLAC|Lossless]<Post-Bop, Free Jazz / Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9513E4F5AB566FCB147CCB1E2AF3F00D9DFD498C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305229   (855292) от 08.03.2011
-
-Joe Beck - Brazilian Dreamin' (2006) [FLAC|Lossless]<Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Vivo Sonhando (5:18)
-02. Manha De Carnaval (4:53)
-03. Aquarius (6:51)
-04. O Grande Amor (4:53)
-05. Felicidade (5:31)
-06. And Here's To You (5:54)
-07. Brazil (5:52)
-08. Ela E Carioca (4:55)
-09. Falando De Amor (6:26)
-10. Zanzibar (5:19)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109946   (855563) от 01.03.2017
-
-Southern Avenue - Southern Avenue (2017) [MP3|320 Kbps] <Memphis Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Give Up (04:43)
-02. What Did I Do (03:54)
-03. It's Gonna Be Alright (03:16)
-04. Slipped Tripped and Fell In Love (03:26)(   Читать дальше...   )Жанр: Memphis BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB8134DB72A1D9E817C7DD32381044D862B8F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000980   (855596) от 27.03.2016
-
-VA - New Jazz Divas (2016) [MP3|320 кб/с] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Krall - This Can’t Be Love (04:32)
-02. Youn Sun Nah - Jockey Full of Bourbon (03:41)
-03. Terez Montcalm - Docteur (04:09)
-04. Fay Claassen - Conception / Deception (04:15)(   Читать дальше...   )Производство: Wagram MusicЖанр: JazzПродолжительность: 02:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5E61E396645C85EB9631CA85163E32142B765E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000993   (855598) от 27.03.2016
-
-Keiko Matsui - Wildflower (2003) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashback
-02. Facing Up
-03. Sense of a Journey
-04. Brand New Wind(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823A845F7CB5D5993FCF7F1B3C31D848501FED3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001003   (855600) от 27.03.2016
-
-Stevie Wonder - Number Ones (2007) [FLAC|Lossless|image + .cue] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fingertips Pt. 2
-02. Uptight (Everything's Alright)
-03. Blowin' in the Wind
-04. I Was Made to Love Her(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2C9C5D4BE64ADFC2DCF877B0DF34AA1A47A76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110174   (855615) от 01.03.2017
-
-Dana Gillespie - Cat's Meow (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dana Gillespie (Дана Гиллеспи) - родилась 30 марта 1949 года в Англии. Будучи дочерью знаменитого трубача, тромбониста и мастера эпатажа Джона Биркса Гиллеспи, с успехом унаследовала творческий талант. Свой первый диск она записала в 15 лет. В 60-е она исполняла фолк, в 70-е перешла к року (ее продюсировал Дэвид Боуи), а в 80-е вернулась к своей давней любви - блюзу. (   Читать дальше...   )01. Cat's Meow (3:28)
-02. Love Matters (4:44)
-03. Eternally Yours (5:17)
-04. Eureka Moment (4:22)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364AEE754E656710C6095BED9E70C13A33DE5DFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110048   (855623) от 01.03.2017
-
-Deep In The Top - Blues In Different Colours (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greed (03:53)
-02. Girls (05:00)
-03. Tell Me That You Love Me (And I'm Good) (03:08)
-04. Sinner Man (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA6EFFB93A494AC13A6C6B5CE0C13812BD06634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110209   (855672) от 01.03.2017
-
-Dave Fields - Unleashed (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticipating You (06:36)
-02. Going Down (04:38)
-03. Child Of The World (05:15)
-04. My Mama's Got The Blues (04:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F095E84F7677BF63E49D41F4F1B871266414BC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110181   (855673) от 01.03.2017
-
-Angel Forrest - Mother Tongue Blues (2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Do You (4:04)
-02. Mother Tongue Blues (3:46)
-03. Blue Firegirl (5:12)
-04. Morningstar (3:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0CCDBDA232C5F9A0F02BFD6D5F00BA502CB6DC
 ```
 
 

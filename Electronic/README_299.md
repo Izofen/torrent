@@ -1,3 +1,57 @@
+###  Публикация: 917162   (589595) от 11.07.2015
+
+VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filmmusic Group - Peaceful Journey (Chill Out Mix) (04:24)
+02. Jack Dazey - Chill Out New York (Yuppie Lounge Music) (03:32)
+03. Gary Wolk - Door Jamb (03:16)
+04. Timothy Button - The Winds of Change (03:47)(   Читать дальше...   )Производство: Whisky LullabyЖанр: Lounge, Chillout, JazzyПродолжительность: 03:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD1687B485D160221D18B8E1C2B05E23126BDDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551495   (589724) от 16.05.2022
+
+VA - Uncharted Vol. 24 (Compiled By Koen) (2022) [FLAC|Lossless|WEB|tracks] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ananda (AUT) - Mandalia (Original Mix) (7:40)
+02. Tony Wibe - Babylon (Original Mix) (8:08)
+03. Cortex - 1000 Details (Original Mix) (6:24)
+04. Lexxus (DE) & Psiger - Artificial Gravity (Original Mix) (7:43)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3240D71A9A0DFAD183198D30D1CD17D2EEBBEFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551491   (589730) от 16.05.2022
 
 VA - Hospital Mixtape - Lens (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
@@ -639,60 +693,6 @@ VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550798   (591230) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VsrtWuto - Late Night Cruise (3:30)
-02. Unfancy D - Rain (La-la-la) (4:20)
-03. Akira - Out The Fire (3:16)
-04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550800   (591231) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
-02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
-03. Born in '82 - Summer Rays (4:25)
-04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
 ```
 
 

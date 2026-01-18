@@ -1,3 +1,30 @@
+###  Публикация: 1225852   (657751) от 18.05.2018
+
+VA - NRJ Latino Hits Only! 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Latin Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657751.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Sean Paul - Mad Love
+02. El Profesor - Bella ciao (HUGEL Remix)
+03. Lartiste - Mafiosa (feat. Caroliina)(   Читать дальше...   )Жанр: Pop, Latin DanceПродолжительность: 02:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225901   (657755) от 18.05.2018
 
 VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -710,33 +737,6 @@ VA - Тузы козырные Блатной суперсборник (2015) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:283F66BFD6F3A3BF0CACBAF4C64AD769EA94E324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539223   (659042) от 24.03.2022
-
-VA - Morning Chill & Relax (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto, Stevie Appleton - BLUE (2:48)
-02. Deepend, YouNotUs, Martin Gallop - Woke up in Bangkok (2:49)
-03. Jubel, NEIMY - Dancing in the Moonlight (2:44)
-04. Tobias Bergson, Michael Shynes - Sunset Wave (2:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DACD352D49C01BEDA15D8CC93FF4EA581108820
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1019587   (748347) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O'Kay - The Wild Wild Western ( 1989 )
+02. Al Bano & Romina Power - Felicitа ( 1982 )
+03. Scotch - Delirio Mind ( 1985 )
+04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019568   (748355) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A8E370255D76C3F7BEF2257DA7413A3701AE0F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522581   (758535) от 07.01.2022
-
-Eighth Wonder - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not Scared
-02. J'ai Pas Peur (French Version)
-03. Open Your Mind
-04. The Dress(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C875376E6A0BF94BD2EA37CB4B17BB9DDD968F3
 ```
 
 

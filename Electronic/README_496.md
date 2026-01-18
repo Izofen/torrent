@@ -1,3 +1,57 @@
+###  Публикация: 1350112   (1003756) от 04.01.2020
+
+Flume - Hi This Is Flume (2019) Mixtape [FLAC|Lossless|Web-DL|tracks] <Experimental, Bass Music, Trap>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flume – Hi This Is Flume (0:31)
+02. Flume – Ecdysis (1:44)
+03. Flume vs. HWLS – High Beams (feat. slowthai) (3:23)
+04. Flume – Jewel (3:13)(   Читать дальше...   )Производство: Future ClassicЖанр: Experimental, Hip-Hop, Trap, Bass Music, Glitch Hop, Beats, ElectronicПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8409D1BCE58AD7C35E1014C4956F6039B14EA5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349817   (1003773) от 04.01.2020
+
+The Sweet Life Society - Antique Beats (2018) [MP3|320 Kbps] <Trip-Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003773.jpg" />
+</div>
+
+
+###  Подробнее
+
+◈ 01 - The Morning After (00:02:15)
+◈ 02 - No More Lights (00:01:09)
+◈ 03 - Dreams Are Falling Leaves (00:04:17)
+◈ 04 - Mind (00:03:37)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002B9DA0B2201A65FCA79C3615B4D0E0112E80B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349946   (1003797) от 04.01.2020
 
 VA - Best Of Ibiza 2020 [MP3|320 Kbps] <Minimal, Tech House, Funky>
@@ -638,58 +692,6 @@ Cult48 - Underground Signals From An Unknown Place (2021) C48 [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48B4D6DE1F99BA1E72BDF34E5C45C3BC626B74F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145527   (1004811) от 30.07.2021
-
-Solar Quest (SolarQuest, Entropica) - Discography 19 Releases (1994-2020) [FLAC|Lossless|tracks+.cue, image+.cue, tracks] <Ambient, Downtempo, Acid, Psychill, Goa Trance, Dub>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Crumble Part 1 (21:48)
- 02. Acid Crumble Part 2 (15:01)
- 03. Acid Crumble Part 3 (08:26)Тип издания: CD, Web, VinylЖанр: Ambient, Downtempo, Acid, Psychill, Goa Trance, Dub •Продолжительность: 21:24:45 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B14FB12DBD9A27116662BB344FF173345A109C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486098   (1005002) от 29.07.2021
-
-Wagon Christ - Lovely (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM, Electro>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovely (04:10)
- 02. Pretty Crap (08:03)
- 03. Suspension Breakdown (03:56)Жанр: Breakbeat, IDM, ElectroПродолжительность: 00:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9D8E94C69DE9C496EC830783A14021AD9B4646
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 539538   (506731) от 26.08.2012
+
+VA - Клубная Дискотека Record vol. 7 Зарубежная (2012) [MP3|256 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Bob Sinclaris Feat Gilbere Drangonfly And Fatman Scoop - Rock In The Boat
+02 Loreen - Euphoria
+03 Cheryl - Call My Name
+04 Nelly Furtado - Big Hoops
+05 Martin Solveig - The Night Out
+06 Javi Mula - Come On (Dave Kurtis Remix)
+07 Vika Prayster And Magnata - Only Time (Original Mix)
+08 Megara vs. DJ Lee - Dance (Single Edit)
+09 Henrik B And Rudy - Leave A Light On (radio Edit)
+10 ATB With Dash Berlin - Apollo Road(   Читать дальше...   )Жанр: DanceПродолжительность: 06:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0ED7A3A34773F8F3CF818893D9AC3684DB2B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539531   (506740) от 26.08.2012
 
 VA - Лучшая 100ка Record: Взорви танцпол Vol.4 (2012) [MP3|256 kbps]<Dance, Club>
@@ -708,33 +741,6 @@ Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932597   (508165) от 30.08.2015
-
-VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508165.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danny Byrd - Golden Ticket (Feat. Tanya Lacey)
-002. Sanz - Ghatam
-003. Calm Groove - Future Time
-004. Madd Inc - EverydayЖанр: Drumm and Bass, DubstepПродолжительность: 08:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
 ```
 
 

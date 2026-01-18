@@ -1,3 +1,300 @@
+###  Публикация: 1463299   (1020625) от 17.04.2021
+
+VA - The Best Rock From Russia (Moroz Records Promo) (1994) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино - Песня без слов
+02. Nautilus Pompilius - Отход на север
+03. Крематорий - Адольф
+04. Алиса - Плач(   Читать дальше...   )Жанр: Thrash, Death Metal, Hard RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F8EA3B432FA4DCA9F1AC2706F6CFF9C45AB5E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463141   (1020632) от 17.04.2021
+
+The Night Flight Orchestra - Aeromantic (2020) Japanese Edition [WavPack|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servants Of The Air
+02. Divinyls
+03. If Tonight Is Our Only Chance
+04. This Boy's Last Summer(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF9BA20450FC94EA2322F3593DCDEC097BE7ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463137   (1020640) от 17.04.2021
+
+Greta Van Fleet - The Battle At Garden's Gate (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Above (5:41)
+02. My Way, Soon (4:15)
+03. Broken Bells (5:51)
+04. Built By Nations (3:59)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC272CA400158E0E62B7040DAE9489669D1B486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463052   (1020643) от 17.04.2021
+
+The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madness [03:12]
+02. Bullet [04:09]
+03. Chill [04:13]
+04. F-F-F-Falling [03:52](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B850AAD2C77EFB15B8B0A2CD4B5A1DE35549AD48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463222   (1020664) от 17.04.2021
+
+Greta Van Fleet - Anthem Of The Peaceful Army (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Man
+02. The Cold Wind
+03. When The Curtain Falls
+04. Watching Over(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257F7082AEF3CC1C452944AA16C325EC266B3932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463119   (1020665) от 17.04.2021
+
+Al Stewart - 2 Albums, 3 Box Set, 14 CD (1967 - 1993) [FLAC|Lossless|image + .cue | tracks + .cue]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel Like
+02. Angel Of Mercy
+03. Don't Forget Me
+04. Peter On The White Sea(   Читать дальше...   )Жанр: Folk RockПродолжительность: 10:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF604D24B7EBF6FB367FFDC1BD99C04AE00574CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463151   (1020692) от 17.04.2021
+
+Unitopia - Тhе Gаrdеn (2008) 3xCD, Reissue, Remastered, 2020,  ProgRock.com's Essentials [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020692.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. One Day
+02. The Garden
+- The Garden Of Unearthly Delights(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 02:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB8BBD2B56CCF73D5932CA50B460AB6A56838EAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463232   (1020696) от 17.04.2021
+
+Bewitcher - Cursed Be Thy Kingdom (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackened Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashe
+02. Death Returns...
+03. Satanic Magick Attack
+04. Electric Phantoms(   Читать дальше...   )Жанр: Blackened Speed MetalПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33759BB09D6C104069FB6BC2CECCB0F155488260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463112   (1020699) от 17.04.2021
+
+Sun 'N' Steel - Wheel Of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry Eyes
+02. Heading For Tomorrow
+03. Wheel Of Time
+04. The Last Crusade(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54820D526BF4589FA3C8266F19AACA9C91F65EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462912   (1020796) от 16.04.2021
+
+LOUNA - Обратная сторона (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Путь к себе
+2. Искусство
+3. Сигнал в пустоте
+4. Штурмуя небеса(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B993A6C488E396FE63FE15581C9B4B7A3709335
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462840   (1020797) от 16.04.2021
+
+Эпидемия - Эльфийская рукопись навсегда (2021) Live at Adrenaline Stadium [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020797.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Золотые драконы (Live at Adrenaline Stadium)
+2. Час испытания (Live at Adrenaline Stadium)
+3. Рождённый для битвы (Live at Adrenaline Stadium)
+4. Пройди свой путь (Live at Adrenaline Stadium)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7BF7195F315F2951E38A38C51CD0332E067CF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462842   (1020799) от 16.04.2021
 
 LOUNA - Обратная сторона (2021) [MP3|320 Kbps] <Alternative>
@@ -398,303 +695,6 @@ Alias - Never Say Never (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E69CCAF47798AE1336FF580ED354F4A5C43784D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462468   (1020956) от 15.04.2021
-
-Marc Reece - Dreamer (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie
-02. Dreamer
-03. One For Hannes
-04. No Chance Child(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3366F59FC859E521F355B0471AE85F139B82D969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462605   (1021021) от 15.04.2021
-
-Рекорд Оркестр - Мир самых добрых людей (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Полифем
-3. Деньги
-4. Лес(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65B8913DC13BA3D984822DE15B5144944181FF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462603   (1021029) от 15.04.2021
-
-Гаснет Свет - Aurum Et Sanguinem (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021029.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эпитафия
-2. Падение (feat. Евгений Егоров, Елена Минина)
-3. Исход (feat. Алексей Страйк)
-4. Шепот (feat. Олег Жиляков, Сергей Терентьев, Расул Салимов)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40CB8D6C41E9ED04D20122F68CFA47CE7A0B123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462755   (1021030) от 15.04.2021
-
-Infinite & Divine - Silver Lining (2021) [MP3|320 Kbps] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Alive (03:53)
- 02. Infinite & Divine (03:54)
- 03. Keep On Moving (04:11)
- 04. Not Too Late (04:32)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D776D92370F4E6EB0F88AB701533AC72BBFE668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462520   (1021032) от 15.04.2021
-
-Cannibal Corpse - Violence Unimagined (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Murderous Rampage
-02.	Necrogenic Resurrection
-03.	Inhumane Harvest
-04.	Condemnation Contagion(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754EE0B34B5A201522EC73FFDEF5EBC2C0091A8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462464   (1021034) от 15.04.2021
-
-Guano Apes - Lost (T)Apes (2006) B-Side, Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (2:30)
-02. Hanoi (2:08)
-03. Maria (3:11)
-04. Diokhan (2:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B81493C35360189B4C692F1F8696EBEE544E780
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462600   (1021038) от 15.04.2021
-
-Guano Apes - Walking On A Thin Line (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can't Stop Me (3:11)
-02. Dick (2:43)
-03. Kiss The Dawn (5:20)
-04. Pretty In Scarlet (4:06)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809E48ADB86A1270CF048172A9F42EF3FDF96A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462547   (1021040) от 15.04.2021
-
-Lullacry - Sweet Desire (1999) 2014 Remastered [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Evermore (Remastered) (4:26)
-02. Alone (Remastered) (4:29)
-03. All For Nothing (Remastered) (5:15)
-04. Sweet Desire (Remastered) (4:09)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A702F451AC50B1461FF6DF60470B9679CF3CC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462510   (1021045) от 15.04.2021
-
-Airrace - Untold Stories (2018) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Out Of Time
-02. Innocent
-03. Eyes Like Ice
-04. Different But The Same(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3D75D87262A2F030DEFB1529C58B0BF36B41C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462724   (1021046) от 15.04.2021
-
-Stonewall Noise Orchestra - Deathtripper (2020) [FLAC|Lossless|image + .cue] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathtripper
-02. Gravity
-03. Bones
-04. The Storm(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A0B21CD95D6958CC54D78C8879DABE0696D8FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462261   (1021206) от 14.04.2021
-
-The Rasmus - Black Roses (2008) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' in a World Without You [03:50]
-02. Ten Black Roses [03:54]
-03. Ghost of Love [03:17]
-04. Justify [04:26](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087197F0C881C5B7CA8FA6CEB036692B358D09C9
 ```
 
 

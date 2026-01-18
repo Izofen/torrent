@@ -1,3 +1,297 @@
+###  Публикация: 1508515   (797398) от 08.11.2021
+
+Running Wild - Blood On Blood (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood On Blood
+02. Wings Of Fire
+03. Say Your Prayers
+04. Diamonds & Pearls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23736F1D0870D56123CDEF3AB23A5864C1714729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508543   (797400) от 08.11.2021
+
+Стас Намин и группа «Цветы» - Летать (2021) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797400.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Другой мир
+2. Любовь
+3. Время на моей стороне
+4. Шар голубой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D17DAED0CA7955A935C923068CA469F1E8E8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199869   (797426) от 18.01.2018
+
+Wild Boyz - Unleashed! (1991) Polaris Records [MP3|320 Kbps] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797426.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pleazure 'N' Pain
+2. I Dont Wanna Cry No More
+3. I'm On My Way
+4. Forever(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6D9F369EBF8970B37DD64DB2BB350E476AD538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199954   (797437) от 18.01.2018
+
+Magnum - Lost on the Road to Eternity (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peaches and Cream
+02. Show Me Your Hands
+03. Storm Baby
+04. Welcome to the Cosmic Cabaret(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E719446F3824FCF5B973E2167E5E259F626D0328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508560   (797442) от 08.11.2021
+
+Стас Намин и группа «Цветы» - Летать (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Другой мир
+2. Любовь
+3. Время на моей стороне
+4. Шар голубой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5607D38080A05581C7765B24A561A9140FE5B695
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199853   (797483) от 18.01.2018
+
+Black Label Society - Grimmest Hits (2018) [MP3|320 Kbps] <Heavy Metal, Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tramped Down Below
+02. Seasons of Falter
+03. The Betrayal
+04. All That Once Shined(   Читать дальше...   )Жанр: Heavy Metal, Southern MetalПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B745FA2CEF743DF5D79757DE80D6A8A09969F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199959   (797485) от 18.01.2018
+
+Аркона - Храм (2018) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мантра (Intro)
+2. Шторм
+3. Целуя жизнь
+4. Ребенок без имени(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 1:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF46BBCAD6A74BF9822AAFB3430AA7BB27A091E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199834   (797500) от 18.01.2018
+
+Метанойя - Гомункул (2012) [MP3|320 Kbps] <Art Rock, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: ещё есть
+02. Водолазы облаков
+03. Офелия
+04. Харон(   Читать дальше...   )Жанр: Art Rock, Art PunkПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508324   (797502) от 08.11.2021
+
+Various Artists - Metal Art CD Compilation. The Art Of Extreme Music. Vol.1 (2007) [FLAC|Lossless|image + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: MetalПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9685861F69788104F7606B5FC9875D878D1E21E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508395   (797509) от 08.11.2021
+
+Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paralysed
+02. Gore
+03. Incarcerated
+04. War of Attrition(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94381DA993FA393D0541CA7FE8B04E8D9AAD2376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508430   (797510) от 08.11.2021
+
+Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger Zone
+02. Renegade
+03. You Think You've Got It
+04. Big City Lights(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D711D73CDCC0A1BD37080B6234106EFB58A5E48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508509   (797512) от 08.11.2021
 
 Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
@@ -398,303 +692,6 @@ Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500054018F9639CF0394A618896E1F338F12D44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011138   (797634) от 26.04.2016
-
-Площадь Восстания - Estrada (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797634.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ESTRADA» – это честная рок-н-рольная лирика. Девять предельно откровенных историй, в которых так легко увидеть себя...1. Буду там
-2. Прости. Спасибо. Люблю
-3. Только пой (Брату)
-4. Декабрь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFAEE0586F4125766BB52250628B89277B098DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385122   (797767) от 24.05.2020
-
-KUZMIN Absolute Band - Я - твой рокенрол (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я - твой рокенрол
-2. Жизни бесконечность
-3. Никто меня так не любил
-4. Одноглазый Джон (Пират)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A01ED30121630FD77FFF47A12FB9A7246FB108
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385402   (797866) от 24.05.2020
-
-Pretty Maids - Maid in Japan: Future World Live 30 Anniversary (2020) [MP3|320 Kbps] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. FW30 (Live) [1:34]
- 2. Future World (Live) [5:59]
- 3. We Came to Rock (Live) [4:57]
- 4. Love Games (Live) [4:51](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23632D0A83F074A16AE95C33DA2F0F1128E941E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507844   (797967) от 07.11.2021
-
-Peter Gabriel & Friends - Big Blue Ball (2008) [FLAC|Lossless|tracks + .cue] <Progressive Rock, World Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Thing (Original Mix) (featuring Francis Bebey, Alex Faku, Tim Finn, Peter Gabriel, Karl Wallinger, Andy White)
-02. Habibe (featuring Natacha Atlas, Hossam Ramzy, Neil Sparkes)
-03. Shadow (featuring Juan Cañizares, Papa Wemba)
-04. Altus Silva (featuring Joseph Arthur, Ronan Browne, Deep Forest, James McNally, Iarla Ó Lionáird, Vernon Reid)(   Читать дальше...   )Жанр: Progressive Rock, World FusionПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07EAB7A42625E94B6025A8BE1C3569A8DFD145B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039238   (797968) от 07.11.2021
-
-Deviant Syndrome - Inflicted Deviations (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harbingers Of Extinction. . .00:41
-02. Blessing The Emptiness. . . .03:38
-03. Entire Cosmic Elements. . . .04:38
-04. Seal Of A Star Dweller. . . .03:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82435B2E7654AA79A33280609CE34E11774A075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508284   (797990) от 07.11.2021
-
-Crashdiet - Rust (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rust
-02. Into The Wild
-03. Idiots
-04. In The Maze(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9A8637E4382B45ED9D96B02FC5ABDBEA1A63380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508096   (797997) от 07.11.2021
-
-Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Violent Death Rituals
-02 The Silent War
-03 Unholy Predators
-04 The Outer Darkness(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BED4E49378EB9FDE4E4DA62C87D5344ACA9A84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508323   (797998) от 07.11.2021
-
-Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Those Eyes
-02. My Oh My (Get What You Need)
-03. I Like it
-04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508329   (798004) от 07.11.2021
-
-Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing On The Edge
-02. The Voice Inside
-03. Never Again
-04. Give In To Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508280   (798020) от 07.11.2021
-
-Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panic Attack
-02. Arisen In Broad Daylight
-03. Guilty Pleasure
-04. The Times Are Changing(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508281   (798021) от 07.11.2021
-
-Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dark Horse
-02. Delusions Of Grandeur
-03. Everything's Undone
-04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
 ```
 
 

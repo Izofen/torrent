@@ -1,3 +1,57 @@
+###  Публикация: 1231401   (607053) от 17.06.2018
+
+VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Jorn Van Deynhoven Remix)
+02. UDM - Highlight (Extended Mix)
+03. Feel & Alexandra Badoi - Did We Feel (ReOrder Remix)
+04. Ahmed Helmy & Mhammed El Alami - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41072651A3D022EA53C9417FDE7AF9CB5A403A1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912864   (607090) от 28.06.2015
+
+VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Tech House, Deep House, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noir - "Around" (feat Hayze - album version)
+02. Little By Little - "Bang The Box"
+03. Gotsome - "Heart Starts" (Phil Weeks remix)
+04. Dale Howard - "Intervention"(   Читать дальше...   )Жанр: Tech House, Deep House, Minimal, TechnoПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231380   (607120) от 17.06.2018
 
 VA - The Best Of Critical State 001 (2018) [MP3|320 Kbps] <Trance>
@@ -640,60 +694,6 @@ VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147032   (609723) от 02.07.2017
-
-VA - Top Cocktail Music: From Lounge to Deep House Beats (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfonso Anagni - Steel Cool
-02. Roberto Conrado - Caravan of Dreams
-03. Daniele Benati - Funky Mission
-04. Roberto Speranzini - Autumn Life(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F7CC7D1DD645B952834812200295945DBDD896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147039   (609736) от 02.07.2017
-
-VA - Summer Music Lounge. Selection for Dj and Clubs (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabio Tullio - Berimbau
-02. Fabio Tullio - Bailar la salsa
-03. Fabio Tullio - Bossa Luv
-04. St Project - Never Lies in Love(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4E3ECB4CA3C5ADFC0CF51075CCBF0B8DC1E976
 ```
 
 

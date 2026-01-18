@@ -1,3 +1,246 @@
+###  Публикация: 904722   (653461) от 04.06.2015
+
+Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Note (4:15)
+02. River Crossing (3:36)
+03. The Way It Was (3:49)
+04. Polished (3:30)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D8318A2BE9E5C53DB080CB1A32D0E58CA1FFA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904843   (653465) от 04.06.2015
+
+Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Off [04:22]
+02. No Time To Cry [03:18]
+03. Rudy's Blues [02:42]
+04. VooDoo Woman [03:53](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B058FDD1F8B045BA6A3F54DBFB3F5FDA5B563A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904717   (653542) от 04.06.2015
+
+The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change In The Weather (4:19)
+02. I Take What I Want (4:20)
+03. What Have I Done (Feat. Cathy Lemons & Phil Berkowitz) (3:51)
+04. A Winning Hand (Feat. Cathy Lemons, Kid Andersen, Phil Berkowitz & Steve Freund) (6:57)(   Читать дальше...   )Жанр: Blues Soul, Modern Electric BluesПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF4A2C93ADC406AC78890BA20C655A2F5BE84E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904721   (653543) от 04.06.2015
+
+Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinin' Moon (3:00)
+02. Fine Little Mama (2:50)
+03. Big Legs, Tight Skirt (3:36)
+04. Don't Be So Mean (2:35)(   Читать дальше...   )Жанр: Acoustic Delta BluesПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8CB189F137087276A4B5192E83B307CDAD304C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905071   (653545) от 04.06.2015
+
+Vivian Vance Kelly - Hit Me Up (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Working (3:49)
+02. Steppin' Out (Unplugged) (3:28)
+03. Down Home Blues (Unplugged) (5:10)
+04. Mustang Sally (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD27301AB0BC96E455E9D0364A0ED1A34AEEA782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904753   (653546) от 04.06.2015
+
+Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Recordings/ [FLAC|tracks+.cue]<Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time On My Hands (2:28)
+02. Blues For Don Carlos (3:52)
+03. Sweet Lorraine (3:36)
+04. April In Paris (2:53)(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE866EFB2279A6E58A0DD357FD7A5B6973A131
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904943   (653548) от 04.06.2015
+
+Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You, Chopin (D.Brubeck) [04:37]
+02. Preludio OP.28 N.4 [03:20]
+03. Valzer OP.34 N.2 [04:29]
+04. Notturno OP.9 N.2 [06:14](   Читать дальше...   )Жанр: Jazz, Cool, Piano JazzПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D08A0E70BA03A853B378AF071056F0EBAC2FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904735   (653549) от 04.06.2015
+
+Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [FLAC|tracks+.cue]<Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blixed (3:48)
+02. Kim's Kaper (3:14)
+03. Rolling Stone (3:08)
+04. Sioux Zan (3:09)(   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACE7B4661FF5C7D3F0F6D9DFD5BDC4099E7FEB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904851   (653550) от 04.06.2015
+
+Screamin' Jay Hawkins - Portrait Of A Man (2015) [MP3|320 кб/с]<Blues Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Put A Spell On You (3:04)
+02. Because Of You (2:40)
+03. Don't Deceive Me (3:47)
+04. I Don't Know (3:35)(   Читать дальше...   )Жанр: Blues Soul, R&BПродолжительность: 01:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8D860C8578339C9AF4F16498A5004FA0E0A7F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904718   (653551) от 04.06.2015
 
 Charles Wilson - Sweet & Sour Blues (2015) [MP3|320 кб/с]<Blues Soul>
@@ -464,266 +707,6 @@ Art Blakey And The Jazz Messengers - Moanin' (1999) [FLAC|Lossless]<Jazz, Bop>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516087   (654574) от 27.06.2012
-
-Bill Evans Trio Featuring Scott La Faro - Sunday At The Village Vanguard (1997) [FLAC|Lossless]<Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gloria's Step (take 2) [06:13]
-02. My Man's Gone Now [06:27]
-03. Solar [08:57]
-04. Alice in Wonderland (take 2) [08:38]
-05. All of You (take 2) [08:22]
-06. Jade Visions (take2) [03:47]
-07. Gloria's Step (take 3) [06:57]
-08. Alice in Wonderland (take 1) [07:06]
-09. All of You (take 3) [08:07]
-10. Jade Visions (take 1) [05:13]Жанр: Jazz, BopФормат: CD XRCD 20bit K2 SuperCodingПродолжительность: 01:09:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516238   (654654) от 27.06.2012
-
-VA - Women of Jazz (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody Gardot - Goodnite [03:06]
-02. Madeleine Peyroux - Dance me to the end of love [03:57]
-03. Cassandra Wilson - Lover come back to me [04:16]
-04. Sophie Milman - Lonely in New York [03:15]
-05. Hope Waits - I'll be satisfied [02:55]
-06. Kate Paradise - Mean to me [04:28]
-07. Jennifer Hartswick - Lover man [03:10]
-08. Stacey Kent - Shall we dance [03:41]
-09. Della Griffin - It could happen to you [004:12]
-10. Etta Jones - Since I fell for you [06:02]Жанр: JazzПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516225   (654672) от 27.06.2012
-
-VA - Jazz Women (1999) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassandra Wilson - Hellhound On My Trail  [04:37]
-02. Cassandra Wilson - Strange Fruit  [05:30]
-03. Dianne Reeves - Never Said (Chan's Song)  [05:35]
-04. Dianne Reeves - How High The Moon  [04:07]
-05. Denise Jannah - Bye Bye Blackbird  [04:55]
-06. Bobbi Humphrey - Harlem River Drive  [07:50]
-07. Renee Rosnes - Upa Neguinho  [06:16]
-08. Caecilie Norby - Summertime  [04:56]
-09. Caecilie Norby - Just One Of Those Things  [03:56]
-10. Holly Cole Trio - Honeysuckle Rose  [02:22](   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140775   (654762) от 07.06.2017
-
-David Gilmore - Transitions (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of Daze [06:29]
-02. Beyond All Limits [05:32]
-03. Blues Mind Matter [07:07]
-04. Bluesette [05:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E108FA1CFEF2018CB6E2F58FDAFCDF97AA9EE28F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226573   (654778) от 21.05.2018
-
-Diana Krall - Wallflower: The Complete Sessions (2014) Universal [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin' [03:18]
-02. Desperado [03:33]
-03. Superstar [04:18]
-04. Alone Again ( Naturally)(duet with Michael Buble) [03:51](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE316FF6FFC964360D00EC9A1D07A1727691D55D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226574   (654868) от 21.05.2018
-
-Isao Suzuki & Sunao Wada - Now's The Time (1974) 2014, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polka Dots And Moonbeams [09:30]
-02. Midnight Sugar [16:05]
-03. Now's The Time [26:32]Жанр: Post-BopПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C387FAEC87D38E7466975F9116FA1D8BBD4B14C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140783   (654984) от 07.06.2017
-
-Bob Alberti Quartet Featuring Harry Allen - Everything I Love (1998) Dolphin Recordings [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's De-Lovely [3:51]
-02. Guess I'll Hang My Tears Out to Dry [7:21]
-03. You'd Be So Nice to Come Home To [3:11]
-04. Ev'rything I Love [4:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F7C86A47EBBE595F711BD53D016550288E4657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140745   (654986) от 07.06.2017
-
-Harry Allen - The King (1962) 2008, Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Deed I Do [9:29]
-02 Close Your Eyes [9:51]
-03 But Beautiful [5:32]
-04 The King [9:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313637D16E774DEC2020B7E9AF27610E7D9A133F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140675   (654987) от 07.06.2017
-
-Alexander Fisher (Александр Фишер) - Three Question Marks (2005) Austro Mechana [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiphopation [05:51]
-02. Yes No Yes No [05:41]
-03. Wienkorso [05:17]
-04. Peace [10:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBCA64C69D847492597BFD265B529D439E5782C
 ```
 
 

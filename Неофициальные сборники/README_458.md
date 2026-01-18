@@ -1,3 +1,30 @@
+###  Публикация: 1023398   (724238) от 05.06.2016
+
+VA - Хитовый Свежачок. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hann - Я Тебя Приму Любой
+002. Sasha Holiday - Цвет Желаний
+003. Din-Go - Я Скучал По Тебе
+004. Katrin Mokko - В Моем Кино(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8421247B8883CE78514A123E5FF456AECE17B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023584   (724253) от 05.06.2016
 
 VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative, Metal, Rock>
@@ -668,30 +695,6 @@ VA - Лучшая дискотека на Europa Plus. Часть № 9 (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E945C6970CACF095DABDE1579ACE92A07D030E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359875   (724717) от 02.08.2020
-
-VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AFD9DA21E1FF38960D40EEB65FD927FBC2D29C
 ```
 
 

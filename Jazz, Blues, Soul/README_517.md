@@ -1,3 +1,272 @@
+###  Публикация: 766066   (871843) от 14.03.2014
+
+Trygve Seim, Oyvind Brakke, Per Oddvar Johansen - The Source and Different Cikadas (2002) [MP3|320 кб/с]<Modern Creative, Third Stream, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Organismus Vitalis [05:24]
+02. Mmball [04:53]
+03. Funebre [02:11]
+04. Deluxe [05:59]
+05. Bhavana [03:32]
+06. Saltpastill [04:43]
+07. Flipper [02:48]
+08. Plukk [04:36]
+09. Obecni Dum [02:26]
+10. Suppressions [04:15](   Читать дальше...   )Жанр: Modern Creative, Third Stream, Contemporary JazzПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C49CF6A8E7D5EF8FAABA96DEEC0727E2FF7837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643847   (871887) от 15.04.2013
+
+Jeanette Harris - Summer Rain (2013) [MP3|320 кб/с]<Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Just Keep Holding On
+02. Passing Time
+03. Take Me There
+04. Summer Rain
+05. Muy Caliente
+06. The Ride (feat. Darrell Crooks)
+07. Chillin’
+08. Here & Now
+09. Oh so Good
+10. 12:57 (feat. Marcus Anderson)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BD61AB25D02B5F2ED573EE248BDF4F8E4E1F3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644056   (871891) от 15.04.2013
+
+Mud Morganfield - Son of the Seventh Son (2012) [MP3|320 кб/с]<Blues/Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Short Dress Woman
+2. Son Of The Seventh Son
+3. Love To Flirt
+4. Catfishing
+5. Health
+6. Loco Motor
+7. Money (Can't Buy Everything)
+8. Midnight Lover
+9. Go Ahead And Blame Me
+10. Leave Me Alone(   Читать дальше...   )Жанр: Blues/Chicago BluesПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CFB818FC2FA11FDAA6C9BE4B7DB139FB59B38D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998060   (871976) от 18.03.2016
+
+VA - Easter Erotic Jazz Lounge: Dark Sexappeal Desires for Intimate Chill Obsession (2016) [MP3|320 кб/с] <Jazzy, Lounge, Chill>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jizz Jazz - Lost in Your Eyes (Cool Cut Mix) (04:21)
+02. Lemonjazz - Gypsy Woman (Erotic Bedroom Affairs Lounge Chill Mix) (05:43)
+03. Burning Lipps - Near or Far (Erotic Beach Love Mix) (04:54)
+04. Electric Suitcase - Strangers in the Night (Neo Souls Mix) (05:49)(   Читать дальше...   )Производство: Jazzy And MoreЖанр: Jazzy, Lounge, ChillПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D9CFA8008BCE8E743CB43225B344B88C0EC666
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643867   (871985) от 15.04.2013
+
+Lily Dahab - Huellas (2013) [MP3|320 кб/с]<Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Peces De Luz
+02. Huellas
+03. Para Mario
+04. Vuelvo Al Sur
+05. Yo Soy Maria
+06. Introduction
+07. Detras Del Muro De Los Lamentos
+08. Como La Cigarra
+09. Zamba De Usted
+10. Deja Que Te Hable El Alma(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552A87DF8E6832F8E49FB3D03E320098F1511D6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998073   (872036) от 18.03.2016
+
+Gregor Hilden - In Phase (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Jazzy Blues, Instrumental Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Magic (05:45)
+02. In Phase (04:11)
+03. On Flow (04:14)
+04. Rock-Zabern (05:11)(   Читать дальше...   )Жанр: Modern Electric Blues, Jazzy Blues, Instrumental BluesПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB91DE822DAB9FDFA9591B8C3FF61C074C40198
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997824   (872097) от 18.03.2016
+
+Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Female Vocal, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Still Life [04:23]
+ 02.Counting On You [03:28]
+ 03.Changes [03:47]
+ 04.Daydream [04:41](   Читать дальше...   )Жанр: Female Vocal, Funk, SoulПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FD40BA93019A82BDAC358E51746D1DE6F5D33B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871877   (872110) от 26.02.2015
+
+John Zorn - Locus Solus (1997) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bass and the Treble [02:58]
+02. The Acquisition & Control of Fire [01:34]
+03. Honey-cab [02:34]
+04. Switch [02:16]
+05. Juan Talks it out of his System [02:12](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5784F5444E916D66730E4AF13E3ADD4DB910D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872981   (872112) от 26.02.2015
+
+VA - Living the Blues : Ladies Sing the Blues (2000) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Jay McShann's Orchestra With Priscilla Bowman - Hand Off (2:53)
+02. Margie Day - Little Red Rooster (3:05)
+03. Memphis Minnie - Me And My Chauffeur Blues (2:53)
+04. Dinah Washington - Long John Blues (3:10)
+05. Ruth Brown - (Mama) He Treats Your Daughter Mean (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19DE2833786033A0596B00FBE3B29A29460CFB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 872928   (872113) от 26.02.2015
 
 VA - Living The Blues : Guitar Classics (1998) [MP3|320 кб/с]<Blues>
@@ -462,255 +731,6 @@ Darren Jack - Lost in Living - Lost in Living (2021) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C6F088EC50EEBDA4A7650774AED0E8802290EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496427   (872846) от 17.09.2021
-
-Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slamming The Door (3:20)
-02. Next Time You Call (3:35)
-03. Finally Free (2:42)
-04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496482   (872848) от 17.09.2021
-
-Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway the Wind Blows (3:09)
-02. Like a Hammer (2:52)
-03. I Can't Stand It Anymore (2:51)
-04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300781   (873115) от 26.02.2011
-
-The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossless]<Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Gate
-02. Rumble
-03. Side Walk**
-04. Cool Weasel Boogie**
-05. Got A Match?
-06. Elektric City**
-07. No Zone
-08. King Cockroach*
-09. India Town
-10. All Love(   Читать дальше...)Жанр: FusionПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106149   (873213) от 19.02.2017
-
-JONES - Acoustic (2017) EP [FLAC|Lossless|tracks] <Acoustic, Soul, Singer-Songwriter>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873213.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whole (Acoustic)
-2. Hoops (Acoustic)
-3. Wild (Acoustic)
-4. Melt (Acoustic)(   Читать дальше...   )Жанр: Acoustic, Soul, Singer-SongwriterПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91676A8CC1CCFC3CAB554C9BB01B283A3BD8712
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496307   (873511) от 17.09.2021
-
-Paul Chambers - Bass On Top (1957) 1986,Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterdays [5:56]
-02. You'd Be So Nice to Come Home To [7:19]
-03. Chasin' the Bird [6:18]
-04. Dear Old Stockholm [6:46](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AB62164B055318AA06479EDBEFC8007B5293CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106253   (873740) от 19.02.2017
-
-Brent Johnson - Set The World On Fire (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Make A Sound  (4:43)
-02. Meet Me In The Morning (6:27)
-03. The Ticket  (5:17)
-04. Don't Take It With You  (4:04)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FA8376BC813EE9FA440FDCB3247CB878809A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106300   (873754) от 19.02.2017
-
-Jimmy Johnson And The Chicago Dave Blues Band - Brothers Live (2002) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Will Never Do (5:36)
-02. I'm A Jockey (4:44)
-03. Little By Little (5:58)
-04. As The Years Go Passing By (9:57)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C615039F6E7DC3B91A4EC633CE3141EF1E955C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106471   (873755) от 19.02.2017
-
-Skeptic Muse - Theodicy Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theodicy Blues (5:40)
-02. Off The Tracks (4:26)
-03. Good Without God (5:08)
-04. Why? (4:32)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26BA030D03661B80B98591E09FE83719B065C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105136   (873821) от 19.02.2017
-
-Al Di Meola - Scenario (1983) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Jazz Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mata Hari (6:07)
-02. African Night (4:52)
-03. Island Dreamer (4:07)
-04. Scenario (4:00)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, FusionПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F281EDDCB8386A9376B4C0A32A4E202EC7CBB9
 ```
 
 

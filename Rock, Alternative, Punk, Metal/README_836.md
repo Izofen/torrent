@@ -1,3 +1,310 @@
+###  Публикация: 359136   (582067) от 06.07.2011
+
+StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Canyon 05:34
+02. Liar 04:14
+03. Sound Of A Whisper 05:02
+04. SnakeChild 03:11
+05. Fool With No Denial 04:35
+06. Rain 05:12
+07. Lay Down The War 04:43
+08. Give It Up 03:59
+09. Winds Of Fire 04:43
+10. Enter The Temple 04:27Жанр: Heavy metal / Power metalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36056BF8098A70F406BA27977C60033275ECC835
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358121   (582110) от 06.07.2011
+
+Braindeadz - Born From Damnation (2011) [MP3|320 kbps]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 White Death 2:08
+02 Sedated 2:48
+03 War, Hate, Greed 4:41
+04 Born From Damnation 5:40
+05 Lies After Lies 5:14
+06 Dead Visions 3:55
+07 Murdered By Insanity 4:52
+08 Demonize Your Core 4:26Жанр: Thrash MetalПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECE3F7768D90DBD93F1C7BB1545EA097634B13D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302095   (582253) от 14.05.2019
+
+Bruce Hornsby - Absolute Zero (2019) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Zero (feat. Jack DeJohnette) (03:11)
+02. Fractals (02:33)
+03. Cast-Off (feat. Justin Vernon) (05:16)
+04. Meds (feat. Justin Vernon, Blake Mills, & Rob Moose) (06:34)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EF03089F4C73FDABA864DF35EC5195BBC33A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041599   (582306) от 09.08.2016
+
+Trans-Siberian Orchestra - Letters From The Labyrinth (2015) [FLAC|Lossless|image + .cue] <Symphonic Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time and Distance (The Dash) (03:44)
+02. Madness of Men (04:11)
+03. Prometheus (03:40)
+04. Mountain Labyrinth (03:16)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive MetalПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99442838BEE5890B02626FA151B84CF505AE88E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041391   (582398) от 09.08.2016
+
+Blue October - Sway (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe, It.s Over    01:12
+02. Sway    04:45
+03. Angels in Everything    04:23
+04. Bleed Out    03:52(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339996E66B6523A0B0F26839AA86A60426CF6C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041468   (582431) от 09.08.2016
+
+Iron Butterfly - Light And Heavy (The Best Of) (1993) [MP3|320 Kbps] <Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Butterfly Theme
+02. Possession
+03. Unconscious Power
+04. You Can't Win(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD8980A43530F0B635209CEB830AD13510B2D89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041406   (582432) от 09.08.2016
+
+Gary Hoey - Dust & Bones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boxcar Blues 3:43
+02. Who's Your Daddy 4:15
+03. Born To Love You 3:15
+04. Dust & Bones 4:09(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3E7A5D0F3835338FE49C10EA3EE4B1536ED1FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041491   (582464) от 09.08.2016
+
+Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candice Larene 6:35
+02. Rocky Road Blues 5:04
+03. Independent Man 6:33
+04. The Stallion 3:51(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:34 + 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077E2FF8C0224C63EA11F27A4556832306F80EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041530   (582471) от 09.08.2016
+
+VA - Great Lefty - Live Forever - Tribute To Tony Iommi, Godfather Of Metal (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582471.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Dario Mollo Featuring Mark Boals - Never Say Die
+02. Maniac Rise - Time Is Mine
+03. Kyle Cousins - Heaven And Hell(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:31 + 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BA7EA19283552979786BD7AC473B5B9C4D6429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041507   (582475) от 09.08.2016
+
+Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Intro [0:03:12.35]
+02. Stand Alone [0:05:18.47]
+03. Texas Twin [0:04:07.53]
+04. Good Day's Rain(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041616   (582535) от 09.08.2016
+
+Раrаdох - Pangea (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Speed Metal, Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apophis
+02. Raptor
+03. The Raging Planet
+04. Ballot or Bullet(   Читать дальше...   )Жанр: Speed Metal, Thrash Metal, Power MetalПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB642A6D0660EF751F74238E91914932B71A649C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919056   (582800) от 19.07.2015
 
 Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
@@ -407,300 +714,6 @@ Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359336   (583057) от 05.07.2011
-
-Bad Company - Here Comes Trouble (1992) [FLAC|Lossless]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302020   (583192) от 13.05.2019
-
-Rampage - Eagle´s Flight (2019) [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red (04:16)
-02. Reverend Brown (04:11)
-03. Chained (04:58)
-04. Song Of Death (04:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198B963E6F963793F38A5AE61E0046B395336AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301897   (583203) от 13.05.2019
-
-Suzi Quatro - No Control (2019) Japanese Edition [FLAC|lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Soul/No Control (03:47)
-02. Going Home (03:44)
-03. Strings  (04:15)
-04. Love Isn't Fair (03:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4C1615F2787A3CE9813D1FD9F4E0286CFD1EE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302017   (583275) от 13.05.2019
-
-Last Ones Left - Songs to Drink and Do... (2019) [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trippin' on Misery (03:44)
-02. Bye Felicia (03:31)
-03. Netflix & Pills (04:15)
-04. Dalton's Dilemma (03:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079736D766FBAAEA947FFB380205CA0F568C4E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302015   (583276) от 13.05.2019
-
-Javelin - Rotten Ways (2019) [MP3|320 kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Away (03:45)
-02. Rotten Ways (03:42)
-03. Watch Yourself (04:40)
-04. The Spell (05:20)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A829AC1AE323DEFFF29E6A09446F27FD6525B9CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301694   (583323) от 13.05.2019
-
-H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bastard Of Society
-02. Redefined
-03. Shit City
-04. Time On Our Side(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AC12D56087B0F299C552DA68D6FD4FBA7F877C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041312   (583365) от 08.08.2016
-
-S.P.O.R.T. - The Best (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели легендарного хита «Рыбалка», шлягера «Каникулы» и новейшего блокбастера «Ботаники» группа S.P.O.R.T. после длительного 7-летнего отсутствия на концертных площадках столицы вновь выходят на сцену.01. Бонд
-02. Каникулы
-03. Иностранка
-04. Погода(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F196A4D5FE57368D424D068422F36F0AA67D3B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041431   (583378) от 08.08.2016
-
-Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583378.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire 'n Ice (5:38)
- 2. Attitude Adjustment (7:04)
- 3. Inferno (5:04)
- 4. Wood's Bolero (4:16)(   Читать дальше...   )Жанр: Symphonic Rock, Hard RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301692   (583382) от 13.05.2019
-
-Gasoline Stars - Good Looks, Bad Behaviour (2014) [APE|Lossless|image + .cue] <Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Looks, Bad Behaviour
-02. L.O.V.E
-03. Where In Somewhere
-04. Exotic Thrill(   Читать дальше...   )Жанр: Glam RockПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F106FBFDFA7CD012E1B0D3833D977E622801505D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301786   (583385) от 13.05.2019
-
-Electrocution - Inside The Unreal (1993) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premature Burial (03:47)
-02. Rising Of Infection (03:35)
-03. They Died Without Crosses (04:20)
-04. Growing Into The Flesh (Bleed To Death) (03:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C52CC9A7B41D2D987ED46B420878E936BEC923
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041124   (583409) от 08.08.2016
-
-Tempo Bay - Tempo Bay (2016) EP [MP3|320 Kbps] <Indie Rock, Alternative Rock, Dance Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monica (4:18)
-02. Manly Talk (4:38)
-03. Mr. Second Chance (3:46)
-04. Save Me (3:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Dance RockПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FCD601AA072D589B0238A94DAA4B95A3839102
 ```
 
 

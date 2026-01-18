@@ -1,3 +1,117 @@
+###  Публикация: 531087   (558909) от 04.08.2012
+
+Blindstone - Rise Above (2010) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_558909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Above
+02. Power Man
+03. Keep The Rock Alive
+04. Climbing Up The Ladder
+05. New Direction
+06. Horizontal Activity
+07. Sonic Motor Ling
+08. Wiser
+09. House Burning Down
+10. Beyond The Purple SkyЖанр: Blues-RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924435   (559060) от 03.08.2015
+
+Lianne La Havas - Blood (2015) [FLAC|Lossless]<Soul, Folk, Indie>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unstoppable
+ 02. Green & Gold
+ 03. What You Don't Do
+ 04. Tokyo(   Читать дальше...   )Жанр: Soul, Folk, IndieПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED4A4AA51B1296CE7C87AB0A7FB875416CA9422
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365184   (559125) от 19.07.2011
+
+Bohren & der Club of Gore - 8 Альбомов (1994-2011) [FLAC|Lossless|tracks + .cue] <Jazz Noir, Ambient, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_559125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецко-английское название группы Bohren und Der Club of Gore можно перевести как «Сверление и клуб фильмов ужаса». Коллектив возник в конце 80-х в городе Мюльхайм-ан-дер-Рур, играла группа тогда гитарный хардкор, doom, тяжёлый металл. Шеф предприятия гитарист и клавишник Мортен Гасс шутил, что они были не в состоянии играть быстрее всех, поэтому решили рвануть (   Читать дальше...   )Список альбомов:
+1994 - Gore Motel
+1995 - Midnight Radio
+2000 - Sunset Mission(   Читать дальше...   )Жанр: Jazz Noir, Ambient, ExperimentalПродолжительность: 08:47:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924440   (559178) от 03.08.2015
+
+Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Clown [08:58]
+02. Yellow Fever [06:53]
+03. Soulful Bill [08:12]
+04. La Divetta [08:35](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48D989BB8BD61FB837F66FAF644CB24CB56A234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924348   (559285) от 03.08.2015
 
 Marion Brown - Vista (1975) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -587,114 +701,6 @@ Buddy Guy - Born To Play Guitar (2015) [FLAC|image+.cue]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B06DA5C0CA7654448CE92320E4CE1F6AAE73F440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923925   (560923) от 02.08.2015
-
-Buddy Guy - Born To Play Guitar (2015) [MP3|320 кб/с]<Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born To Play Guitar (04:57)
-02. Wear You Out (feat. Billy Gibbons) (03:31)
-03. Back Up Mama (04:42)
-04. Too Late (feat. Kim Wilson) (02:46)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2B49DCD8F4C7D1C0ABED3DAF74C6FC16AEA883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364932   (560958) от 18.07.2011
-
-Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, Neoclassical, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кетил Бьорнстад (Ketil Bjørnstad) уже в течении 30 лет работает в импровизационной музыке. Получив классическое музыкальное образование (в Осло, Лондоне и Париже), Бьорнстад в 1969 году стал солистом Филармонического оркестра Осло. Однако, познакомившись с альбомом Майлса Дэвиса (Miles Davis) In A Silent Way, пианист обратил свои музыкальные устремления в сторону (   Читать дальше...   )Список альбомов:
-1990 - The Shadow
-1993 - Water Stories
-1995 - The Sea (with David Darling, Terje Rypdal, Jon Christensen)(   Читать дальше...   )Жанр: Contemporary Jazz, Neoclassical, PianoПродолжительность: 22:26:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924129   (561036) от 02.08.2015
-
-Ted Drozdowski's Scissormen - Love & Life (2015) [MP3|320 кб/с]<Electric Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beggin' Jesus (03:39)
-02. Letter From Hell (02:56)
-03. The River (06:50)
-04. Watermelon Kid (04:24)(   Читать дальше...   )Жанр: Electric Blues RockПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3D7B149C018C27EBD09523C64F70CBE69346E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923899   (561043) от 02.08.2015
-
-Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bolivia [10:11]
-02. Naima [08:39]
-03. 5/4 Thing [07:55]
-04. Bittersweet [06:55](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2DDD0A92FBEE665E71FD598BA2779CA3542E81
 ```
 
 

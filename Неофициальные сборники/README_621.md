@@ -1,3 +1,30 @@
+###  Публикация: 1092586   (938418) от 12.01.2017
+
+Чи-Ли - Все хиты (2016) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стрижка
+02. Туда же и ты
+03. Можно всё! (DJ Kirill Clash Radio Remix)
+04. Я буду помнить (UnorthodoxX Remix) (feat. Sound Hackers)(   Читать дальше...   )Жанр: PopПродолжительность: 05:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C11EC462CF93E4B6A15449467283F643983516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984760   (938465) от 09.02.2016
 
 VA - Зайцев нет. Лучшие новинки февраля (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock, R&B, Rap, House>
@@ -665,33 +692,6 @@ VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363985   (939322) от 01.03.2020
-
-VA - Beatport Bassline: Electro Sound Pack #17 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939322.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yell Larry - Kick Drum
-002. Xon Xon - Sensational Piano
-003. Ex Lor - Mystical Universe (Original Mix)
-004. Jack-E - Water Drops (Original Mix)(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 08:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB631D9AD5995FE234A7E671083B29E8FB7F19F
 ```
 
 

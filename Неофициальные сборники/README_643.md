@@ -1,3 +1,30 @@
+###  Публикация: 972766   (980653) от 07.01.2016
+
+VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies ft. Janieck Devy - Reality 02:39
+02. Джанет Джексон - BURNITUP! (feat. Missy Elliott) 03:28
+03. Anna Naklab ft. Alle Farben - Supergirl 03:33
+04. Нюша - Где Ты, Там Я (DJ Nejtrino & DJ Baur Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972860   (980677) от 07.01.2016
 
 VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -692,33 +719,6 @@ Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80548632F5BFDF0072A6ABCABAAA7E2DC8298915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355510   (982042) от 27.01.2020
-
-Gary Moore - As The Years Go Passing By... (2020) (2CD Compilation) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima
-02. Picture Of The Moon
-03. Cold Day In Hell
-04. Enough Of The Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574C398A7889D5BDE68CFF14F7FF942FD985A3A5
 ```
 
 

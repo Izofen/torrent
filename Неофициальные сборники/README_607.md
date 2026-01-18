@@ -1,3 +1,30 @@
+###  Публикация: 1367716   (914004) от 17.03.2020
+
+VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914004.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic Feat. Cathy Burton - Eternal (Original Mix)
+002. Danny Stephen & Astony - Piccadilly (Mbx Remix)
+003. Dj T.H. Ft Andromeda - Sands Of Time Feat. Andromeda
+004. Morgan Page & Matt - The Longest Road To The Ground(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D05F49767A8478817ABF09A194C21093E8680EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367698   (914017) от 17.03.2020
 
 VA - Robins Elegant Set (2020) [MP3|320 Kbps] <EDM, Dance, House>
@@ -668,33 +695,6 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989581   (915817) от 23.02.2016
-
-VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sascha Beek - Farblos
-02. Томас Лизара - Bag Check
-03. Ostblockschlampen - Bitches from Ostblock (Faites Leur La Danse Remix)
-04. Joseph Disco - Whip This Shit (Maverickz Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 02:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60644F8252A0165CB4226E4CB71DE396617300E
 ```
 
 

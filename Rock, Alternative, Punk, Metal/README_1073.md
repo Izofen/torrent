@@ -1,3 +1,301 @@
+###  Публикация: 1502675   (824645) от 16.10.2021
+
+The Beatles - Let It Be (1970) 5CD Super Deluxe, 2021, Universal Music Catalogue [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
+02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
+03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
+04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5 CD, 02:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65ED4351635B7C10C006799FC39CCF4C57A43C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115774   (824664) от 19.03.2017
+
+Sunz of Sam - One Night Only (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bloody Mary (4:12)
+02.  I Don't Mind (4:16)
+03.  Everyminute the Drinking Song (4:30)
+04.  Highway (5:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B32F69F5CD14D6EED94E2022B1037B2FBCBA75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502738   (824728) от 16.10.2021
+
+The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Across The Universe (1970 Glyn Johns Mix) [00:03:31]
+02. I Me Mine (1970 Glyn Johns Mix) [00:01:45]
+03. Don’t Let Me Down (Single Version / 2021 Mix) [00:04:08]
+04. Let It Be (Single Version / 2021 Mix) [00:03:52]Жанр: RockПродолжительность: 5CD, 02:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F41B40CCD3EB6156C9688233916A861FEE2453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502720   (824743) от 16.10.2021
+
+Judas Priest - Reflections (2021) 50 Heavy Metal Years of Music [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Us Prey / Call for the Priest [00:06:14]
+02. You Don't Have to Be Old to Be Wise [00:05:03]
+03. Fever [00:05:21]
+04. Eat Me Alive [00:03:35](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794D6ED63FA8C7AFC103678BD86BB99B7FAEB051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115956   (824766) от 19.03.2017
+
+Cosmosquad - The Morbid Tango (2017) [FLAC|Lossless|image + .cue] <Instrumental, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Tango 06:23
+02. Cyclops 05:40
+03. The Ballad of Rick James 06:21
+04. Anatomy of a Beatdown 01:52(   Читать дальше...   )Жанр: Instrumental, Progressive MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D099B7B6EA54155A54CEA582AA9B4EB9758E1D36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 881313   (824768) от 25.03.2015
+
+Thornyway - Absolution (2014) [FLAC|Lossless|WEB-DL]<deathcore, prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:16)
+02. Sleep (4:00)
+03. Run Into The Light (3:45)
+04. Holy Spirit (3:58)
+05. Absolution (2:28)(   Читать дальше...   )Жанр: deathcore, progПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7172DF2E5B8A20CC30D932B41ED167693ACB7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116392   (824781) от 19.03.2017
+
+Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Fire (4:28)
+ 02. When The Night Comes In (3:16)
+ 03. Dancing With The Wrong Girl (3:22)
+ 04. Who Rides The Tiger (4:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88472BCE4D27BB12F2B8BED015030581F9EB5641
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116455   (824868) от 19.03.2017
+
+Jodo - Guts (1971) Reissue, 2007,  Lion Records [MP3|320 Kbps] <Psych Hard Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nightmare
+2. One Night Stand
+3. I'm Still Trying
+4. What's Your Number(   Читать дальше...   )Жанр: Psych Hard RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEC3BC6442DC0F9A50AD1ADACF3B8527E244DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502744   (824938) от 16.10.2021
+
+Autumn's Grief - The Dead Don't Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Oblivion (04:16)
+02. The Dead Don't Smile (03:36)
+03. The Offerings (03:18)
+04. Not Much More To Say (03:49)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A38DF33B97D262D203154C04B501F4DEA22C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502609   (824940) от 16.10.2021
+
+Alcatrazz - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel
+02. Nightwatch
+03. Sword Of Deliverance
+04. Turn Of The Wheel(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830178860AA6A584D84ED2C907EAB637CC014EDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502574   (824942) от 16.10.2021
+
+Wicked Smile - Wait For The Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Date With The Devil
+02. Wait For The Night
+03. We Fall
+04. Sign Of Times(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E871543A997528B18107B8E36DA6F3E3D4BD569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502665   (824949) от 16.10.2021
 
 Judas Priest - Reflections (2021) 50 Heavy Metal Years of Music [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -400,309 +698,6 @@ SkeleToon - The 1.21 Gigawatts Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B6BBF10EE1D4235371D144742C86C4EE39A3DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502585   (825268) от 16.10.2021
-
-Hate - Rugia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rugia
-02. The Wolf Queen
-03. Exiles Of Pantheon
-04. Saturnus(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8590E375D09666C94F3CE0500D4FBC5A43374B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502605   (825269) от 16.10.2021
-
-Aeon - God Ends Here (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nihilist
-02. Liar's Den
-03. Let It Burn
-04. Opheus Indu Inferis(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BC4855CFC18FE1CE0303C9D67A2F99BCF96A2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774958   (825323) от 08.04.2014
-
-Metallica - Death Magnetic (2008) ремастер /2014 , KronStudioLab / [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Was Just Your Life (7:09)
-02. The End Of The Line (7:54)
-03. Broken, Beat & Scarred (6:26)
-04. The Day That Never Comes (7:58)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:75:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB025EC1F469DD5604DC2E57CEFBD899BBC180D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774976   (825326) от 08.04.2014
-
-Круиз - Hit Collection (2014) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безумцы!
-02. Крутится Волчок
-03. Что Поделаешь, Работа
-04. Не Верьте Тишине(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C541B5F779A37C92474193D5370E5BDD5F9FA101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774877   (825387) от 08.04.2014
-
-The Alan Parsons Project - The Sicilian Defence (2014) [FLAC|Lossless]<Electronic, Experimental, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P-K4 (5:00)
-02. P-QB4 (6:22)
-03. Kt-KB3 (3:07)
-04. ...Kt-QB3 (1:15)(   Читать дальше...   )Жанр: Electronic, Experimental, Progressive RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:152C04FB5BE398538085F89DF06B910A41D2D4E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006722   (825392) от 13.04.2016
-
-Weezer - Weezer (White Album) (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Kids (3:25)
-02. Wind Of Our Sail (2:53)
-03. Thank God For Girls (3:30)
-04. (Girl We Got A) Good Thing (3:25)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Punk, Adult Alternative, Power PopПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7AEC179C5F206233EDDBAA0E3D3082233B4AD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006927   (825400) от 13.04.2016
-
-Cult Of Luna - Mariner (2016) with Julie Christmas [FLAC|tracks|WEB-DL]<Post-Metal, Sludge Metal, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825400.jpg" />
-</div>
-
-
-###  Подробнее
-
-[08:24] 01. A Greater Call
-[08:53] 02. Chevron
-[09:30] 03. The Wreck Of S.S. Needle
-[12:59] 04. Approaching Transition(   Читать дальше...   )Жанр: Post-Metal, Sludge Metal, ProgressiveПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B942700F01590DA6CEC3ECBD2B70B71EF62EBC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 654099   (825411) от 10.05.2013
-
-Immolation - Kingdom Of Conspiracy (2013) [MP3|320 кб/с]<Brutal Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom Of Conspiracy (03:48)
- 02. Bound To Order (03:49)
- 03. Keep The Silence (04:05)
- 04. God Complex (03:35)
- 05. Echoes Of Despair (03:44)
- 06. Indoctrinate (04:48)
- 07. The Great Sleep (05:21)
- 08. A Spectacle Of Lies (03:14)
- 09. Serving Divinity (03:36)
- 10. All That Awaits Us (04:49)Жанр: Brutal DeathПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E6FA9EC63C84280892841BD6CD2D6FD0C530A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115647   (825956) от 18.03.2017
-
-Дельфин - 97<01 (2017) [MP3|320 Kbps] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мало
-02. Июнь
-03. Штемпель
-04. Любовь(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837D8BFA87FC4759B5FFBA7384FFAA90C2FF7173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115650   (825962) от 18.03.2017
-
-Дельфин - 04-15 (2017) [MP3|320 Kbps] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нечестно
-02. Девять
-03. QT
-04. Всё(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCC9EEADF01A4811A783C24D73967CE2FC7CDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196292   (825989) от 01.01.2018
-
-Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotta Love 3:12
-02. Rhumba Girl 3:50
-03. Give A Little 2:57
-04. Angels Rejoiced 2:27(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BalladПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
 ```
 
 

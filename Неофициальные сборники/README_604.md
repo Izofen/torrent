@@ -1,3 +1,30 @@
+###  Публикация: 1098436   (908956) от 30.01.2017
+
+VA - Top 100 шансон зимний. Часть №3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Серафимов & Евгения Лихачева - C Меня Довольно 3:26
+002. Александр Казанцев - Цыган 3:38
+003. Вадим Васильев - Годы Мама Прошли Пролетели 3:42
+004. Алена Шарапова - Танго 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88918685217AE63787DA353E05F52DF4A7CA324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098418   (908982) от 30.01.2017
 
 VA - German Top 40 DBC Deutsche Black Charts 27.01.(2017) [MP3|192-320 Kbps] <Hip-Hop, R&B>
@@ -662,33 +689,6 @@ VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097932   (910796) от 29.01.2017
-
-VA - Club Dance Ambience Vol.100 (2017) [MP3|320 Kbps] <Dance, Club, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 9lives & Matt Hart feat. Philip Matta - Just Let Go (Original mix) 5:19
-002. Alex Scandi - Get Down (Original Mix) 4:07
-003. Alisha Pillay vs Kolya Funk & Eddie G - Mayday (Vincent & Diaz Mash-Up) 4:12
-004. Alok  Fractal System feat. Bea Jourdan vs. Kolya Funk & Eddie G - Don't Ya (Joy Vega Mash Up) 5:16(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C10ABEF73D33469D2DDB3A48A52A07F1FFA7585
 ```
 
 

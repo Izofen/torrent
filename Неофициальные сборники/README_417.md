@@ -1,3 +1,30 @@
+###  Публикация: 1291285   (670563) от 24.03.2019
+
+VA - Radio DFM: Top D-Chart Март 2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilkay Sencan - Do It 3:51
+02. Ellie Goulding & Diplo feat. Swae Lee - Close To Me (Pink Panda Rmx) 5:12
+03. Mark Ronson & Miley Cyrus - Nothing Breaks Like A Heart (Don Diablo Remix) 3:37
+04. Ava Max - Sweet But Psycho (Morgan Page Remix) 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA2FB477FD41F8A01938A3C7115E7F90D0942E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291245   (670577) от 24.03.2019
 
 VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -690,33 +717,6 @@ VA - Red Rythm Evolution (2018) [MP3|320 Kbps] <Eurodance, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C26BE437C2CEFA0063DF54B8804E53EDD050E5C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223528   (671644) от 06.05.2018
-
-VA - German Top 50 Official Dance Charts 04.05.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-02. Moguai, Zonderling - Lee
-03. Calvin Harris & Dua Lipa - One Kiss
-04. Bingo Players, Goshfather - Everybody(   Читать дальше...   )Жанр: DanceПродолжительность: 02:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C00900EBC7100D4EABA370C6F9DD53FB9DEBFF4A
 ```
 
 

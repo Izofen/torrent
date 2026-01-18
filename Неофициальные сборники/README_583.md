@@ -1,3 +1,30 @@
+###  Публикация: 996310   (879400) от 14.03.2016
+
+VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lx24 - Сегодня Пьяным Буду Вновь
+02. Mario Jefferson Feat. Jojo - Disaster
+03. Mark Sixma - Adagio For Str0ngs
+04. Master Spensor & Leila - Сила Любви(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D09552AA1499FFC5E54224B7365A05B90D2F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996746   (879406) от 14.03.2016
 
 VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
@@ -668,33 +695,6 @@ VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495505   (880611) от 12.09.2021
-
-VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-Disco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Take My Breath
-02. Felix Jaehn & Robin Schulz - I Got A Feeling (feat. Georgia Ku)
-03. Tinlicker & Helsloot - Because You Move Me
-04. Pascal Letoublon - Friendships (Lost My Love) (feat. Leony)(   Читать дальше...   )Жанр: Hip Hop, Latin, Dancehall, Post-Disco, SynthpopПродолжительность: 01:01:05 + 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
 ```
 
 

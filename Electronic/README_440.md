@@ -1,3 +1,57 @@
+###  Публикация: 1003352   (841493) от 04.04.2016
+
+Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Hooks (NGHT DRPS Remix) (05:16)
+ 02. Reminder (Hodges More Amor Remix) (05:44)
+ 03. Eating Hooks (Siriusmo Remix) (04:42)
+ 04. Fondle (04:51)(   Читать дальше...   )Жанр: Techno, IDM, Electro, Experimental •Продолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC1954655DDD8D565946635488E5E54945B81BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112588   (841538) от 09.03.2017
+
+VA - Cafe Paris: The Essence Of Chilled Moments Vol 2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus Koch — Just With You
+02. Dreamhunter — Poetry For Deafness
+03. Newton — Glad But Sad
+04. Jean Honeymoon — Bang Bang — Lazy Hammock Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F54FBFE73D152CE98E7D443B985541072370D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112791   (841543) от 09.03.2017
 
 lorian MSK - Le Vacarme De Diavel (2016) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance, Minimal>
@@ -643,60 +697,6 @@ VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003162   (843571) от 03.04.2016
-
-VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thomas Feijk - Hi (Original Mix) 08:30
-02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
-03 Atlantis Ocean - Fuji (Original Mix) 07:15
-04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183593   (843920) от 04.10.2021
-
-Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Third Party - Release Radio 001:
-1. Third Party X Sentinel - Real Sound w/ Chemical Brothers - Galavanize
-2. Axwell Ingrosso vs Third Party - Dream Everyday Of My Life
-3. Corey James & Joakim Molitor – Morning Sun(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 52:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
 ```
 
 

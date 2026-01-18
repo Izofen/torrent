@@ -1,3 +1,57 @@
+###  Публикация: 1051539   (532684) от 11.09.2016
+
+Breakdown Of Sanity - Coexistence (2016) [MP3|320 кб/с]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532684.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:01] 01. Bulletproof
+[03:08] 02. Restless
+[03:47] 03. Back To Zero (feat. Ryo Kinoshita from 'Crystal Lake')
+[03:44] 04. Dear Diary(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D75493797F5FBC9CB0A2FCA6CDE090D9FA6BC4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312546   (532690) от 04.07.2019
+
+Behemoth - Zos Kia Cultus (Here and Beyond) (2002) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horns ov Baphomet (6:35)
+ 02. Modern Iconoclasts (4:25)
+ 03. Here and Beyond (3:25)
+ 04. As Above So Below (4:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2E96293E628038AF532542FB90AEAFB002E5E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051101   (532691) от 11.09.2016
 
 The Baseballs - Hit Me Baby... (2016) [FLAC|Lossless|tracks + .cue] <Rock'n'Roll, Rockabilly>
@@ -638,60 +692,6 @@ Heavenside - A Long Way To The Stopline (2015) [MP3|320 кб/с]<Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A872699D8E8A7B729D09840D07CB4F1E2D0511
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926539   (533566) от 10.08.2015
-
-Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cue]<Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To Foreverland 03:54
-02. Roads To Rome 03:17
-03. Manifestations 05:46
-04. Loved By You 02:51(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011A23326CD821DFA37111E81C632DC23E7AD223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926531   (533571) от 10.08.2015
-
-Seventh Wave - Things To Come (1974) Remastered /2005, Air Mail Archive/ [FLAC|image+.cue]<Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Scraper 02:16
-02. Metropolis 04:24
-03. Intercity Water Rat 00:30
-04. Escalator 00:17(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178B6808A9953502B515540E4A8812F4EAE7B3ED
 ```
 
 

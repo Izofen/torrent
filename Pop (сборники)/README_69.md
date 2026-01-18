@@ -1,3 +1,36 @@
+###  Публикация: 525506   (605781) от 22.07.2012
+
+VA - Хитовые летние треки (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пропаганда & MC Джимми - Хабиби
+02. Tune Up Vs. Italobrothers - Colours Of The Rainbow (Alex Ch Remix 2K12)
+03. Размер Project - My Moscow Love
+04. Вирус - За Тобой
+05. E - Rotic - Sexual Healing
+06. Серебро - Мальчик
+07. Ольга Плотникова - Лето
+08. Gazebo - Tears For Galileo (Dancefloor Radio)
+09. Дима Билан - Так не бывает
+10. Fancy Ft. Sabrina - Flames Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE27A821069D964B8A6E6EAF7A21984EDAC73B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546516   (605936) от 24.04.2022
 
 La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
@@ -680,33 +713,6 @@ VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037436   (613666) от 24.07.2016
-
-VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love
-02. Stevie B. - Because I Love You (The Postman Song)
-03. Chris Rea - Ace Of Hearts
-04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1032240   (645944) от 07.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 79 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gazebo - Telephone Mama ( 1984 )
+02. Primero - On Que Calor ( 1988 )
+03. Red Face - Down On The Corner ( Long Version 1980 )
+04. Phaeax - Talk About ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB0BB63D5B51CF47837FB95FFC902C2D1024A3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032207   (645947) от 07.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -668,33 +695,6 @@ VA - Legendary Songs 80s (2019) [MP3|320 Kbps] <Pop, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE0D7BF988200E7A58684454033C48B262B8CF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227474   (646697) от 26.05.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 25.05.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones - Breathe (Ina Wroldsen)
-02. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-03. Dynoro feat. Gigi D'Agostino - In My Mind
-04. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057AC6D86344A5694485E71722C2683428FF299F
 ```
 
 

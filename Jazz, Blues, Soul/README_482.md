@@ -1,3 +1,246 @@
+###  Публикация: 1383794   (808140) от 17.05.2020
+
+VA - Quarantine Doom Jazz vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Der Finger - Das Zeit (10:43)
+02. Gamardah Fungus - Opium (8:32)
+03. Misantronics -  Tilting (10:39)
+04. Shadowed Silhouette - Just A Passerby (5:01)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Dark Jazz, Doom Jazz, Jazz Noir, ExperimentalПродолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:974CA0CFD1A7C724C233FB9CF2AF26325B98B5EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009676   (808243) от 22.04.2016
+
+Phil Woods, Gene Quill, Jackie McLean, John Jenkins, Hal McKusick - Bird Feathers (1957) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Solar [05:53]
+ 02.Bird Feathers [10:26]
+ 03.Interim [05:52]
+ 04.Airegin [06:28](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B96BCB984A4A6A368CE5C99F0913806B608F2BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383803   (808277) от 17.05.2020
+
+Miles Davis - Filles de Kilimanjaro 1968 (1990) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frelon Brun (Brown Hornet) [5:43]
+02. Tout de Suite [14:10]
+03. Petits Machins (Little Stuff) [8:12]
+04. Filles de Kilimanjaro (Girls of Kilimanjaro) [12:06](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6F59BFB53A33C48D817CAF9ACF2696D4B4ECA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383785   (808281) от 17.05.2020
+
+Jeffery Smith - Down Here Below (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afro Blue [7:12]
+02. Throw It Away [5:04]
+03. Ask Me Now [6:22]
+04. People Make the World Go Round [5:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE4CD2D938367434706C2AA2C4F5DB309FF078B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198516   (808294) от 11.01.2018
+
+Miles Davis - Miles Davis Featuring John Coltrane (2005) 4CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Bemsha Swing
+02. Swing Spring
+03. The Man I Love(   Читать дальше...   )Жанр: JazzПродолжительность: 03:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5074331066898098020008CAED149E4FB3815FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009680   (808358) от 22.04.2016
+
+The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Little Susie [04:50]
+ 02.By Myself [03:26]
+ 03.Blues For Norine [04:40]
+ 04.Moon-Faced, Starry-Eyed [03:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D25BE0BB6E352E69B6A3CD4381C300D808EB4CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009685   (808359) от 22.04.2016
+
+Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Homecoming [04:13]
+ 02.Cascavelo [08:52]
+ 03.Some Other Time [06:01]
+ 04.Blue Bossa [06:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009725   (808361) от 22.04.2016
+
+Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Haiti B [07:38]
+ 02.Charlotte's Dream [05:07]
+ 03.Dreamers [05:33]
+ 04.Aft [06:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAFEE9D3D67B87007BEB2E0BA2F82568843518C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009797   (808362) от 22.04.2016
+
+Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sigi [03:28]
+ 02.Angel Eyes [05:14]
+ 03.Autumn Leaves [03:50]
+ 04.Indian Summer [07:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5081DB6C6F949CF53F01F40C733FD849578A12BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009717   (808363) от 22.04.2016
 
 Art Farmer - Listen to Art Farmer and the Orchestra (1962) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -447,249 +690,6 @@ Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC21D62385D6E9F26D96F50F5D2CE38FC0B533F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008990   (810160) от 21.04.2016
-
-Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image + .cue] <Jazz-Rock, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medieval Overture
-02. Sorceress
-03. The Romantic Warrior
-04. Majestic Dance(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87CDAC2DEB494C063694FE2F33BD8CC995FDF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009541   (810161) от 21.04.2016
-
-Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cue] <Soul, Smooth Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Ole Days 04:09
-02. You Made Me Love Again 04:12
-03. So High On Your Love 04:55
-04. Don't Break Your Promise (Too Soon) 04:59(   Читать дальше...   )Жанр: Soul, Smooth SoulПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009524   (810164) от 21.04.2016
-
-Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. China Boy
-02. Mr. Blues Walks
-03. Dippermouth Blues
-04. Trouble In Mind(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473FF43C25090DE40E74BFAE77202AE4BBF88DC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009457   (810165) от 21.04.2016
-
-Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stuff [17:04]
- 02.Paraphernalia [12:46]
- 03.Black Comedy [07:31]
- 04.Country Son [13:53]Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019860EBE863CCA01151267CC7BC916C4281EBA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008994   (810167) от 21.04.2016
-
-VA - Jimmy Virani presents The Exotic Sounds of Tiki Tribe (2011) Dionysus Records[FLAC|Lossless|tracks + .cue] <Lounge, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ritual Of The Torches [02:53]
- 02.Dahil Sayo [02:59]
- 03.Tahu Wahu Wahi [03:12]
- 04.Tiare [02:22](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2358E74A371FC6EAE03990E975BB5C1DA8B9987E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009204   (810177) от 21.04.2016
-
-Oz Noy - Who Gives a Funk (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Funk, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On (feat. Fred Wesley) (07:12)
-02. Flashback (feat. John Medeski) (05:52)
-03. Better Get It In Your Soul (feat. Randy Becker) (07:28)
-04. I Got You (I Feel Good) (feat. Chris Potter) (05:27)(   Читать дальше...   )Жанр: Jazz, Fusion, Funk, RockПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609F2C085D32CFFF9DC3E915D2BC257466F201B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008933   (810181) от 21.04.2016
-
-Murray, Allen & Carrington Power Trio - Perfection (2016) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror of Youth 05:52
-02. Barbara Allen 05:59
-03. Geri-Rigged 06:11
-04. The David, Geri & Terri Show 08:16(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8D02BC2E5A67A977CA9D04657801725F5AD0F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009507   (810183) от 21.04.2016
-
-Dorado Schmitt - Parisienne (1995) [FLAC|Lossless|tracks] <Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil    04:41
-02. Tout Seul    03:09
-03. Parisienne    04:41
-04. Bossa Dorado    03:57(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5214A8B48ADA21FECEA7806AEBE88696608087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198014   (810249) от 10.01.2018
-
-Bill Wyman's Rhythm Kings - Groovin' (2000) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell You A Secret  (03:03) 
-02. Groovin'  (03:30) 
-03. Rough Cut Diamond  (04:03) 
-04. Mood Swing  (04:09) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96E6EF3C95A64D07D367D6F8DCC18ED74E08D41
 ```
 
 

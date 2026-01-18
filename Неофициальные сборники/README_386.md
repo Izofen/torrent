@@ -1,3 +1,30 @@
+###  Публикация: 908153   (633467) от 14.06.2015
+
+VA - 50 Лучших треков в машину 4 (2015) [MP3|256-320 кб/с]<Deep, House, Pop, Breaks, Chillout, Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Artxouse - Вступление [01:07]
+02.Blonde Feat. Melissa Steel - I Loved You [03:05]
+03.Feder feat. lyse - Goodbye [03:34]
+04.Misha Klein feat. Vika Grand - Feel So Good (Grotesque Remix) [05:19](   Читать дальше...   )Жанр: Deep, House, Pop, Breaks, Chillout, Drum & BassПродолжительность: 02:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84A6EBC06C7A60549449909398E6E568182FA8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908331   (633475) от 14.06.2015
 
 Lumen - Всегда 17 - всегда война (Live) (2015) [MP3|320 кб/с]<Rock>
@@ -699,33 +726,6 @@ VA - Лучшая Коллекция Исполнителей Шансона (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75978A5ED5ECFECFD2850BE1A143F157F9EBB759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033793   (634238) от 13.07.2016
-
-VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. W&W & Hardwell feat. Lil Jon -  Live The Night (Extended Mix) 4:34
-002. Scooter -  Mary Got No Lamb (Extended Mix) 4:24
-003. Armin Van Buuren ft. BullySongs -  Freefall (Extended Mix) 4:03
-004. Armand Voltage -  Go!! (Original Mix) 5:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
 ```
 
 

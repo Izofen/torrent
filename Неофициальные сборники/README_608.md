@@ -1,3 +1,30 @@
+###  Публикация: 989581   (915817) от 23.02.2016
+
+VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sascha Beek - Farblos
+02. Томас Лизара - Bag Check
+03. Ostblockschlampen - Bitches from Ostblock (Faites Leur La Danse Remix)
+04. Joseph Disco - Whip This Shit (Maverickz Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 02:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60644F8252A0165CB4226E4CB71DE396617300E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989819   (915827) от 23.02.2016
 
 VA - House Nation Volume 5 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
@@ -668,33 +695,6 @@ VA - Music News vol.125 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBFBCC688B6988EBB826E4BAD16DF8CC35C3C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096776   (917293) от 25.01.2017
-
-VA - The Best Music for your Auto - Top 130 Vol. 1 (2017) [MP3|192-320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Era Istrefi vs. Nutz, BrainDeaD - Bonbon (DJ Shade Edit 2017)
-002. Abraham Ruiz - 212 vs, Boogie Vice - What A Day (DЭ GAME SOUND REMIX 2017)
-003. K-Maro – Lets Go (DMC Mikael & Denis Zubov Bootleg 2017)
-004. In-Grid - Tu M'as Promis (Chapa's Drinking Red REMIX 2017)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8553C00A99C6A12B5DAF3ECF4BDA4C6F34E38A3
 ```
 
 

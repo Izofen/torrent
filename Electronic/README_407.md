@@ -1,3 +1,57 @@
+###  Публикация: 1203538   (788169) от 02.02.2018
+
+Klaada - Breaking The Cycle (2018) [MP3|320 Kbps] <Balearic,Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice (11:00)
+02. The Dream (08:05)
+03. Full Moon (07:19)
+04. Intention (02:09)(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 01:25:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C5CDFF7F8706133FC5B3196BB41D2AFE8FD6C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203458   (788178) от 02.02.2018
+
+VA - Ori Uplift - Uplifting Only 260 (incl. Vocal Trance) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE: New World - Ikigai (Intro Mix)
+02. Rene Ablaze & F.G. Noise featuring Lucid Blue - Oblivion (Extended Mix)
+03. Sheridan Grout & Michele C - Forget The World (Enzo Remix)
+04. Giuseppe Ottaviani & Jennifer Rene - Home (OnAir Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC01D4227A908B0BC4FCFAD2B21EE5343CB88232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276479   (788192) от 16.01.2019
 
 VA - Winter Sessions 2019 (Mixed by Milk and Sugar) (2019) [MP3|320 Kbps] <House>
@@ -641,60 +695,6 @@ VA - Psichi (Matsuri Digital Chill) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5E199DCCD660D05F21C4B807ABA59B82D97A101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235599   (788821) от 14.01.2019
-
-I:Scintilla / I-Scintilla - 18 Releases (2004-2018) [MP3|320 Kbps] <Industrial, Alternative, Electronic>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788821.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - The Approach
-2006 - Havestar (EP)
-2007 - Optics (Two CD Limited Edition)
-2009 - Prey On You (EP)Жанр: Industrial, Alternative, ElectronicПродолжительность: 10:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7603D20EE121B9F29E5A8554CB5155D3BBFA068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511655   (788950) от 21.11.2021
-
-Rational Youth - 5 Studio Albums (1982-2013) [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rational Youth - канадская синти-поп группа, была сформирована в 1981 году в Монреале, Квебек,  барабанщиком Tracy Howe и синтез-клавишниками Bill Vorn и Mario Spezza, боготворивших немецких пионеров синти-попа Kraftwerk . Группа считается одной из первых синти-поп групп Канады. В раздаче представлены только студийные альбомы.Список альбомов:
-1982 - Cold War Night Life
-1983 - Rational Youth
-1985 - Heredity(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 03:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1895973BE49113CC3B8E16922642915E3B3C4A3
 ```
 
 

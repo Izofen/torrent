@@ -1,3 +1,57 @@
+###  Публикация: 1098403   (910305) от 29.01.2017
+
+Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Ten Seconds Before Sunrise (First State Remix) (7:57)
+02. Tiesto feat. JES - Everything (Cosmic Gate Remix) (8:48)
+03. Tiesto feat. Julie Thompson - Do You Feel Me (Roger Martinez Remix) (7:09)
+04. Tiesto - Carpe Noctum (Fire Element Mix) (7:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 03:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05ECB08755EFC475094DAC176E48FBD168D0DA42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098417   (910442) от 29.01.2017
+
+Abiogenesis - Biosynthesis (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trigonometry Conception (08:19)
+ 02. Organic Structure Part 2 (10:32)
+ 03. Animation (09:01)
+ 04. Emergence (09:36)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2D69251483D6ECDFC3AD7B96B150E66F45CE74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098085   (910508) от 29.01.2017
 
 Camouflage - Sensor (2003) [FLAC|Lossless|image + .cue] <Synthpop>
@@ -635,60 +689,6 @@ Olaf Wempe - Anomaliac (+) (2021) L50 [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67B7DDCC07BEB2292A763D653C50A4BBC31D163F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097879   (912483) от 28.01.2017
-
-VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joris Voorn - Esquape (07:12)
-02. Ten Fe - Turn (Ewan Pearson remix) (06:55)
-03. Oliver Schories - Metris (06:49)
-04. Animal Trainer & Manuel Moreno - MDMA (09:10)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91195DDF3AE416BBE65B85927CE3591C99D60F53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097848   (912586) от 28.01.2017
-
-VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diversion & Tania Zygar - On Your Mind (Intro Mix) (7:57)
-02. Christian Monique - Seven (Dimuth K Remix) (8:02)
-03. Max Graham - BCN (Radio Edit) (3:52)
-04. Conjure One - Serac (Eddie Murray Remix) (3:50)(   Читать дальше...   )Жанр: Progressive House, TechnoПродолжительность: 03:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F83AD40CD8B387BCE764B82D7EF149073E40EB9
 ```
 
 

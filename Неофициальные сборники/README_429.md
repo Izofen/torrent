@@ -1,3 +1,30 @@
+###  Публикация: 1134920   (685083) от 17.05.2017
+
+VA - LUXEmusic - Dance Super Chart Vol.117 (2017) [MP3|320 Kbps] <Club House, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685083.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello (DJ Denis Rublev & T'Paul Sax Mix) 4:23
+002. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix) 4:15
+003. Alex Milano - Rockin' (Misha Klein & No Hopes Remix) 6:22
+004. Andrey Keyton, Chunkee - The Omen (Original Free Mix) 6:57(   Читать дальше...   )Жанр: Club House, Deep House, Electro HouseПродолжительность: 03:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431DA38891A9BE617854841596DA5697E77D037C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134955   (685084) от 17.05.2017
 
 Неба Жители - Посланники Пространств (2017) [MP3|320 Kbps] <Electronic, Downtempo, Drum & Bass, Drumfunk>
@@ -680,31 +707,6 @@ VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56C89C6757BEDBCD317142E166747FEBB040EAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289272   (686472) от 16.03.2019
-
-VA - The Best Of Trap & Trapstep II [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <Trap, Trapstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrested Youth - Vans (King Kavalier Remix) [2:37]
-02. Blvk Jvck & Flosstradamus - G.O.D. (Grind Or Die)Жанр: Trap, TrapstepПродолжительность: 02:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1A3D4BD522A96FD762B163984FE9249B043A6C
 ```
 
 

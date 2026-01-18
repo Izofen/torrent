@@ -1,3 +1,243 @@
+###  Публикация: 778574   (804339) от 19.04.2014
+
+VA - Pure... Jazz (2010) Box Set, 4 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие из джазистов, представленных здесь, уже побывали в нашем клубе в различных релизах. Но, если вы хотите получить представление о всех стилях  джаза что называется "в одном флаконе", то обязательно послушайте эти 4 диска. Фирма Sony, продолжая свою серию Pure... (см. под спойлером остальные части), знакомит любителей музыки с самыми знаменитыми джазовыми (   Читать дальше...   )Жанр: Jazz (стили см. под спойлером)Продолжительность: 04:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F1F0FC4A9C2521346356AAD7B1ACB84E1EFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384240   (804382) от 19.05.2020
+
+Miles Davis - Miles in St. Louis 1963 (1981) Soulard Intertainment Co. [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thought About You [8:03]
+02. All Blues [12:46]
+03. Seven Steps to Heaven [10:36]
+04. St. Louis Interview [17:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61ED7D6803833421F99F9A555E5E987978A66CC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010084   (804388) от 24.04.2016
+
+Jan Lundgren Trio - Svenska landskap (2003) Sittel Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slangpolska efter Byss-Kalle [04:42]
+ 02.Allt under himmelens faste [04:09]
+ 03.Medley [06:48]
+ 04.Brannvin ar mitt enda gull [04:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22263B2B31CEBEA4A6EC8C32712AA4BDC9306D32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010315   (804392) от 24.04.2016
+
+Moacir Santos - Carnival of the Spirits (1975) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <World Fusion, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Quiet Carnival [05:56]
+ 02.Jequie [02:56]
+ 03.Kamba [04:33]
+ 04.Sampaguita [03:12](   Читать дальше...   )Жанр: World Fusion, Brazilian JazzПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56830B144025CBDA0F641B6D87969BEFAAC56606
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198812   (804509) от 13.01.2018
+
+Beth Garner - Snake Farm (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alright By Me (Mr. Fisher) (03:52)
+02. Backroads Freddie (03:02)
+03. Drop Down (03:43)
+04. Used To Be (03:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6367CE0229B6C501AFA6B4A9958CD966F5A699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198825   (804516) от 13.01.2018
+
+Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Madness [03:14]
+02. Flamenco Sketches [09:39]
+03. Isfahan [06:00]
+04. I Love You, Porgy [04:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733F32BF7885A58A49AEEB760901F245224CE703
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505426   (804559) от 27.10.2021
+
+Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:56]
+02. The Nearness of You [8:51]
+03. Lover [8:18]
+04. I Hear a Rhapsody [6:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B922ED060C419E4CDDE248D64FAAF85E7B72DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505213   (804622) от 27.10.2021
+
+Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Around the Corner [4:10]
+02. Maji [5:57]
+03. Nightly Yours [4:15]
+04. Episode [5:45](   Читать дальше...   )Жанр: Crossover Jazz, Post BopПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CB40FB7889B470DD3EF8259F8865EB60CD468B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120026   (804895) от 29.03.2017
+
+Jamiroquai - Automaton (2017) [MP3|320 Kbps] <Acid Jazz, Funk, Electronic>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It On
+02. Automaton
+03. Cloud 9
+04. Superfresh(   Читать дальше...   )Жанр: Acid Jazz, Funk, ElectronicПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C64DA5EE50B5AF466F7427ADC5FF9BF96119A031
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119901   (805139) от 29.03.2017
 
 100 Watt Vipers - Something Wicked Comes This Way (2014) [MP3|320 Kbps] <Blues, Hard Blues Rock, Garage Rock>
@@ -452,249 +692,6 @@ magnet:?xt=urn:btih:23276D7F9F850BE87EDA8DCF00FF2F9FE565CBFD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CC2DFED66786F7BED3216F2E9ECFBD28E25B11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383794   (808140) от 17.05.2020
-
-VA - Quarantine Doom Jazz vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Finger - Das Zeit (10:43)
-02. Gamardah Fungus - Opium (8:32)
-03. Misantronics -  Tilting (10:39)
-04. Shadowed Silhouette - Just A Passerby (5:01)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Dark Jazz, Doom Jazz, Jazz Noir, ExperimentalПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:974CA0CFD1A7C724C233FB9CF2AF26325B98B5EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009676   (808243) от 22.04.2016
-
-Phil Woods, Gene Quill, Jackie McLean, John Jenkins, Hal McKusick - Bird Feathers (1957) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Solar [05:53]
- 02.Bird Feathers [10:26]
- 03.Interim [05:52]
- 04.Airegin [06:28](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B96BCB984A4A6A368CE5C99F0913806B608F2BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383803   (808277) от 17.05.2020
-
-Miles Davis - Filles de Kilimanjaro 1968 (1990) Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frelon Brun (Brown Hornet) [5:43]
-02. Tout de Suite [14:10]
-03. Petits Machins (Little Stuff) [8:12]
-04. Filles de Kilimanjaro (Girls of Kilimanjaro) [12:06](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6F59BFB53A33C48D817CAF9ACF2696D4B4ECA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383785   (808281) от 17.05.2020
-
-Jeffery Smith - Down Here Below (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afro Blue [7:12]
-02. Throw It Away [5:04]
-03. Ask Me Now [6:22]
-04. People Make the World Go Round [5:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE4CD2D938367434706C2AA2C4F5DB309FF078B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198516   (808294) от 11.01.2018
-
-Miles Davis - Miles Davis Featuring John Coltrane (2005) 4CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Bemsha Swing
-02. Swing Spring
-03. The Man I Love(   Читать дальше...   )Жанр: JazzПродолжительность: 03:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5074331066898098020008CAED149E4FB3815FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009680   (808358) от 22.04.2016
-
-The Ray Bryant Trio - Little Susie (1959/1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Little Susie [04:50]
- 02.By Myself [03:26]
- 03.Blues For Norine [04:40]
- 04.Moon-Faced, Starry-Eyed [03:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D25BE0BB6E352E69B6A3CD4381C300D808EB4CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009685   (808359) от 22.04.2016
-
-Art Farmer - Homecoming (1971/1972) Remaster, 2006, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Homecoming [04:13]
- 02.Cascavelo [08:52]
- 03.Some Other Time [06:01]
- 04.Blue Bossa [06:58](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33775D75A716A2F1A952384CA0935D086F65F80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009725   (808361) от 22.04.2016
-
-Joanne Brackeen - Aft (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Haiti B [07:38]
- 02.Charlotte's Dream [05:07]
- 03.Dreamers [05:33]
- 04.Aft [06:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAFEE9D3D67B87007BEB2E0BA2F82568843518C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009797   (808362) от 22.04.2016
-
-Leo Wright - Blues Shout (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sigi [03:28]
- 02.Angel Eyes [05:14]
- 03.Autumn Leaves [03:50]
- 04.Indian Summer [07:06](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5081DB6C6F949CF53F01F40C733FD849578A12BA
 ```
 
 

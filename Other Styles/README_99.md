@@ -1,3 +1,30 @@
+###  Публикация: 912048   (614083) от 24.06.2015
+
+Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Silverstar 5:24
+02. Chica 3:14
+03. Amigos 2:40
+04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912045   (614401) от 24.06.2015
 
 VA - Buddha Meditation (2015) [MP3|320 кб/с]<Lounge, ChillOut, New Age, Meditative>
@@ -692,33 +719,6 @@ David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145819   (619827) от 26.06.2017
-
-VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nature Meditation Academy - The True Nature Of Happiness  2:41
-02.  New Age Anti Stress Universe - Ambient Energetic Relaxation  2:52
-03.  Serenity Music Relaxation - Sanctuary Of Existence  3:13
-04.  Mothers Nature Music Academy - Bright And Shining Moment  3:17(   Читать дальше...   )Жанр: Chillout, Ambient, New AgeПродолжительность: 03:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
 ```
 
 

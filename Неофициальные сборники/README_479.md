@@ -1,3 +1,30 @@
+###  Публикация: 1216242   (753058) от 29.03.2018
+
+VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2fox feat. Nandi - Motion (Original Mix)
+002. 2fox feat. Nandi - Zulu Suite (Original Mix)
+003. A-Mase feat. Rave CHannel - Just Be  (Original Mix)
+004. A. Rassevich - Hate Me Tonight (QRVZH Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216093   (753062) от 29.03.2018
 
 VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
@@ -665,33 +692,6 @@ VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B6289A3E990F23FBFC907B388DB1E872BBE5C2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018255   (755421) от 20.05.2016
-
-VA - В Ремиксах. Disco 90-х 100 hits (2016) [MP3|192-320 кб/с] <Club, House, Trance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Base - All She Wants (SNBRNxKLATCH Remix)
- 02. Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)
- 03. Adele feat. Capella - Move On Baby (DJ MiR Mush Up Mix Edit)
- 04. Adriatique - Modern Talking (Original Mix)(   Читать дальше...   )Жанр: Club, House, Trance, RemixПродолжительность: 08:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A21D20D981369DF1F1A26EA09D66B4E78FA3C56
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1110171   (855755) от 01.03.2017
+
+VA - Metropolitan Lounge Selection London (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benatural - Lake 5:31
+002. Michiko - Fly Away With You 4:19
+003. Baxx - For Time To Love You 4:14
+004. Cabinets Store - Command 3:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B103DDDAF049CC8E7EE9184B67CF7D1889DC5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110169   (855757) от 01.03.2017
+
+VA - Espace au Jardin: Edition Bleu. Mixed By Kolibri Musique (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855757.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Twins In Mind - Intro 1:23
+002. Denis Rusnak - Radio Cosmos 5:28
+003. Thomas Lemmer - Floating - Synapsis Fluid Remix 5:19
+004. Orbient - Fabric 4:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FECF3DDE9CD7DAAEFFCF9D146F00F26BD59F033E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110079   (855758) от 01.03.2017
 
 VA - Canary Islands Chillout Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -637,60 +691,6 @@ VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109598   (857458) от 28.02.2017
-
-VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony Spears - Lady  4:53
-02.  Jazz Lounge - Bass In System  4:59
-03.  Frank Tornell - Antologia  4:06
-04.  Steven Summers - Virgin Grooves  3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
 ```
 
 

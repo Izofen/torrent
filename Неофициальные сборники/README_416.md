@@ -1,3 +1,30 @@
+###  Публикация: 1030768   (670246) от 02.07.2016
+
+Белое Золото - Музыкальная Коллекция (2016) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я буду только твоим (03:53)
+02. Настоящая любовь (03:41)
+03. Улетай (03:47)
+04. Любимая женщина (03:36)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD34558AD40F869ABE36F22FE89B74901B6C1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030946   (670247) от 02.07.2016
 
 VA - Русская Дискотека ХХ Века - 11 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -671,33 +698,6 @@ VA - Dubstep Top 2012 (February) (2012) [MP3|256 kbps] <Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6144B894E6E6244CFE1877F7F1CBBB19051E3E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291285   (670563) от 24.03.2019
-
-VA - Radio DFM: Top D-Chart Март 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilkay Sencan - Do It 3:51
-02. Ellie Goulding & Diplo feat. Swae Lee - Close To Me (Pink Panda Rmx) 5:12
-03. Mark Ronson & Miley Cyrus - Nothing Breaks Like A Heart (Don Diablo Remix) 3:37
-04. Ava Max - Sweet But Psycho (Morgan Page Remix) 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA2FB477FD41F8A01938A3C7115E7F90D0942E5
 ```
 
 

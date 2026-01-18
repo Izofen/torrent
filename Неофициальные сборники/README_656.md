@@ -1,3 +1,30 @@
+###  Публикация: 1483100   (1006977) от 12.07.2021
+
+VA - Love Liberates: Romantic Compilation (2021) 2CD [MP3|320 Kbps] <Jazz, Soul, Blues, Funk>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006977.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. New York Community Choir - Ill Keep My Light In My Window
+02. Sola Rosa - Shine On
+03. Yu Sakai - Hozuki(   Читать дальше...   )Жанр: Jazz, Soul, Blues, FunkПродолжительность: 11:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483096   (1006988) от 12.07.2021
 
 VA - Music Love: Romantic Sound Mix (2021) [MP3|320 Kbps] <Pop, Romantic>
@@ -668,33 +695,6 @@ VA - Record Super Chart 03.07.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E03BE929205C5E56B12368B66CF0EDAAC9A20CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481547   (1008102) от 04.07.2021
-
-VA - Tik Tok Треки выстрелили летом 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008102.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Popp Hunna - Adderall (Corvette Corvette) (2:56)
-002. Panic! At The Disco - Into the Unknown - Panic! At The Disco Version (3:09)
-003. Idina Menzel, AURORA - Into the Unknown (3:14)
-004. Noisettes - Never Forget You (3:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F664232ED79B9C117BD6DE6840F9D80B7895B694
 ```
 
 

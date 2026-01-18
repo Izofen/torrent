@@ -1,3 +1,55 @@
+###  Публикация: 1223925   (669532) от 07.05.2018
+
+VA - (Hermann Max, Sir Neville Marriner) - J.S. Bach - Magnificat, A. Vivaldi - Gloria (1990) 1998 [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Magnificat, BWV 243 Composed By – Johann Sebastian Bach
+2. Gloria, RV 589 Composed By – Antonio VivaldiЖанр: ClassicalПродолжительность: 01:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF230557641E155C1C120597BD94E58ADA36ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136896   (670638) от 24.05.2017
+
+VA - 100 Piano Masterworks (2017) [MP3|320 Kbps] <Classical, Piano>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.S. Bach: Partita For Violin Solo No.3 In E, BWV 1006-Arr. For Piano By Rachmaninov-1. Preludio - Hélène Grimaud
+02. Grieg: Lyric Pieces Book X, Op.71-3. Puck - Emil Gilels
+03. Chopin: Waltz No.1 In E Flat, Op.18-"Grande valse brillante" - Alice Sara Ott
+04. Prokofiev: Toccata, Op.11 - Martha Argerich(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 06:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2298694C836AEB3A537CEE52E0181D2119572672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 167580   (670680) от 20.05.2015
 
 Совместный проект Юга де Курсона (Huges de Courson) и Ахмеда аль Магреби (Ahmed al Maghreby) - Моцарт в Египте / Mozart in Egypt (1997) [FLAC|Lossless]<Classic - Ethnic>
@@ -646,60 +698,6 @@ Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DF0BC161AFA2DA8E3A502985ECA1548B4386B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133392   (693027) от 13.05.2017
-
-Jackie Evancho - Two Hearts (2017) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso (featuring William Joseph, piano) (4:28)
-02. Attesa (4:32)
-03. How Great Thou Art (5:19)
-04. Mamma (3:23)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7312144DA4DE634AA4297B441439E99E9F1A37AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221479   (693070) от 25.04.2018
-
-VA - Piano Cloud Series - Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matti Bye - Elephants made the piano
-02. Federico Albanese - Early Dance
-03. Angus MacRae - Mirror Lake
-04. Clem Leek - Temps(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4627024D95B8964592DDA18DF88605A4F41749A4
 ```
 
 

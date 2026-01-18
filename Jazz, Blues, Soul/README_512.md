@@ -1,3 +1,278 @@
+###  Публикация: 1375227   (867299) от 13.04.2020
+
+Allan Vache and Harry Allen - Allan And Allen (2001) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back To Me [6:24]
+02. Jive At Five [5:32]
+03. Lake Ponchartrain Blues [5:22]
+04. Allan And Allen [4:31](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:981408FB2E785482CC323A98B4C874C1EC307B67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302416   (867559) от 01.03.2011
+
+Chuck Loeb - All There Is (2002) [APE|Lossless]<Smooth-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. As Is (5:17)
+2. Sierra Nevada (4:22)
+3. True Or False (5:22)
+4. Golden Heart (5:09)
+5. Sarao (5:30)
+6. Fundamentally Sound (4:50)
+7. In The Hands (5:09)
+8. Tenerife Blue (5:19)
+9. Bread & Butter (5:26)
+10. Love Is All There Is (2:59)Жанр: Smooth-JazzПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767151   (867610) от 16.03.2014
+
+Brad Mehldau & Mark Guiliana - Mehliana Taming The Dragon (2014) [FLAC|Lossless|WEB-DL]<Fusion, Modern Jazz, Electronics>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Taming the Dragon
+02. Luxe
+03. You Can't Go Back Now
+04. The Dreamer
+05. Elegy for Amelia E.
+06. Sleeping Giant
+07. Hungry Ghost
+08. Gainsbourg
+09. Just Call Me Nige
+10. Sassyassed Sassafrass(   Читать дальше...   )Жанр: Fusion, Modern Jazz, ElectronicsПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB449F5ADC991774472385A7A27D0400BF18FD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767167   (867633) от 16.03.2014
+
+Hiromi The Trio Project - Move (2012) [FLAC|Lossless|WEB-DL]<Fusion, Progressive Jazz, Contemporary, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Move
+ 2. Brand New Day
+ 3. Endeavor
+ 4. Rainmaker
+ 5. Suite Escapism: Reality
+ 6. Suite Escapism: Fantasy
+ 7. Suite Escapism: In Between
+ 8. Margarita!
+ 9. 11:49 PMЖанр: Fusion, Progressive Jazz, Contemporary, PianoПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582871B45EA73B6871463CF88DA79E6B905B8059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766883   (867732) от 16.03.2014
+
+Lily Moe - Lily Moe and the Barnyard Stompers (2013) [MP3|320 кб/с]<Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Ripple The Tipple
+03. Oooh - Wow
+04. Why Don't You Hold Me Back
+05. Dancing With Teardrops
+06. Hey Little Boy
+07. Baked Potatoes
+08. Don't LeavePoor Me
+09. I'm A Wine Drinker
+10. Tell Me All About It(   Читать дальше...   )Жанр: Swing, Jazz, Rhythm and BluesПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFE177B6BEE45193FF0277F45CCA16BCC8F22CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767116   (867751) от 16.03.2014
+
+Erroll Garner - Collection Vol.3: Too Marvelous For Words (1999) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Cecilia [02:41]
+02. Idaho [04:04]
+03. Margi [04:14]
+04. Stars Fell On Alabama [04:01]
+05. Way Down Yonder In New Orleans [03:24]
+06. Louise [04:32]
+07. Peg O' My Heart [02:56]
+08. Kitten On The Keys [03:10]
+09. Ramona [04:52]
+10. My Gal Sal [03:14](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C75055075E8D3795AE2105CE27BC5F16F0BDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 766858   (867766) от 16.03.2014
+
+Joshua Jern and His Orchestra - Cook Then Chill (2012) [MP3|320 кб/с]<Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Yes, Indeed! (feat. Tim Reid, Jr.) [06:21]
+02. You Are the Best Thing (feat. Tim Reid, Jr.) [03:56]
+03. Caroline in a Dream [04:41]
+04. Don't Get Around Much Anymore [03:53]
+05. All the Way (feat. Tim Reid, Jr.) [04:47]
+06. Ladybug Bridge [05:04]
+07. It's Nice to Go Trav'ling (feat. Tim Reid, Jr.) [04:03]
+08. Trumpeter's Prayer [05:06]
+09. As of Yet [02:37]
+10. On the Sunny Side of the Street (feat. Tim Reid, Jr.) [03:55](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800E1F99D37F1FB48F3C49DC9542717EE74F0A97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 188720   (867805) от 02.04.2010
+
+Stevie Ray Vaughan etc - Discography (1978..2009) [MP3|320 kbps] <Electric/Texas Blues, Blues/Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стиви родился в 10:13 3 октября 1954 в Далласе, и рос неподалёку от городка Оак Клифф. Ни один из его родителей не имел ярко выраженного музыкального таланта, но оба были большими ценителями музыки. Они часто брали своих детей, Стиви, и его старшего брата, Джимми на концерты чтобы дети могли лицезреть звёзд того времени — Фэтс Домино, Джимми Рида, и Боба Виллса. (   Читать дальше...   )Жанр: Electric/Texas Blues, Blues/Instrumental/Southern RockПродолжительность: 27:09:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497039   (867903) от 20.09.2021
+
+New Orleans Rhythm Kings And Jelly Roll Morton - New Orleans Rhythm Kings And Jelly Roll Morton (1992) [FLAC|Lossless|tracks + .cue] <Classic Jazz, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eccentric (Robinson) - 2:54
+02. Farewell Blues (Mares, Roppolo, Schoebel) - 2:40
+03. Discontented Blues (Miller, Schoebel) - 2:43
+04. Bugle Call Rag (Meyers, Pettis, Schoebel) - 2:20(   Читать дальше...   )Жанр: Classic Jazz, New Orleans JazzПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098EAC9B57EE9AB61AEED813902D62822B40CF4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766974   (867917) от 16.03.2014
 
 Kerkko Koskinen Orchestra - Trains & Letters (2011) [FLAC|Lossless]<Post-Bop, Big Band, Contemporary Jazz>
@@ -479,252 +754,6 @@ Marvin 'Smitty' Smith - Keeper Of The Drums (1987) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446909D75AECEBF86D471242F117EA7A2B989DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106998   (868346) от 22.02.2017
-
-Urs Leimgruber, Don Friedman, Bobby Burri - Reflexionen (1983) Remaster, 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The New Apartment [15:41]
- 02.Bradleys [06:05]
- 03.Bla-Bla-Bla [14:11]
- 04.For Joel [04:51]Жанр: Modern CreativeПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE36064223E3A86E77273F516A6617465DF59B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873476   (868383) от 28.02.2015
-
-Dexter Gordon - The Jumpin' Blues (1996) [FLAC|Lossless]<Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Evergreenish [06:03]
-02. For Sentimental Reasons [06:52]
-03. Star Eyes [06:50]
-04. Rhythm-A-Ning [06:35]
-05. If You Could See Me Now [05:22](   Читать дальше...   )Жанр: Jazz, Bop, Hard BopПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E848BA40808A395939CADFBE29BF6C149FAFB916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998880   (868397) от 20.03.2016
-
-Slim Chance & The Gamblers - Jackpot! (2015) [FLAC|Lossless|image + .cue] <Blues Rock, Rock, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Thing in a Bad Way
-02. Don't Poison the Water
-03. My Better Half (The Valentine Song)
-04. What Kinda Man Could Stop from Lovin' You(   Читать дальше...   )Жанр: Blues Rock, Rock, Rock'n'RollПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847973E67758871CDC8214478AFFA3FE83247CBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998698   (868405) от 20.03.2016
-
-Tommy & Jimmy Dorsey - Swingin' In Hollywood (1940-e) 1998, Rhino[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.We'll Get It [04:14]
- 02.Song Of India [02:54]
- 03.So Long, Sarah Jane [05:53]
- 04.If I Had You [03:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA1E95D8F41E0711FA497686A9F6604B086E06E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998843   (868511) от 20.03.2016
-
-The Bluesbenders - Gargoyle Schmargoyle (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Mystified
-02. Blues Boy
-03. Wild Turkey
-04. One for the Tuna(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B88900FBC13A74FCD029D060EA23CDFB12661B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873376   (868538) от 28.02.2015
-
-Larry Miller - Soldier Of The Line (2015) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. One Fine Day
-02. Soldier Of The Line
-03. Failed Again
-04. The Power You Have
-05. Our Time Is Coming(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B97B8FADFFE767979AE7AC72E56D561A499E20F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873582   (868547) от 28.02.2015
-
-Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zoot Suit (ft. Chuck Loeb)
-02. Peg (ft. Chuck Loeb)
-03. Swift Kick (ft. Chuck Loeb)
-04. Yorkville (ft. Chuck Loeb)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBEFDD559731704A40755291A219D5ED3FABA6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873704   (868548) от 28.02.2015
-
-Fast Eddy's Blue Band - Blues & Songs: Best Of 25 Years (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boss Man (05:31)
-02. Slow Down (03:24)
-03. Tore Down (04:11)
-04. It's My Own Fault (03:42)
-05. Tuff Enough (03:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F0377DB3268144A147230684855AE0FC7332DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998627   (868598) от 20.03.2016
-
-Caustic Roll Dave - Approaching Noise (2014) [FLAC|Lossless|tracks + .cue] <Industrial Blues, Blues Rock, Lo-Fi>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What We Understand (02:42)
-02. You've Got Your Silver, You've Got Your Gold (02:56)
-03. Thoughts Send Him Down (03:21)
-04. Restart (02:42)(   Читать дальше...   )Жанр: Industrial Blues, Blues Rock, Lo-FiПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87024816FA2F843D30A3BBD5357F3A32115DCC41
 ```
 
 

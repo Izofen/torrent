@@ -1,3 +1,300 @@
+###  Публикация: 1289599   (686753) от 16.03.2019
+
+Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Phoenix Rising
+2. Ideal
+3. Echoes Of Dying Memories
+4. Dreaming(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616FF12CB11210C87DEAE3F7A9C251D38A2EDA04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289423   (686754) от 16.03.2019
+
+Dust Bolt - Trapped in Chaos (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fourth Strike
+02. Dead Inside
+03. The Bad Ad
+04. Bloody Rain(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76814284C36A4040D819979ADF6AE4F56190149C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289284   (686756) от 16.03.2019
+
+Tal Wilkenfeld - Love Remains (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Jazz-Rock, Indie-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner Painter
+02. Counterfeit
+03. Hard To Be Alone
+04. Haunted Love(   Читать дальше...   )Жанр: Alternative, Jazz-Rock, Indie-PopПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F8F683639336E8058C50D7CA1DCBCB756B18F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289482   (686757) от 16.03.2019
+
+Asthma Castle - Mount Crushmore (2019) [FLAC|Lossless|tracks + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686757.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Incline of Western Civilization  06:23
+2. Mount Crushmore  05:07
+3. Here Come the Black Ship  06:26
+4. Methlehem  06:49(   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A119AA750AC4A793997188D0BE9F6954B5452BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547016   (686794) от 16.05.2017
+
+ДДТ (DDT) - Эй! Ленинград, Петербург, Петроградище!!! (Концерт в "Олимпийском") (2003) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Единочество (02:29)
+02. Ветер (04:27)
+03. Пропавший без вести (04:14)
+04. Актриса весна (07:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF355DFF0F74385A129145E12A000D7610D5399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535239   (686838) от 06.03.2022
+
+Caliberty - Caliberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:47)
+02. Growling Town (04:14)
+03. Back'n'Forth (03:32)
+04. Mr. Goodtime (05:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71284863038694204859DCE0047BBE0548CFCDE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028804   (686908) от 24.06.2016
+
+Highlord - Hic Sunt Leones (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Time for a Change
+2. One World at a Time
+3. Be King or Be Killed
+4. Let There Be Fire(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04D4B4C806F9D2C9C0DDCC6CAD117BEA1948584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134655   (686977) от 16.05.2017
+
+VA - Capital Gold Rock 'n' Roll Legends (2003) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Rock, Rock and Roll, Classical Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это серия Capital Gold от Virgin Records берет своё начало в далёком 2001 году с боксета Legends. На нашем трекере уже есть несколько релизов из этой серии (ссылка как всегда внизу поста). Последняя моя публикация на эту тему вызвала пожелания о продолжении темы, что сегодня я и выполняю. Вот всегда когда возникает потребность и необходимость окунуться в атмосферу (   Читать дальше...   )CD1:
+01. Elvis Presley - Heartbreak Hotel  (2:09)
+02. Carl Perkins - Blue Suede Shoes  (2:14)
+03. Gene Vincent - Be-Bop-A-Lula  (2:34)(   Читать дальше...   )Тип издания: Box Set, 2CDЖанр: Rock, Rock and Roll, Classical RockПродолжительность: 02:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1776F2E5BF1FEE4488BD9C961488B0EB5C8CB38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222252   (686994) от 28.04.2018
+
+Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Little Schoolgirl
+02. I’m Gonna Move To The Outskirts Of Town
+03. Street Fighting Man
+04. An Old Raincoat Won’t Ever Let You Down(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FC6D475AF6F145B66BB9A6A91672381DC5D959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134594   (687219) от 16.05.2017
+
+Порт Июля (feat. Тузова Юлия) - Где было море (2017) [MP3|320 Kbps] <Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Река
+02. Тает Снег
+03. Безумие
+04. Любовь(   Читать дальше...   )Жанр: Rock, Art RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632303A9EBB8051B1F83F0B147214D41F77F90B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134436   (687223) от 16.05.2017
+
+Александр Иванов - Пассажир (2006) [FLAC|Lossless|image + .cue] <Rock, Pop, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пмж [04:02]
+02. Пассажир [04:25]
+03. Мечты [05:50]
+04. День Рождения [03:47](   Читать дальше...   )Жанр: Rock, Pop, Soft Rock, Pop RockПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8A32EEECB5DB668B3AC16C643C9FA72180F5FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897134   (687327) от 12.05.2015
 
 Eric Clapton - Forever Man (2015) 3CD [FLAC|Lossless]<Rock, Blues, Blues Rock>
@@ -405,305 +702,6 @@ magnet:?xt=urn:btih:877E9D7A26545EBC21B55DF43F4C4BB74D25B4BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C84F1DBF1552A3B9BAEE1B59BC9B3369420AA88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403642   (688449) от 21.08.2020
-
-The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Soul’s Warning (04:34)
-02. Blowback (03:59)
-03. Dying Breed (04:06)
-04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028745   (688524) от 23.06.2016
-
-In Extremo - Quid Pro Quo (2016) [MP3|320 кб/с] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Störtebeker
-02. Roter Stern
-03. Quid Pro Quo
-04. Pikse Palve(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D22DC507D9525DE721069F5E224AC52C014F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403621   (688554) от 21.08.2020
-
-KMFDM - In Dub (2020) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Light
-02. Superhero Dub
-03. Dub Uranus
-04. Bumaye Dub(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E799BA499079A9BDF3CA0729F365A9985C19B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403723   (688561) от 21.08.2020
-
-The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday's Gone
-02. Beekeeper's Daughter
-03. Fast And Slow
-04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403601   (688562) от 21.08.2020
-
-(hed) Planet Earth - Class of 2020 (2020) [MP3|320 Kbps] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Blood (2:20)
-02. Watch It Burn (2:56)
-03. No Days Off (2:29)
-04. Death Awaits (2:26)(   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Alternative Metal
-deezer
-discogsПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AAFADE74DAB22847B233CF1F5005535F00834E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028579   (688571) от 23.06.2016
-
-Guns N' Roses - In The Empire Of The Sun (2016) Live [MP3|320 кб/с] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'Re Crazy
-02. It'S So Easy
-03. Move To The City
-04. Mr. Brownstone(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483BBA678EC9409CF8FE96EC29B7F27CDD8A1600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028727   (688586) от 23.06.2016
-
-Dorothy - Rockisdead (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss It (02:34)
-02. Dark Nights (03:10)
-03. Raise Hell (03:02)
-04. Wicked Ones (02:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293487CD753A368A736CADD627DBE72C2E9D03E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028499   (688589) от 23.06.2016
-
-The Browning - Isolation (2016) [MP3|~245 кб/с (V0)] <Deathcore, Electronic, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cynica (3:10)
-02. Pure Evil (4:11)
-03. Isolation (3:37)
-04. Dragon (4:04)(   Читать дальше...   )Жанр: Deathcore, Electronic, MetalcoreПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D7A8B0B7F986DC468F008C7CA179216C8F5F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534962   (688608) от 05.03.2022
-
-Saxon - Carpe Diem (2022) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpe Diem (Seize The Day)
-02. Age Of Steam
-03. The Pilgrimage
-04. Dambusters(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96B09CF191E63147753B8BAA93224A341721A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403649   (688631) от 21.08.2020
-
-Graham Gouldman - Modesty Forbids (2020) [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing Next To Me (04:00)
-02. That's Love Right There (02:38)
-03. All Around The World (03:16)
-04. It's Not You It's Me (03:23)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C321BE44FCB9AE599B683EEFE7DCD46E0EB14A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028571   (688673) от 23.06.2016
-
-VA - Greatest Ever! Dad Rock (2016) 3CD [MP3|320 кб/с] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Colour Scene - The Day We Caught The Train (3:06)
- 02. The La's - There She Goes (2:42)
- 03. Stereophonics - Dakota (4:56)
- 04. The Charlatans - Blackened Blue Eyes (4:19)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDAFA9ADDB1DB651313F0D065EFE541F9CE7FA0B
 ```
 
 

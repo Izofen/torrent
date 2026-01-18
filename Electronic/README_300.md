@@ -1,3 +1,57 @@
+###  Публикация: 1550798   (591230) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VsrtWuto - Late Night Cruise (3:30)
+02. Unfancy D - Rain (La-la-la) (4:20)
+03. Akira - Out The Fire (3:16)
+04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550800   (591231) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
+02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
+03. Born in '82 - Summer Rays (4:25)
+04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550799   (591232) от 13.05.2022
 
 VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -638,60 +692,6 @@ VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300568   (593125) от 06.05.2019
-
-VA - A State Of Trance 2019 (Mixed by Armin van Buuren) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren vs. Shapov - La Resistance De L'Amour (Original Mix)
-02. Maor Levi & OTIOT - Aria (Original Mix)
-03. Genix x Jaytech & jUdAh feat. Fatum - All In (Original Mix)
-04. Armin Van Buuren x Lucas & Steve feat. Josh Cumbee - Don't Give Up On Me Feat. Josh Cumbee (Trance Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D459F47D4CA2F456D9522609AB3D5AA9034F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233132   (593295) от 29.06.2018
-
-Pendulum - The Reworks (2018) [MP3|320 Kbps] <Drum'n'Bass / Electronic Rock>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Your Colour (Noisia Remix)
-02. Blood Sugar (Knife Party Remix)
-03. 9,000 Miles (Eelke Kleijn Remix)
-04. The Island, Pt. I (Dawn)Жанр: Drum'n'Bass / Electronic RockПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A5D29BAAF5F5333B35E26280D04D3C5DA11301
 ```
 
 

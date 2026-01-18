@@ -1,3 +1,30 @@
+###  Публикация: 873020   (985231) от 03.01.2016
+
+VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Disco, Italo Disco, Trance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1. Pioneer Studio 33,5 - Music Infection (2015)
+2. Pioneer Studio 33,5 - Disco CCCP 2 (2015)
+3. Pioneer Studio 33,5 - Conveniently, Anywhere! (2015)(   Читать дальше...   )Жанр: Dance, Disco, Italo Disco, Trance, House & DanceПродолжительность: 10:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED4536C1441C8E776E4ACAC5EF5AD2E7ED86C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971759   (985239) от 03.01.2016
 
 VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, Club House, Electro>
@@ -683,33 +710,6 @@ VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5438A29BE5F522DAAA5AC46B9199A7567775BDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971281   (987658) от 02.01.2016
-
-VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De La Cream - Lovin' You [04:21]
-02. Luis Hermandez - Thru The Night [04:02]
-03. Roberto Sol - Momentos Azules - Extended Mix [04:59]
-04. Maggie Jane - A Moment With You [04:28](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA607439FFCB16FDA040AE0A2E1C3CEFF040FEF4
 ```
 
 

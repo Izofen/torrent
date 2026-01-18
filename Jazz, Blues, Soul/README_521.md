@@ -1,3 +1,292 @@
+###  Публикация: 765390   (876452) от 11.03.2014
+
+Kenny Wheeler, Norma Winstone, London Vocal Project - Mirrors (2013) [FLAC|Lossless]<Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Humpty Dumpty
+ 02. The Broken Heart
+ 03. The Lover Mourns
+ 04. Black March
+ 05. Through The Looking Glass
+ 06. The Hat
+ 07. Breughel
+ 08. Tweedledum
+ 09. The Bereaved Swan
+ 10. The Deathly Child(   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5F81C60CB1AC8482275435BFC94D1AC609B1B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765401   (876453) от 11.03.2014
+
+Ken Peplowski - Maybe September (2013) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. All Alone by the Telephone - 4:58
+ 02. Moon Ray - 7:33
+ 03. Always a Bridesmaid - 5:31
+ 04. (Now and Then There's) A Fool Such as I - 6:44
+ 05. Romanza - 4:47
+ 06. Caroline, No - 7:58
+ 07. For No One - 1:58
+ 08. I'll String Along With You - 6:48
+ 09. Main Stem - 5:24
+ 10. Maybe September - 8:15(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23771F88EBD73DA65AA1CD9C3ABE491D409CFB4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765184   (876454) от 11.03.2014
+
+Julian & Roman Wasserfuhr - Running (2013) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Weary Journey
+ 02. Bachelor (Over The Ear Look)
+ 03. Behind Blue Eyes (Pete Townshend)
+ 04. Adonis
+ 05. Stoned Remote
+ 06. Nowhere Man (Lennon/McCartney)
+ 07. 7 Gegner
+ 08. Rocholz-Korosak
+ 09. Go On
+ 10. Joy And Sorrow(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1290B16C7E082CF2F2C0E8602EE852997CAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765393   (876455) от 11.03.2014
+
+Ken Peplowski - In Search of (2011) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. The Thespian - 5:15
+ 02. Love's Disguise - 8:03
+ 03. When Joanna Loved Me - 5:18
+ 04. Falsa Baiana - 7:05
+ 05. A Ship Without A Sail - 5:55
+ 06. With Every Breath I Take - 4:57
+ 07. In Flower - 5:34
+ 08. Peps - 5:32
+ 09. This Nearly Was Mine - 4:41
+ 10. No Regrets - 6:22(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1C8326A693B9C666AAAD963C84646792FEF53C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765404   (876521) от 11.03.2014
+
+Ken Peplowski Quintet - The Natural Touch (1992) [FLAC|Lossless]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes - 5:01
+ 02. The One I Love Belongs To Somebody Else - 6:08
+ 03. Guess I'll Hang My Tears Out To Dry - 5:31
+ 04. Evidence - 5:03
+ 05. Evenin' - 4:39
+ 06. You Never Know - 3:41
+ 07. You Must Believe In Spring - 4:24
+ 08. Flunk Blues - 4:28
+ 09. Circle Of Threes - 4:58
+ 10. My Buddy - 5:32(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D543235BF06821F6417A50BA17542BF4E4D4F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765410   (876523) от 11.03.2014
+
+Joe Temperley - Double Duke (1999) [FLAC|Lossless]<Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Check [06:15]
+02. Creole Love Call [08:05]
+03. Tricotism [05:52]
+04. Black and Tan Fantasy [08:22]
+05. Double Duke [04:56]
+06. Try a Little Tenderness [05:46]
+07. Elsa [05:12]
+08. Fascinatin' Rythm [07:17]
+09. Danny Boy [05:04]Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1C8814CF630E9A414BAEF418E12D77246554CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765365   (876524) от 11.03.2014
+
+Kenny Werner with The Brussels Jazz Orchestra - Institute Of Higher Learning (2011) [FLAC|Lossless]<Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Cantabile - First Movement (10:46)
+ 02. Cantabile - Second Movement (10:54)
+ 03. Cantabile - Third Movement (6:28)
+ 04. Second Love Song (7:47)
+ 05. The House Of The Rising Sun (10:11)
+ 06. Compensation (13:00)
+ 07. Institute Of Higher Learning (10:25)Жанр: Modern Big BandПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384892126DBD3DCA6D03C4A83A31A96002A94F43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765348   (876526) от 11.03.2014
+
+Kenny Garrett - Prisoner Of Love (1989) [FLAC|Lossless]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. May I Have This Dance?
+ 02. Blue Moon
+ 03. Prisoner Of Love
+ 04. Put A Smile On Your Face
+ 05. Sayydah's Single File Groove
+ 06. Big 'Ol Head
+ 07. Free Mandela
+ 08. Peace For Dream
+ 09. Lift Ev'ry Voice And SingЖанр: Contemporary Jazz, FusionПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96231956FFAB8AE11634EBCF42356B0F4C77671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765363   (876527) от 11.03.2014
+
+Kenny Werner Trio - Peace: Live at the Blue Note (2004) [APE|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Pinocchio
+ 02. All Things Are You
+ 03. Jabali
+ 04. Peace
+ 05. Stella by Starlight
+ 06. Evidence
+ 07. ChachЖанр: Post-Bop, Piano JazzПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5446525ABC706ED95C5D4E3E40DA18609CC18F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765111   (876529) от 11.03.2014
 
 Kenny Ellis - Hanukkah Swings! (2005) [FLAC|Lossless]<Swing , Big-Band>
@@ -491,252 +780,6 @@ Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563895BCD9EB8417D27055F2225E8AA0EC55E9F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105032   (876743) от 17.02.2017
-
-Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues In [06:04]
- 02.Bewitched, Bothered And Bewildered [04:28]
- 03.Stompin' At The Savoy [05:07]
- 04.What Is This Thing Called Love [06:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF49E572259DB91ABD417F7CBF07FEA600C90291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105419   (876744) от 17.02.2017
-
-Denny Zeitlin - Zeitgeist (1967) Remaster, 2015, Sony Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dormammu [06:42]
- 02.Put Your Little Foot Right Out [03:16]
- 03.The Hyde Street Run [02:22]
- 04.Here's That Rainy Day [03:51](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B902E541AFC74F79A23E1C67F579950AE2EC3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105398   (876745) от 17.02.2017
-
-Thad Jones & Mel Lewis - Quartet (1977) 1989, A&M Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.But Not For Me [16:56]
- 02.This Can't Be Love [04:12]
- 03.Autumn Leaves [15:34]
- 04.What Is This Thing [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AA3900F4E26A8CFC2F10E0F45153CBB5431935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186874   (876801) от 28.03.2010
-
-Miles Davis & John Coltrane (Майлз Дэвис и Джон Колтрейн) - The Complete Columbia Recordings 1955-1961 (6 CD Boxset) (2004) [APE|Lossless]<Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Hard BopПродолжительность: 06:24:32
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374024   (876891) от 08.04.2020
-
-Al Jarreau - Accentuate The Positive (2004) [FLAC|Lossless|image + .cue] <Jazz, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Duck
-02. The Nearness Of You
-03. I'm Beginning To See The Light
-04. My Foolish Heart(   Читать дальше...   )Жанр: Jazz, Funk / SoulПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07C5BF5490048D6E040B94E56BF2F04547D6E5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187099   (876917) от 28.03.2010
-
-Dixieland Crackerjacks - I'll See You In My Dreams (2000) [FLAC(image+.cue)|Lossless]<Jazz/Dixieland/Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Dixieland Crackerjacks - I'll See You In My Dreams - 2000
-Dixieland Crackerjacks   (Нидерланды) - дата создания 1994г.,  постоянно гастролирует с концертами по джаз фестивалям.
-В этом же году на фестивале в Лейдене (Нидерланды) Михаэль Мюллер (вокал) был признан лучшим солистом.
-1996г. - из любителей переходят в статус профи.
-Экзотическими инструментами в их арсенале являются "стиральная доска" перкусиониста и мегафон - для вокап-партий, ну а если Вы ни когда не слышали сакс-бас-соло, тогда вперёд, - труба зовёт... 
-*********************
-Год: 2000
-Жанр: Jazz / Dixieland / Swing
-Продолжительность: 01:03:54Кодек: FLAC(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374045   (876979) от 08.04.2020
-
-Harry Allen - A Night at Birdland, Vol. 2 (1995) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isn't This a Lovely Day? [6:27]
-02. From This Moment On [8:06]
-03. My Foolish Heart [6:27]
-04. The Song Is You [8:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220282EEB05A41199A30272B158D7F191B7B8B5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997154   (877304) от 15.03.2016
-
-Vargas Blues Band feat. Paul Shortino - Hard Time Blues (2016) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Композиция, давшая название этому диску появилась у коллектива ещё 1993 году. Именно с неё началось восхождение группы к вершинам блюза.
-Новый альбом был записан в Мадриде и Лас-Вегасе и выпущен в марте 2016 года. Он включает в себя 14 новых песен, которые сочетают латинские ритмы, блюз и рок с безошибочным звуком гитары Javier Vargas и отличаются исключительными (   Читать дальше...   )01. Welcome To The World  (4:16)
-02. King Of The Latin Blues  (4:28)
-03. Ibiza Moon  (4:36)
-04. Fulton In The House  (4:21)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA708C55D356675A109C3EC98DDAF4AA1F2D02BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495446   (877364) от 14.09.2021
-
-Ilugdin Trio - My Story (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Jazz, Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть фортепианные трио канонического формата, в которых всё решает пианист и его лидерство непререкаемо. Есть обратная ситуация: фортепианные трио, где во главу угла поставлено равноправие участников, — такие ансамбли развалились бы при малейшей претензии на доминирование любого из музыкантов. И есть очень небольшой процент фортепианных трио (да и вообще любых функциональных (   Читать дальше...   )01. Case (09:29)
-02. Home (08:21)
-03. What for? (09:32)
-04. Tamed Loneliness (05:20)(   Читать дальше...   )Жанр: Jazz, Fusion, Contemporary JazzПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DE55FDB205BA55FAC39039EED925314B676168
 ```
 
 

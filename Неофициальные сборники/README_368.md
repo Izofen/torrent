@@ -1,3 +1,30 @@
+###  Публикация: 1546519   (606103) от 24.04.2022
+
+VA - The Official UK Top 100 Singles Chart 22.04.2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606103.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harry Styles - As It Was (2:47)
+002. Jack Harlow - First Class (2:53)
+003. Aitch - Baby (2:57)
+004. Dave - Starlight (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C6E87AA5D3856F876E9CCDD21E667650C8601E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297016   (606427) от 20.04.2019
 
 VA - Music for Car 13 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -673,33 +700,6 @@ VA - The Human League SynthSpace Thesis Party (2017) [MP3|192-320 Kbps] <Synthsp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:520E71AB684B12398426E92445B721E5C46F6C82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545588   (607556) от 23.04.2022
-
-VA - Beatport Electro House: Sound Pack #513 (2022) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный 513-й сборник самых актуальных треков в стиле Electro House от Beatport, который можно не только слушать дома или где-либо еще, но и который будет пользоваться успехом на танцполе, клубе или вечеринке узкого круга друзей.001. Mad Rey - Hardwork
-002. Habbo Foxx - Giving Me
-003. Austin Ato - What You Want
-004. Shingo Nakamura - The Longest Hour(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3932E3F36E5B74600F222F68C28EAF820268D0
 ```
 
 

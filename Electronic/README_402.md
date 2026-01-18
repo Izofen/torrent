@@ -1,3 +1,57 @@
+###  Публикация: 1204363   (784989) от 05.02.2018
+
+VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gai Barone – Tanita (Intro Mix) (06:32)
+02. Tannura – Halfway (07:54)
+03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
+04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6D035FC7092744EA435C279F9E39D37A1720BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204396   (784990) от 05.02.2018
+
+VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Lemmer - Dive (feat Naemi Joy - Seenay remix)
+02. Jacob Singer - Tiahuanaco Returns
+03. Carter & Funk - Make Some Noise (Vince Tayler remix edit)
+04. Jericho Frequency - Vegas(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204300   (784994) от 05.02.2018
 
 VA - Chilling Sounds, Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -641,60 +695,6 @@ Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203929   (785439) от 04.02.2018
-
-VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
-02. Leslie Dhani - What I Need - Deep House Dance Mix
-03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
-04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277492   (785447) от 20.01.2019
-
-The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salem (6:14)
-02. Alma (4:39)
-03. Hedra (5:24)
-04. Zigurhat (4:32)(   Читать дальше...   )Производство: Svart Lava Records 003Жанр: Dark Ambient, Dark Jazz, Electronic, Arabica, CinematicaПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECDBB83FE5AE3567ADE3EC0F01F12F920D3FEB9
 ```
 
 

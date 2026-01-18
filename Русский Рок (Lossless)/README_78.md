@@ -1,3 +1,57 @@
+###  Публикация: 1443748   (1035097) от 30.01.2021
+
+Кино - Черный Альбом (1990) 3CD, Limited Edition, 2021, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — Кукушка (премикс)
+02 — Нам С Тобой (премикс)
+03 — Кончится Лето
+04 — Красно-Желтые Дни(   Читать дальше...   )Жанр: RockПродолжительность: 3 CD, 02:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4FA6F4685E66D2F8E7664102A4CACE9153C35A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443708   (1035163) от 30.01.2021
+
+Танцы Минус - 8 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мне б уснуть в твоих руках
+2. Девочка
+3. Лыжи
+4. Скриншот(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BB5426396474C5BC35C78BCF9C007063E3A2A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617357   (1035326) от 06.03.2023
 
 Аборт Мозга - Акустика (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore punk>
@@ -641,61 +695,6 @@ magnet:?xt=urn:btih:EA0BFE1672B749BA9BF1F677094CB8F09CDBEE8B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98918688800680191A0F9B4ED410CA128A824F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613549   (1039382) от 19.02.2023
-
-YqpY - Near (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire [00:03:04]
-02. Gravitation [00:03:33]
-03. Signal [00:03:35]
-04. Magnetism [00:03:31](   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:35:23
-deezer
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F6319EFC9BC310F954F7872FB11EB422865B31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613568   (1039396) от 19.02.2023
-
-The Sundial - Kaliningrad (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loop [00:04:48]
-02. Gagarin Stayed On The Moon [00:06:59]
-03. Kaliningrad [00:04:35]
-04. I'm Coming Home [00:04:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15EEBDAFD94ED35FC47CA3F369D79E847431DEE
 ```
 
 

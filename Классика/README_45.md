@@ -1,3 +1,57 @@
+###  Публикация: 995235   (885735) от 10.03.2016
+
+George Frideric Handel - The Masterworks (40 CD) (2004) [MP3|320 кб/с] <classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jephtha Part 1
+ORATORIO IN THREE ACTS HWV 70
+1. Ouverture
+2. Menuet(   Читать дальше...   )Жанр: classicalПродолжительность: 38:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECBF42A73ACF17891879180258B6B31A4D1DE0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995200   (885866) от 10.03.2016
+
+Tchaikovsky - Sym No. 4, No. 5, No. 6 (Mravinsky, Leningrad Symphony Orchestra) (1960) 2013, Pristine Audio [FLAC|48/24|WEB-DL|tracks] <Classical, Orchestral>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S #4 - I. Andante sostenuto (19:03)
+02. II. Andantino in modo di canzone (9:25)
+03. III. Scherzo  Allegro (5:54)
+04. IV. Finale  Allegro con fuoco (8:16)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 02:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6CC84DAD02B1524FB2925282D58317EC964D4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995228   (885978) от 10.03.2016
 
 Alisa Weilerstein - Solo (2014) [FLAC|96/24|WEB-DL|tracks] <Classical, Chamber>
@@ -640,60 +694,6 @@ Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3662B21037CB0A9248703CD1D15AAA25226E59F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994082   (893308) от 06.03.2016
-
-VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque, Romantic>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете, у ВУЗовских преподавателей есть такое понятие - учебник для домохозяек. Это когда в тонюсенькой книжечке излагается многотомный курс предмета. Кто-то предпочитает учиться по таким учебникам "для домохозяек". Этот бокссет из разряда - одним взглядом объять всю классическую музыку. Наверное, если хоть один человек для себя откроет здесь то, что потом (   Читать дальше...   )CD1
-01. Mozart - The magic flute  (3:52)
-02. Orff - Carmina burana, o fortuna  (2:36)
-03. Bizet - Carmen suite no.1, aragonaise  (2:19)(   Читать дальше...   )Жанр: Classical, Baroque, RomanticПродолжительность: 06:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDA9EFBD549E1AB2472CAEFED8D2C8663119C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371150   (893350) от 29.03.2020
-
-Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Classical Crossover>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape of You (Piano Cover)
-02. Smells Like Teen Spirit (Piano Cover)
-03. December Song
-04. Ode to Joy / Happy (Piano Cover)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D45B76E4A4CCACB7BDFE5E0FD0216387EFE9893
 ```
 
 

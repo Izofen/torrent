@@ -1,3 +1,57 @@
+###  Публикация: 1559133   (527196) от 24.06.2022
+
+Pater Tenebrarum - Of Gods and Madmen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Witch (00:02:24)
+02 - Red Angel (00:04:28)
+03 - Ego (00:05:39)
+04 - Wargod Urthan (00:05:56)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FEA0E9C46D004122128A6317080188BC094BB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559110   (527224) от 24.06.2022
+
+Nordicwinter - Threnody (2007) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Moon
+02. Enshrined In Ice
+03. Unto Dark Winds
+04. Ancient Prophecies(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7706191CF94E6F5FF8365A738A6B7FDFE2C83138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052936   (527277) от 15.09.2016
 
 П.Т.В.П. (Последние Танки В Париже) - Реакция (2016) [MP3|320 Kbps] <Punk Rock>
@@ -642,60 +696,6 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156044   (528499) от 06.08.2017
-
-Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fixated on Devastation
-02. Panic Amongst the Herd
-03. Die with Integrity
-04. Reveling in the Abyss(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A380180C75C6C8231E4CA66E2B4287AE83905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927165   (528503) от 13.08.2015
-
-August Burns Red - Found in Far Away Places (2015) Deluxe Edition [FLAC|Lossless]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Wake  03:27
-02 - Martyr  04:36
-03 - Identity  04:20
-04 - Separating The Seas  04:20(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B36AC1001DA97BA8176DF40E5E7ED9E97757F25
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1091250   (944857) от 08.01.2017
+
+VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Desire Of My Heart (Original Mix) (8:59)
+02. Kir Tender - Always Alive (George Crusher Remix) (8:08)
+03. Alex Shevchenko - Ivory Tower (Chronosapien Remix) (7:18)
+04. Syntouch - Hidden Loneliness (Original Mix) (6:38)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7FC2CA6AFFA1EA1698B7727EEA1F105FCD34E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091125   (944958) от 08.01.2017
+
+VA - Sunny Cool & Sexy, Vol. 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Quincy Ortiz – The Gates (6:22)
+ 02. Greg Walker – Samba Coast (4:33)
+ 03. Florito – A La Playa (5:29)
+ 04. Ibiza Air – Fly With The Light (5:38)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E820109041634C43BF180B4E92F1EFB99314ACFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091273   (944966) от 08.01.2017
 
 Michael E - Heaven Sent (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -635,57 +689,6 @@ VA - Acoustic Covers Of Popular Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A5589A4835FCDDEF589DEBC60BBEFA0D0806391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172835   (947454) от 09.02.2010
-
-DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Uplifting Trance, Progressive
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090493   (947468) от 06.01.2017
-
-Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947468.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cathode Mamma (Neue Version)
-2. Many Kisses
-3. Peggy Guggenheim
-4. Rrock(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
 ```
 
 

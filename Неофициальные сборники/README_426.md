@@ -1,3 +1,30 @@
+###  Публикация: 1289820   (681872) от 18.03.2019
+
+VA - Зайцев.нет Лучшие новинки Марта 2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alekseev - НЕ МЕД (3:32)
+02. Bryan Adams - All Or Nothing (2:59)
+03. Buruhin - День за днем (3:18)
+04. Cage The Elephant - House Of Glass (2:34)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89456CCD67EF77CC5C1CA39C1AEF555694F0A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290116   (681884) от 18.03.2019
 
 VA - Empire Records - Strip 2 (2019) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - Melodic Techno Tom VI [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Melodic T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92EB6F63ABEEE37053E4AB83B2EA9D41982B4462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135233   (683050) от 18.05.2017
-
-VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Audiorock - Party People  4:15
-02.  Dimaro & Pegasus - Last Night (On Earth) (Dimaro Club Mix)  5:39
-03.  DJs From Mars & Luca Testa feat. Becko - Stronger  4:20
-04.  Eskai & SNR feat. Jhana - Find Yourself (Original Mix)  5:02(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 04:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A786F46CD7D87F8B6FB9F7B17AB9A0F2B8FBB599
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1146604   (614554) от 29.06.2017
+
+VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Kurt – Sumatra Rain (Club Mix) 06:32
+02. Township Rebellion – Pelikan (Matchy & Bott Remix) 06:10
+03. Animal Trainer & Reto Ardour – Zora 08:02
+04. Hanne & Lore – Hushle (Bebetta Remix) 06:23(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A6C115027E94779095C9EF373E51FF18A0DB87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146633   (614656) от 29.06.2017
+
+Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Filtered Senses (7:11)
+ 2. Circuit Bent (7:31)
+ 3. Invisible Chatter (5:29)
+ 4. Dub Smoke (6:51)(   Читать дальше...   )Жанр: Techno, Dub, DowntempoПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545426   (614688) от 19.04.2022
 
 VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -644,60 +698,6 @@ VA - Chill Town In The Night (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F031C2BCC0A92064863C1766AC2935160E00F8D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145834   (616489) от 28.06.2017
-
-VA - Acoustic Pop Edition (2017) [MP3|320 Kbps] <Acoustic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ZEDD feat. Alessia Cara - Stay (Acoustic)  3:16
-02.  Julia Michaels - Issues (Acoustic)  2:55
-03.  Niall Horan - This Town (Live, 1 Mic 1 Take)  3:40
-04.  Hailee Steinfeld & Grey feat. ZEDD - Starving (Acoustic)  3:01(   Читать дальше...   )Жанр: AcousticПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7C56701D7FFC42A5D02F3D9ABEB2D7A8E3DB2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146209   (616509) от 28.06.2017
-
-VA - Main Stage Festival (2017) [MP3|320 Kbps] <House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ryos & Envy Monroe - Discover Love (Original Mix)  3:45
-02.  Tritonal - Waiting 4 U (Original Mix)  3:27
-03.  Cuebrick & Karra - Smoke & Fire (Original Mix)  3:17
-04.  Mike Shiver - Stay (Original Mix)  3:02(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDCF24FEACBCC8901C7BAC47D8A45E2664EE268
 ```
 
 

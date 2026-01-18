@@ -1,3 +1,248 @@
+###  Публикация: 519492   (637586) от 06.07.2012
+
+Merline Johnson - The Yas Yas Girl (1937-1940) 3CD /1994/ [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  New Muddy Water Blues (3:07)
+2.  He Roars Like A Lion (3:25)
+3.  I'm Leavin' You (3:10)
+4.  My Baby Left Me (3:02)
+5.  Pallet On The Floor (2:53)
+6.  Mean Mistreatin' Daddy (2:58)
+7.  Sold It To The Devil (3:03)
+8.  Grandpa And Grandma (3:15)
+9.  I'd Rather Drink Muddy Water, No.2 (3:03)
+10.  Blues Everywhere (2:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 03:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D3845DF72D641DB2026B12CAFE2DFB08D93EA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293314   (637664) от 03.04.2019
+
+Swami LatePlate (Bobby Previte and Jamie Saft) - Doom Jazz (2007) 2012, Veal [FLAC|Lossless|Web-DL|tracks] <Experimental Jazz, Doom Jazz, Modern Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malignant Cloud (9:40)
+02. The Round-Up (7:45)
+03. Frank and the Girl (9:43)
+04. The Forbidden Border (6:25)(   Читать дальше...   )Производство: Veal Records - Veal0001Жанр: Experimental Jazz, Doom Jazz, Modern ClassicalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862F2C524A13B237BDBF74AF6EE4AD91E41F92FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293347   (637669) от 03.04.2019
+
+Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637669.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Wheatleigh Hall [8:52]
+02. Sumphin' [10:29]
+03. Con Alma [9:28](   Читать дальше...   )Жанр: BopПродолжительность: 02:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DD596B4158E2404645AB284CCAC96D5FEB5C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293330   (637672) от 03.04.2019
+
+Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Jazzcore, Experiemental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus (4:53)Жанр: Dark Jazz, Jazzcore, ExperiementalПродолжительность: 00:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF1310CBE2E15C189C023E5B36401DB5CED3790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293331   (637673) от 03.04.2019
+
+Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Metal, Stoner Doom>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Ground (6:58)
+02. Sisyphus (5:20)
+03. Unnamed (6:40)Жанр: Dark Jazz, Post Metal, Stoner DoomПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A909C04F4E44DCB6F55A402CA4B1C07725C62C11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293362   (637674) от 03.04.2019
+
+Dewa Budjana - Mahandini (2018) [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowded. (05:55)
+02. Queen Kanya. (06:59)
+03. Hyang Giri. (07:44)
+04. Jung Oman. (06:52)(   Читать дальше...   )Жанр: World Fusion, Jazz-RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0815C6CA68A2614F82BEA491B8BA88F818D9E5A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293360   (637677) от 03.04.2019
+
+The Wrong Object - Into The Herd (2019) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Herd. (04:10)
+02. A Mercy. (04:56)
+03. Rumble Buzz. (07:10)
+04. Another Thing. (06:58)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E73E0D0F3A45E354F52E2BA908D161A69731639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293346   (637783) от 03.04.2019
+
+Snorre Kirk - Beat (2018) Stunt Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exotica [4:38]
+02. 18th & Vine [2:39]
+03. Monaco [5:12]
+04. Blues Arabesque [5:02](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD539F658C591793203C88985738C8BCF91FB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293344   (637784) от 03.04.2019
+
+Eric Le Lann & Paul Lay - Thanks a Million (2018) Gazebo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Trumpet Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dinah [4:32]
+02. Mack The Knife [3:23]
+03. Jubilee [2:51]
+04. Tight Like This [5:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, Trumpet JazzПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782D2D578F27CBDECAEB5569BE4A7EE5268524FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907463   (637820) от 12.06.2015
 
 Peter Green's Fleetwood Mac - The Original Fleetwood Mac (1971) /2004, Columbia/ [WavPack|image+.cue]<Blues, Blues-Rock>
@@ -452,255 +697,6 @@ Jeff Richman - Like That (2010) [FLAC|Lossless]<Jazz, Jazz Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8BCD30F220881A5F7FDD30F9809D0C4D031C995
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033512   (638310) от 11.07.2016
-
-Ken McIntyre - Year Of The Iron Sheep (1962) Remaster, 2010, United Artists Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Say What [05:08]
- 02.Arisin' [10:10]
- 03.Laura [03:29]
- 04.96.5 [04:22](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B06B11E2A16CF5EFBC79D5098949960A6718964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542239   (638760) от 06.04.2022
-
-Mark Rogers Band - Wild Card (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl, I Miss Your Kissin' (3:53)
-02. Done Preaching (4:37)
-03. Only the Wind (4:21)
-04. Hide & Seek (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1D5C5D06BB04FC1B86442A7183400554B59A84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542276   (638838) от 06.04.2022
-
-James Solberg - L.A. Blues (1998) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubbas's Boogie
-02. L.A. Blues
-03. Wally World U.S.A.
-04. Ballad Of A Thin Man(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858E83887043B3A85707219DB8F4D384045AA383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542260   (638840) от 06.04.2022
-
-Jay Vee Band - One More Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipstick (3:20)
-02. Sweet country woman (4:17)
-03. The minstrel (4:22)
-04. Maybe the way (3:47)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E83C9BB7147F5387FE27AF364363EE12B5F3DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542261   (638844) от 06.04.2022
-
-Johnny Bootleg - Virtual Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Higher (2:47)
-02. Gypsy Eyes (3:03)
-03. War (3:29)
-04. Wild Love (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F013D836AD18BDBB846FF7706FE68C2D57779F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542257   (638848) от 06.04.2022
-
-James Quandt - Out of the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Down the Alley (3:26)
-02. Love, I Never Knew (4:07)
-03. Delicious Love (5:25)
-04. Lost in Your Love! (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B634971D95E52B1BFF3CE6145B94581F62FB354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542253   (638850) от 06.04.2022
-
-Gunn - Hand in the Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Wanna Know (4:29)
-02. Man with the Bucket (4:20)
-03. Hoppin” Blues (3:29)
-04. Wrong with My Heart (5:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56748FBAB63F58C12091A7432AFDC3CFF1AEED95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293301   (639050) от 02.04.2019
-
-VA - Midnight Radio - NOIR JAZZ (2016) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz, Experimental Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Orchestra Of Mirrored Reflections - ...This Too Shall Pass (live) (3:00)
-02. Trigg & Gusset - Cardium (6:19)
-03. Joel Fausto & Illusion Orchestra - Cheap Trance Romance (6:31)
-04. Macelleria Mobile di Mezzanotte - Love Affair (5:36)(   Читать дальше...   )Производство: Signora Ward RecordsЖанр: Ambient Jazz, Dark Jazz, Doom Jazz, Experimental JazzПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF03986DCC5BEFE55C2026CDCCDE2C9C92A7A103
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518836   (639110) от 05.07.2012
-
-Al Di Meola & Leonid Agutin - Cosmopolitan Life (2005) [FLAC|Lossless]<Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_639110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cuba Africa – [05:34]
-02. Cosmopolitan Life – [04:09]
-03. Nobody – [04:47]
-04. Price to Learn – [05:27]
-05. Tango – [03:54]
-06. Smile – [04:19]
-07. Portofino – [03:37]
-08. If I'll Get a Chance – [04:07]
-09. Blue River – [04:44]
-10. Shade of Your World – [06:16]Жанр: Fusion, Latin JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 

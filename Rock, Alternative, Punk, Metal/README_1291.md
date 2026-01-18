@@ -1,3 +1,302 @@
+###  Публикация: 1438407   (1041201) от 08.01.2021
+
+Zac Leaser - The Arising / Ostiarius (2019, 2021) [FLAC|Lossless|tracks + .cue] <Technical Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elysium (feat. Denis Shvarts) [00:06:57]
+02. Absentia (feat. Rusty Holloway) [00:07:40]
+03. Macula [00:05:12]
+04. Dissemble [00:07:28](   Читать дальше...   )Жанр: Technical Melodic Death MetalПродолжительность: 01:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25E19E911144729920C2675CBB20AFB8E5561CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611387   (1041310) от 11.02.2023
+
+Бездна Анального Угнетения - Русская мечта (2023) [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Просроченная гниль [00:05:25]
+02 - Пёсья деньга [00:04:18]
+03 - Портал в Советский Союз [00:05:21]
+04 - Депутат [00:05:18](   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F4BAAF86B7624604A9C3EF4321296FBDC9E8B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611200   (1041368) от 11.02.2023
+
+Dust In Mind - From Ashes to Flames (2018) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Ashes to Flames
+02. This Is the End
+03. Open Your Eyes
+04. The Point of No Return(   Читать дальше...   )Жанр: Industrial, Melodic Death MetalПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18C2502D2CB34C39EF977AE07B241EE7B45975A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610674   (1041430) от 11.02.2023
+
+MALAЯ - 9 Releases (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биография:
+В своем творчестве сочетаем разные направления тяжёлой музыки: от панк-рока до альтернативного металла.
+Наша вокалистка в свои 13 лет удивляет зрителей совсем недетской, местами экстремальной, вокальной подачей. Честная авторская лирика и мелодии отражают взрослый мир глазами ребенка, живущего рок-музыкой.2018 - Взрослым
+2018 - Армия нормальных
+2018 - Что-то не то
+2019 - ЛетоЖанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62F4A85DC5AE6F0B5DF5168949285076258BA66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438141   (1041444) от 07.01.2021
+
+Alta Reign - Mother's Day (2021) [MP3|320 Kbps] <Progressive Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine (04:44)
+ 02. Witness (04:11)
+ 03. Thin Red Line (05:42)
+ 04. Never Say Never (04:59)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846D055EFCF146FDC04F6E1AA7220FBE8B0C6F6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438117   (1041451) от 07.01.2021
+
+Midnight Spell - Sky Destroyer (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood for Blood (04:11)
+ 02. Between the Eyes (03:44)
+ 03. Lady of the Moonlight (04:29)
+ 04. Midnight Ride (02:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A54939FCAB34D904BEC7C963FE138346FEFB2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438083   (1041452) от 07.01.2021
+
+Human Fortress - Reign Of Gold (2019) [FLAC|Lossless|image + .cue] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imminence
+02. Thunder
+03. Reign Of Gold
+04. Lucifer's Waltz(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED4D52F6AAE57F13B65B813C152C3247EF1CCDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438107   (1041476) от 07.01.2021
+
+Калинов мост - Оружие (1998) Remastered, 2020, Отделение ВЫХОД [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сны сбываются
+2. Иного не надо
+3. Рудники свободы
+4. Родная(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438145   (1041478) от 07.01.2021
+
+Magnum - Dance Of The Black Tattoo (2021) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Skies (Live) (06:06)
+ 02. Freedom Day (Live) (06:20)
+ 03. All My Bridges (Live) (04:56)
+ 04. On a Storytellers Night (Live) (05:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC0EE66700FD0A1D4CE4FB1D9D505F5A16789DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438252   (1041487) от 07.01.2021
+
+Scott Seabock & The Unshakables - God Only Knows (2021) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on Come On (02:33)
+ 02. Faith Hope and Love (03:38)
+ 03. God Only Knows (05:40)
+ 04. If This Is My Last Day (04:19)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B15E7075D8C0A37EA45D42198F894FB992C03C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438206   (1041488) от 07.01.2021
+
+Be The Wolf - Torino (2021) [MP3|320 Kbps] <Hard Rock, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undefeated (02:59)
+ 02. April (03:27)
+ 03. Failures (03:56)
+ 04. Teenage Mutants (03:15)(   Читать дальше...   )Жанр: Hard Rock, Alt. RockПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD44D00FD3AB1381AD12EBD3C51D01170EA91322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438194   (1041490) от 07.01.2021
 
 Sammy Hagar & The Circle - Lockdown 2020 (2021) [MP3|320 Kbps] <Hard Rock>
@@ -398,303 +697,6 @@ eMolecule - The Architect (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7028F48045AED1BF95D0C7DFFFA2A496A77D70CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610981   (1041679) от 10.02.2023
-
-Khymera - Hold Your Ground (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait for Love (3:20)
-02. Firestarter (3:40)
-03. Hear Me Calling (3:20)
-04. Sail on Forever (3:46)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349B8A3C8351CCBE7155729B25742E501814939E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611175   (1041682) от 10.02.2023
-
-Dryad - The Abyssal Plain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Counterillumination (01:27)
-02 - Bottomfeeder (02:57)
-03 - Brine Pool Aberration (02:48)
-04 - Trenches (03:22)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCB2A0CAEDA619C38CF4428BF9DCDA0AAFE6C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437846   (1041687) от 06.01.2021
-
-Phil Campbell and The Bastard Sons - We're The Bastards (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're The Bastards
-02. Son Of A Gun
-03. Promises Are Poison
-04. Born To Roam(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC18AF797DC5418D418AC1E7E5972C89CFA4E3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437735   (1041726) от 06.01.2021
-
-Avast - Mother Culture (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, Blackgaze, Post Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Culture (8:57)
-02. The Myth (3:37)
-03. Birth Of Man (5:43)
-04. The World Belongs To Man (7:08)(   Читать дальше...   )Производство: Karisma & Dark Essence Records AS – KAR155CDЖанр: Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E98C3C9B7B9D5502E0D4F82EB1917F16A3C7A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437742   (1041742) от 06.01.2021
-
-Gama Bomb - Sea Savage (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act One: Sailing For Parts Unknown!
-01. Judo Killer
-02. Sea Savage
-03. Miami Supercops(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F524626913A5C28A9CDFFF6378E8E0480E34E0D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610818   (1041795) от 09.02.2023
-
-In Flames - Foregone (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning Of All Things
-02. State Of Slow Decay
-03. Meet Your Maker
-04. Bleeding Out(   Читать дальше...   )Жанр: Melodic Death Metal, Alternative RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A563BD0DBA476795A27B37332865A88D31E6FC99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610982   (1041797) от 09.02.2023
-
-Sainted Sinners - Taste It (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Against the Odds (5:04)
-02. One Today (3:50)
-03. The Essence of R'N'R (4:13)
-04. Out of Control (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A84E41B5937616308B4049938540687F45EA7CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610956   (1041803) от 09.02.2023
-
-In Flames - Foregone (2023) [FLAC|24/48|tracks|WEB-DL] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning Of All Things (2:13)
-02. State of Slow Decay (3:58)
-03. Meet Your Maker (3:57)
-04. Bleeding Out (4:01)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B9E15FBBFD6BBCB57F1C23DE9EDE7416B7B386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610975   (1041832) от 09.02.2023
-
-Distant - Heritage (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Rain (1:54)
-02. Paradigm Shift (3:23)
-03. Born of Blood (3:17)
-04. The Grief Manifest (3:34)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A02FA3B550E74E880A58F8EFD3AD31248D21A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610925   (1041836) от 09.02.2023
-
-Paramore - This Is Why (2022) 2023, Atlantic Records [MP3|320 Kbps] <Alt. Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Why [00:03:26]
-02. The News [00:03:07]
-03. Running Out Of Time [00:03:12]
-04. C’est Comme Ça [00:02:29](   Читать дальше...   )Жанр: Alt. Rock, Pop RockПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2A97EDB972C5BBC9FC31032693214C9645E11E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610930   (1041845) от 09.02.2023
-
-Paramore - This Is Why (2022) 2023, Atlantic Records [FLAC 2.0|96/24|WEB-DL|tracks] <Alt. Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Why [00:03:26]
-02. The News [00:03:07]
-03. Running Out Of Time [00:03:12]
-04. C’est Comme Ça [00:02:29](   Читать дальше...   )Жанр: Alt. Rock, Pop RockПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C246CF080D3C27496CD8E33A2145C49005957042
 ```
 
 

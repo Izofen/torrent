@@ -1,3 +1,57 @@
+###  Публикация: 1039421   (597626) от 31.07.2016
+
+Moby - The Remixes (Go, Porcelain, Natural Blues) (2016) [MP3|320 Kbps] <Progressive House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (Hardwell Remix) (5:28)
+02. Porcelain (Sick Individuals Remix) (5:21)
+03. Natural Blues (Bali Bandits Remix) (3:46)
+04. Go (Hardwell Remix Edit) (4:28)(   Читать дальше...   )Производство: Revealed RecordingsЖанр: Progressive House, ElectronicПродолжительность: 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924C1261F67B5EA66ED0FBB69D7511D1C5797603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039055   (597637) от 31.07.2016
+
+Simon Le Grec - Unique 3 (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Stories (4:21)
+02. Escape from My Past (4:32)
+03. Escape from My Past (Downbeat Edit) (4:22)
+04. Escape from My Past (Downbeat Mix) (6:43)(   Читать дальше...   )Жанр: Downtempo, Chill Out, New AgeПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76576421C6C947F81F75A85BC0C46E75F2D1D377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094450   (597728) от 12.07.2017
 
 Ori Uplift - Uplifting Only 201 - 230 (2016 - 2017) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance > (Обновлён: 12-07-2017)
@@ -636,59 +690,6 @@ Aly & Fila - Future Sound Of Egypt 595 (2019-04-24) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF0DF22F14807AB031E6C588975408B90F8B482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299438   (600035) от 01.05.2019
-
-VA - Music for Brainwaves (2019) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Price - Focus In 12-18Hz (20:48)
- 02. Hogni - Ascend In 8-13.9Hz (18:45)
- 03. Ben Lukas Boysen - Dream In 0.1-3.9Hz (16:54)Жанр: Ambient, DroneПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D249276CDF65671D4A0318B1E97A6FFD49E80A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232423   (600047) от 24.06.2018
-
-Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Stop To Dance (06:06)
-02. Empire's Attack (05:50)
-03. Space Battle (07:03)
-04. Supreme Powers (06:04)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8744A9CFF40D5BC72C6AE1C4B50D2D9911ADAA
 ```
 
 

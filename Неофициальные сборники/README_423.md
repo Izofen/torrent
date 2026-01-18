@@ -1,3 +1,30 @@
+###  Публикация: 1290046   (678210) от 20.03.2019
+
+VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Madd - Slow Beat Dub
+02. Savant - Vario 64
+03. SkyFlair - Above Us (Original Mix)
+04. Sleeper - Underworlds (Original Mix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 154:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF94042460A57637CAC1A9C1A913B2AEEDFF9F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290496   (678238) от 20.03.2019
 
 VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -669,33 +696,6 @@ Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B737F086CAA051539CBE02269A8C5511C526F6A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029750   (678604) от 28.06.2016
-
-VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rihanna -  This Is What You Came For (Denis First Remix) 4:12
-02. Major Lazer & MOTi ft Ty Dolla Sign, Wizkid & Kranium -  Boom (Gumanev & DJ Cosmos Deeptool) 4:35
-03. R3hab feat. Sia vs. Tom Tyger -  Wolf Nation (Night & Toni Aries Mashup) 4:34
-04. Safri Duo -  Played-A-Live (Yastreb Remix) 4:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EBAEEA7544ACB0FC84C53BD635E88B5AB27FAB
 ```
 
 

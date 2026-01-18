@@ -1,3 +1,30 @@
+###  Публикация: 1089310   (951898) от 03.01.2017
+
+VA - Зарубежные хиты экспресс. Версия № 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951898.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil Jon Feat. Pitbull - La Vida Es Una 3:01
+002. Grandtheft Feat. Delaney Jane - Easy Go 3:11
+003. Ruxandra Bar - Tres Jolie 3:17
+004. Zayn Malik & Taylor Swift - I Don't Wanna Live Forever 4:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D7167193D2FCC9B27FFF20841308DFE0379E4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089302   (951924) от 03.01.2017
 
 VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky House, Electro>
@@ -668,33 +695,6 @@ VA - Опасные Связи 8: Сборник Шансона (2016) [MP3|256-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:757BA7CAB231C9CECA9FA4278BE1D59A80AD31CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088880   (953705) от 02.01.2017
-
-VA - Зимние мега хиты. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953705.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jessie J - Can't Take My Eyes Off You 2:51
-002. Jones & Brock Feat. Anica - Join Me 3:10
-003. Mowe Feat. Junge - My Direction 3:37
-004. Kat Deluna - Make Me Sweat 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A511C556F283F8199A9C3E597FBB0C861C63639A
 ```
 
 

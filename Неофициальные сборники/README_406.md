@@ -1,3 +1,45 @@
+###  Публикация: 515248   (655634) от 26.06.2012
+
+VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655634.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+001 Bryce feat. J-Malik - Nothing Can Hold Us Back (Radio Edit)
+002 Мира - Пока, Пока Мой Мальчик (Leo.k Remix)
+003 Gravitonas - Call Your Name
+004 Градусы - Не Надо Париться
+005 Roxette - It's Possible (version One)
+006 Kishe - Город (Dub Makers Remix)
+007 Black Eyed Peas - The Time (Dirty Bit) (Afrojack Remix)
+008 Ирина Билык И Ольга Горбачева - Люблю Его (Remix)
+009 Ferry Corsten - Check It Out(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:30:18
+01 Время и Стекло - Серебряное море (DJ Melloffon radio edit)
+02 Joe Made - The Ring (Original mix)
+03 БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
+04 Blackman feat. MC Freedom - Bring me down
+05 Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+06 The Crystal Method feat. The Heavy - Play For Real (Dirtyphonics remix)
+07 MM Dance - Отдыхаем (Dj Alfred extended mix)
+08 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
+09 Lika Star - Точка росы (Tone Project club mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66CCCEA257AD1B090F9697A10536C74603DF8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226423   (655760) от 20.05.2018
 
 VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
@@ -708,33 +750,6 @@ VA - Воодушевляющий Мелодичный Транс [Sound Clinic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140111   (656683) от 05.06.2017
-
-VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Annihilator -  Syn. Kill 1  (04:27) 
-02.Anthem -  Go Insane  (04:43) 
-03.Anthem -  You  (03:55) 
-04.Astralion -  Sacrificed & Immortalized  (07:21) (   Читать дальше...   )Жанр: MetalПродолжительность: 04:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
 ```
 
 

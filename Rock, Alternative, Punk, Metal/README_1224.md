@@ -1,3 +1,300 @@
+###  Публикация: 1471460   (1015154) от 20.05.2021
+
+Xapa - Мандрагора (2021) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Колодец [00:04:06]
+02 - Мой друг Кувезин [00:02:20]
+03 - Пьяная Россия [00:05:02]
+04 - Ой [00:03:13](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37955AA0509ECBECC217AF9DB930F98172050D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471347   (1015164) от 20.05.2021
+
+Tesla Shamans - Electric Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Shit (03:08)
+02. Believe (03:39)
+03. Wasted (03:03)
+04. Down on the Road (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD893E12D815688CCC893F9FC9CA9BBD6A0FD3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471345   (1015168) от 20.05.2021
+
+Liar Thief Bandit - Deadlights (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadlights 04:17
+02. Brand New Day 03:48
+03. Good Enough 03:21
+04. Catch And Release 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5238E835F8B0AD112C9507A54A1EFCE8E45477E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471382   (1015173) от 20.05.2021
+
+U.C. - Time Distortion (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Distortion Part 1 (1:00)
+02. Magnanimity (3:04)
+03. What Do You Believe (4:09)
+04. Time Distortion Part 2 (1:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32A0AD4A583C087DAF7457FCCC7FFBD1F7E89F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471360   (1015174) от 20.05.2021
+
+Revolverz - Work Hard, Play Harder (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Work Hard, Play Harder
+03. Honey & Cream
+04. Razorsharp Racer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEDF932C6EA4F84607CB0C57C882B40E0080990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471080   (1015332) от 19.05.2021
+
+Angel Witch - As Above, So Below (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Sea Scrolls
+02. Into The Dark
+03. Geburah
+04. The Horla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F3674F7DCEB070EA109BE963C4754920FD020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471046   (1015333) от 19.05.2021
+
+Angel Witch - Angel Of Light (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Turn Your Back
+02. Death From Andromeda
+03. We Are Damned
+04. The Night Is Calling(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57088BB5DD1607E68875A18F39E10928B395E777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470805   (1015337) от 19.05.2021
+
+Mustasch - Killing It For Life (2020) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Angels Fear To Tread (4:08)
+02. Ransacker (5:13)
+03. Before A Grave (5:06)
+04. Freddie Mercury (4:53)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0552C35BDDDC088C3281B6276ED4195A7035E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470857   (1015345) от 19.05.2021
+
+Mustasch - Powerhouse (2005) [FLAC|Lossless|image + .cue] <Stoner Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haunted by Myself (4:13)
+02. Accident Black Spot (3:34)
+03. Frosty White (3:54)
+04. Dogwash (3:04)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0572CDCEE13444534B70E1F4BAF9DA879AAFBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470697   (1015482) от 18.05.2021
+
+Х*й Забей - Вскрытие покажет (2012) [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девчонка (1:57)
+02. Ни розочки (1:45)
+03. Вереницей (2:36)
+04. На ПМЖ (1:44)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC57315735BADD47CE8BADCF42095F5DCAD75BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470650   (1015504) от 18.05.2021
+
+Ancient Dome - The Void Unending (2017) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Target: Unknown
+02. Black Passage
+03. The Void Unending
+04. IV - Logic Of Nonsense(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F249BCC8730CAE12ECF8E598EE3EC802053934DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470654   (1015508) от 18.05.2021
 
 Ancient Dome - OWT ...And Still We Are! (2015) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
@@ -398,303 +695,6 @@ magnet:?xt=urn:btih:C35146DC2F32D504667B087D390CCE8443A17D31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54CE6C6903487E8B083F63AD1533DD717C3EBCA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470197   (1015800) от 16.05.2021
-
-Traveler - Termination Shock (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaded Mirror
-02. Termination Shock
-03. Foreverman
-04. Diary Of A Maiden(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2484388059F1A6374DB3F71F9631087BC832010E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470370   (1015802) от 16.05.2021
-
-Кирпичи - Старческий маразм (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rap Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новенькового (feat. Ефр) (3:50)
-02. Учитесь плавать (feat. Александр Ф. Скляр) (1:41)
-03. Знаешь, кто я? (2:00)
-04. 25 лет чистого хейта (2:01)(   Читать дальше...   )Жанр: Alternative, Rap RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354394BCCB8C2765A481D6A069ABD87363ADC23C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469929   (1015804) от 16.05.2021
-
-Kikimora - Dirty Nails (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bogeyman
-02. The Chosen One
-03. Free
-04. The Hustler(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C0F6DBC10852ADB7B65129DE90D5B7CEFCDEBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470270   (1015809) от 16.05.2021
-
-El Pistolero - Mexican Standoff (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sticky Fingers 03:16
-02. Desert Road 02:26
-03. Stormbringer 02:56
-04. Fear the Reaper 05:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471F3774C01E87ADD368AC057925CD0E2EA1325A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470147   (1015817) от 16.05.2021
-
-Caliban - Zeitgeister (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeitgeister (1:18)
-02. Trauma (feat. Nasty & Matthi) (3:19)
-03. Herz (3:29)
-04. Ausbruch nach Innen (5:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F526F76BA14E59500E4C495BE2A2621F221C3BC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470155   (1015818) от 16.05.2021
-
-Everlasting Mortality - The Retless Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallen Goddess (00:07:31)
-02. Inner Prison (00:05:27)
-03. The Bridge (00:08:25)
-04. Construct (00:06:46)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B70F33E9CED01B1175999D941B66303B173FBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470201   (1015822) от 16.05.2021
-
-Traveler - Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starbreaker
-02. Street Machine
-03. Behind The Iron
-04. Konamized(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BDB73CAF0D83E96B695D06648F3E2C28454701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470085   (1015890) от 15.05.2021
-
-The Future Kings Of England - Who Is This Who Is Coming ? [FLAC|Lossless|tracks + .cue]<Psychedelic, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey To The Coast 2:04
-02. The Globe Inn 4:26
-03. Finding The Whistle 2:01
-04. Watcher Part I 1:56(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCF5CA4428B2E4690B33078A7916C7E32D2234F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469917   (1015952) от 15.05.2021
-
-Against Evil - End Of The Line (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Violence
-02. Speed Demon
-03. Out For Blood
-04. Call To War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E59475A9B81CD420A3F04A2091A9A9C339BC868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470177   (1015970) от 15.05.2021
-
-Бахыт Компот - Алёшенька живой! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А птица пела
-2. Алёшенька живой!
-3. Дождь Сергей
-4. Шаман Саня(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E1801A205271899A68D6CE00E1B8CFC6BFC211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469888   (1015981) от 15.05.2021
-
-Gojira - Fortitude (2021) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born for One Thing (4:21)
-02. Amazonia (5:01)
-03. Another World (4:20)
-04. Hold On (5:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7465DB7F713AAFAF1D060D203E8F1ADA900FF653
 ```
 
 

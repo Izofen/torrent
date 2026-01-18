@@ -1,3 +1,57 @@
+###  Публикация: 1506112   (801512) от 29.10.2021
+
+VA - Tranquility (2021) [MP3|320 Kbps] <Psy, Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimi Green - Dewdrops 08:01
+02. Inverze - Alien Planet 08:10
+03. Mentalist - Don't Be Afraid 06:29
+04. Siloka & Thelios - Las Couillas En Betones 07:53(   Читать дальше...   )Жанр: Psy, TranceПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CC1E0774B7890392B64E4A8BFA4F555837D7D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384642   (801677) от 21.05.2020
+
+VA - Workout Trance & Workout Electronica - Workout 2020 Progressive House [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Workout Playlist 2020 Progressive House (90 Min Continuous Mix) (88:53)
+2. Tough Track Tech House, Pt. 1 (130 BPM Workout Playlist 2020 Mixed) (4:55)
+3. Make Me Move, Pt. 2 (130 BPM Workout Playlist 2020 Mixed) (5:02)
+4. Machine Time, Pt. 3 (130 BPM Workout Playlist 2020 Mixed) (4:10)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78D9CB58BB65FFBE33993D3E3B477C084DBE0C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199348   (801689) от 15.01.2018
 
 VA - Trance Winter Essentials Vol.01 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -641,60 +695,6 @@ York - Peace (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76F808CBB6B6F206C256CC64BD02469F44EB400F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198824   (802858) от 14.01.2018
-
-VA - I Love Chill Vol 3 (Finest Ambient Lounge And Chillout Music) (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Project - Code 47 (Mystic Voice Chillout Remix) 04:48
-02. Alexel - Brilliant Disguise 04:25
-03. Artenovum - Beauty Capture 04:01
-04. Richard Bonnee - Chillin Minds 06:35(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEE7673970677086679B44F2A4A050B032F916E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505717   (802940) от 28.10.2021
-
-Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Of Death And The Holy Rose (4:05)
-02. Sin In Me (7:09)
-03. Jetpack (6:27)
-04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
 ```
 
 

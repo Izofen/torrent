@@ -1,3 +1,36 @@
+###  Публикация: 642266   (871782) от 15.04.2013
+
+VA - Солнечный Заряд Хорошего Настроения (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Котова - Признание
+02. Demo - Это Лето
+03. Чай Вдвоем - Время вода
+04. НашеVrемя feat. Zlata (Злата) - Крылья
+05. Ксения Новикова (Блестящие) - Хочу забыть
+06. Потап и Настя - Вместе
+07. Reflex - Потому что не было тебя (версия 2012)
+08. София Ротару - Научи Смеяться
+09. A - Sen - Карие
+10. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C248C759D168F54BF32A731E14232DE3DE3EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106432   (871797) от 20.02.2017
 
 VA - Trance Elegance On This Year 010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
@@ -668,33 +701,6 @@ VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496410   (872864) от 17.09.2021
-
-VA - Hard Punk Review (2021) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872864.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Scott Sellers - Back To Reality
-002. Authority Zero - Fire Off Another
-003. Riskee & The Ridicule - Millwall Brick
-004. Tim Vantol - You Will Never(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 05:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413E5E3CB6C0E4CC08E1FE4C1E69FE012788A4E9
 ```
 
 

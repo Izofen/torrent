@@ -1,3 +1,252 @@
+###  Публикация: 1351663   (1002003) от 11.01.2020
+
+John Gary - The Essential John Gary (2001) RCA [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While We're Young [2:30]
+02. I'll Remember Her [2:57]
+03. You Never Kissed Her [2:14]
+04. I'll Be Seeing You [3:10](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCAC02CBB34A0C566CBF663E482606A1FF1A751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351464   (1002096) от 10.01.2020
+
+VA - Luxury Soul 2020 [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, Disco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cornell CC Carter - I See Love (Metlife Remix) (6:06)
+02. The Terri Green Project - It's You (The Terri Green Project) (4:52)
+03. Tyra Levone - Keep Steppin' (3:58)
+04. Rick Clarke - Friends (3:45)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35560A6641CDC3E5680090E56F45A5BA72FDE880
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351502   (1002225) от 10.01.2020
+
+John Gary - Sings Cole Porter (1994) Audiophile Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got You Under My Skin [3:29]
+02. I Get a Kick Out of You [4:00]
+03. Just One of Those Things [3:34]
+04. Let's Do It [4:28](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7A26FFA030E099213C5C05C46AED94A2B59B35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 655747   (1002268) от 10.08.2021
+
+Fitz and The Tantrums - More Than Just A Dream (2013) [FLAC|Lossless]<Indie Pop, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of My League (03:29)
+02. Break The Walls (03:36)
+03. The Walker (03:53)
+04. Spark (03:19)
+05. 6am (04:30)
+06. Fools Gold (03:35)
+07. Keepin Our Eyes Out (03:08)
+08. Last Raindrop (04:03)
+09. House On Fire (03:28)
+10. The End (03:46)(   Читать дальше...   )Жанр: Soul, Indie PopПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3389CA2CAD8034F0DA018751A867BF3378B5882A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488349   (1002318) от 10.08.2021
+
+Орлан - Башкирский Караван / Башкирские Легенды 2CD (2014) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002318.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Башкирский Караван (Олег Киреев) - 7:53
+2. Интерлюдия 1 (Олег Киреев) - 2:30
+3. Татарский Танец (O. Kireyev*) - 7:46
+4. Салават (Рустем Галиуллин) - 8:38(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28839FBA2FDEC717FBA97612FB31F3DD403FE8C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351206   (1002420) от 09.01.2020
+
+VA - 100 Greatest Soul (2020) [MP3|320 Kbps] <Soul, Funk, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aretha Franklin - Respect
+002. Otis Redding - My Girl
+003. Ben E. King - Stand by Me
+004. Ray Charles - I've Got a Woman(   Читать дальше...   )Жанр: Soul, Funk, JazzПродолжительность: 05:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8680E19E7A6CCBB24C6EF959672DE3C91B3BBD50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351277   (1002546) от 09.01.2020
+
+The Oscar Peterson Trio - Stratford, Ontario, Canada, 1956 (1996) Giants Of Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 52nd Street Theme [4:21]
+02. Love You Madly [8:11]
+03. Nuages [4:25]
+04. How High The Moon [9:29](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B18F7A294E442FC978E102E234728334183FA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351008   (1002753) от 08.01.2020
+
+Incognito - Tomorrow's New Dream (2019) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haze of Summer (Feat. Joy Rose)
+02. For the Love of You (Feat. Phil Perry & Maysa)
+03. The Weather Report (Feat. Take 6)
+04. All For You (Feat. Maysa)(   Читать дальше...   )Жанр: Acid Jazz, SoulПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B24C0C03E5C1BE5C26379299D74BCCCDFC2BA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350968   (1002790) от 08.01.2020
+
+Roland Keijser Quartet - Saxophone Valley (2000) Sittel [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locomotive [5:01]
+02. Swedish Schnapps [8:13]
+03. Kids Know Valse Hot [6:48]
+04. Why Don't I [5:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BEFD713EF718E36A916AF77D09FAF916685628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350731   (1003019) от 07.01.2020
 
 The Oscar Peterson Trio - In Tokyo: Live At The Palace Hotel 1972 (2005) Columbia [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -452,249 +701,6 @@ Splashgirl - Doors. Keys. (2007) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Conte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ABA6E496BE4736014471210712A0E285007718C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487104   (1004053) от 03.08.2021
-
-Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Babe (2019 – Remaster)
-02. Big Town Playboy (2019 – Remaster)
-03. I Could Have Stood You Up (2019 – Remaster)
-04. Key To The Highway(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487090   (1004054) от 03.08.2021
-
-Dirty Dave Osti - Retro-Sonic Blues Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retro-Sonic Blues Train
-02. Kiss The Pain
-03. The Drifter
-04. Bleeding Wishes(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAA03289F60F7E172A400677E9A4C282A1EEC38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349818   (1004112) от 03.01.2020
-
-Edgar Hayes And His Orchestra - 1938 - 1948 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Me [3:17]
-02. Without You [3:04]
-03. You're My First Thought Every Morning [2:43]
-04. In The Mood [3:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1624A4808432449BE9F3D48DD428999C67833B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349618   (1004274) от 02.01.2020
-
-Charles Aznavour & The Clayton-Hamilton Jazz Orchestra (2009) EMI [FLAC|Lossless|image + .cue] <Big Band, Vocal Jazz, Shanson>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viens Fais-Moi Rever [4:19]
-02. Fier De Nous (Duet with Rachelle Ferrell) [4:27]
-03. Comme Ils Disent [3:48]
-04. Des Amis Des Deux Cotes [3:43](   Читать дальше...   )Жанр: Big Band, Vocal Jazz, ShansonПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5C9659838A0209249FFA369FCF2A2418446DE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486930   (1004333) от 02.08.2021
-
-Polly O'keary And The Rhythm Method - 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New Day (4:10)
-02. Too Much Like I Care (4:33)
-03. Can't Catch Me (4:16)
-04. Smiling (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E9F6B4AAB76B1D0EBF684638B19086242F7108
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660619   (1004442) от 01.01.2020
-
-Larry Burton - 500 Miles Of Highway (2011) [FLAC|Lossless|tracks + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Inside My Room [3:36]
-02. High Heels and Tight Blue Jeans [3:15]
-03. I've Got Your Body (He Has Your Mind) [4:29]
-04. You're So Mean To Me [2:40](   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9F31B620EB6D705BE332997C0EF8923EBC795D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349430   (1004521) от 01.01.2020
-
-Thurman Green - Dance Of The Night Creatures (1999) Mapleshade [WavPack|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Blue [8:33]
-02. Passion Flower [4:42]
-03. Dance of the Night Creatures [8:31]
-04. Daughter of Cochise [8:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D967AB39DC42DD15492AD5DEB0696694CA9E5E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729808   (1004533) от 01.08.2021
-
-The Robert Cray Band - False Accusations (1986) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porch Light (05:03)
-02. Change Of Heart, Change Of Mind (S.O.F.T.) (03:46)
-03. She's Gone (02:50)
-04. Playin' In The Dirt (03:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDEEFEBEC17AD21D6D336B30732715AAC970CAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486719   (1004546) от 01.08.2021
-
-Emily Duff - Razor Blade Smile (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Go Fast, Dont Die (00:02:08)
-02 - Gimme Back My Love (00:03:01)
-03 - Done And Done (00:03:36)
-04 - Angry To Bed (00:03:57)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F060A3BBA76A30C12A3D266E8D65D8D4A8E0C840
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1108350   (864740) от 24.02.2017
+
+VA - Canary Islands Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864740.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A M G - 100 - Klav Version 7:35
+002. Joe Jog - Time to Hide 5:05
+003. Tarena - Chilly Tuesday 4:05
+004. Bertram Geck - Blue Clouds - Lounge Mix 5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827919CE41543ABE2E4A4803DCD02A11D3D52F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108230   (864742) от 24.02.2017
+
+VA - Finest Groovy House Music Vol.26 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wlady - Fuente  5:22
+02.  Charlie Roennez - House Healed Me  7:17
+03.  Ron Carroll - Fantasy (Dan Van & Adam Fierce Remix)  6:10
+04.  Benny Camaro & Roberto Ferro - Please  5:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E57E3B1FC6FAABF6FA412698003057E48F5ACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108243   (864744) от 24.02.2017
 
 VA - Morning Conversation Vol.8 Black Deep (2017) [MP3|320 Kbps] <Deep House>
@@ -641,60 +695,6 @@ VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E67F48B6D33F191E40D4567138A32E4DD3D61C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997922   (866507) от 21.03.2016
-
-Manufacture - 2 Albums (1988, 1990) [MP3|320 кб/с] <Electronic, EBM, Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slugger (4:09)
-02. As The End Draws Near (3:39)
-03. Passion For The Future (3:45)
-04. Bond Street Station (0:23)(   Читать дальше...   )Жанр: Electronic, EBM, TechnoПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87208A33CF7CEBE959EA9ABDEC439D2C8D6E743A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107920   (866565) от 23.02.2017
-
-VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brett Johnson - Danger - Original Mix 7:46
-002. Pro-Moe - 6:15 - Original Mix 7:12
-003. Eduardo Tristao - Roses Are Red - Sudad G Loves Vinyl Mix 7:52
-004. Mappa - Party - Mappa Deep Mix 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ABFE6D0D7BBAC7DCC6D6C89E092CB38E1846C3
 ```
 
 

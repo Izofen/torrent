@@ -1,3 +1,30 @@
+###  Публикация: 1030212   (674409) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deborah Kinley - Surprise ( 1986 )
+02. Ago - It Will Never Be ( 1982 )
+03. Monte Kristo - Money For Your Love ( 1986 )
+04. Groove Twins - Poison ( Extended Mix 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207E95F2433FA482E42748AAA4450D4E6701DED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030269   (674412) от 30.06.2016
 
 VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -671,33 +698,6 @@ magnet:?xt=urn:btih:2D63C037FA2A03647225EC52BE1F397097B4EAC8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F4D8FFA5BDDFAD48E04C9D41393253A92D95815
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029453   (678473) от 28.06.2016
-
-VA - The Dome Summer  [2CD] (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678473.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Пpодолжительность: 01:12:11
-
-01. Justin Timberlake - Can't Stop The Feeling!(   Читать дальше...   )Жанр: PopПродолжительность: 2:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942A4B20BE93B50E55D5E90AE9B3961D32C75D1F
 ```
 
 

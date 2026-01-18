@@ -1,3 +1,303 @@
+###  Публикация: 1502449   (826502) от 15.10.2021
+
+Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Night…
+2. Welcome To Horrorwood
+3. A Rash Decision
+4. Assault & Batteries(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4797B57266FB14AF5FBBFD0234A1544AB6529D1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502482   (826504) от 15.10.2021
+
+Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-hardcore, Alternative-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Night… [00:00:42]
+02. Welcome To Horrorwood [00:03:55]
+03. A Rash Decision [00:03:31]
+04. Assault & Batteries [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-hardcore, Alternative-metalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F29FAB1DE68961BA615482CF64F197C42EF5077
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502655   (826505) от 15.10.2021
+
+Максим Леонидов - Седьмое небо (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В твоём городе осень
+2. В зоне доступа твоих губ
+3. Убить дракона
+4. Кот(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BC55F43CFBE61590E38BCEB6965CA4D484A469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115502   (826546) от 18.03.2017
+
+Pallbearer - Heartless (2017) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Saw The End
+2. Thorns
+3. Lie Of Survival
+4. Dancing In Madness(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F20B7A1A1B0BB50FAB1C409DACCA47A8DAB9A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115395   (826549) от 18.03.2017
+
+Phil Collins - Hello, I Must Be Going! (1982) Remaster, 1998, WEA International [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Care Anymore (5:00)
+02. I Cannot Believe It's True (5:14)
+03. Like China (5:05)
+04. Do You Know, Do You Care? (4:57)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085E58DF494CFAAB7019AA58081996F68CDFE4D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115642   (826551) от 18.03.2017
+
+Velvet Insane - Velvet Insane (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Break Out of Eden (04:20)
+02. High On Love (04:10)
+03. Help Me (03:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D65754E103DA9FC231101283C3FDB1CE63B43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115577   (826556) от 18.03.2017
+
+Spoon - Hot Thoughts (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Thoughts (3:49)
+02. WhisperI'lllistentohearit (4:21)
+03. Do I Have to Talk You Into It (4:20)
+04. First Caress (2:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEE36AE6B83C51BEC892E03815EA258D03ABC56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502491   (826620) от 15.10.2021
+
+Santana - Blessings And Miracles (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Latin Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ghost of Future Pull _ New Light [00:01:24]
+02 - Santana Celebration [00:03:18]
+03 - Rumbalero [00:03:56]
+04 - Joy [00:03:46](   Читать дальше...   )Жанр: Latin RockПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F8E3998D24CCC6517831C9ED9BE1F9C5D8B126
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502247   (826621) от 15.10.2021
+
+Rockets - Alienation (2021) Limited Edition, Numbered [FLAC|Lossless|image + .cue] <Space Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826621.jpg" />
+</div>
+
+
+###  Подробнее
+
+40 ЛЕТ ОЖИДАНИЯ И НАКОНЕЦ-ТО!!!!! ВЫПУСК АЛЬБОМА ROCKETS - ALIENATION - ЛЕГЕНДАРНЫЙ "GHOST ALBUM", КОТОРЫЙ НЕ БЫЛ ВЫПУЩЕН В 1981 ГОДУ. Записан в конце 1980-го начале 1981 года, но так и не был выпущен.
+Восемь невероятных треков.
+Этот альбом должен был стать продолжением фантастического альбома "GALAXY"
+Группа ROCKETS была создана СLAUDE LEMOINE, (   Читать дальше...   )1. Non-Stop
+2. Sky Invaders
+3. Venus Queen
+4. Electromental(   Читать дальше...   )Жанр: Space Rock, New WaveПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF3056E468019559B583BC1940C3618AC537DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115424   (826652) от 18.03.2017
+
+Knight Area - Heaven And Beyond (2017) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken 07:06
+02. Dreamworld 05:14
+03. The Reaper 07:11
+04. Box Of Toys 03:47(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 01:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE181B4B6A2BF5D6ACDA22245B8862B3A61B30C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502553   (826704) от 15.10.2021
+
+Roger Taylor - Outsider (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ро́джер Те́йлор (англ. Roger Meddows Taylor; 26 июля 1949, Кингс-Линн, Норфолк) — британский барабанщик, мультиинструменталист, автор песен, композитор, певец (лирический тенор). Наиболее знаменит как участник группы01. Tides
+02. I Know, I Know, I Know
+03. More Kicks (Long Day's Journey into Night... Life)
+04. Absolutely Anything(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFEC5A35F170BB8B5540B1030782E7CF8DFD0E6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502351   (826707) от 15.10.2021
 
 Alice - Alice (1970) Remastered 2022, Audiophile Edition [FLAC 2.0|96/24|tracks|WEB-DL] <Psychedelic Rock, Progressive Rock>
@@ -398,301 +698,6 @@ Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C7AF937C8F2783BF42D47325134A579A041F49C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006632   (827243) от 12.04.2016
-
-Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827243.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Reverie 5:20
-2. Heliopause 3:44
-3. Relancer 7:44
-4. Kobe 7:01(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, SludgeПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD498A2E779785663C2AA0E58E75C59D999E91FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115242   (827608) от 17.03.2017
-
-Би-2 - Би-2 & Prague Metropolitan Symphonic Orchestra Vol. 2 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молитва
-02. Хипстер
-03. Забрали в армию
-04. Касаясь земли (feat. Renars Kaupers & Найк Борзов)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5EC48D5B1BC1E96E3381F9DD271B4F5DEBA305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263292   (827656) от 06.05.2020
-
-Tarot - 9 Albums, 1 Compilation, 2 Lives (1986 - 2011) 15CD [FLAC|Lossless|image + .cue|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tarot — финская группа, играющая хеви-метал. Наиболее известны они своей песней «Wings of Darkness» из альбома 1986 года Spell of Iron. Группа никогда не была очень известна за пределами Финляндии, но приобрела достаточно широкую известность, когда Марко присоединился к Nightwish.Список альбомов:
-1986 - The Spell Of Iron
-1988 - Follow Me Into Madness
-1993 - To Live Forever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 15:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F24F1BDFA37C2E9C9BA9868BC9E9EC18EBF9F70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381206   (827739) от 06.05.2020
-
-Redlight King - Moonshine (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lift The Curse
-02. Champion
-03. Long Way To Heaven
-04. Not Dead Yet(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFE954C79EF6C59DC48553D8621AC46E31D143D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381184   (827811) от 06.05.2020
-
-loney dear - Dear John (2009) [FLAC|Lossless|image + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airport Surroundings (03:28)
-02. Everything Turns to You (03:49)
-03. I Was Only Going Out (03:38)
-04. Harsh Words (03:16)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EDD4876ADA1E73A7BC68F2244E58DED1032D07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381394   (827822) от 06.05.2020
-
-Havok - V (2020) [FLAC|Lossless|tracks + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Post-Truth Era [03:54]
-02. Fear Campain [03:57]
-03. Betrayed by Technology [03:44]
-04. Ritual of the Mind [04:10](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA4762944818A4090DEFF503788B54A63E90EBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115245   (827977) от 17.03.2017
-
-Адаптация - Radio Resistance (2017) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827977.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сборник лучших, на мой взгляд, песен «Адаптации», написанных в 90-х годах прошлого века. Тогда мы смогли придумать эти песни, но не сумели записать их как следует. У нас не было хороших инструментов и профессиональных студий, не хватало умений и навыков. Накануне 25-летия «Адаптации» мне захотелось перезаписать важнейшие старые песни — нынешним нашим составом, (   Читать дальше...   )1. Живой
-2. Бищара-рай
-3. Мой город будет стоять
-4. Маяк над соломенным городом(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294CE224FF9DE0A3C8F000EFAE3BDC035C51D7B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502437   (828037) от 14.10.2021
-
-Coldplay - Music of the Spheres (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828037.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ⦵
-2. Higher Power
-3. Humankind
-4. -✧(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B69F41928AC7DDA26B22FF7FFF7AABE1325E404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115430   (828052) от 17.03.2017
-
-Brian May + Friends - Star Fleet Project (2011) [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828052.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Star Fleet
-2. Let Me Out
-3. Blues Breaker
-4. Son Of Star Fleet(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D046021FF2BAE7FBAD9620C68825782CBFCFA6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115482   (828056) от 17.03.2017
-
-Overkill / Kreator - Man In Black / Warrior Heart (2017) Split [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828056.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Man In Black (Johnny Cash Cover) - Overkill
-2. Warrior Heart - KreatorЖанр: Thrash MetalПродолжительность: 00:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5E481814BDCDA1CDB875ED7B2C3D5AEC723CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115185   (828060) от 17.03.2017
-
-Erdling - Supernova (2017) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828060.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Absolutus Rex
-02. Es Gibt Dich Nicht
-03. Mein Element(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 01:08:03 (00:43:50 + 00:24:13)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017B6F87E05B6A017997D0504FAE50692EAC5C28
 ```
 
 

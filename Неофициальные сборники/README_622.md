@@ -1,3 +1,30 @@
+###  Публикация: 1363985   (939322) от 01.03.2020
+
+VA - Beatport Bassline: Electro Sound Pack #17 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939322.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yell Larry - Kick Drum
+002. Xon Xon - Sensational Piano
+003. Ex Lor - Mystical Universe (Original Mix)
+004. Jack-E - Water Drops (Original Mix)(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 08:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB631D9AD5995FE234A7E671083B29E8FB7F19F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363984   (939339) от 01.03.2020
 
 VA - In My Dream: City Party Mix (2020) [MP3|320 Kbps] <Club, EDM, Dance House>
@@ -668,33 +695,6 @@ VA - Deep House Collection Vol. 103 (2017) [MP3|320 Kbps] <House , Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:407CD1B16424590A7C7F52F7C3F2794E746754C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091865   (941049) от 10.01.2017
-
-VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941049.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billy Idol - Eyes Without A Face
-002. Deep Purple - Sometimes I Feel Like Screaming
-003. Eric Clapton - Tears In Heaven
-004. Oasis - Don't Go Away(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 07:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
 ```
 
 

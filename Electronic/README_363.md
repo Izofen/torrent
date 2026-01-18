@@ -1,3 +1,57 @@
+###  Публикация: 1218501   (723307) от 09.04.2018
+
+VA - A Sensual Lounge Experience (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Pine River - Someone Like You (D-Soriani Chilly remix)
+02. 2Black - Waves Of Luv (Abel DJ & Mauro Ghess Lounge remix)
+03. Atelieur du Soleil - La Perla
+04. Bessie Boni & Massimo Mantovani - Skylark(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE44F1F0307EA242EB24F60AAC0C7EA5991F911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218397   (723402) от 09.04.2018
+
+VA - Nothing But. Total Trance Selections Vol. 02 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip J feat. Kim Casandra - Release Me (4 eYe Remix)
+02. Anna Lee - Fjords (2017 Rework) (Original Mix)
+03. Atherium - Sand (In The Hourglass) (Original Mix)
+04. Arman Bas - Iris (Ahmed Romel Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57BBF998C26429993328D30C5546875440F8182
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218434   (723408) от 09.04.2018
 
 VA - Interfered Vol.I (Mixed by Enlusion) (2018) [MP3|320 Kbps] <Trance>
@@ -641,57 +695,6 @@ VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667373   (725282) от 14.06.2013
-
-ATB - 8 Album, 3 Compilation (1999-2007) (17CD)[FLAC|Lossless]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218197   (725292) от 08.04.2018
-
-VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Numall Fix - Memories (Original Mix)
-02. Estatica - The Lost World (Original Mix)
-03. Baintermix - Indian Chief (Original Mix)
-04. 5Beat - Lost Story (Remaster Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F44B957DF637996315F635891EB3951B391D5
 ```
 
 

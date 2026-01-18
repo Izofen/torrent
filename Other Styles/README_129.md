@@ -1,3 +1,30 @@
+###  Публикация: 1124894   (768748) от 14.04.2017
+
+bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starlight (Live)
+02 - There's No Other Name (Live)
+03 - Extravagant (Live)
+04 - Breathe (Spontaneous)Жанр: Christians, worshipПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125154   (768807) от 14.04.2017
 
 Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
@@ -668,33 +695,6 @@ VA - Relaxation Collection 1 - Mirror Pond (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D286382D4177725F8497F7D5011DE499D711037E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212311   (774299) от 14.03.2018
-
-VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sailing Away-Govi
-02. Pastel Footprints-Thierry David
-03. Cry for Love-Omar Akram
-04. Don Juan-Johannes Linstead(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37553E1FD91D672DC0C2B7F49066A7317F3A15E7
 ```
 
 

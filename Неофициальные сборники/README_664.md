@@ -1,3 +1,30 @@
+###  Публикация: 1467664   (1017186) от 07.05.2021
+
+VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps] <Dance, Electro, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Amchi - Уже всё равно (DJ Safiter Remix)
+02.Artik - Asti - Бла Бла (Shnaps and Kolya Funk Remix)
+03.Artik and Kacher - Bailame (Yudzhin Remix)
+04.Dabro - Мой Путь (Misha Slam & Alexey Ezh Remix)(   Читать дальше...   )Жанр: Dance, Electro, RemixesПродолжительность: 02:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDC0F78744C3371E486623E2565C6D6B1B9E6F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468298   (1017202) от 07.05.2021
 
 VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Beast Mode Hip Hop (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E021677A862C0A5474E780D42D83A06D401D36ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466099   (1018777) от 28.04.2021
-
-VA - House of the Spirit NA (2020) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alborada - Flying Condor
-02. Ah Nee Mah - The Red Tower
-03. Wayra - Song of the River
-04. Indian Spirit - Native Dance 2(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 05:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E59453CB13CD311C1A13D8E4B4D7BA385DFA9C2
 ```
 
 

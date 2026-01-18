@@ -1,3 +1,302 @@
+###  Публикация: 1386912   (792643) от 31.05.2020
+
+The United States Of America - The United States Of Americ (1968) Reissue, 2004, Sundazed Music [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убежденный коммунист создает группу под названием «The United States Of America» и подписывает контракт с крупным лэйблом, и все это без единого живого выступления в клубе? Такое было возможно лишь в 1960-х годах.
+The United States Of America - дебютный одноименный альбом был записан в декабре 1967 года с продюссером Дэвидом Рубинсоном из CBS Records, и выпущен в (   Читать дальше...   )01. The American Metaphysical Circus (4:57)
+02. Hard Coming Love (4:41)
+03. Cloud Song (3:21)
+04. The Garden Of Earthly Delights (2:39)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9F971335DCF25D2E28E90CBEBCFCBBE6A65BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386934   (792669) от 31.05.2020
+
+Van Morrison - Astral Weeks (1968) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astral Weeks (7:06)
+02. Beside You (5:17)
+03. Sweet Thing (4:26)
+04. Cyprus Avenue (7:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03D1658EA3037F8C6EE9AEE68A449CB45DD7E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387164   (792676) от 31.05.2020
+
+Cremation - In The Maelstrom Of Time (2017) [MP3|320 Kbps] <Death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maelstrom (01:21)
+02. Collision Course (06:03)
+03. Jousting with the Psyche (06:13)
+04. Black Hole (06:50)(   Читать дальше...   )Жанр: Death metalПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF21C99E8105BD17C52143C7672A1254C07F8ABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386943   (792680) от 31.05.2020
+
+Otargos - Ten-Eyed Nemesis (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Havocalypse
+02. Warmachine XXX
+03. Hordes
+04. Necro Aeons(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77674A5D010DC315F065EF8448F56821FA14B10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386919   (792694) от 31.05.2020
+
+The Pretty Things - S.F. Sorrow (1968) Reissue, 1998, Mono [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792694.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Pretty Things — британская рок-группа, основанная в Лондоне в 1963 году. Название группы происходит от одноименной ("Pretty Thing") песни Бо Диддли 1955 года. В ранний период существования британская пресса нарекла группу титулом «уродливый кузен The Rolling Stones» (англ. uglier cousins of the Rolling Stones). The Pretty Things стала одной из групп (   Читать дальше...   )01. S.F. Sorrow Is Born (3:15)
+02. Bracelets Of Fingers (3:39)
+03. She Says Good Morning (3:31)
+04. Private Sorrow (3:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A7244C57856E2BCD9438CD17600EBE9CE4B1FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201267   (792752) от 24.01.2018
+
+Machine Head - Catharsis (2018) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volatile
+02. Catharsis
+03. Beyond the Pale
+04. California Bleeding(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDF6BA99B790E2A7E46D0F2AB5641C855376E9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201230   (792771) от 24.01.2018
+
+Motorhead - Under Cover (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Breaking the Law 2:33 (Judas Priest)
+02 God Save the Queen 3:19 (Sex Pistols)
+03 Heroes 4:37 (David Bowie)
+04 Starstruck 4:06 (Rainbow)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAFFDC9E5CC88A8038C67776610A36FF70F9EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201352   (792808) от 24.01.2018
+
+Сруб - Скорбь (2018) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792808.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гибельные травы, которые срезают ночами черти обломками челюстей мёртвых лис, дымка над болотами, страх от прикосновения кого-то к плечу на пустой дороге через предрассветное поле, чащи, буреломы, папоротники, колючая и мокрая хвоя прямо в лицо. И смех без источника. Всё это здесь" (Всматривающаяся бездна)
+Новосибирский "Лютый славянский пост-панк" (   Читать дальше...   )01. По ягоды (5:32)
+02. Вспять (5:27)
+03. В чаще, где пал крест (5:55)
+04. Храни (5:58)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC97B7621B9D1E8B465A73047AAE033FA9CE5289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201447   (792814) от 24.01.2018
+
+The Animal In Me - Helping Won’t Help (2017) [MP3|320 Kbps] <Post-Hardcore, Female & Male Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling It Quits (03:58)
+02. Get What You Give (04:23)
+03. Miles Away (04:31)
+04. Handbook (03:34)(   Читать дальше...   )Жанр: Post-Hardcore, Female & Male VocalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E907CC6F1A6F49254CAB26BDD5934F9C312219B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201259   (792820) от 24.01.2018
+
+Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neubeginn 4:23
+02. Helden meiner Generation 4:40
+03. So viel erlebt 3:37
+04. Der grobe Magnet 4:46(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6CF1B803BBDEDA566F0C4FB00095E8F6838395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201120   (792823) от 24.01.2018
+
+Somali Yacht Club - The Sea (2018) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock, Post-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vero
+02. Religion of Man
+03. Blood Leave a Trail
+04. Hydrophobia(   Читать дальше...   )Жанр: Stoner Rock, Psychedelic Rock, Post-metalПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC1063192C523E579AF162E99638A4F92AE1545
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201313   (792869) от 24.01.2018
 
 Black Label Society - Grimmest Hits (2018) [FLAC|Lossless|image + .cue] <Southern, Groove Metal>
@@ -400,295 +699,6 @@ The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274354   (793052) от 07.01.2019
-
-The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Progressive, Atmospheric Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793052.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Phanerozoic I Palaeozoic
-CD2 - Phanerozoic I: Palaeozoic (Instrumental)Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0531A2843F498DA1770AB1D79AF4C640C89257E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274424   (793057) от 07.01.2019
-
-Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secretos del Viento
-02. Extinción
-03. Brujas y Hechiceras
-04. Lamento del Desierto(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79B5C2D2DC37806ADD8D735D49FC37D54501C02F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274433   (793063) от 07.01.2019
-
-Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless|image + .cue] <Indie, Folk, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793063.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "Hitting the Ground" (PJ Harvey - vocals and guitar solo)
-2. "Oh Wonder" (Mary Lou Lord - acoustic guitar and vocals)
-3. "Make It Happen" (Gordon Gano - vocals)
-4. "Don't Pretend" (John Cale - piano and vocals)(   Читать дальше...   )Жанр: Indie, Folk, AlternativeПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587740   (793104) от 06.04.2017
-
-Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+.cue]<Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic MetalcoreПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F7F7C4BB4AB14CD6D071DC1DF8AB92BBEF691B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121587   (793133) от 06.04.2017
-
-Motley Crue, Vince Neil, Sixx:A.M., Tommy Lee - 44 albums and 11 singles (1981-2016) [MP3|320 Kbps] <Heavy metal, Glam metal, Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году, является ярчайшим представителем этого жанра и одним из его стержней. Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, впоследствии к которым присоединились гитарист Мик Марс и вокалист Винс Нил. За историю Mötley Crüe было продано более 80 миллионов копий альбомов (   Читать дальше...   )1981 - Too Fast For Love
-1983 - Shout At The Devil
-1985 - Theatre Of Pain
-1987 - Girls, Girls, GirlsЖанр: Heavy metal, Glam metal, Hard rockПродолжительность: 53:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4498BD60828AF18AA8AD718CB2516F4551351B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123043   (793145) от 06.04.2017
-
-Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back In The Arms of Someone
-02. Something's Been Making Me Blue
-03. If You Think You Know How To Love Me
-04. Looking Daggers  *(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122876   (793172) от 06.04.2017
-
-Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист Vol.1:
-01. Lay Back In The Arms of Someone
-02. Something's Been Making Me Blue
-03. If You Think You Know How To Love Me(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 02:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201B0425684EDD87372DB8BAEB93C1AD41814A34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122681   (793182) от 06.04.2017
-
-Адаптация - Radio Resistance (2017) [FLAC|lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Живой (03:58)
-02. Бищара-рай (04:07)
-03. Мой город будет стоять (03:45)
-04. Маяк над соломенным городом (03:12)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE605C7B10D51E02D0D12E28EEC0AF1E6B64F79E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051993   (793219) от 30.05.2020
-
-Geordie - 8 Albums, 1 Box Set (1973 -2016) 19 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Geordie - одна из немногих выдающихся рок-групп 70-х годов, которая за сравнительно короткий период своей творческой деятельности создала немало шедевров мировой рок-музыки, достойных внимания. Geordie вспоминают главным образом благодаря тому, что в её рядах начинал своё восхождение к славе нынешний вокалист AC/DC Brian Johnson, хотя банда изрядно пошумела (   Читать дальше...   )Список альбомов:
-1973 - Hope You Like It
-1974 - Don't Be Fooled By The Name
-1976- Save The WorldЖанр: Hard RockПродолжительность: 14:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64B01A3A0C484CAC6D3DAC9339162F3C00A860D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123028   (793244) от 06.04.2017
-
-Dead By April - Worlds Collide (2017) [MP3|320 Kbps] <Melodic Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Over You
-02. I Can't Breathe
-03. Playing With Fire
-04. Warrior(   Читать дальше...   )Жанр: Melodic Modern MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECD4FB9F2FDF63DBBB4D283910293E051EE9472
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123039   (793304) от 06.04.2017
-
-Вадим Самойлов - Слова закончились (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793304.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Слова закончилисьЖанр: RockПродолжительность: 00:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15749E89EEDA068B43B7DE9FDD5265D22155327
 ```
 
 

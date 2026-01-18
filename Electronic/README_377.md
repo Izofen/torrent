@@ -1,3 +1,57 @@
+###  Публикация: 1018711   (754015) от 21.05.2016
+
+VA - Pure Bliss Vocals (Spring 2016) (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service & Sarah Russell - Would You (Radio Edit) 4:04
+02. 4 Strings & Fridolijn - What Matters Most (Radio Edit) 2:36
+03. Dennis Sheperd & Sarah Lynn - Dive (Radio Edit) 3:48
+04. Betsie Larkin - We Are The Sound (Chris Metcalfe Radio Edit) 3:55(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE140A3F944D5E623822147A62668561E86D5139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018925   (754090) от 21.05.2016
+
+VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Carmela - Curve Sound (Original Mix)
+02. Anthony Mea - Dreama (Original Mix)
+03. Marco Grandi - Butterfly (Original Mix)
+04. Adam Byrd - Without You (Original Mix)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F332D9E7C7D1062D4016E00E4B4586B2D8BBEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018941   (754100) от 21.05.2016
 
 VA - Tribal House Sensations Vol. 3 (2016) [MP3|320 кб/с] <House>
@@ -641,60 +695,6 @@ Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215808   (756736) от 27.03.2018
-
-VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icone – Omega (Original Mix)
-02. Para X – Sparkling Waterfalls (Original Mix)
-03. Hoof – Heart And Zeal (Original Mix)
-04. Kenidel Lopez – Heaven’s Caliber (Manuel Le Saux Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765A3FB11A85DAA1C9ED3A161FD0FDF3F5087932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215635   (756738) от 27.03.2018
-
-VA - New Prog Order Vol. 3 (Compiled by Shyisma)(2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertex - Blue Mystic
-02. Neutro and Reflex feat. Doppler - Trance Energy
-03. Shyisma - Level 7
-04. Reflex - Cosmic Tools(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD881DCC4D2C82669B55545B2C98CA64DE5D5BC
 ```
 
 

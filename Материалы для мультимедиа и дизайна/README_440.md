@@ -1,3 +1,51 @@
+###  Публикация: 1458565   (1023731) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Marble Pack 35+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D6C2F3F44C9CE9D77AAAB4E95AA1A4DA9C86E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458550   (1023743) от 29.03.2021
+
+3D Smart materials - Gumroad - Marco Tomaselli - Vintage Sci-Fi Pack 80+ Smart Materials [SPP, SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Marco Tomaselli.Формат: SPP, SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F7C572B5A2DF7E2932E39B72A00299B5138BE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458559   (1023750) от 29.03.2021
 
 3D Smart materials - Gumroad - Marco Tomaselli - Porcelain and Gems Pack 10+ Smart Materials [SPP, SPSM]
@@ -571,54 +619,6 @@ magnet:?xt=urn:btih:136B9DD6B0C61CBA785E3B712EEF3E9A24E4A49B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E387923B2384411DDC390DA344DD0602C4729E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456429   (1025031) от 22.03.2021
-
-3D Smart materials - Artstation - Zack Maxwell - Stylized Body - Smart Materials [SPSM]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умные материалы от автора Zack Maxwell.Формат: SPSM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38B57BE06619E7FA6A8AD29FA84E0389B7BDEE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456435   (1025041) от 22.03.2021
-
-3D Smart materials - Artstation - Zack Maxwell - Stylized Fabric - Smart Materials [SPSM, SBSAR]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умные материалы от автора Zack Maxwell.Формат: SPSM, SBSAR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7603698453F0336FC28EB2FBB32D78102BEB908
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 905477   (649600) от 06.06.2015
+
+VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Piano>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Run to You
+02. Jessie Reeves - Video Games
+03. Dean Dyson - Mad World
+04. Henrietta Adewole - I Try(   Читать дальше...   )Жанр: Downtempo, Chillout, PianoПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905747   (649602) от 06.06.2015
 
 VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<House, Funky, Deep, Electronica, Minimal>
@@ -689,33 +716,6 @@ VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031533   (651361) от 04.07.2016
-
-Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven And Hell
-02. Rainbow In The Dark
-03. Along Comes A Spider
-04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
 ```
 
 

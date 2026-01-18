@@ -1,3 +1,57 @@
+###  Публикация: 1363578   (942140) от 28.02.2020
+
+Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nessaja (3:29)
+02. The Logical Song (3:54)
+03. Aiii Shot The DJ (3:07)
+04. Posse (I Need You On The Floor) (3:31)(   Читать дальше...   )Жанр: Happy Hardcore, Techno, JampstyleПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D1F4CC25148FA10A6BFCA5B8AD3E0E925FDB56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363581   (942228) от 28.02.2020
+
+Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spybrak! (4:04)
+02. Crash!	(6:54)
+03. Velvet pants	(5:46)
+04. Take California (7:21)(   Читать дальше...   )Жанр: Techno, Big Beat, Acid JazzПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857C546736E234DEE80E999CAA1112C69C2ED3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363234   (942313) от 28.02.2020
 
 VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
@@ -638,60 +692,6 @@ Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:345F50FF126882D48B95DEF8C7E67BB5F07BA2E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091250   (944857) от 08.01.2017
-
-VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Desire Of My Heart (Original Mix) (8:59)
-02. Kir Tender - Always Alive (George Crusher Remix) (8:08)
-03. Alex Shevchenko - Ivory Tower (Chronosapien Remix) (7:18)
-04. Syntouch - Hidden Loneliness (Original Mix) (6:38)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7FC2CA6AFFA1EA1698B7727EEA1F105FCD34E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091125   (944958) от 08.01.2017
-
-VA - Sunny Cool & Sexy, Vol. 1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Quincy Ortiz – The Gates (6:22)
- 02. Greg Walker – Samba Coast (4:33)
- 03. Florito – A La Playa (5:29)
- 04. Ibiza Air – Fly With The Light (5:38)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E820109041634C43BF180B4E92F1EFB99314ACFF
 ```
 
 

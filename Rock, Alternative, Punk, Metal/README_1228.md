@@ -1,3 +1,302 @@
+###  Публикация: 1468280   (1017294) от 07.05.2021
+
+J. D. Overdrive - 3 Albums (2013-2021) [MP3|320 Kbps] <Southern, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funeral Starter [00:01:20]
+02. The Ferryman Cometh [00:04:23]
+03. Old Dog, Old Tricks [00:03:52]
+04. Casual Catastrophies [00:03:38](   Читать дальше...   )Жанр: Southern, Stoner MetalПродолжительность: 3CD, 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9786C379C87D987055412BD90E915A985C58B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467842   (1017329) от 06.05.2021
+
+Nightwish - 15 Studio Albums (1997-2020) 24xCD [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.
+
+Nightwish — одна из первых и самых влиятельных групп в жанре симфоник-метал, наряду с Therion и Within Temptation. Раннее творчество Nightwish отличалось (   Читать дальше...   )1997 - Angels Fall First
+1998 - Oceanborn
+2000 - Wishmaster
+2002 - Century Child(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 21:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62F739AA655EF65CD4DA40E03B09EED1BC3B3A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467439   (1017410) от 06.05.2021
+
+Лёша Закон (Алексей Глухов) - Бухнуть и помахаться (2015) Remastered, 2021 [MP3|320 Kbps] <Гоп-стоп-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Бухнуть и помахаться [00:02:45]
+02-Не смей перечить [00:02:49]
+03-Ты была неправа [00:01:50]
+04-Православная Тверь [00:02:53](   Читать дальше...   )Жанр: Гоп-стоп-рокПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A5028F4503DF2AB23858F2891970C2DAD47DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468034   (1017416) от 06.05.2021
+
+The Mars Volta - La Realidad De Los Suenos (2021) Box Set, Vinyl [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tremulant EP:
+01 Cut That City (05:43)
+ 02 Concertina (04:54)
+ 03 Eunuch Provocateur (08:48)Жанр: Progressive RockПродолжительность: 07:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4260B3775ADFFB4F6E212594662B1EC3DC4292
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467393   (1017432) от 06.05.2021
+
+Лёша Закон (Алексей Глухов) - Тверь.Россия.Беспредел. (2005) Remastered, ultrazymotic, 2021 [MP3|320 Kbps] <Гоп-стоп-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-В халате сальненьком [00:01:48]
+02-Тверь стоит как стояла [00:01:27]
+03-Друзья в полосочку [00:01:56]
+04-Надя [00:02:15](   Читать дальше...   )Жанр: Гоп-стоп-рокПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7577F37321DCCCDCE9542E384A700C57F43208F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468059   (1017435) от 06.05.2021
+
+The Amorphous Androgynous & Peter Hammill - We Persuade Ourselves We Are Immortal (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Persuade Ourselves We Are Immortal
+02. Hymortality
+03. Immortality Break
+04. Physically I'm Here, Mentally Far, Far Away(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Space RockПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07BBE06819D20F03C845773889B2ADDC8B1A3EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468085   (1017437) от 06.05.2021
+
+Useless ID - Most Useless Songs (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State of Fear
+02. Isolate Me
+03. Night Shift
+04. It's Alright(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3026AA8D326DE8EFF1EFE55EA2DC4B29F5C07F52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468074   (1017446) от 06.05.2021
+
+Naked - End Game (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silverthorn
+02. Aim For The Heart
+03. Blood Of My Blood
+04. Leaving You Tonight(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD599F02851C6E12F7CB2F74F5CE61D34FBA6F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467896   (1017450) от 06.05.2021
+
+Pulse - Worlds Apart (2004) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin' I Can Do About It
+02. Worlds Apart
+03. Price Of Loving You
+04. Talk To My Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C981837F71A223F6D1C5FEA05737E5CDE29B83D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467850   (1017560) от 05.05.2021
+
+Animal ДжаZ - Время любить (Акустика) (2021) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017560.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Так надо
+2. Апрель
+3. Мистика
+4. Чувства(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:986CEDA00511B90728B903B3EF5BB735A12D7CD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467727   (1017563) от 05.05.2021
+
+Greta Van Fleet ‎ - The Battle At Garden's Gate (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Above (5:41)
+02. My Way, Soon (4:15)
+03. Broken Bells (5:51)
+04. Built By Nations (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DEFDADE44DF715D770F120D93ABF59D7502341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467830   (1017569) от 05.05.2021
 
 Пляж - Лучшее за 20 лет (2021) [MP3|320 Kbps] <Pop Punk>
@@ -397,300 +696,6 @@ Heart - Passionworks (1983) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00381F71B0A536D0778B018BC6B67EB0E3F0ED23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467635   (1017771) от 04.05.2021
-
-Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watanabe (3:56)
-02. Hypnotized (4:57)
-03. (I Fell So) Amused (3:43)
-04. Pictures (Of My Favorite Things) (6:04)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41E1F5D60CA68AC2639E4670B2791819E682FAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467669   (1017776) от 04.05.2021
-
-Mystic Storm - From The Ancient Chaos (2021) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ночной кошмар
-02. Звон мечей
-03. Секрет стали
-04. Обезглавлен(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A5C53F396C624431DE69AE1BF1B8C5EB97EC59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467501   (1017780) от 04.05.2021
-
-Heart - Rock The House Live! (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Child
-02. Fallen From Grace
-03. Call Of The Wild
-04. How Can I Refuse(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929FF273DA7C674B1030CC230328EE79E8DADFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467113   (1017861) от 03.05.2021
-
-The Electric Cactus - The Electric Cactus (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel [00:03:07]
-02. Psycho [00:04:23]
-03. Dance Real Rude [00:05:20]
-04. Gemini [00:03:50](   Читать дальше...   )Жанр: Stoner, Heavy, Blues RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764A5A924AB54EB6FD392A643045F3A752867CE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467243   (1017933) от 03.05.2021
-
-Touch - The Complete Works - Definitive Edition (2008) 2xCD, Compilation, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017933.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - 1979:
-01. Don't You Know What Love Is
-02. When The Spirit Moves You
-03. Love, Don't Fail Me(   Читать дальше...   )Жанр: AORПродолжительность: 02:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B336E84BD896EFD598A1F67D892AA4FCE7D9DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467131   (1017934) от 03.05.2021
-
-Static-X - 12 Albums (1999-2020) [FLAC|Lossless|image + .cue] <Industrial Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Static-X - Американская метал-группа из Лос-Анджелеса, Калифорния, играющая преимущественно в стиле индастриал-метал с элементами ню-метала.Жанр: Industrial Metal, Nu MetalПродолжительность: 08:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F693448BA9FFFD48CE95A02D5BAD328AA0F6C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467346   (1017935) от 03.05.2021
-
-Akira Kajiyama & Joe Lynn Turner - Fire Without Flame (2006) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day Away
-02. Fire Without Flame
-03. Survival
-04. Heart Against Heart(   Читать дальше...   )Жанр: AORПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1D65DDD5880880FD50CE4F9DF91B4131649C5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467123   (1017936) от 03.05.2021
-
-Freedom To Glide - Seed (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seed (0:57)
-02. Holding On (5:06)
-03. No Turning Back (4:18)
-04. Undertones Of War (4:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046FCB5D4CB19ECA7BDF487AEC3B2EF4DB52531A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467291   (1017952) от 03.05.2021
-
-Warrior Angel - Griffin 1.29, Chapter 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. Falling Angel
-03. Can't Live Without You
-04. Old City Boy(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6794B23508B7E7C64CE714A8625F1234B657D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467294   (1017959) от 03.05.2021
-
-Warrior Angel - Griffin 1.29, Chapter 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airborne
-02. All Time Low
-03. Come Back
-04. Don't You Cry(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A3086D782D04473C14AFF7C209EE892B62075A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304268   (1018009) от 02.05.2021
-
-Adrian Smith & Steve Harris (Iron Maiden) Projects (1989-2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Харрис  — британский рок-музыкант, основатель, бессменный бас-гитарист и автор большинства песен (как музыки, так и текстов) легенларной группы Iron Maiden. Он был движущей силой величайшей металлической группы всех времен и народов на протяжении более 35 лет. Живая икона, герой и абсолютный "зверь" баса, стиль игры Стива настолько уникален, что по (   Читать дальше...   )--------------------------
-
-01. City Of Fallen Angels (5:21)
-02. The Burning (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock |Продолжительность: 07:05:55 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44A8EBDEB67820A3C0460410D3EF8D5D15EF4F3
 ```
 
 

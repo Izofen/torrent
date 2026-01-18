@@ -1,3 +1,30 @@
+###  Публикация: 1121171   (800545) от 02.04.2017
+
+VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran – Shape of You
+002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+003. Kygo Selena Gomez – It Ain’t Me
+004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121292   (800547) от 02.04.2017
 
 VA - Deep House Collection Vol.115 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -665,33 +692,6 @@ VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199332   (801645) от 15.01.2018
-
-VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Laura Fygi  -  Good Morning Heartache  4:10
-02.  Diana Krall  -  Let's Fall In Love  4:19
-03.  Viktoria Tolstoy  -  From Above  4:32
-04.  Tony Bennett & Billy Joel  -  New York State Of Mind  4:35(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E27A74351204CE5DE2EF71DB9BCB97B47D62D
 ```
 
 

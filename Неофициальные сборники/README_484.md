@@ -1,3 +1,30 @@
+###  Публикация: 1214971   (761531) от 24.03.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat & Elderbrook  -  Cola (Robin Schulz Remix)  5:15
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+04.  G-Eazy & Halsey  -  Him & I  4:29(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231B40C47E68875F4422EDD17FE9EA2416160890
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215091   (761550) от 24.03.2018
 
 VA - Sky Радио: SKY Парад Top 20/Март (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214761   (762990) от 23.03.2018
-
-VA - Magic Piano Sounds (2018) [MP3|320 Kbps] <Piano, Classic, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Helene Grimaud  -  Johann Sebastian Bach (Partita or Violin Solo No.3 in E Major, BWV 1006 - 1. Preludio)  3:42
-02.  Martha Argerich  -  Peter Ilyich Tchaikovsky (Piano Concerto No.1 in B Flat Minor, Op.23, Th.55 - 1. Allegro Non Troppo E Molto Maestoso)  3:38
-03.  Rick Wakeman  -  Morning Has Broken  3:42
-04.  Friedrich Gulda  -  Wolfgang Amadeus Mozart (Piano Concerto No.27 (   Читать дальше...   )Жанр: Piano, Classic, InstrumentalПродолжительность: 04:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46C10CED821EB1CE0F9DC71AA33A28B186A929F
 ```
 
 

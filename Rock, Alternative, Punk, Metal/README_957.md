@@ -1,3 +1,300 @@
+###  Публикация: 1220056   (708004) от 17.04.2018
+
+Lacuna Coil - The Presence Of The Past (XX Years Of Lacuna Coil) (2018) 13CD Box Set [FLAC|Lossless|image + .cue] <Gothic Metal, Alternative Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lacuna Coil — итальянская музыкальная группа, созданная в Милане в 1996 году и играющая музыку в стилях «готический» и «альтернативный метал». Прежние названия: Sleep of Right и Ethereal. По словам участников группы, на их творчество оказали сильное влияние такие команды как Paradise Lost, Tiamat, Septic Flesh и Type O Negative.Список альбомов:
+CD1 | The EPs - Lacuna Coil | Halflife
+CD2 | In A Reverie
+CD3 | Unlashed Memories(   Читать дальше...   )Жанр: Gothic Metal, Alternative Metal, Symphonic Metal |Продолжительность: 10:11:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7946C6DCC23CA1A3F5ACB62B79F508EED1A226F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025841   (708027) от 13.06.2016
+
+Shakin' Stevens (Shaky) - Rock'n'Roll Greatest (1992) [APE|Lossless|image + .cue] <Rock & Roll, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Ole House
+02. Cry Lust A Little Bit
+03. Lipstick, Powder And Paint
+04. Green Door(   Читать дальше...   )Жанр: Rock & Roll, Classic RockПродолжительность: 01:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33E15FA4FE21B281224BA22A3550BA3ED78F70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025809   (708120) от 13.06.2016
+
+VA - The Battle of Metal, Vol. 3 (2016) [MP3|320 кб/с] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logical Terror - Ashes of Fate (feat. Threat Signal)
+02. Smash Hit Combo - In Game
+03. Break Down A Venue - Nights Like These
+04. Dust in Mind - How Can You(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 03:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579D7D1236EBD3F130AC8B584C6D708FA761CEA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220130   (708165) от 17.04.2018
+
+Большой Лебовски - Любовь (2018) [MP3|320 Kbps] <Grunge Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сестрички
+02. Летняя
+03. Футболист
+04. Зая(   Читать дальше...   )Жанр: Grunge Blues RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE91496022DB13371193AE8C4D82E3564E284B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219979   (708167) от 17.04.2018
+
+Blood Command - Cult Drugs (2017) [MP3|320 Kbps] <Alternative Rock, Deathpop, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ctrl+Art+Delete
+02. Cult Drugs
+03. Quitters Don't Smoke
+04. Nervous Laughter(   Читать дальше...   )Жанр: Alternative Rock, Deathpop, Hardcore, Female VocalПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1652A2A2F9231F8BED84E6090ED6ECEFAD42F0A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220199   (708173) от 17.04.2018
+
+Blackball Bandits - The Lost Mission (2018) [MP3|320 Kbps] <60's Surf Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackball Stomp
+02. The Lost Mission
+03. Great Sand Tune
+04. Slalom Under the Pier(   Читать дальше...   )Жанр: 60's Surf Rock, InstrumentalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E8ECC5361FBF6177E9C34873C789930F5DA98F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025892   (708200) от 13.06.2016
+
+Phil Lynott - Yellow Pearl - A Collection (2010) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yellow Pearl (Second 7" Remix) 1980/ 03:23/
+02. Dear Miss Lonely Hearts 1980/ 04:11/
+03. King's Call 1980 / 03:40/
+04. A Child's Lullaby 1980/ 02:43/(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4658E006CD68EFDE81D869A3522142B0FC6A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025820   (708201) от 13.06.2016
+
+Elton John - Elton John (2001) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your song
+02. Take me to the pilot
+03. Sixty years on
+04. Ballad of a well-known gun(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB6B322914F8CC8CD6F1F6F61161129F83FD92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025988   (708214) от 13.06.2016
+
+Raw Ensemble - Suffer Well (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Enemy
+2. Bad Religion
+3. The 5th Dimension
+4. Apocalypse(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0909D044BC473A0C144B9368BFC5EECB99AAF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791902   (708390) от 03.06.2014
+
+The Exies - 6 Альбомов (2000-2007) [MP3|158 - 320 кб/c]<Alt.Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708390.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Slow Drain
+2. Splinter
+3. Ugly
+4. What You Deserve(   Читать дальше...   )Жанр: Alt.Rock, Post-GrungeПродолжительность: 03:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7528B047277A68DF4BF0362C8389D49075A448FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131511   (708428) от 05.05.2017
+
+Kasabian - For Crying Out Loud (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ill Ray (The King) (03:40)
+ 02. You're In Love With a Psycho (03:36)
+ 03. Twentyfourseven (03:02)
+ 04. Good Fight (03:51)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:09:07 (00:51:04 + 01:18:03)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14309C418C776BE5B15E4C126C2D42753298043D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909212   (708563) от 05.05.2017
 
 Slaughter To Prevail - 1 альбом + 1 EP (2016-2017) [MP3|320 кб/с]<Deathcore>
@@ -404,303 +701,6 @@ Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F98B2C4D70E76BB8E5FABB818DFE2F7A8C976B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025488   (710021) от 12.06.2016
-
-Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trust
-02. Tragic Kind Of Love
-03. Bitch Like You
-04. Unshatter Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA627676F0E5ACA8C51E4A045BD7FD421A55FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025475   (710038) от 12.06.2016
-
-The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thick As Thieves (3:54)
-02. So Much Sky (4:29)
-03. Burn (3:29)
-04. Lost (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD169F770826EDFA958391E4C122C4C6CB5965B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219720   (710041) от 16.04.2018
-
-Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock & Roll, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Love (02:22)
-02. Wake Up Little Susie (02:03)
-03. Bird Dog (02:17)
-04. Claudette (02:15)(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B0EE16BFA7D3E651A36E8766DC5898684D8EB83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219777   (710043) от 16.04.2018
-
-Casino (Clive Nolan) - Casino (1992) Japan Press, 1994 [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Opera, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prey (10:38)
-i) Prey
-ii) Overheard in Passing # 1 (at the Bar)
-02. Crap Game (5:47)(   Читать дальше...   )Жанр: Neo-Prog, Progressive Opera, Prog-RockПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB4A4BB0A30B21FAC40CB90764F6E71721D696D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220009   (710047) от 16.04.2018
-
-Becoming A Hero - Becoming A Hero (2018) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shame On You
-02. Checkmate
-03. We're Done
-04. War(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66AFE7AF41894553411BBDF9DD065196A77C6F4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025602   (710179) от 12.06.2016
-
-Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Damnation
-03. Eclipse
-04. Fading(   Читать дальше...   )Жанр: Gothic Metal, SymphonicПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025617   (710187) от 12.06.2016
-
-Case Mayfield - I Wish This Was About You (2016) [MP3|320 кб/с] <Indie Pop Rock, Indie Folk, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alright Louise
-02. Crooked Waits
-03. Tomorrow Is My Slavename
-04. I Don’t Know I Don’t(   Читать дальше...   )Жанр: Indie Pop Rock, Indie Folk, AcousticПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF0777BE6B73EED311B5E896261DFC0CA204324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025618   (710191) от 12.06.2016
-
-Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Frame Of Mind
-2. Crusical Scene
-3. All I Really Want Explain
-4. If(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025408   (710196) от 12.06.2016
-
-Orymus - Miracles (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. End of the World (04:19)
- 02. Just One Minute (03:39)
- 03. Carried Away (03:47)
- 04. Testament of a Simple Man (04:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B04C03F6F78C4BF574E053B715139185545C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532917   (710303) от 21.02.2022
-
-Красная плесень - Пробивные хиты (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Самогон (New Version)
-2. У ресторана в Ленинграде (New Version)
-3. Нравится, не нравится - спи, моя красавица (New Version)
-4. Мы еб**ись первый раз (Hard Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF93DF1D7B3FDA0613494BE40FF19C508CA00C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131120   (710675) от 04.05.2017
-
-Billy Thorpe & The Aztecs - The Very Best Of Billy Thorpe & The Aztecs (1994) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock 'N' Roll City
-02. Southern Comfort
-03. Let Love Show The Way
-04. Rock Me Baby(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0C734DC103E4E2F894F91879193DD57B9068E4
 ```
 
 

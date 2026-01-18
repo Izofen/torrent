@@ -1,3 +1,57 @@
+###  Публикация: 1472034   (1014543) от 24.05.2021
+
+Обе-Рек - 13 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Накануне тепла [00:03:14]
+02. Куклы [00:04:24]
+03. Сердце [00:04:00]
+04. Жизни мало [00:04:47](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 13 CD, 11:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E30C0D579371FDE29C4602BBC4285E617B344EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471662   (1014967) от 21.05.2021
+
+Х*й Забей - Ходить по земле (2011) [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если срут (1:10)
+02. Подружить (1:10)
+03. Трофейной (1:43)
+04. Конвертация (1:30)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F5FB8F03BB447ADECDB3AFA82B35BF34E28397
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470697   (1015482) от 18.05.2021
 
 Х*й Забей - Вскрытие покажет (2012) [FLAC|Lossless|image + .cue] <Punk Rock>
@@ -641,60 +695,6 @@ Gothic Sky - In Search of a Lost Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7631D90EFE9EC3DC1629B72683509658EA3E75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455831   (1025495) от 20.03.2021
-
-Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Protoxidation (Ouverture) 02:08
-02. The Space Between Us 04:04
-03. No More Pain 04:50(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15ADBE6E0540A17A6C03E97D4B7FBF2CC9E76368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455464   (1025619) от 19.03.2021
-
-VA - Tribute To Красная плесень (2014) 2CD [FLAC|Lossless|image + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старый газовый котёл - Клава              [3:12]
-02. Мазер факер - Мы е... первый раз          [2:48]
-03. Палата № 6 - Г.Ю. Рок-н-ролл              [3:11]
-04. Зюг-Вест - Желтая подводная лодка         [2:15](   Читать дальше...   )Жанр: PunkПродолжительность: 02:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4286C4ABDCDFAC2BAFFC8B4640CB543F3CA50C80
 ```
 
 

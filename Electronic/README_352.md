@@ -1,3 +1,57 @@
+###  Публикация: 1132883   (697228) от 11.05.2017
+
+VA - Top 20 Chillout May (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Seven24 & S.A.T - Infinity (feat. Allam)  4:56
+02.  Den Shender - Under The Water (feat. Esoreni)  4:06
+03.  Diamans - Magic (Original Mix)  5:46
+04.  Alex Lead - Tiran Island (Original Mix)  1:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F8A5640AB9602F8E42B9AC1C3CD57B47369AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132872   (697231) от 11.05.2017
+
+VA - Slow Down Ibiza Vol.1 (Balearic Calm Chill Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nicole Starling - Into It  3:17
+02.  Ardis & Newmann - Smooth Move  6:15
+03.  Peter Pearson - Sun Lover  6:07
+04.  Bodo Schopf - We Lost A Good Friend  6:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFF56AF0A4F403E7CB4EAC15985489795F00B0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186895   (697331) от 16.08.2020
 
 Zodiac - Лучшее (Золотая Коллекция) (2008) 2CD [FLAC|Lossless|image + .cue] <Synthpop, Electronic>
@@ -640,60 +694,6 @@ VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259455   (699637) от 09.03.2019
-
-Subskan - Discography 10 Releases  (2002-2018) Ambivalence, Hymen Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Breakcore, Illbient, Industrial, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Function (05:00)
- 02. Physical (13:42)
- 03. Material (04:21)
- 04. Target (10:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient/IDM/Drone/Abstract/Illbient/ExperimentalПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39576EF87103C69C675C43483E5C2714C07EE42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288082   (699758) от 09.03.2019
-
-VA - Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura & Kazusa - Move On (Original Mix)
-02. Shingo Nakamura & Stendahl - Tribute (Original Mix)
-03. Shingo Nakamura & RNX - Oregon (Shingo Nakamura Mix)
-04. Shingo Nakamura - Thousands Of Sounds (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D428D8175EAB5CE6F5E1C8498FCCA1866E16A01
 ```
 
 

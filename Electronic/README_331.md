@@ -1,3 +1,57 @@
+###  Публикация: 1140845   (653940) от 08.06.2017
+
+Moskwa TV - 3 Albums (1985-1991) [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изначально Moskwa TV был задуман как полностью инструментальный немецкий проект. В начале 1980-х, Andreas Tomalla (Talla 2XLC) начал свою карьеру в качестве диджея во Франкфурте, решив поставить на творчество Kraftwerk и Depeche Mode. Далее вместе с Ralf Henrich (RaHen), основали группу Moskwa TV, с очень современным для того времени техно звучанием. Новаторский (   Читать дальше...   )Список альбомов:
+1985 - Dynamics & Discipline
+1987 - Blue Planet
+1991 - Javelin(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 02:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0071C263A85968B5F867A4EDA94D65AB129B7F27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140909   (653951) от 08.06.2017
+
+Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wsahl - Boom (original mix) (04:26)
+02. Damon Rush - Club Shakin' (Wsahl remix) (03:28)
+03. Wsahl - Eb 0727 0541 (original mix) (04:50)
+04. Wsahl - Saturday (original mix) (03:28)(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8C039F3FAC742D95E572FD225CD1C940663DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539677   (653962) от 29.03.2022
 
 Kraftwerk - Remixes (2020) Remastered, Reissue [FLAC 2.0|48, 44.1/16, 24|tracks|WEB-DL] <Electronic, synth-pop, krautrock>
@@ -644,60 +698,6 @@ Marina And The Diamonds - Electra Heart (2012) Deluxe Edition [FLAC|Lossless]<Po
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904233   (655386) от 02.06.2015
-
-VA - Future Sound Of Egypt Vol. 3 (Mixed By Aly & Fila) (2015) [FLAC|Lossless]<Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Light Painting (Intro Mix) (2:57)
-02. Hazem Beltagui - Unbroken (4:23)
-03. Tomac - Gabrielle (4:06)
-04. Venom One feat. Sarah Howells - Rush (2:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865C05F372A4BC90C8885FE6A04D5B1C608523C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904059   (655569) от 02.06.2015
-
-She Said Disco - Lady Airplane EP (2012) [MP3|128 кб/с]<Disco, House, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lady Airplane [4:34]
-02 Seduction Lesson [5:37]
-03 Ocean Love [4:51]
-04 Lady Airplane (Jean Tonique Remix) [4:47](   Читать дальше...   )Жанр: Disco, House, ElectroПродолжительность: 00:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52726B044E7C11A87AF17D1919AB5E4A2942AC58
 ```
 
 

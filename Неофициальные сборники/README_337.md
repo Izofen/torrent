@@ -1,3 +1,30 @@
+###  Публикация: 1152639   (565400) от 23.07.2017
+
+VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liu - Don't Be Scared
+02. Sick Individuals - Never Say Never
+03. KREAM feat. Clara Mae - Drowning
+04. PSY - Love (feat. Taeyang)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044683   (565479) от 20.08.2016
 
 VA - Deep House Collection Vol.85 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House, Vocal House>
@@ -683,33 +710,6 @@ VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39A0767B9B1E84D7E5941615A22EAE7BAF038BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152165   (566978) от 22.07.2017
-
-VA - Impulse 6 - Так себе музычка для ржавых корыт (2017) [MP3|320 Kbps] <Deep House, House, Trap, Drum & Bass, DubStep, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566978.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  CMRN & Emma Sameth - Hold On (Original mix)  5:50
-002.  Deep Tone - Feelings Of Love (Original Mix)  5:24
-003.  Nari & Milani feat. Tava - I Am Alright (Extended Mix)  5:43
-004.  Oliver Heldens - Ibiza 77 (Rootkit Remix)  3:12(   Читать дальше...   )Жанр: Deep House, House, Trap, Drum & Bass, DubStep, Electro, ProgressiveПродолжительность: 09:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CA76F1A484ACAA8BED1273E84A4B9165884879
 ```
 
 

@@ -1,686 +1,675 @@
-###  Публикация: 1277311   (785451) от 20.01.2019
+###  Публикация: 1209073   (779521) от 25.02.2018
 
-VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh, Steelfish-Love & Money (Radio Edit)
-02. Audax, Adriano Pagani, Dimy Soler-Fire & Ice (Radio Edit)
-03. Tocadisco-Feeling Irie (Radio Edit)
-04. MXB-Bottle Runs Dry (MBP Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, FunkyПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277512   (785452) от 20.01.2019
-
-Журнал | Дачный клуб №2 (февраль 2019) [PDF]
+Журнал | Дачные секреты №3 (34) (март 2018) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785452.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
+«Дачные секреты» - это универсальный помощник всем садоводам и огородникам. В каждом номере: наиболее интересные советы читателей, мнение экспертов и рекомендации специалистов по благоустройству садового участка. Основные рубрики журнала: на огороде, работы в саду, плодовый сад, цветник, своими руками, будьте здоровы, дачные рецепты.
+
+Основные рубрики журнала: на (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C94E239D10E234D50C05F456D047575F739DEBEF
+magnet:?xt=urn:btih:A43B8B98C04BCE02653FBEB4747F1AC9F038E3BF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277445   (785453) от 20.01.2019
+###  Публикация: 1208997   (779522) от 25.02.2018
 
-Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Dub Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation (04:55)
- 02. Quantum Prayer - One (04:30)
- 03. A Glowing, Floating Light (07:00)
- 04. Ripples in Shallow Water (09:59)(   Читать дальше...   )Жанр: Ambient, Field Recording, Dub TechnoПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0581FE8AB81A4EC93CAA39481D7D51DBD8A488F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277394   (785454) от 20.01.2019
-
-Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Evil
-02. Wild Butterflies
-03. Last December
-04. How Many More Goodbyes(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C198655D7120BB46DFCDA5D9DEC5A801F01F400D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277371   (785455) от 20.01.2019
-
-Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loser's Game
-02. Delusions of Grandeur
-03. The Fall
-04. Underworld (Manala)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB19AA4AA7F3BCC356E195707242C714A537690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277237   (785456) от 20.01.2019
-
-Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raped for Rent (3:00)
- 02. Gore Epitomite (0:47)
- 03. Seven19 (2:58)
- 04. Deviant Pleasures (2:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EA780C7E7AFFD0BCD3D48697851FED1B94F147
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277307   (785457) от 20.01.2019
-
-MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - UH
-02. MRUKS - FOX
-03. MRUKS - Tempore
-04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277298   (785458) от 20.01.2019
-
-VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Vegas - Let The Bass Kick (Radio Edit)
-02. Martial Flowz - Arena
-03. Tcline - Insanity
-04. Glamrock Brothers - Long Train Runnin (Walker &  Daniels Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275852A4C307BB45572B07BBCD4D2CB393236E88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277409   (785459) от 20.01.2019
-
-Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vitrification of Blood (Part 1) (13:09)
-02. Chaoplasm (5:34)
-03. Hidden Species (Vitrification of Blood Part 2) (7:01)
-04. Meticulous Soul Devourment (4:16)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B40E0DD4D939B5F7FF8E66D376CD09437E89B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277375   (785460) от 20.01.2019
-
-Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consuming the Mana
-02. The Alien
-03. Unworthy
-04. Soul Searcher(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203991   (785461) от 04.02.2018
-
-Св. Аммон и др. | Творения древних отцов-подвижников (2012) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые читателю «Творения древних отцов-подвижников» являются переизданием ставшей библиографической редкостью книги, вышедшей в 1990-е годы. В издании представлены переводы святоотеческих аскетических сочинений таких известных авторов Египетской пустыни IV века, как св. Аммон, св. Серапион Тмуитский, преп. Макарий Египетский, Стефан Фиваидский, блж. Иперехий, (   Читать дальше...   )Жанр: ПравославиеПеревод: А.И. СидоровФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204136   (785462) от 04.02.2018
-
-Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental, IDM, Techno>
+ActivePresenter Professional Edition 7.1.0 RePack by вовава [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785462.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Voices (4:42)
- 02. Cascades (4:56)
- 03. Forest Hills (5:30)
- 04. Some Stripes (6:37)(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, TechnoПродолжительность: 01:02:20
+ActivePresenter — программа для создания презентаций и интерактивных обучающих видеоуроков. С помощью её вы сможете осуществлять захват изображения с экрана и сохранять эту информацию в различные форматы файлов. Весь процесс записи происходит в режиме реального времени.
+Для максимального удобства в программе есть возможность создания интерактивного оглавления. С (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1B6C276B3D73FAC67BD97FEF3BE092B80F0BA6C
+magnet:?xt=urn:btih:90A8C25E0DF772F6D6FB91556060733296A59393
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203907   (785463) от 04.02.2018
+###  Публикация: 1209080   (779523) от 25.02.2018
 
-VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
+Movavi Video Editor 5 Plus 5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно больше инструментов для создания фильмов, скачайте Movavi Видеоредактор Плюс. В этой программе есть все функции обычного Видеоредактора, а также новые дополнительные возможности – например, анимация объектов.Тип издания: macOS SoftwareРелиз состоялся: 26.12.2017Разработчик: MovaviПоддерживаемая ОС: Mac OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A0BB73B5E36CBE8603B2F665142ED6417FE639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208695   (779524) от 25.02.2018
+
+VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785463.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 2Gemeinsam - Want Some Love (Radio Edit)
-02. Scheinizzl - One More (Radio Edit)
-03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
-04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Attila Syah pres. Gamma feat. Cari  -  Every Goodbye (Original Mix)  4:31
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Three Faces feat. Christian Zechner  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:37:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
+magnet:?xt=urn:btih:2024338DE8D81F407F6B7EAEED5820D9F90FD303
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204007   (785464) от 04.02.2018
+###  Публикация: 1208647   (779525) от 25.02.2018
 
-А. Алтаев | Старая песня яблонь (1911) [PDF]
+VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - Folded Wings 3:02
+02. Craig Connelly Feat. Kate Miles - Lost Without You 3:57
+03. Tiesto Feat. Christian Burns - In The Dark (First State Remix) 3:47
+04. Ferry Corsten - Wherever You Are 2:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB9CF2B7C7F96A86B96FD6B900ADD24C21C5D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209152   (779526) от 25.02.2018
+
+The Big Blue House - Binne my (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liar (04:23)
+02. Moments of rain (05:25)
+03. Black eyes (06:34)
+04. Playing this tune (04:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7507A50ED230AAD7173E1542861E6D24639C63B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209130   (779527) от 25.02.2018
+
+В. Ф. Плетнев | Прав ли т. Троцкий [речи о пролетарской культуре] (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тов. Троцкий, в связи с его выступлениями, за последнее время уделил много внимания пролетарской культуре и... Пролеткульту.
+
+В частности выступления тов. Троцкого на совещании в Агитпропе ЦК по вопросу о художественной литературе и на всероссийском Съезде клубных работников заключали в себе острую критику позиции пролетарской культуры. При чем, и в том, и в другом (   Читать дальше...   )Жанр: История, политология, культурологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10FFD175839F3537305A3507BF05D8F6620817D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209054   (779528) от 25.02.2018
+
+MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 01:
+01 - Moonlight Nocturne (Castlevania: Symphony Of The Night)
+02 - Wicked Child (Castlevania)
+03 - Opposing Bloodlines (Castlevania: Rondo Of Blood)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209135   (779529) от 25.02.2018
+
+VA - PSY: Megapack Psychodelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blastoyz  -  Mandala (Original Mix)  5:58
+02.  Strange Blotter & Mystic  -  Ozrayen (Original Mix)  7:52
+03.  Mindwave  -  3 6 9 (Original Mix)  8:45
+04.  Spectrum Noise  -  Journey (Original Mix)  6:16(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 06:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E2900D4566B36FFDC6A7F8189ABB7769B4F3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209210   (779530) от 25.02.2018
+
+VA - Empire Records - Deep Blue (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Judge - Kinda Love (David K. Remix)
+02. AJ Afterparty - Sound of Heartbreak (Original Mix)
+03. Tolga Mahmut - Alive (Original Mix)
+04. Lost Frequencies & Zonderling - Crazy (Denis First & Reznikov Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B786E1F4D78A11797B1F5EE2175790ACD460ECA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209259   (779531) от 25.02.2018
+
+Trace Adkins (Трэйси Эдкинс) - The King's Gift: A Celtic Christmas Collection (2013) Caliburn Records [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс — американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. The Wexford Carol 3:53
+02. Tannenbaum 3:49
+03. O' Come Emmanuel 5:17
+04. Away In A Manger 3:20(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76524274F34BCEBF7CB0EE7748A0BE507BF557B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208583   (779532) от 25.02.2018
+
+Подборка книг | Звездочки [7 книг] (1912-1913) [JPG]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785464.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+Сборник сказок и рассказов для младшего и среднего школьного возраста.Жанр: Детская проза, СказкиФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B131BC0E4478C35DDCEA27CB180B3CF1A676608
+magnet:?xt=urn:btih:EC21ADBEA5637E6F0C0843DFB4FF158743662385
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203990   (785465) от 04.02.2018
+###  Публикация: 1209013   (779533) от 25.02.2018
 
-Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
+VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
+02.  Liam Wilson  -  Always With Me (Edit)  5:37
+03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
+04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208462   (779534) от 25.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Конькобежный спорт. 6-й День соревнований: Мужчины. 10000 м (15.02.2018) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779534.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 февраля 2018 года, четверг. 14:00 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Конькобежный спорт. 6-й День соревнований:
+Мужчины. 10000 м(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE93A6A9D7BFF7FBC45E0111C98A7FBC1FE619BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209114   (779535) от 25.02.2018
+
+VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boss Axis - Challenger (Alle Farben Remix) (6:08)
+02. Tarranado - Ain't Enough (Murat Acar Remix) (6:14)
+03. Panik Pop - Coax the Creature Out (Feat. Benjamin Galliers) (Club Mix) (6:19)
+04. Naturtalente - Mondlandung (3:04)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 06:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209140   (779536) от 25.02.2018
+
+The Three Sounds - 8 Classic Albums (1958 - 1960) 4CD, 2011, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785465.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779536.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Drought [09:23]
-02. Felicite [08:26]
-03. Orientale [17:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:12:57
+01. Tenderly [04:37]
+02. Willow Weep For Me [04:42]
+03. Both Sides [04:41](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 05:00:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
+magnet:?xt=urn:btih:C602DCBF65904AD24F307E6B586D6BBFBD17D071
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204004   (785466) от 04.02.2018
+###  Публикация: 1209143   (779537) от 25.02.2018
 
-Святитель Иоанн Златоуст | Духовный жемчуг (2013) [PDF]
+Марк Ефетов | Письмо на панцире (1976) [DJVU]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785466.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга содержит избранные места из творений Иоанна Златоуста — архиепископа Константинопольского. Святитель Иоанн оставил нам огромное богословское наследие. В своем изъяснении Священного Писания он показывал, как Библия может стать подлинной наставницей человека. И сегодня слова святителя, обращенные к каждому из нас, дышат силой Святого Духа: «Грех не в нашей природе; (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+Повесть о пионерском лагере Артек, об интернациональной дружбе детей, о судьбе девочки-пионерки, побывавшей в Артеке, и её отце-инженере, участнике войны, который помог раскрыть тайну надписи на черепахе.Жанр: Детская прозаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
+magnet:?xt=urn:btih:7855A6CCBD0551A5C88E4F425A7CB60D60A3AA0E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204128   (785467) от 04.02.2018
+###  Публикация: 1209093   (779538) от 25.02.2018
 
-Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
+Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Affection (06:22)
-02. Imperfect (06:05)
-03. Nefario (06:21)
-04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
+01. Radical Transparency (10:00)
+02. The Inertia of Time (09:49)
+03. Casting Ourselves Back into the Past (10:19)
+04. Nothing Ever Transcends Its Immediate Environment (11:20)Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
+magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204147   (785468) от 04.02.2018
+###  Публикация: 1209111   (779539) от 25.02.2018
 
-VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ThC Brothers - Bring Me Back To The Underground (original mix)
-02.  Gosha, Dessy Slavova & Anton Ishutin - I Know You (Anton Ishutin remix)
-03.  Albena Flores & Indira Boka - Rondo Minimale (original mix)
-04.  Jaques Le Noir - Oopart (original mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567E9A94F6E2D0A2D5167F0615B04CB9776017A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204055   (785469) от 04.02.2018
-
-VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Makia Blue - Dreams In The Twilight: Psychedelic Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785469.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Homme - Mountains Of Prologomena (feat Nefeli) (04:05)
-02. Outpass - Apela (05:19)
-03. Craun - Birds Of Dissonance (04:14)
-04. Melorman - Mrs Sun In Her Eyes (03:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:51
+01. Voyage to Farland 03:03
+ 02. Siberian Steppe 03:43
+ 03. Heal Me 03:42
+ 04. Shamans Flight 03:03(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFE5F7AF6B8077AD3A23E07BB1231E2A28B638E2
+magnet:?xt=urn:btih:7C76D7DC337BD7B3993F1FFB09D4B771BA519612
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203868   (785470) от 04.02.2018
+###  Публикация: 1209138   (779540) от 25.02.2018
 
-VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive House>
+А. Алтаев | Тепла и света (1912) [PDF]
 
->>Electronic
->>House
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785470.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dennis Bune  -  Dark Sky (Original Mix)  8:52
-02.  DiCristino  -  Infinite (Micfreak Remix)  5:46
-03.  Foxt & Prodeeboy  -  New Era (Original Mix)  7:43
-04.  Dezza  -  Looking For (Extended Mix)  7:16(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:48:58
+Сборник рассказов для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4428D786DEB4109447208266A2A7083E2D8F84E8
+magnet:?xt=urn:btih:9891616533DAC46F3308C3189A2BDFB95E847F28
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204001   (785471) от 04.02.2018
+###  Публикация: 1209146   (779541) от 25.02.2018
 
-Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
+Trace Adkins (Трэйси Эдкинс) - Comin' On Strong (2003) Capitol Records Nashville [MP3|320 Kbps] <Country, Country Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Hot Mama 3:21
+02. Comin' On Strong 3:02
+03. Then Came The Night 4:38
+04. I'd Sure Hate To Break Down Here 4:01(   Читать дальше...   )Жанр: Country, Country Rock, Folk RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71615EB86C1013AB62373AC9D78AD7593CE878F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209147   (779542) от 25.02.2018
+
+Trace Adkins (Трэйси Эдкинс) - Something's Going On (2017) Wheelhouse Records, BBR Music Group [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трэйси Эдкинс - американский кантри-певец и актер. Он выпустил несколько студийных альбомов и компиляций, за период его творчества множество синглов попадали в кантри чарты «Billboard». Все, кроме одного из его студийных альбомов, получили «золотой» и «платиновый» статусы в Америке. В мае 2013 года вышел 14-й студийный альбом певца - «Love Will...», который был издан (   Читать дальше...   )01. Ain't Just the Whiskey Talkin' 3:26
+02. Jesus and Jones 3:46
+03. Watered Down 3:08
+04. Something's Going On 3:48(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF8AC58CF61E81A1E4DED0C82E996EE5D018577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209132   (779543) от 25.02.2018
+
+Gene Ammons - A Stranger in Town (1954 - 1970) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785471.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Domino [04:22]
-02. Old Folks [06:44]
-03. My Little Red Nose [05:51]
-04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
+01. The Song Is You [09:46]
+02. Light'n Up [04:03]
+03. Short Stop [03:36]
+04. They Say You're Laughing at Me [04:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
+magnet:?xt=urn:btih:D2B1AD943535F42A0287EA19403E8171BBCA48D8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277390   (785472) от 20.01.2019
+###  Публикация: 1208586   (779544) от 25.02.2018
 
-Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+Максим Леонидов выпустит книгу стихов
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Поговорим
+>>Новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785472.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free Fire Zone
-02. Change of Front
-03. Beyond Nightmares
-04. Trial by Combat(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:29
+Издательство "ЭКСМО" готовит к выходу книгу стихов Максима Леонидова "Всё это и есть любовь".В сборник войдут тексты песен бит-квартета Секрет и последующих сольных проектов Леонидова. ﻿"Дух приключений, вихрь романтики, атмосферу любви, ветер свободы, подлинность ценностей, "сердце северных гор" подарят стихотворения Максима (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:075FEE05577A5E3F9D9B95A2F67F9E4AB728B463
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277068   (785473) от 20.01.2019
+###  Публикация: 1207893   (779545) от 24.02.2018
 
-Jim Bryson - Tired Of Waiting (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+Скиф (2017) WEB-DL [H.264/1080p-LQ]
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>9
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785473.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Flurry Of Strikes
-2. Labour Drive
-3. Cerulean
-4. Cut Bait(   Читать дальше...   )Жанр: FolkПродолжительность: 00:19:05
+Действие фильма происходит во время смены цивилизаций. В Евразии начинается новая эра. Ушли в небытие гордые воины — скифы, их вымирающие потомки превратились в безжалостных наемных убийц, «волков Ареса». Ратнику Лютобору предстоит тяжелое испытание. Втянутый в междоусобные интриги он отправляется в опасный путь ради спасения семьи, а его проводником становится пленный (   Читать дальше...   )Производство: Россия, Кинокомпания СТВЖанр: Драма, История, Фэнтези, Боевик, ПриключенияРежиссер: Рустам МосафирАктеры: Алексей Фаддеев, Виталий Кравченко, Александр Кузнецов, Александр Пацевич, Юрий Цурило, Андрей Пермяков, Василиса Измайлова, Алексей Овсянников, Фёдор Рощин, Рустам МосафирПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:40:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DBABB335F1B8E32D1FDAE886FD6EC487AD72ACA
+magnet:?xt=urn:btih:A931257CCFC8CD9B39343F06B0DB811A397AADEE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277418   (785474) от 20.01.2019
+###  Публикация: 1170346   (779546) от 24.02.2018
 
-Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
+Хороший доктор / The Good Doctor (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-14 из 18) NewStudio (обновляемая)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785474.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somebody Loves Me
-02. I've Grown Accustomed To Her Face
-03. Unforgettable
-04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
+История молодого талантливого врача с синдромом саванта, обладающего уникальными способностями — невероятной памятью и фантастической чувствительностью к проблемам, вспыхивающим внутри человеческого организма. Герой становится блестящим хирургом, несмотря на то, что в личностном плане его развитие соответствует развитию десятилетнего ребёнка…Производство: СШАЖанр: драмаРежиссер: Сет Гордон, Майк ЛистоАктеры: Фредди Хаймор, Николас Гонсалес, Антония Томас, Чуку Моду, Бо Гарретт, Хилл Харпер, Ричард Шифф, Грэм Верчир, Ирен Кэн, Ребекка Хусейн и др.Перевод: многоголосый закадровый, профессиональный - NewStudioСубтитры: русские (форсированные, на надписи)Продолжительность: ~00:43:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277320   (785475) от 20.01.2019
-
-Wondershare Recoverit 7.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (был Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F9292713D32260A385525D2E8664CA62A086EDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277241   (785476) от 20.01.2019
-
-Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rectal Wench (2:50)
- 02. Feasting on Mankind (1:51)
- 03. Devour Humanity (2:00)
- 04. Lacerations of an Unclean Twat (2:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36D34041F44C52F8791AE997E30D4AC97265829
+magnet:?xt=urn:btih:56209A7280541650BC0FBE7081DFC8E5E2F8C2D3
 ```
 
 

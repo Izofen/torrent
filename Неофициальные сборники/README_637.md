@@ -1,3 +1,30 @@
+###  Публикация: 976938   (967718) от 19.01.2016
+
+VA - Звездный снегопад хитов (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emin - Одна На Миллион
+02. Andrea Tufo - Keep Dancing (Original Mix)
+03. Emin - Стань Моей
+04. G&G Feat. Brick Brixton - Find The Night(   Читать дальше...   )Жанр: PopПродолжительность: 06:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1DFE1EA1425BEDE6D54EB5F5CFBD559939E088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977117   (967745) от 19.01.2016
 
 VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
@@ -710,31 +737,6 @@ VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975736   (970186) от 16.01.2016
-
-VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club House, Vocal House, Electro House, Club, Trance, House, Deep House, Progressive, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970186.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:01
-002. IOWA - Одно и то жеЖанр: Club House, Vocal House, Electro House, Dance, Club, Trance, House, Deep House, Progressive, Chillout, Dubstep, PopПродолжительность: 07:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
 ```
 
 

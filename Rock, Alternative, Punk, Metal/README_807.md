@@ -1,3 +1,57 @@
+###  Публикация: 1213191   (549480) от 26.07.2018
+
+Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest Show On Earth (Remastered) (23:59)
+ 02. Elan (Remastered) (4:47)
+ 03. My Walden (Remastered) (4:42)
+ 04. Storytime (Remastered) (5:31)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 02:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7747A0B0011A38E6787139CA3FC739FEA932776F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309816   (549522) от 21.06.2019
+
+Комсомольск - День психа (2019) EP [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Что спрятано в моих карманах
+2. Чёрный квадрат
+3. Эйфелева башня
+4. Мы ищем человека(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91CF6269A40060D1AEB4AF539E7E754B216FB8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211883   (549569) от 26.07.2018
 
 Nightwish - Decades (2018) 2CD Compilation [MP3|320 Kbps] <Symphonic Power Metal>
@@ -641,60 +695,6 @@ Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45EB7DD7F1952CDB3B0CEEF5CC3ACBDAFE8425DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046884   (551024) от 28.08.2016
-
-Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turns Out You're Not A Cowgirl After All 03:39
-02. Deadrie Fell's Dog Park Blues 04:01
-03. Future Wolf & The Gay Parisian Milk Incident 03:23
-04. House Fire In The Origami District 02:21(   Читать дальше...   )Жанр: Hard rock & BluesПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F1800D933A661644E0407D7F66E4737D678AF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046725   (551028) от 28.08.2016
-
-Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive  04:04
-02. Let It Rain  03:07
-03. Run For Your Life  03:41
-04. The Innocent Ones  03:18(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F334ADDAA0E8FF77281E19EBB2567AE55F5E6EC
 ```
 
 

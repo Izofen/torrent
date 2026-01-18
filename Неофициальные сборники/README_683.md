@@ -1,3 +1,30 @@
+###  Публикация: 1439745   (1039555) от 14.01.2021
+
+VA - Glam Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите послушать действительно качественную музыку, которая будет в меру спокойная и в меру энергичная, то представляемый Вам альбом под названием "Glam Deep House" это то, что нужно чтобы скоротать вечер.001. Adryiano - She's Alright
+002. A Vision Of Panorama - Atlantic Dawn
+003. Skyline Project - Mountain Ride
+004. Richard Scholtz - Belmont Apartment(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51B07DF59AFC1EE56E798ED9AD765AFE946044A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439561   (1039560) от 14.01.2021
 
 VA - Beatport Deep House: Electro Sound Pack #220 (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -668,33 +695,6 @@ VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC61344E058B34DCD3F964E039D1984B3BD85112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438874   (1040640) от 10.01.2021
-
-VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Someone Like You (4:45)
-02. Alessia Cara - Scars To Your Beautiful (3:50)
-03. Alicia Keys - Underdog (3:28)
-04. Anitta, Myke Towers, Cardi B - Me Gusta (3:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477A98FC1E45A03B995EB1CFAAFF6D1F6F6B676A
 ```
 
 

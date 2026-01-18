@@ -1,3 +1,27 @@
+###  Публикация: 616575   (974801) от 10.02.2013
+
+VA - Ultimate Classical Guitar - The Essential Masterpieces (2008) 5CD, Box Set [FLAC|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical GuitarПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 438267   (974814) от 19.01.2012
 
 Hans Zimmer - Гладиатор / Gladiator (2000) [MP3|320 kbps]<OST>
@@ -736,33 +760,6 @@ Choir of Young Believers - 2 альбома (2008-2012) [FLAC|Lossless]<Avant-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6446DE5A916F2EAF80A5C685F653F2E87A188B02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974221   (978150) от 10.01.2016
-
-VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arrabal
-02 - Verdemar
-03 - Che bandoneon
-04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
 ```
 
 

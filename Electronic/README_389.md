@@ -1,3 +1,57 @@
+###  Публикация: 1277919   (775091) от 22.01.2019
+
+VA - Top 20 Music For Relax (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soty & Seven24 - Sotto Voce (Original Mix) 4:08
+02. Alexander Muratovsky - External World (Original Mix) 3:53
+03. Jack-O'-Lantern & Little Witch - Morning Desire (Original Mix) 4:26
+04. CJ RCM - Inception (Original Mix) 4:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753EDB0ECAF791D50BF7085C183B4047F6153A11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277900   (775095) от 22.01.2019
+
+John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossless|tracks + .cue] <New Wave, Lo-Fi>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streetlight (2:53)
+ 02. Quantum Leap (2:53)
+ 03. ...And the Rain (2:47)
+ 04. Hey Moon (4:09)(   Читать дальше...   )Жанр: New Wave, Lo-FiПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B079F47B2314E13605785ECE52EBBA36F5178C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277806   (775096) от 22.01.2019
 
 Steve Good (aka Puff Dragon) - Everything's Inside Everything Else (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
@@ -632,60 +686,6 @@ VA - The Ultimate Lounge Collection Vol.3 (2018) [MP3|320 Kbps] <Lounge, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA2DEDA82338D56D2634236B40DEA29B48D49701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212386   (776132) от 11.03.2018
-
-VA - Chillout For Dinner (Exclusive Selection For Cool People) (2018) [MP3|320 Kbps] <Ambient, Drone, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davin Van Damme - Best Works (Good Chill Edit) 03:24
-02. Gomer Charlier - Exodus Right (Sun Chill Mix) 03:42
-03. Mitchell Collins - Image Line (Da Jazz Trumpet Mix) 03:22
-04. Isaac Mayers - Factory (Baston Liegi Chillout Mix) 06:23(   Читать дальше...   )Жанр: Ambient, Drone, ChilloutПродолжительность: 02:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D29F622BA3B1CF8EF8C018AC75DEFE5E21E5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014779   (776148) от 08.05.2016
-
-VA - Sexomatic - Erotic Chill (2016) [MP3|320 кб/с] <Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canaall Groove - Post (Big Tits Mix) (03:22)
-02. Kam - Natur (Horgenic Mix) (04:21)
-03. Kama Dj - Knock Times (The Lady Mix) (05:31)
-04. DJKAM - No no (Hard Mix) (03:41)(   Читать дальше...   )Производство: AutomatЖанр: Lounge, ChilloutПродолжительность: 02:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58DB5EDD7201E1551D0DDA1A713677BD5856A9E
 ```
 
 

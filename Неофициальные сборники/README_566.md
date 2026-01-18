@@ -1,3 +1,30 @@
+###  Публикация: 1001812   (852291) от 29.03.2016
+
+VA - Super Bomb Electro 57 (2016) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACTI & Done Heavy — Ravelation (Original Mix) (4:29)
+ 02. Aspyer feat. Chris Reeder — Tear It Down (Original Mix) (3:49)
+ 03. Autoerotique — Ratchet (Original Mix) (3:33)
+ 04. AvAlanche — Jungleland (Original Mix) (4:56)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DDBD3948C949C0227784D97D581C2C3A2AEB07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001640   (852293) от 29.03.2016
 
 VA - Dange TV 1 (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
@@ -664,33 +691,6 @@ VA - Блатные струны на Шансоне 3 (2016) [MP3|256 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64680AD6950303DA14F4162A7B797A70849E5B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001078   (853886) от 28.03.2016
-
-VA - All Pop Tracks Place Today (2016) [MP3|320 кб/с] <R&B, Country, Hip-Hop, Indie, Alternative, Synthpop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabama Shakes - Gemini 06:35
-02. Mutemath - Vitals 03:58
-03. Walk The Moon - Come Under The Covers 03:51
-04. The Game - Bitch You Ain't Shit 03:05(   Читать дальше...   )Жанр: R&B, Country, Hip-Hop, Indie, Alternative, SynthpopПродолжительность: 10:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0BC49ADB744D5A0BBB9FF440A81DD22170AEC0
 ```
 
 

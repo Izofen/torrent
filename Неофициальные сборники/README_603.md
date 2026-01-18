@@ -1,3 +1,30 @@
+###  Публикация: 990132   (908010) от 27.02.2016
+
+VA - Super Dance Party vol.6 (2016) [MP3|320 кб/с] <Club , Dance , House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker - Faded (Salazar Pakyo Remix Club Edit)
+02. Javi Reina Feat. Jonny Rose - My Time (Dj Tht Edit)
+03. Klaas Feat. Jelle Van Dael - Far Away (Original Mix)
+04. Maestro Harrell feat. Posso - True (Radio Edit)(   Читать дальше...   )Жанр: Club , Dance , HouseПродолжительность: 05:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70520EF0DD95782352EFBC7E84EDD18B45F158E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990939   (908013) от 27.02.2016
 
 VA - Волчья доля 100 хитов (2016) [MP3|192-320 кб/с] <Шансон>
@@ -665,33 +692,6 @@ VA - Rush Funky - Essential Deep House (2017) [MP3|320 Kbps] <Tech House, Soulfu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D08B906818776D6D15B5FF362AAEEB0787DDCBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098436   (908956) от 30.01.2017
-
-VA - Top 100 шансон зимний. Часть №3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сергей Серафимов & Евгения Лихачева - C Меня Довольно 3:26
-002. Александр Казанцев - Цыган 3:38
-003. Вадим Васильев - Годы Мама Прошли Пролетели 3:42
-004. Алена Шарапова - Танго 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88918685217AE63787DA353E05F52DF4A7CA324
 ```
 
 

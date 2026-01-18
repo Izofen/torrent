@@ -1,3 +1,30 @@
+###  Публикация: 987375   (925904) от 17.02.2016
+
+VA - Jazz Electro Swing (2016) [MP3|320 kbps] <Electro Swing Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925904.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avelino - Monday Morning
+002. Mano Meter - Puppet on a String
+003. Stereo Swing - Champagne Swing (feat. Gabi Szucs)
+004. Hiroshima - Shine(   Читать дальше...   )Жанр: Electro Swing JazzПродолжительность: 08:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C7DED08EA5CE395B1C94E3D2B25D90072AC1F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987519   (925970) от 17.02.2016
 
 VA - Русский ураган супер хитов (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Lounge Barroom Music (2016) [MP3|320 kbps] <Lounge, Downtempo, Relax, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C31B63291F4350BBE40A0CEC35D36D08D5528FE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987350   (927707) от 16.02.2016
-
-VA - Smooth Jazz Lounge (2014) [MP3|320 кб/с] <Instrumental, Smooth Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time and Again (4:07)
-02.  Take 5 (6:04)
-03.  Summer's End (2:57)
-04.  Scarborough Fair (2:38)(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, LoungeПродолжительность: 03:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903EFA0BAEB78B55D15C90826F05DD3B2B4C085A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1307230   (554918) от 10.06.2019
+
+The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. See You Through My Eyes (03:54)
+2. Missed Connection (03:15)
+3. People Need a Melody (04:12)
+4. Honeybee (03:16)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A6DF587788C07FC469E75FDF83BCE321454CE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306938   (554921) от 10.06.2019
+
+Dead to a Dying World - Elegy (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Post-Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554921.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Syzygy (04:41)
+2. The Seer's Embrace (11:12)
+3. Vernal Equinox (04:53)
+4. Empty Hands, Hollow Hymns (11:00)(   Читать дальше...   )Жанр: Black Metal, Post-Metal, Doom MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0B3A20D9D3F8F8AE0F2ED19437B1B78558A13E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307307   (554928) от 10.06.2019
 
 Hermetica - Hermetica & Interpretes (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -641,60 +695,6 @@ K-Man & The 45s - Stand With The Youth (2019) [FLAC|Lossless|tracks + .cue] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD0901BFD8CA06BD6F487B03D8698C5BECBA996
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306341   (555673) от 04.06.2019
-
-Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555673.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 | Welcome to Hell | 04:04
-02 | Kein Weg zu Weit | 04:42
-03 | Long Live Death | 04:23(   Читать дальше...   )Жанр: Gothic Rock, Alternative RockПродолжительность: 01:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0227E944461578E0999241DE9AD84929559CDB3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306339   (555690) от 04.06.2019
-
-Opprobrium - The Fallen Entities (2019) [FLAC|Lossless|tracks + .cue] <Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555690.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dark Days, Dark Times (3:57)
-2. Creations That Affect (4:53)
-3. Wicked Mysterious Events (5:24)
-4. The Fallen Entities (5:19)(   Читать дальше...   )Жанр: Metal, Death MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0C1ABDF900680BBDBE5719F4AF6AA1615A0C0E
 ```
 
 

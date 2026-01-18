@@ -1,3 +1,30 @@
+###  Публикация: 1372907   (882108) от 05.04.2020
+
+VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. NRD1 - All Good Things (Come To An End) 3:27
+04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372826   (882128) от 05.04.2020
 
 VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Зимние лучшие блатные песни. Выпуск 7 (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:465BE8B963FEBFAFE09E716FB7FF568CBA1A614D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103834   (883631) от 13.02.2017
-
-VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аполлинария - Околдована 3:00
-002. Sigala & Digital Farm Animals - Only One 3:24
-003. Элемент - Не Мое Кино 3:03
-004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
 ```
 
 

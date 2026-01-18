@@ -1,3 +1,57 @@
+###  Публикация: 1142957   (639080) от 16.06.2017
+
+К.Маrkоv - Gоldеn Аgе (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin School>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639080.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Golden Age
+2. Space Age
+3. Digital Age
+4. Echoes(   Читать дальше...   )Жанр: Electronic, Ambient, Berlin SchoolПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ED3AA2069C7CA29854DFACF48ACF1DB7C9F531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293219   (639195) от 02.04.2019
+
+Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Room (12:30)
+ 02. Rainfall (12:00)
+ 03. Agora (12:09)
+ 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293153   (639197) от 02.04.2019
 
 VA - The Fire This Time (2002) Hidden Art [FLAC|Lossless|WEB-DL|tracks+.cue] <IDM, Techno, Field Recording, Ambient>
@@ -641,60 +695,6 @@ VA - Santorini Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38E450945E9300DBACFA0593E6D65DCF6DF21308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142451   (641173) от 15.06.2017
-
-Relaxed - Relaxed (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641173.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mystic (03:44)
-2. Peace (05:00)
-3. Remember (04:49)
-4. Concentration (04:49)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC92D534FE298FD615F934960A39CABC9FC416BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142490   (641174) от 15.06.2017
-
-VA - Maxxx Power Tunes Vol 1 (Maximum Music for Maximum Power) (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Sunrise - Sunset 06:41
-02. Lory Albano, Sebastian Gonzales - Barcelona Vibes (Club Mix) 05:25
-03. Afrotronix, Teknobrat - Ca Fait Mal (Mikael Klasson Remix) 06:23
-04. Project Weekend Sound - Some Kind Of Way 04:56(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D6566850869126EB5137571F10F230904C6C86
 ```
 
 

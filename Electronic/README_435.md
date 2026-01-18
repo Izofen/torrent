@@ -1,3 +1,57 @@
+###  Публикация: 1381515   (826242) от 07.05.2020
+
+VA - Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <House, Club House, Electronic, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonbootica - Lean (Original Mix) 5:12
+02. Oliver Schories - Molero (Original Mix) 7:02
+03. Franky Rizardo - X Marks The Spot (Original Mix) 6:41
+04. Ben Delay - Bring Me Love (Superdope Remix) 2:30(   Читать дальше...   )Жанр: House, Club House, Electronic, DanceПродолжительность: 03:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513E3E5C610FD1760ECC3186EB9C50639712B1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115518   (826448) от 18.03.2017
+
+The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember The Future (05:37)
+ 02. All Hell Is Breaking Loose (04:40)
+ 03. Different Drum (06:15)
+ 04. Artificial Skin (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C35F50848F5E98576A394F1E0B6B2AB168E5E42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502660   (826512) от 15.10.2021
 
 Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
@@ -639,60 +693,6 @@ Fatali - Retro (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB98E66E992D531E44B18FDEBF912C31231C188C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380980   (829771) от 05.05.2020
-
-Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Will Take Time (05:07)
- 02. HDSB (06:41)
- 03. Small Bird (05:38)
- 04. Sukho (05:53)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 00:48:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380983   (829844) от 05.05.2020
-
-Cygnus - Colecovisions (2020) Biosoft Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make the Brain Relax Pt. II (07:12)
-02. Sexual Playtime Software ft. Dolly Vicious (06:27)
-03. Icasean Beach Interlude (01:23)
-04. 私はサイバネティックです (03:40)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 01:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6929D2E696861B13EDF9DC45A5C68A595C4D07C9
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1442227   (1036933) от 24.01.2021
+
+Moreza - Fragrance (2019) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Nuevo Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragrance (5:29)
+02. Moreza;Lorenzo de Medici - King Of Guitarras (4:45)
+03. Love Story (4:30)
+04. Miss Guitar (Deep Lounge Mix) (5:43)(   Читать дальше...   )Жанр: Chillout, Nuevo FlamencoПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD79A7FCD03822F7131D791FF8259E7FD615F41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615131   (1037276) от 27.02.2023
 
 Chinmaya Dunster - The Akasha Project (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
@@ -663,33 +690,6 @@ Blackmore's Night - Spirit of the Sea (Ritchie & Candice Anniversary Home Sessio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F68AA2BB34926E41CF2F36179FDDEA527574B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603564   (1045672) от 10.01.2023
-
-Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun of Inspiration
-02. My Devotion
-03. Kissing the Spirit Awake
-04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
 ```
 
 

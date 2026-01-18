@@ -1,3 +1,300 @@
+###  Публикация: 1601717   (1046350) от 02.01.2023
+
+Nova Epica - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universe [00:02:16]
+02. Blood Stained [00:04:59]
+03. The Void of the Universe [00:04:31]
+04. The Breaking Point [00:03:39](   Читать дальше...   )Жанр: Power MetalПродолжительность: 2 CD, 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB63B4E50B194B9F854F6172A8410FBF48BB23ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601872   (1046352) от 02.01.2023
+
+Parkway Drive - Reverence (2018) [FLAC|Lossless|image + .cue] <Metalcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing Wells
+02. Prey
+03. Absolute Power
+04. Cemetery Bloom(   Читать дальше...   )Жанр: Metalcore, Heavy MetalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21A81F0CF2AFC97E71B138C9B8C861C8B4F8672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601802   (1046353) от 02.01.2023
+
+August Red - Sunshine Melodies (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <AOR, Yacht Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046353.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Faded Memory Song (3:38)
+2. Sunshine Melody (4:07)
+3. Never-Ending Story (5:10)
+4. This Night Won't Last Forever (4:22)(   Читать дальше...   )Жанр: AOR, Yacht RockПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FBEA03B0369F3A9497EFD81117F3DA6A7663B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601782   (1046355) от 02.01.2023
+
+Broken Silence - Discerning The Times (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streets Of The Empty Soul
+02. Higher
+03. Not Love At All (It's My Heart)
+04. Naked(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186DD794A6A6CCA53435769382B78381DD44D5A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601798   (1046356) от 02.01.2023
+
+Nilver Perez - Living In Desire (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking The Cycle (Lead Vocals – Daniel Vargas) (4:42)
+02. We Belong To The Stars (Lead Vocals – Fabio Cabral) (4:16)
+03. Secret (Lead Vocals – Caroline Breiter) (5:23)
+04. Keep The Dreams Alive (Lead Vocals – Ricardo DeStefano) (5:00)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59AE29696F5E7D5A78F3871AB43F3C51FC5EBCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601725   (1046357) от 02.01.2023
+
+Caravela Escarlate - 3 Albums (2016-2023) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Rascunho
+2017 - Caravela Escarlate
+2023 - IIIЖанр: Progressive Rock, Symphonic ProgПродолжительность: 3 CD, 02:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62529CFBC5AC44B459A304835A75A14F19159A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601719   (1046358) от 02.01.2023
+
+Energema - Promised Land (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Rise of Ramses II (Overture) (01:02)
+02 - The Eyes of Pharaoh (04:35)
+03 - Promised Land (04:30)
+04 - The Burning Bush (07:02)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD336F1CE7924DC06E2D980ABCCEA2F44DEE608
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601804   (1046360) от 02.01.2023
+
+Energema - Magical Force (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Manoah's Prayer (00:49)
+02 - My Destiny (03:36)
+03 - Sunset of a Seventh Day (05:27)
+04 - Samson's Vengeance (04:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764DD74DFE42037205E93EE86124EE148DC84372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601702   (1046361) от 02.01.2023
+
+Zombiophilia - 4 Albums (2020-2022) [MP3|320 Kbps] <Death Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2020 - Pay Taxes - Sponsor War
+2021 - Dead Brain
+2022 - Madness(   Читать дальше...   )Жанр: Death Metal, Pagan MetalПродолжительность: 4 CD, 02:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6623CBDF2B921ED332421CA89708A8FC019B921
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601799   (1046362) от 02.01.2023
+
+Energema - The King of the Giants (2020) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Valley of Elah (01:06)
+02. The King of the Giants (04:42)
+03. The Last Hero (04:11)
+04. War of Nephilims (04:35)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63A0DC104036A4572DEEE6F9FAE098DB9A30A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601664   (1046422) от 01.01.2023
+
+Eonia Rise - Rise From The Light Blast (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebirth (02:17)
+02 - Eonia Rise (04:33)
+03 - Rotary Swords (05:13)
+04 - A million miles away (04:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CC75089C198ED843E8352C5F1B3DEEA9B81797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601624   (1046432) от 01.01.2023
 
 UMC - 90s in Metal Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal>
@@ -398,303 +695,6 @@ Marytale - Тёмное царство (2025) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE08AD173135FF761CF7BE8FE06D132E0C2A1B8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839259   (1046509) от 28.11.2025
-
-My Ticket Home - Pure To A Fault (2025) [MP3|320 Kbps] <Nu-Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tearjoint [00:03:14]
-02. The Weakest Wound [00:03:00]
-03. Nothing Lost [00:05:05]
-04. Spliced [00:04:02](   Читать дальше...   )Жанр: Nu-Metal, MetalcoreПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE4660B0B182F87521259ACCFD21AB67AC66CBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839430   (1046560) от 28.11.2025
-
-Dream Theater - Quarantième: Live à Paris (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metropolis Pt. 1 (Live à Paris 2024)
-02. Overture 1928 (Live à Paris 2024)
-03. Strange Déjà Vu (Live à Paris 2024)
-04. The Mirror (Live à Paris 2024)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FA660E655ADDDD72B5CB15725F7FBF827D8E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839410   (1046571) от 28.11.2025
-
-AC&DC - From Down Under (1980) 1990, Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shot Down In Flames
-02. Hell Ain't A Bad Place To Be
-03. Sin City
-04. Walk All Over You(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537FE744A4F8D9CCD59233EED2E9F597FD13CCC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839575   (1046600) от 29.11.2025
-
-ДДТ (DDT) - Бокс №2. 6 Альбомов (2025) Remastered [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этой осенью, в рамках проекта группы ДДТ на платформе «Планета.ру», готовим вторую часть переиздания альбомов группы 90-х и 00-х годов. Впервые на виниле будут выпущены альбомы «Пластун» (1991 год), «Рождённый в СССР» (1997 год), «Единочество. Часть 1» (2002 год) и «Единочество. Часть 2. Живой» (2003 год).  Также впервые на двойном виниле будет издан акустический (   Читать дальше...   )1991 - Пластун
-1997 - Рождённый в СССР
-2000 - Метель августа
-2001 - Два Концерта. АкустикаЖанр: RockПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B09B825E0579367092C704A41DFD5FDFCFD117F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839396   (1046613) от 29.11.2025
-
-Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rescue Me [00:03:12]
-02. Tired Of You [00:03:07]
-03. Highway Star [00:04:26]
-04. Dreams [00:03:51](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D180CF4FBA91F48C78B3F09A2F809315FC166B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839499   (1046615) от 29.11.2025
-
-Leah Martin-Brown - Love & Other Crimes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr X (3:30)
-02. R U Chicken (3:31)
-03. Clooney (3:10)
-04. Levitate (4:03)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A2430091CE2E21282DD70D7E58C750FD4BF335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839524   (1046616) от 29.11.2025
-
-EXCIDE - Bastard Hymns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Son (1:19)
-02. Worth Your Salt (2:36)
-03. Your Flowers (3:10)
-04. Pariah (3:02)(   Читать дальше...   )Жанр: Post-Hardcore, Post-GrungeПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE630BFD28B9E4924CFCA65310F21D29F9503218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839536   (1046630) от 29.11.2025
-
-Factoria - All Synthetic (2025) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [00:01:35]
-02. Free Will [00:04:55]
-03. Nuclear Error [00:05:30]
-04. Oppressed [00:03:50](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB373AF15FF7AF9CB333ECD7996A33E019D35A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839542   (1046631) от 29.11.2025
-
-Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing With The Devil (04:30)
- 02. Pictures Of The Dead (03:21)
- 03. Saints And Sinners (03:10)
- 04. Lift Up Your Soul (04:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0C28F82ADF2C656D18E8ABC2122B18C58719D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839355   (1046640) от 29.11.2025
-
-Dream Theater - Quarantième: Live À Paris (2025) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Metropolis Pt. 1
-2. Overture 1928
-3. Strange Déjà Vu
-4. The Mirror(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B27C6B8D099823BD5652D4CF29450D2E816C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839510   (1046648) от 29.11.2025
-
-Queen - A Night At The Odeon (2015) SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now I’m Here
-02. Ogre Battle
-03. White Queen (As It Began)
-04. Bohemian Rhapsody(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Pop RockПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDCC6A11A0535243B5654AABD6226F08AA8D695
 ```
 
 

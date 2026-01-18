@@ -1,3 +1,303 @@
+###  Публикация: 1367579   (915511) от 16.03.2020
+
+Pyogenesis - A Silent Soul Screams Loud (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Gothic Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Survival Of The Fittest	4:02
+02.	Mother Bohemia	3:43
+03.	I Can't Breathe (Prologue)	2:27
+04.	I Can't Breathe (Monologue)	4:28(   Читать дальше...   )Жанр: Heavy Metal, Gothic Metal, Alternative RockПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7044C53A0A311C81217D98C90DE8B38E166E43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989491   (915512) от 23.02.2016
+
+Timo Tolkki - Hymn to Life (2002) [FLAC|Lossless|image + .cue]<Symphonic, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Symphonic, Melodic Power MetalПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC3CD13ED20D31A42AD071D2A002E48725AC5CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989459   (915548) от 23.02.2016
+
+Fleshgod Apocalypse - King (2016) [FLAC|Lossless|image + .cue] <Death, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marche Royale
+02. In Aeternum
+03. Healing Through War
+04. The Fool(   Читать дальше...   )Жанр: Death, Symphonic MetalПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF7686B9C7C79FB48315C217D5E0BA3B663C411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097378   (915576) от 26.01.2017
+
+Xandria - Theater Of Dimensions (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where The Heart Is Home
+02. Death To The Holy
+03. Forsaken Love
+04. Call Of Destiny(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Gothic MetalПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F19F84A202C03208472FEC3EB7DD18CCAA75AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289073   (915607) от 02.02.2011
+
+EkoTren - The Dead of Night (2011) [FLAC|Lossless]<Metalcore / Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End of the Day (4:31)
+02. Blackened Sky (3:32)
+03. Dead Behind the Eyes (2:33)
+04. A Road to Nowhere (3:38)
+05. Mask of Lies (3:29)
+06. Light to Shine (3:41)
+07. Cant Stay (2:39)
+08. The Suffering (3:58)
+09. No Way Out (2:47)
+10. The Dead of Night (4:18)Жанр: Metalcore / Nu-MetalПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367545   (915637) от 16.03.2020
+
+VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matchbox Twenty - Push 3:59
+02. Yes - Owner Of A Lonely Heart (2008 Remaster) 4:27
+03. Marillion - Kayleigh (1998 Remaster) 3:35
+04. White Lion - When The Children Cry 4:18(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490631   (915642) от 22.08.2021
+
+Brothers Of Metal - Emblas Saga (2020) [FLAC|Lossless|image + .cue] <Epic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brood of the Trickster (01:56)
+02. Powersnake (03:43)
+03. Hel (04:40)
+04. Chain Breaker (03:53)(   Читать дальше...   )Жанр: Epic Heavy Metal, Power MetalПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF44E84E64E14CCDF63232FC2929ED95E6D099FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989558   (915648) от 23.02.2016
+
+ME - Even The Odd Ones Out (2013) [FLAC|Lossless|tracks + .cue] <Alternative, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё пример "негуглящейся" команды! Wikipedia: "The band cite numerous and wide ranging influences ranging from Led Zeppelin, Queen, The Mars Volta, Muse, Radiohead, The Beatles, Rachmaninoff, Philip Glass and American composer Danny Elfman. The band are also influenced by theatrical performance and their live shows often feature additional on stage (   Читать дальше...   )01. Hoo Ha (3:52)
+02. Trails In the Sky (3:29)
+03. Rock and Roll Dandy (3:38)
+04. Like a Fox (4:46)(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021093EA4A62E74212BFAFA3EB0B12B7D9203822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367602   (915680) от 16.03.2020
+
+Eilera - Face Your Demons / Waves (2016-2020) [MP3|320 Kbps] <Folk & Viking Metal, Celtic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andada [00:02:20]
+02. Aquarius [00:03:06]
+03. Sea Widow [00:04:28]
+04. Soulmates [00:03:59](   Читать дальше...   )Жанр: Folk & Viking Metal, Celtic MetalПродолжительность: 01:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A032200360F22F9B7305734B66B5012DAC2B06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097177   (915708) от 26.01.2017
+
+Kreator - Gods of Violence (2017) Deluxe Edition, Scene [FLAC|Lossless|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypticon (1:06)
+02. World War Now (4:28)
+03. Satan Is Real (4:38)
+04. Totalitarian Terror (4:45)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473148022B2A18A36DE95FBADCCF590719962E2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989751   (915779) от 23.02.2016
+
+Marty Friedman - Tokyo Jukebox 2 (2011) [FLAC|Lossless|tracks] <Rock, Heavy Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah! Meccha Holiday  03:08
+02. Nada Sousou  02:49
+03. Ai Takatta  04:28
+04. Ame No Bojo - Funa Uta  02:42(   Читать дальше...   )Жанр: Rock, Heavy Metal, InstrumentalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4991BC71CB3A8A2617B47C06B50DA6021F05B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989799   (915781) от 23.02.2016
 
 ME - Another Story High (2012) [MP3|320 кб/с] <Alternative, Progressive Rock>
@@ -397,302 +697,6 @@ National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097166   (916020) от 26.01.2017
-
-Beardfish - +4626-Comfortzone (2015) Limited Edition 2CD Digipak [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1: +4626-COMFORTZONE
-Disc 2: The Early Years - Outtakes and DemosЖанр: Eclectic ProgПродолжительность: 02:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117E4A20A7FE7338065AF14673B338121669E3BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862388   (916389) от 31.01.2015
-
-Papa Roach - F.E.A.R. (2015) [FLAC|Lossless]<Alternative Rock, Modern Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Everything And Rise
-02. Skeletons
-03. Broken As Me
-04. Falling Apart(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7E4052BA9C6E3ECAAAC629E0B07F84FBD70EE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989364   (916503) от 22.02.2016
-
-VA - The Best Rock Ballads... Ever! (2007) 4CD Box Set, Delux Edition [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916503.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном из форумов в комментариях к этому сборнику были вот такие слова: "Это удивительные песни! Любите это! Все до одной песни, которые я никогда не вычеркну из моей жизни до самой смерти ... Музыка настолько трогательна и лирика просто удивительна! Я мог бы поставить 20 из 10 возможных. Если бы я мог!"
-Ну что тут ещё можно добавить?CD1
-01. Extreme - More Than Words  (5:34)
-02. Marrillion - Kayleigh  (3:34)
-03. Soundgarden - Black Hole Sun  (5:20)(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 04:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113C12E663A06DB8C33F59A1C3BED92AA4E85CCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989366   (916510) от 22.02.2016
-
-VA - The Best Rock Ballads... Ever! Volume 2 (2013) 4CD Box Set, Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родоначальником этой серии считается звукозаписывающий лейбл Virgin, ведь именно он ещё в далекие 90-е опробовал такую форму сборника (и даже в 1997 году вышел сборник под точно таким же названием). Через шестнадцать лет уже Warner Music отважилась продолжить эту линию. Получился совсем не похожий, и, на мой взгляд, гораздо лучший бокссет. В него были включены не (   Читать дальше...   )CD1
-01. Oasis - Don't Look Back In Anger  (4:52)
-02. Keane - Everybody's Changing  (3:36)
-03. Kasabian - Man Of Simple Pleasures  (3:35)(   Читать дальше...   )Жанр: Rock, Soft Rock, PopПродолжительность: 04:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B4CDE628D5147351EC2DECD675397C47965ACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988955   (916889) от 22.02.2016
-
-DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бродяга (4:19)
-02. Питер (5:38)
-03. Летели облака (4:24)
-04. Московская барыня (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989224   (916910) от 22.02.2016
-
-VA - The Many Faces Of David Bowie (2016) 3CD [MP3|320 кб/с] <Art Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reeves Gabrels Feat David Bowie - You've Been Around
-02. Tony Visconti & Woody Woodmansey - The Man Who Sold The World
-03. Ian Hunter & Mick Ronson - All The Young Dudes
-04. Dana Gillespie Prod By Mick Ronson & David Bowie - Andy Warhol(   Читать дальше...   )Жанр: Art Rock, RockПродолжительность: 02:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B350C0E1B88CDC3E2B46038FB16987E27EC3B12D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490615   (916981) от 21.08.2021
-
-Sweet Crisis - Tricks On My Mind (2021) [MP3|320 Kbps] <Hard Rock, Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Loosen Up [00:03:05]
-02 - One Way Traffic [00:03:53]
-03 - Ain't Got Soul [00:06:56]
-04 - This Guitar [00:04:09](   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Classic RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49D97A1D1FE98273DDB95D8CBF76F8B6B1F9D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989503   (916996) от 22.02.2016
-
-VA - The 60's Collection (2000) [FLAC|Lossless|tracks + .cue] <Rock&Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marianne Faithful - This Little Bird (2:06)
-02. James Brown - It's A Man's Man's Man's World (2:46)
-03. Dusty Springfield - You Don't Have To Say You Love Me (2:50)
-04. Marvin Gaye - I Heard It Through The Grapevine (3:12)(   Читать дальше...   )Жанр: Rock&RollПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B58C8647B9ADB6715E6FD83974FF4788BFF5A75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989087   (917007) от 22.02.2016
-
-The Temperance Movement - White Bear (2016) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Bulleits (03:14)
-02. Get Yourself Free (03:37)
-03. A Pleasant Peace I Feel (04:36)
-04. Modern Massacre (02:22)(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EBE517725F38F2A8E13A23A60EAD465901858E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989337   (917016) от 22.02.2016
-
-It - Over & Out (2002) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группы с подобными названиями найти в сети практически невозможно! Тем более, если не знаешь, что искать необходимо! Музыка группы написана под влиянием творчества PINK FLOYD, PORCUPINE TREE, OPETH, THE CURE и NINE INCH NAILS!01. Tuning In
-02. Good Morning America
-03. Hang On Tom
-04. Stay Tuned(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC54AF31DE528F12D5BD75CA4920C91DD0EB0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989036   (917020) от 22.02.2016
-
-John Ford - Resurrected (The Best Of and Then Some) (2011) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Back
-02. Acoustic Sunrise
-03. Perfect Day
-04. Resurrected(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4055033D191A656A21FA00B5FBD7F8035899114
 ```
 
 

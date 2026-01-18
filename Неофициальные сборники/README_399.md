@@ -1,3 +1,36 @@
+###  Публикация: 517366   (647916) от 01.07.2012
+
+VA - Включи Погромче 50/50 Vol. 3 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lopez feat. Flo Rida - Goin' In
+02. Потап и Настя - Прилелето
+03. Gabry Ponte feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Eu Radio Edit)
+04. Слава - Sex Не Любовь
+05. Dee-Dee ft. Ray Horton & Radu Sirbu - Gimme Your Love (Radio Edit)
+06. Пропаганда & MC Джимми - Хабиби
+07. Dave Aude feat. Lena Katina - Never Forget
+08. Денис Майданов и Филипп Киркоров - Стеклянная любовь
+09. Randi - It Takes Two
+10. Стас Пьеха - Старая История(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E9E5960AA79D2373D51FA3BD3BE1A588BEC9B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141723   (647936) от 11.06.2017
 
 VA - Massive Summer Dance Hit (2017) [MP3|256-320 Kbps] <Dance, Club, House>
@@ -671,33 +704,6 @@ Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67636EF639270F23E040D43A6CA342698D1F686C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905477   (649600) от 06.06.2015
-
-VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Piano>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Run to You
-02. Jessie Reeves - Video Games
-03. Dean Dyson - Mad World
-04. Henrietta Adewole - I Try(   Читать дальше...   )Жанр: Downtempo, Chillout, PianoПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43FE25623B3C565D5A372A94D644AD76F207A3A5
 ```
 
 

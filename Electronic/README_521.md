@@ -1,3 +1,57 @@
+###  Публикация: 1619249   (1033001) от 16.03.2023
+
+VA - Top 6 February 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rolfiek - Opus One (Original Mix) (07:01)
+02. SilMax - Melancholy (Original Mix) (07:05)
+03. D-J. Santos - Dancing in Love (Original Mix) (08:45)
+04. Sothzanne String - The Day You Left (Original Mix) (08:16)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA5DD4C8D301B2B7805631C4BC0256A0B764ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446406   (1033023) от 08.02.2021
+
+VA - Balearic Lounge & Chill out Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weathertunes - Sitting on the Moon with You (03:39)
+02. Jane Maximova - Morning Bird (05:53)
+03. Sunset Lovers - Flamenco (Tribute to the White Isle Edit) (04:08)
+04. Wawa - Taste of Fear (Lemongrass Full Moon Mix) (03:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120BB554B61BD9703075C1ABE8F3B8FA284D76F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446260   (1033032) от 08.02.2021
 
 VA - Premium Chillout Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -612,57 +666,6 @@ VA - Techno Club Vol 60 (Mixed by Talla 2XLC vs. Xijaro & Pitch) (2020) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BECB62BDBA48FB72D1AC53969C4E5591498AF55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438496   (1033498) от 06.02.2021
-
-VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro House, Progressive House, Big Room,Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Melodia Stage:
-Jack Back (David Guetta) @ Melodia Stage, Tomorrowland NYE Edition 2020-12-31:
-01. Jack Back - MicroFreak
-02. Agoria ft. STS - Call Of The Wild (Maxim Lany Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Big Room,TechnoПродолжительность: 21:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4422319D7290F01D19CFF964F7AD20CAEFD9936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445787   (1033501) от 06.02.2021
-
-Bucky - Twist of Fate (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist of Fate (03:13)Жанр: Electronic, AmbientПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EF51F74AE7296251670049FF4423415A06BB2E
 ```
 
 

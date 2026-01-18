@@ -1,3 +1,57 @@
+###  Публикация: 1373333   (876895) от 08.04.2020
+
+Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Murray - Inception feat Veronica Moran (Extended Mix)
+02. Joe Schaeffer - There and Back (Skua Remix)
+03. LTN & Cassidy Ford - Hurt Yourself (Extended Mix)
+04. Costa & Sarah Lynn - Never Fade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BD20256735F225271F107AFE2B3FA21273E687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373687   (876904) от 08.04.2020
+
+Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House, Dancefloor>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethel (4:28)
+ 02. Accountable (3:52)
+ 03. Between The Lines (4:38)
+ 04. Replica (5:22)(   Читать дальше...   )Жанр: EDM, Electro, Deep House, DancefloorПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996956   (877318) от 15.03.2016
 
 VA - Ultra Music Festival 2016 (2016) Compilation [FLAC|Lossless|tracks] <Progressive House, Electro House, EDM>
@@ -641,60 +695,6 @@ VA - Stay At Home (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAD124B47B3B749051AE9FD719DBB23A5C6BCBC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373361   (880338) от 06.04.2020
-
-The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wave, Power Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880338.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Can You Fix Me Up With Her
-2 He's Takin' You To The Movies
-3 T.V. Private Eye
-4 You Are The One(   Читать дальше...   )Жанр: New Wave, Power PopПродолжительность: 00:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAEAF9AAA7E0E47493CE729EF73FCD9B12B9C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495447   (880529) от 12.09.2021
-
-Gregory - Unknown Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Universe (6:17)
-02. Invasion Of Mars (4:44)
-03. New Adventures In Space (6:10)
-04. The Laser Cannon (4:29)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2D2A2A9E575B9FAB981EA7D83398FA2AA1C593
 ```
 
 

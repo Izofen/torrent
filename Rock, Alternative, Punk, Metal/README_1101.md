@@ -1,3 +1,302 @@
+###  Публикация: 1376272   (860702) от 17.04.2020
+
+Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exuberant Sputum [00:03:17]
+02. A Dyspneic Frenzy [00:02:58]
+03. Coronaviscerated (feat. Jared Dines) [00:03:38]
+04. West of the Nile [00:02:52](   Читать дальше...   )Производство: Chodezilla RecordsЖанр: DeathcoreПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2C62E2EF54AE8BEF7B88069AD52608011AB187
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376314   (860705) от 17.04.2020
+
+Vermicide Violence - The Praxis of Prophylaxis (2020) [FLAC|Lossless|tracks] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exuberant Sputum [00:03:17]
+02. A Dyspneic Frenzy [00:02:58]
+03. Coronaviscerated (feat. Jared Dines) [00:03:38]
+04. West of the Nile [00:02:52](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6054B3533993663D42D7A5E97B5E01A48C2042BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000111   (860874) от 24.03.2016
+
+Artillery - Penalty By Perception (2016) Limited Edition [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Defiance of Conformity
+02. Live by the Scythe
+03. Penalty by Perception
+04. Mercy of Ignorance(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D423C253F9DFC2E6606C6AB9E1E7129CD1C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548403   (860896) от 24.09.2021
+
+Stigmata - 7 Albums + 9 Singles & EP + 2 Live (2004-2020) [MP3|320 kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860896.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Stigmata» - российская металкор-группа. Образована в 2001 году в городе Санкт-Петербург.
+На рубеже 2003—2004 годов группа стала выступать. Впервые это произошло в клубе «Полигон», в котором в то время начинало свою музыкальную карьеру большинство групп Санкт-Петербурга.
+Stigmata также известна как один из самых популярных представителей металкора в России.2004 - Demo
+2004 - Конвейер Снов
+2005 - Больше Чем Любовь
+2007 - StigmataЖанр: Alternative MetalПродолжительность: 08:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2093879ECCB2A00D401F0A3E0F8443F15DAFA856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261216   (860904) от 24.09.2021
+
+Куртки Кобейна - 2 Альбома + 5 Синглов (2018-2021) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шура Би-2, один из создателей «Би-2», завел новую супергруппу «Куртки Кобейна» — секретный электронный сайд-проект, в котором приняли участие многие известные музыканты. За неделю «Куртки Кобейна» представили две песни — «Охоту на кузнечиков», в которой появляются Диана Арбенина, гитарист «Арии» Виталий Дубинин и создатель «Гостей из будущего» Юрий Усачев, «Нити (   Читать дальше...   )1. Охота на кузнечиков (feat. Диана Арбенина, Виталий Дубинин, Юрий Усачев & Петр Мамонов)
+2. Нити ДНК (feat. Монеточка)
+3. Молитвы мёртвых (feat. Глеб Колядин & БГ)
+4. Упражнения в равновесии (feat. Антон Севидов & Manizha)Жанр: Rock, ElectronicПродолжительность: 01:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BF7EFCB35E8A3FAB1799C78959613B164F4E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108865   (860932) от 26.02.2017
+
+Quantum Fantay - Dancing in Limbo (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860932.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Quantum Fantay" – бельгийская формация, участники которой предпочитают называть свое nворчество разжиженным спэйс­роком. И хотя многие критики зачастую сравнивают ее с "Ozric Tentacles", стиль группы, являющий собой смесь прогрессива, электроники, уорлд­мьюзик, психоделики с элементами рэгги и даба, все же отличается от вышеупомянутых британцев. (   Читать дальше...   )01. Nimbo (11:13)
+02. Rimbo (11:15)
+03. Cacimbo (11:15)
+04. Limbo (11:14)Жанр: Psychedelic, Space RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6615CEE92D16A2D053F8187B56045EB594548A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109202   (860991) от 26.02.2017
+
+Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Belongs To Me
+02. Back To Zero
+03. You Make Me Want To Stay
+04. Road To Nowhere(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8742840E0383C777BDC444B31BDEAB56546A3C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109008   (860993) от 26.02.2017
+
+Ben Poole - Time Has Come (2016) [FLAC|Lossless|image + .cue] <Classik rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lying To Me (4:11)
+02. I Think I Love You Too Much (6:40)
+03. Longing For A Woman (3:49)
+04. If You Want To Play With My Heart (3:39)(   Читать дальше...   )Жанр: Classik rock,  Blues-RockПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB29606D246D98C5B9828F1E8B4156C4414514B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109007   (860994) от 26.02.2017
+
+The Like - Release Me (2010) [MP3|~190 Kbps (V2)] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing He Was Dead (02:53)
+02. He's Not A Boy (02:35)
+03. Release Me (03:03)
+04. Walk Of Shame (02:15)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E84F5D36C1B2AAF9D284D94E47F0D2680528EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109023   (860995) от 26.02.2017
+
+The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Over (4:03)
+02. String Of Pearls (6:18)
+03. Devil At The Liquor Store Blues (3:32)
+04. Reap What You Sow (4:46)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109167   (860996) от 26.02.2017
+
+Trickster - Find The Lady (1977) 2006, Strange Days Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen To My Music
+02. Rich Man
+03. Louise
+04. Miles And Miles Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079090DC17453F596BC07BB96681F7559E56A6AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109012   (861000) от 26.02.2017
 
 The TIP - The TIP (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Rock'n'Roll>
@@ -404,302 +703,6 @@ Inglorious - Heroine (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882C886ADD129E962FDBC16AD805BA713119E60C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497848   (861368) от 24.09.2021
-
-Danny Danzi - Tribulations (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accountable
-02. Don't
-03. Frozen In Time
-04. Carry Me Back(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A49BA9418AF79824DDBE44D69DEDB1473D7280
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497862   (861369) от 24.09.2021
-
-ToxicRose - In For The Kill (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood On Blood
-02. Heroes
-03. In For The Kill
-04. Remedy(   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7CA64487EE527D886C4E2D7B9B9B5BB04A07C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497865   (861370) от 24.09.2021
-
-Paradox - Heresy II: End Of A Legend (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape From The Burning
-02. Mountains and Caves
-03. The Visitors
-04. Children Of A Virgin(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942F425D64C50607222BB24D5F77D752BFC45BD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497885   (861430) от 24.09.2021
-
-Tillison Reingold Tiranti - Allium : Una Storia (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861430.jpg" />
-</div>
-
-
-###  Подробнее
-
-"ORIGINAL" MIX (Andy Tillison)
-01. Mai Tornare 17:06
-02. Ordine Nuovo 8:04
-03. Nel Nome Di Dio 14:21Жанр: Progressive RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673E3D993816CA3879E1C3F0E89D5A67F6DD531D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497872   (861431) от 24.09.2021
-
-Sceptor - Rise to the Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Past Reflections (01:33)
-02. Crown of Nails (04:36)
-03. The Curse of Orlac (04:36)
-04. Rise to the Light (05:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD0049BE480828B833FED82512F52EEEEA8C6AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497939   (861432) от 24.09.2021
-
-Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exitiabilis Creatura
-02. Escalating Conflicts...A World Goes Astray
-03. Timeless But Mindless
-04. A.A.A.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7ECF1F07747324875038F5ACD8EB5370669171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497934   (861433) от 24.09.2021
-
-Carchosa - Realms (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenogenetic Forms
-02. Hexes Arcana
-03. Dawn of Stormso
-04. Legion(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EBFADD5FB31772C8B673EFA424DD74DA259E43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497930   (861434) от 24.09.2021
-
-Axxelerator - Heads Or Tails (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates Of Ur
-02. Heads Or Tails
-03. Signs Of The Idol
-04. Living With Nuclear Neighbours(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C193BAD87412D25CBA3E117025F5674E1F58093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373893   (861609) от 16.04.2020
-
-Nightwish - HUMAN. :II: NATURE. (2020) 3 CD, Limited Earbook Edition [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music (07:23)
-02. Noise (05:40)
-03. Shoemaker (05:19)
-04. Harvest (05:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 02:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D13257A7E14C9633E5A32AF51ACBC9CA71BAF3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376063   (861920) от 16.04.2020
-
-Gorillaz - Song Machine Episode 3 (2020) Single [MP3|320 Kbps] <Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Machine Bitez #6
-2. Aries
-3. Machine Bitez #7Жанр: Alternative Rock, ElectronicПродолжительность: 00:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B92810E7464E57D430410F16DAB9AD73FB12169F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376008   (862039) от 16.04.2020
-
-Мастер - Мастер Времени (2020) [FLAC|Lossless|image + .cue] <Heavy/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старик
-02. Миротворец
-03. Магия
-04. Злой Век(   Читать дальше...   )Жанр: Heavy/Thrash MetalПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B0DC5ADD5B8951B5D777612698C0CD7FD496A8
 ```
 
 

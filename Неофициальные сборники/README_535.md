@@ -1,3 +1,30 @@
+###  Публикация: 1010208   (804308) от 24.04.2016
+
+VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804308.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5Beat feat. Irina Makosh - Legend (Maglev Remix) 05:32
+002. 63S - Surround Me (Original Mix) 05:41
+003. Adip Kiyoi & Cari - Deeper Into You (Original Mix) 05:32
+004. Ahmed Romel - Kenopsia (Extended Mix) 08:14(   Читать дальше...   )Жанр: TranceПродолжительность: 11:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25415E76132B317EA0191DACA4835DD4B73E1002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384315   (804370) от 19.05.2020
 
 VA - Beatport Big Room House: Sound Pack #85 (2020) [MP3|320 Kbps] <Club, Dance House, Electro>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Sound Pack #83 (2020) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D99B30DCA9EA52A719FD968639E8E73C7079F8AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384049   (806273) от 18.05.2020
-
-VA - Simple Elegance: Ultimate Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806273.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mauro Rawn - Perfume Of You
-002. Gianluigi Toso - My Blue Love
-003. Shawn White - Want To Be My Babe
-004. Alex Cortiz - Chase Me(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 09:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6740579E2946EE044CF16FC1C7B58578450F72
 ```
 
 

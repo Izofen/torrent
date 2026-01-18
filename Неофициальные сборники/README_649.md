@@ -1,3 +1,36 @@
+###  Публикация: 605226   (995863) от 19.01.2013
+
+VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_995863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuckie & Promise Land ft. Amanda Wilson - Breaking Up (Radio Edit) (02:26)
+02. Nicole Scherzinger - Erotica Revolution (02:33)
+03. Dash Berlin ft. Chris Madin - Silence In Your Heart (Radio Edit) (02:40)
+04. Bingo Players & Far East Movement - Get Up (Rattle) (02:45)
+05. DJane Housekat ft. Rameez - My Party (Groove Coverage Edit) (02:46)
+06. Mike Candys ft. Evelyn & Patrick Miller - 2012 (If The World Would End) (02:47)
+07. Sandro Silva & Quintino - Epic (02:47)
+08. Mike Candys ft. Sandra Wild - Sunshine (Fly So High) (Ibiza Radio Mix) (02:48)
+09. Radio Project - Celebration (02:49)
+10. Jack Holiday ft. Jasmin Paan & Big Reggie - Back In Miami (Mike Candys Radio Mix) (02:50)(   Читать дальше...   )Жанр: PopПродолжительность: 34:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF6AB9B0BDDA8D6DCBB91DB6071C80741065403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603670   (996076) от 18.01.2013
 
 VA - Первый свадебный вальс (2011) [MP3|320 кб/с]<Instrumental>
@@ -816,39 +849,6 @@ VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602269   (997854) от 12.01.2013
-
-VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Glass Army Ft. Banzai Ferarri - Sizzle Puzzles
-2. Hooverphonic - Autoharp
-3. Everything But The Girl - Single
-4. Motorcycle - As The Rush Comes
-5. Bruno From Ibiza - One
-6. Makossa & Megablast - Like A Rocket
-7. Jhelisa - Freedom From Pity
-8. Alif Tree - Au Revoir
-9. Blue Pilots Project - Senta
-10. Emancipator - Jet Stream(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 04:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC62AE05FC67FFCD0946FD04DD0C02F2ED4D9225
 ```
 
 

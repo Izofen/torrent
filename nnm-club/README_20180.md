@@ -1,690 +1,681 @@
-###  Публикация: 1122202   (799227) от 04.04.2017
+###  Публикация: 1201121   (793703) от 23.01.2018
 
-Ruthie Foster - Joy Comes Back (2017) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Are You Listening To? (04:18)
-02. Working Woman (04:02)
-03. Joy Comes Back (04:32)
-04. Open Sky (04:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A262E0072FE26EFF181FA2D0B597953B9DFF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121849   (799228) от 04.04.2017
-
-Сруб - Сруб (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полынь (03:10)
-02. Лень (04:20)
-03. Тайной Тропой (05:01)
-04. Омут (05:12)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3400977E65338121B739B1C9CFA69DE9D66286C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121904   (799229) от 04.04.2017
-
-Zoot Sims - New Beat Bossa Nova, Vol. 1 & 2 (1962) 2004,  Colpix Records/Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recado Bossa Nova Pt.1 (2:38)
-02. Recado Bossa Nova Pt.2 (3:00)
-03. Cano Canoe (5:39)
-04. Contando A Orquestra (4:11)(   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Bossa NovaПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5B568F7BAF9FBEDD929B86F60D08891881351B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121985   (799230) от 04.04.2017
-
-Konstantin Klashtorni & Love Suggestions - Sax Night (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thick Of It (5:43)
- 02. There Goes My Baby (4:17)
- 03. Shape Of You (5:06)
- 04. Don't Wanna Know (4:50)(   Читать дальше...   )Жанр: Smooth Jazz, LoungeПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC5577893AAABA0896BF1CE37DFB09004FBC4C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121991   (799231) от 04.04.2017
-
-VA - Sexy Deep House Tunes Vol.4 (Fantastic Groovy & Melodic Deep House) (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marga Sol - Heaven (Spase Ilo Indie Dance 2016 House Remix )  8:30
-02.  Der Dienstleister - Crusty  6:18
-03.  3YYY - Boom  5:34
-04.  HYPELEZZ - The Beach  4:28(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154C99794434F9209183318BFC7F6258680AEA90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121839   (799232) от 04.04.2017
-
-Сруб - Хтонь (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горицвет (01:50)
-02. Изгнание (02:52)
-03. Дом Всех Тревог (04:15)
-04. Грот (04:32)(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42013180638EC1C171DC6B468DFFB218B4C1E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122113   (799233) от 04.04.2017
-
-ScreenFloat - More Useful Screenshots 1.5.13 [En]
+Adobe Audition CC 2018 v11.0.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799233.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ScreenFloat — приложение для создания висящих на виду скриншотов
-Приложение позволяет создавать висящие перед глазами скриншоты и сохранять их в собственную библиотеку, чтобы потом быстро найти
-
-Используйте ScreenFloat для создания плавающих скриншотов, которые всегда видны, независимо от того, какое приложение вы используете. Таким образом, вам не нужно перемещать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2016Разработчик: Matthias GansriglerПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: январь 2018Разработчик: AdobeПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E8D856CA92E599C1F9D9A608DB848420EE41126
+magnet:?xt=urn:btih:758B03578DF04ED1AC907F78F4FFBB78BC87181F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121823   (799234) от 04.04.2017
+###  Публикация: 1201031   (793704) от 23.01.2018
 
-Варлен Стронгин  | Любовь Полищук. Безумство храброй (2017) [MP3]
+Она сбила лётчика (2016) WEB-DL [H.264/1080p-LQ] (серии 1-2 из 2)
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Отечественные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799234.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почему безумству храбрых мы поем песни? Почему мы считаем храбрость проявлением безумства? Вероятно, потому, что она на фоне общей вялотекущей жизни выглядит своеобразным вызовом людям, случаем из ряда вон выходящим.
-Была ли смелой Любовь Полищук? Безусловно. Еще в юношеские годы она решилась перебраться из далекого от центра культуры сибирского города в столицу (   Читать дальше...   )Жанр: Биографии и МемуарыПродолжительность: 07:13:23
+Валерий Павлов — пилот самолета, летчик от Бога, влюбленный в свою работу. Но дома его жизнь далека от сказки. Семейные будни давно превратилась в череду скандалов и ссор. Однажды, укрываясь от очередного выпада жены, Павлов ненастной ночью уезжает из дома на мотоцикле...Производство: Россия / Кинокомпания "Русское"Жанр: мелодрамаРежиссер: Артем НасыбулинАктеры: Григорий Антипенко, Анастасия Уколова, Анна Невская, Петр Баранчеев, Валерий Афанасьев, Наталья Лукеичева, Роман Евдокимов, Кристина Исайкина, Анастасия Лапина, Максим Митяшин и др.Продолжительность: ~01:30:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69266C2C479B947BA148443C0639A1151CF00D6E
+magnet:?xt=urn:btih:C2FA9674CF6A6B40243C4B5E341D0D966BC01C5C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121956   (799235) от 04.04.2017
+###  Публикация: 1200634   (793705) от 23.01.2018
 
-Monster Energy NASCAR Cup Series 2017. Этап 6 - Martinsville. Гонка (2017) WEBRip [H.264/720p-LQ] [VO]
+Мсье Ир / Monsieur Hire (1989) BDRemux [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий одинокий холостяк месье Ир, которого подозревают в убийстве девушки, любит тайно наблюдать через окно за своей молодой соседкой Алисой, живущей в доме напротив. Однажды, заметив его при вспышке молнии во время грозы, Алиса приходит к нему домой, чтобы узнать, почему он за ней шпионит...Производство: Франция,  Centre National de la Cinématographie (CNC), Cinéa, FR3 Films
+ProductionЖанр: Триллер, драма, мелодрама, криминалРежиссер: Патрис ЛеконтАктеры: Мишель Блан, Сандрин Боннэр, Люк Тюйе, Андре Вильм, Эрик Беренжер, Мариэль Бертон, Филипп Дормуа, Мари Гайдю, Мишель Морано, Нора НоэльПеревод: Многоголосый, авторскийСубтитры: Японские, русские, русские (комментарий режиссера)Продолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987F886576249B98A26DAD6CF5D2C64A87A83106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122510   (793706) от 06.04.2017
+
+Dirty South - Live @ Soundcheck Nightclub (2016) [MP3|320 Kbps] <House, Tech House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty South ft. Rudy - Just Dream (Intro Version)
+02. Lane 8 - Fingerprint (Dirty South Cut)
+03. Groove Armada - Superstylin' (Riva Starr Edit)
+04. Oxia - Domino (Zonderling Edit)(   Читать дальше...   )Жанр: House, Tech House, Progressive HouseПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C62CB67934F08059535C6A4D3F1223C13DEE35C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122875   (793707) от 06.04.2017
+
+SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793707.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. King Of The World (09:33)
+2. Beyond The North Winds (08:21)
+3. Pale Autumnal Moon (03:08)
+4. Under The Mountain (09:16)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122873   (793708) от 06.04.2017
+
+SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nights All Nine (02:37)
+2. Midwinter Sacrifice (05:37)
+3. Blood of the North (07:35)
+4. Black Sun's Bane (05:02)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122632   (793709) от 06.04.2017
+
+The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Like Blazes (04:09)
+02. My War (04:00)
+03. Silent (04:19)
+04. Another Life (04:22)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8287649BF8BEC69C234B5F3C173FC5C01A039071
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122767   (793710) от 06.04.2017
+
+Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Technical Grindcore, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Incorrigible Flame 04:30
+02. Warbots A.M. 04:38
+03. Abraxas Of Filth 03:44
+04. Pure Horses 00:37(   Читать дальше...   )Жанр: Technical Grindcore, Death MetalПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F373A5A3683F460F4ACFDBACB51989F0E31DCE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122885   (793711) от 06.04.2017
+
+SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dreaming of the Dawn (09:11)
+2. Frost on Dead Leaves (03:56)
+3. Under the Dragon Star (04:42)
+4. Snowborne (04:20)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9186D4B116EF3769DE06F192848600388ACFEA9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121615   (793712) от 06.04.2017
+
+VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Øfdream - Indicate
+02. haven - If You Leave
+03. Trash Lord - Hexagram
+04. Foxwedding - Hell Of A Thing(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FA98218DDBEAD6E46DC7B95AEBB4C4296750E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122900   (793713) от 06.04.2017
+
+Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Life & Times [07:02]
+ 02.29 [02:35]
+ 03.a) Siesta b) Wake Up!!!!!! That's What You Said [03:58]
+ 04.East Bay [06:12](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD176ECEF720765DAE831E8A723FD165C44AD439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122964   (793714) от 06.04.2017
+
+VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Hakala - Anguilla (Original Mix)  6:33
+02.  Entis - Lily (Original Mix)  6:35
+03.  Lumidelic - Secrets Of Nature (Original Mix)  7:58
+04.  Joshua Ollerton - Laura (Original Mix)  6:57(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609428C88F841A8C5A917F52A6A2537845A352C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122323   (793715) от 06.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). 2 Сессия. Корея — Россия (18.03.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799235.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-6 этап Monster Energy NASCAR Cup Series STP 500, Martinsville Speedway (500 laps, 263 miles).
-Запись гонки с прямой трансляции на телеканале "Premier Sports HD".
-В записи отсутствуют последние круги с 30 по 14 из-за проблем с падением источника телеканала.Телекомпания: Premier Sports HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:01:59
+18 марта 2017 года, суббота. 14:00 МСК
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай)
+Предварительный этап. 2 Сессия
+Корея — Россия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:41:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EF1B6582C3F94EEAA42E8F12D2F08465B7E035
+magnet:?xt=urn:btih:65CDD8EC763F51313D38943ADE67575177CF6EDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121806   (799236) от 04.04.2017
+###  Публикация: 1123001   (793716) от 06.04.2017
 
-космический тюлень - Эреб (2015) [MP3|320 Kbps] <post-rock, post-metal, instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дигм
-02. чаща
-03. мир нерождённых душ
-04. Гашшарва(   Читать дальше...   )Жанр: post-rock, post-metal, instrumentalПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF806EC43B4292D5EE5E27B0B5BE55D31D9E8118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122000   (799237) от 04.04.2017
-
-VA - Level Lounge (The Best Selection Of Vip Chill Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ajad Samskara - Byron Bay  5:09
-02.  Augusto Casella - Dream Love  4:27
-03.  Emmanuele Landini - Innocence  5:19
-04.  Ajad Samskara - Violet  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A28AA3CC54BAE08F5BF78385E63101530157B3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122177   (799238) от 04.04.2017
-
-Fugu Quartet - Sisyphus (2016) Demo EP [MP3|320 Kbps] <post-metal, sludge, darkjazz>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Through The Ground
-02 Sisyphus
-03 UnnamedЖанр: post-metal, sludge, darkjazzПродолжительность: 00.18.58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE101789B66529D640589D8CE633E18866852261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121788   (799239) от 04.04.2017
-
-VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexey Kosenko — Pain
-02. Kasstedy — Morning in Zion
-03. Das.RBT — Bullets
-04. Nikolay Mikryukov — Bora Bora(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122320   (799240) от 04.04.2017
-
-Downie 2.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик. Поддерживает более 800 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
-
-Список поддерживаемых сервисов: YouTube, Vimeo, trailers.apple.com, CNBC, NHL, LiveLeak, Insanee, Daily Haha, BlipTV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 апреля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3584FE5155E734538D9F74647F7824FE0742B72B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122175   (799241) от 04.04.2017
-
-PhotoStack (was Instastack) 3.6.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799241.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoStack (был Instastack) - настольный клиент Instagram.
-PhotoStack -  Это самый элегантный способ просмотра Instagram на Mac.
-PhotoStack - это новый инструмент, чтобы помочь вам открыть для себя Instagram и если вы хотите подключить свой аккаунт Instagram из строки меню на вашем Mac, PhotoStack это ваш инструмент.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 апреля 2017Разработчик: IcyArrow,Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C592CD379DDBF6BEA6CB606AE0CDFD213420F230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121951   (799242) от 04.04.2017
-
-VA - Submission Recordings Presents Miami 2017 (Mixed by INDI & Atragun) (2017) [MP3|320 Kbps] <Trance>
+VA - Digital Society Recordings Vol.1 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Toast - Rise Up (Original Mix)  4:53
-02.  Amir Shahlaee - Summer Island (Michael Fearon Remix)  6:23
-03.  Tocalta - Fragments (Original Mix)  5:00
-04.  Biotones & Max Farewell  - Paraschute (Ion Luca Remix)  5:22(   Читать дальше...   )Жанр: TranceПродолжительность: 04:13:57
+01. Temple One - Maverick (Original Mix)
+02. Ciaran McAuley - Tears (Original Mix)
+03. Fabio XB & Liuck - Step Into The Light (feat Christina Novelli - Mark W Remix)
+04. Ronski Speed - Set Me To Light (feat Linnea Schossow - Amir Hussain Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:35:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B70E4D3FC69D6C7CD96BA897C1A8429D03A9E8CF
+magnet:?xt=urn:btih:2560675CE830A2F816215951AE545521677D7B4E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122188   (799243) от 04.04.2017
+###  Публикация: 1122883   (793717) от 06.04.2017
 
-Dirty Dave Osti - Voodoo Guitar (2010) [APE|Lossless|image + .cue] <Blues Rock>
+Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Play What the Man can't Say (04:37)
-02. Lit Again (04:43)
-03. Lips of a Liar (05:44)
-04. Wildside (03:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:51
+01.How Long Has This Been Going On [06:02]
+ 02.With A Song In My Heart [03:59]
+ 03.Imagination [05:12]
+ 04.What Is There To Say [04:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EFFA0E5FA01E54E6E2F547FEE1AF1CDD14C76ED
+magnet:?xt=urn:btih:17935377532AF57AA214494486F6D0F5A63802AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121851   (799244) от 04.04.2017
+###  Публикация: 1122977   (793718) от 06.04.2017
 
-Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excitare Ad Lucem 01:06
-02. Another Life 06:14
-03. Guardians Of The Light 06:04
-04. Sands Of Time 04:52(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00: 59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0259AE5F4BDC3385FE350F34D27B6D0A3D83F66F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121961   (799245) от 04.04.2017
-
-VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - Salutations to the Sun
-02. Peter Orbit - Les Nuits
-03. Bella Element - In This World
-04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121974   (799246) от 04.04.2017
-
-SteerMouse 5.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799246.jpg" />
-</div>
-
-
-###  Подробнее
-
-SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14 марта 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B69ED334C0F0169ECD447BC3A663E98EC8E46D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122156   (799247) от 04.04.2017
-
-Elian West - Uplifting Trance Collection Vol 6 (2017) [MP3|320 Kbps] <Uplifting Trance>
+VA - Suanda Music Radio Top 10 (March) (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Road Home (08:17)
-02. Magic Winter (06:43)
-03. My Sun (08:43)
-04. I Miss You (04:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:56:45
+01. Photographer - Infinity (Roman Messer Radio Edit)
+02. FloE & DJ T.H - Like A Miracle (feat Kate Miles - Denis Kenzo Remix)
+03. NoMosk - Duel (Original Mix)
+04. Attila Syah & Cari - Dark Side Of The Moon (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E1AA2905EC45A959086489413DECE6D9E84419
+magnet:?xt=urn:btih:E0B37562708AA70827D71819F7B105DFA3ECA737
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121983   (799248) от 04.04.2017
+###  Публикация: 1122904   (793719) от 06.04.2017
 
-VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Electronic
->>Easy listening
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
-02.  CJ RcM - Mallorca (Chillout Mix)  4:38
-03.  Doors In The Sand - True Story (Chillout Mix)  4:19
-04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
+01.My Love For You (take 1) [03:30]
+ 02.Winter [07:09]
+ 03.Giant Steps [09:47]
+ 04.One for J.P. [05:19](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
+magnet:?xt=urn:btih:DC48F247A79DC3F74891F2835C46E81535D6E96F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121979   (799249) от 04.04.2017
+###  Публикация: 1122971   (793720) от 06.04.2017
 
-Lingon X 4.3.7 [Multi]
+The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799249.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 февраля 2017Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий  и др.
+01. With The Wind And The Rain In Your Hair (5:18)
+02. Oslo (5:11)
+03. Later Blues (5:07)
+04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3AA194DAE4567A1841C7920645D3F31201C37F5
+magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122055   (799250) от 04.04.2017
+###  Публикация: 1012622   (793721) от 01.05.2016
 
-Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain (08:31)
-02. Rising From The Abyss (09:06)
-03. Final Years (04:38)
-04. The Mist That Shrouds The Peaks (10:15)(   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DC76ED874C7BA9F4B410EB1B86AC28C5187381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122187   (799251) от 04.04.2017
-
-VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
+VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799251.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danny Vegas - Hold Me Down
-02. Echoboy - Get Do It
-03. DJ Favorite - Beautiful Night - Mars3ll Remix
-04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
+01. Jaques Le Noir - Perezil (05:17)
+02. Lucas Reyes - Feel for You (07:39)
+03. Vanished - Past Life (06:19)
+04. Steven Whirpool - Dance (06:58)(   Читать дальше...   )Производство: Jango ReplayЖанр: Deep House, Club HouseПродолжительность: 01:31:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
+magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121965   (799252) от 04.04.2017
+###  Публикация: 1012473   (793722) от 01.05.2016
 
-VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Лесли Чартерис | Пикник на Тенерифе (1996) [FB2]
 
->>Electronic
->>Easy listening
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799252.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Skendo - Romantic Beach Dinner  3:03
-02.  Mari Billa - Kids Of The Moon  3:01
-03.  Xavier Baptist - The Early Bird  3:33
-04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
+Автор книги — признанный мастер американского детектива. Неизменный герой его остросюжетных повестей и рассказов — частный детектив Саймон Темплер, «гроза преступного мира», который в ходе своей деятельности попадает в ситуации самые невероятные и опаснейшие.Жанр: ДетективФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
+magnet:?xt=urn:btih:15F9998942205D1E31F2FDCA0734D2F301AF3265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012620   (793723) от 01.05.2016
+
+Serial Box 05-2016 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793723.jpg" />
+</div>
+
+
+###  Подробнее
+
+База серийных номеров проекта iSerial по состоянию на май 2016 года.
+В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
+
+База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: май 2016Разработчик: n/aПоддерживаемая ОС: OS X 10.3.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639D7CB97A4FC7D1D7E69B6D65F48EF9FA93BA48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012593   (793724) от 01.05.2016
+
+Владимир Бойко | Герои Черноморского Подплава (2016) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793724.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Герои Черноморского Подплава» рассказывается о
+подводниках Черноморского флота, удостоенных звания Героя Советского Союза в годы Великой Отечественной войны и содержится информация о подводных лодках, на которых они проходили службу: Алексеев Борис Андреевич, Грешилов Михаил Васильевич, Иосилиани Ярослав Константинович, Кесаев Астан Николаевич, Малышев Николай (   Читать дальше...   )Жанр: История, Биографии и Мемуары, Военная документалистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15712116FA599B36C981E700FAB2D00CAE5932C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012599   (793725) от 01.05.2016
+
+EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793725.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303381C0DC0DEC38293CEA72512327822D557706
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012365   (793726) от 01.05.2016
+
+Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucille    03:36
+02. Can't Find Love    05:28
+03. Highway 61 Revisited    04:56
+04. Black Spring    04:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E452A40403AE453039B48199669CC4D9728E65B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509596   (793727) от 13.11.2021
+
+Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастеру боевых искусств Шан-Чи предстоит противостоять призракам из собственного прошлого, по мере того как его втягивают в паутину интриг таинственной организации «Десять колец».Производство: США, Австралия / Walt Disney Pictures, Marvel Studios, Fox Studios AustraliaЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Дестин Дэниел КреттонАктеры: Симу Лю, Тони Люн Чу Вай, Аквафина, Мишель Йео, Чжан Мэнъэр, Чэнь Фала, Ронни Чиэн, Флориан Мунтяну, Бен Кингсли, Юэнь ВаПеревод: Дублированный (Невафильм)Субтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419D1ECC294482E31F4285E4FE9912EBBB7F8D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011789   (793728) от 01.05.2016
+
+Old Soul Society - The Farmhouse Sessions (2016) [FLAC|Lossless|tracks] <Folk Rock, Blues, Americana>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carolina    04:23
+02. Starry Night    03:42
+03. Talking in My Sleep    04:12
+04. Hurricane Heart    03:03(   Читать дальше...   )Жанр: Folk Rock, Blues, AmericanaПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889322C1A6DBF8ADC7A118AD7CA91AF1FC63255
 ```
 
 

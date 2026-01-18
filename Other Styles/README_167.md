@@ -1,3 +1,30 @@
+###  Публикация: 1366443   (922107) от 12.03.2020
+
+Klayton - The Dunes (Original Motion Picture Score) (2020) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922107.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:59| 01. Gerald
+|01:55| 02. A Pretty Bright Light
+|01:07| 03. Detroit
+|01:42| 04. Blood(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56B34299D8931881686E8E7B7CF398673608C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366442   (922127) от 12.03.2020
 
 Klayton - The Dunes (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -674,39 +701,6 @@ Johnny Cash - Sings The Songs That Made Him Famous (1958) [FLAC 2.0 24/96|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD34BB920578802434747537DC5C8C8A8E1232DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 755729   (927110) от 11.02.2014
-
-Eric Paslay - Eric Paslay (2014) [MP3|320 кб/с]<Country rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:19) 01. Keep On Fallin
-(2:50) 02. Friday Night
-(4:45) 03. Less Than Whole
-(4:15) 04. Country Side Of Heaven
-(3:27) 05. Never Really Wanted
-(3:05) 06. Here Comes Love
-(2:48) 07. Like A Song
-(3:40) 08. Good With Wine
-(4:27) 09. She Dont Love You
-(3:50) 10. Song About A Girl(   Читать дальше...   )Жанр: Country rockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C57ECDF5E0A2402762AC5553128DDF05FAC482E
 ```
 
 

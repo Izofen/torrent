@@ -1,3 +1,30 @@
+###  Публикация: 1475183   (1012527) от 05.06.2021
+
+VA - Record Super Chart 05.06.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inna - Flashbacks (2:57)
+02. Nessa Barrett feat. jxdn - la di die (3:15)
+03. Tiesto - The Business (2:44)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B3862B9F47786FAE2FB5D56508136CF90D49C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475170   (1012539) от 05.06.2021
 
 VA - Killer Sound: Hardstyle Mixtape (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
@@ -668,33 +695,6 @@ VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473992   (1013403) от 31.05.2021
-
-VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013403.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Folklore & Vacce - Krater
-002. Caox & Chris Fielding - Enemy
-003. Andrew Fields - Secret Place
-004. Maph - Ridin Dirty(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
 ```
 
 

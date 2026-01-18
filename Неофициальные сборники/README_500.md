@@ -1,3 +1,30 @@
+###  Публикация: 1211338   (777560) от 07.03.2018
+
+VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sou El Flotador Ft Anonimus - Maniatica (Intro Dirty) 4:13
+02. Vakero - Anaisa (Djdx) (Intro Clean) 3:05
+03. Galante El Emperador Ft Indy Flow Y Castigo El Buho - Rico (Dirty) 3:48
+04. Kelmitt Ft Lary Over Y Farruko - Recuerdos (Clean) 4:39(   Читать дальше...   )Жанр: Dembow, Salsa, ReggaetonПродолжительность: 02:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C01FBC13CEB16B008A7DBBA7A6D87F8CDED3DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211520   (777568) от 07.03.2018
 
 VA - Techno Sound [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Techno, Tech House>
@@ -667,33 +694,6 @@ VA - Trance Collection Vol.68 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2446057CE97512EBB263FB95A0848C354F07267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211123   (778154) от 05.03.2018
-
-VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La groupie du pianiste - Michel Berger
-02. Ella, Elle L'A - France Gall
-03. Vancouver - Veronique Sanson
-04. Ce n'est rien - Julien Clerc(   Читать дальше...   )Жанр: ChansonПродолжительность: 04:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D11F3469B3E9486963BB55AD41CBBFF83BE0AA
 ```
 
 

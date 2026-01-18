@@ -1,3 +1,30 @@
+###  Публикация: 1561456   (514680) от 05.07.2022
+
+Williboy Taxi - Down the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (C.C. Rider) (0:33)
+02. Revolution Chair (feat. Vittorio Pitzalis, Andrea Locci & Giorgio Del Rio) (2:36)
+03. Baby Don't Cry (feat. Vittorio Pitzalis & Anna Maria Viani) (3:11)
+04. Learnin' to Lie (feat. Vittorio Pitzalis) (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F44C8727819919A5500DCB30DF28B082C7DD66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561451   (514681) от 05.07.2022
 
 Voodoo Ramble - Can't Write a Pop Song (When You've Got The Blues) (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -689,33 +716,6 @@ Bochinche - Caracas (1990) /Oxymoron/ [FLAC|image+.cue]<Jazz, World Fusion, Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1F3EF6A155F80D0312BC48DC8D48D8BEBEC022D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560946   (517808) от 02.07.2022
-
-Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD, 2004, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Jack the Fieldstalker [3:08]
-02. Cable Car [4:04]
-03. I Wish I Knew [4:54](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DA49E2860555037FBA32433953D33E9AA5E4A7
 ```
 
 

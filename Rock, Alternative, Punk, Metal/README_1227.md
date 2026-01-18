@@ -1,3 +1,300 @@
+###  Публикация: 1468547   (1016900) от 09.05.2021
+
+Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Black Cat [00:04:11]
+02-Natural Born Loser [00:03:23]
+03-Ain't It Just Like A Woman [00:03:18]
+04-Strange Man [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08559D502FEEA1828AF62E78D46D107DB035317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468534   (1016912) от 09.05.2021
+
+VA - Classic Old Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - Livin' On A Prayer (04:10)
+02. blink-182 - I Miss You (03:47)
+03. Imagine Dragons - Demons (02:57)
+04. Sublime - Santeria (03:03)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B094FA9F3B5B63EFB8C66545555C5991E37C9EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468731   (1016913) от 09.05.2021
+
+Чёрный кофе - Пьяная луна (1996) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где-то в слезах (4:30)
+02. Ветер (5:18)
+03. Белая ночь (4:44)
+04. Знамя мира (3:52)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA70A7538CCF7E7D45A0033CF175CFADE142787D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468807   (1016914) от 09.05.2021
+
+Elvis Presley - Las Vegas International Presents Elvis (2021) The First Engagements 1969-70 [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blue Suede Shoes (International Hotel August 1969) [00:02:17]
+02 - I Got a Woman (International Hotel August 1969) [00:02:38]
+03 - All Shook Up (International Hotel August 1969) [00:02:47]
+04 - Love Me Tender (International Hotel August 1969) [00:03:29](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 03:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70185D2D7B95C7B7BCD278213E7CC7B30D90A30C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468798   (1016928) от 09.05.2021
+
+It Bites - Map Of The Past (2012) Bonus Tracks Edition, Remastered, 2021, Inside Out Music [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man in the Photograph (2021 Remaster) [00:03:43]
+02. Wallflower (2021 Remaster) [00:04:50]
+03. Map of the Past (2021 Remaster) [00:04:36]
+04. Clocks (2021 Remaster) [00:05:43](   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBD73BBB96B9343F3BCCA5564DB59DAEEE4C145
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468762   (1016933) от 09.05.2021
+
+A Rising Force - Undertow (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow
+02. Love and War
+03. Crushed
+04. Freaks(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C68FDC066503EB8062D912A78F5D494BCBCABD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468827   (1016936) от 09.05.2021
+
+Work Force - Work Force (1989) Japanese Edition [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Mess
+02. Hold On Tight
+03. Restless
+04. Memory Of You(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887F2DFC6C63F4425808ECFB79B0FA06205F16AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468779   (1016939) от 09.05.2021
+
+Stone Whiskey - Rebels of the Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Moonlight (00:03:26)
+02. Empty Eyes (00:03:33)
+03. Rebels of the Sun (00:04:13)
+04. Out on the City (00:03:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9640802E5B5A7EE8BD042D23BF127A06A51D444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468789   (1016940) от 09.05.2021
+
+Jordsjo - Pastoralia (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prolog (02:17)
+02. Skumring i Karesuando (07:37)
+03. Mellom Mjdurt, Marisko og Sstermarihnd (06:30)
+04. Pastoralia (06:05)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Prog FolkПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41556C82AD23E61FF944D4CE24DCC9B1D90A066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468772   (1016947) от 09.05.2021
+
+Satan - Atom By Atom (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farewell Evolution
+02. Fallen Saviour
+03. Ruination
+04. The Devil's Infantry(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001588158A313937844D066E560421DC5EE1DA26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468561   (1017056) от 08.05.2021
+
+Stone Whiskey - Rebels of the Sun (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Into the Moonlight [00:03:26]
+02 - Empty Eyes [00:03:33]
+03 - Rebels of the Sun [00:04:13]
+04 - Out on the City [00:03:48](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB3685A164F60D57715CB9CF437FBB53D131B82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468582   (1017082) от 08.05.2021
 
 Motorhead - The Lost Tapes Vol. 1 (1995) Live in Madrid, 2021 [MP3|320 Kbps] <Speed, Heavy Metal, Hard Rock>
@@ -398,305 +695,6 @@ High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468280   (1017294) от 07.05.2021
-
-J. D. Overdrive - 3 Albums (2013-2021) [MP3|320 Kbps] <Southern, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funeral Starter [00:01:20]
-02. The Ferryman Cometh [00:04:23]
-03. Old Dog, Old Tricks [00:03:52]
-04. Casual Catastrophies [00:03:38](   Читать дальше...   )Жанр: Southern, Stoner MetalПродолжительность: 3CD, 02:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9786C379C87D987055412BD90E915A985C58B73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467842   (1017329) от 06.05.2021
-
-Nightwish - 15 Studio Albums (1997-2020) 24xCD [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightwish — финская симфоник-метал-группа с женским вокалом, исполняющая песни преимущественно на английском языке. Основана Туомасом Холопайненом, Эмппу Вуориненом и Тарьей Турунен в 1996 году в городе Китеэ.
-
-Nightwish — одна из первых и самых влиятельных групп в жанре симфоник-метал, наряду с Therion и Within Temptation. Раннее творчество Nightwish отличалось (   Читать дальше...   )1997 - Angels Fall First
-1998 - Oceanborn
-2000 - Wishmaster
-2002 - Century Child(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 21:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62F739AA655EF65CD4DA40E03B09EED1BC3B3A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467439   (1017410) от 06.05.2021
-
-Лёша Закон (Алексей Глухов) - Бухнуть и помахаться (2015) Remastered, 2021 [MP3|320 Kbps] <Гоп-стоп-рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Бухнуть и помахаться [00:02:45]
-02-Не смей перечить [00:02:49]
-03-Ты была неправа [00:01:50]
-04-Православная Тверь [00:02:53](   Читать дальше...   )Жанр: Гоп-стоп-рокПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A5028F4503DF2AB23858F2891970C2DAD47DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468034   (1017416) от 06.05.2021
-
-The Mars Volta - La Realidad De Los Suenos (2021) Box Set, Vinyl [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tremulant EP:
-01 Cut That City (05:43)
- 02 Concertina (04:54)
- 03 Eunuch Provocateur (08:48)Жанр: Progressive RockПродолжительность: 07:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4260B3775ADFFB4F6E212594662B1EC3DC4292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467393   (1017432) от 06.05.2021
-
-Лёша Закон (Алексей Глухов) - Тверь.Россия.Беспредел. (2005) Remastered, ultrazymotic, 2021 [MP3|320 Kbps] <Гоп-стоп-рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-В халате сальненьком [00:01:48]
-02-Тверь стоит как стояла [00:01:27]
-03-Друзья в полосочку [00:01:56]
-04-Надя [00:02:15](   Читать дальше...   )Жанр: Гоп-стоп-рокПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7577F37321DCCCDCE9542E384A700C57F43208F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468059   (1017435) от 06.05.2021
-
-The Amorphous Androgynous & Peter Hammill - We Persuade Ourselves We Are Immortal (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Persuade Ourselves We Are Immortal
-02. Hymortality
-03. Immortality Break
-04. Physically I'm Here, Mentally Far, Far Away(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Rock, Space RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07BBE06819D20F03C845773889B2ADDC8B1A3EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468085   (1017437) от 06.05.2021
-
-Useless ID - Most Useless Songs (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State of Fear
-02. Isolate Me
-03. Night Shift
-04. It's Alright(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3026AA8D326DE8EFF1EFE55EA2DC4B29F5C07F52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468074   (1017446) от 06.05.2021
-
-Naked - End Game (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silverthorn
-02. Aim For The Heart
-03. Blood Of My Blood
-04. Leaving You Tonight(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD599F02851C6E12F7CB2F74F5CE61D34FBA6F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467896   (1017450) от 06.05.2021
-
-Pulse - Worlds Apart (2004) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothin' I Can Do About It
-02. Worlds Apart
-03. Price Of Loving You
-04. Talk To My Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C981837F71A223F6D1C5FEA05737E5CDE29B83D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467850   (1017560) от 05.05.2021
-
-Animal ДжаZ - Время любить (Акустика) (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017560.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Так надо
-2. Апрель
-3. Мистика
-4. Чувства(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:986CEDA00511B90728B903B3EF5BB735A12D7CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467727   (1017563) от 05.05.2021
-
-Greta Van Fleet ‎ - The Battle At Garden's Gate (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Above (5:41)
-02. My Way, Soon (4:15)
-03. Broken Bells (5:51)
-04. Built By Nations (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DEFDADE44DF715D770F120D93ABF59D7502341
 ```
 
 

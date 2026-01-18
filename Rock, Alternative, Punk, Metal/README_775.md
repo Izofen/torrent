@@ -1,3 +1,30 @@
+###  Публикация: 930999   (513945) от 24.08.2015
+
+Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Right So Wrong
+02. May You Never (Walk Alone)
+03. Heart On A Platter
+04. A Tear In The Rain(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5015D2AFEBC99464A513481FF15F3C458DF1D0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930924   (513959) от 24.08.2015
 
 Radkey - Dark Black Makeup (2015) [OGG| 444-518 кб/с]<Alternative Rock, Garage Rock, Post Punk>
@@ -678,33 +705,6 @@ Gorillaz - Gorillaz (2001) 5CD, Super Deluxe Edition, 2021, Parlophone [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C272F74202DC17CB01A0C3DC5D7FE4E0D804E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561352   (515586) от 04.07.2022
-
-Красный регги - Сборник пропавшего десятилетия (2021) Remixes [MP3|320 Kbps] <Russian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ритм спасет любовь [00:04:21]
-02 - До самой конечной [00:02:58]
-03 - Моя ужасная голова [00:02:49]
-04 - В венах тягучий клей [00:02:39](   Читать дальше...   )Жанр: Russian RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CAA8B538C3880AF98EAF7FF6BD9B3D351C8635
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1486583   (1004589) от 01.08.2021
+
+VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004589.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doesntmatter - Lewis Timetraveller
+002. Jorkes, Nikkname - Citizen
+003. Matè - Vertigo
+004. Mike Rish - Kelfavik(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 11:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17EA12224B40FAF46BE80E0B745895953A479A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486529   (1004593) от 01.08.2021
 
 VA - Beatport Electro House: Sound Pack #320 (2021) [MP3|320 Kbps] <House, Electro>
@@ -668,33 +695,6 @@ VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483100   (1006977) от 12.07.2021
-
-VA - Love Liberates: Romantic Compilation (2021) 2CD [MP3|320 Kbps] <Jazz, Soul, Blues, Funk>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006977.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. New York Community Choir - Ill Keep My Light In My Window
-02. Sola Rosa - Shine On
-03. Yu Sakai - Hozuki(   Читать дальше...   )Жанр: Jazz, Soul, Blues, FunkПродолжительность: 11:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB41CEE02D3BDFB842AE49D7F902E8E107B656E9
 ```
 
 

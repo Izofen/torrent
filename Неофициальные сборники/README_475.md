@@ -1,3 +1,30 @@
+###  Публикация: 1020006   (746832) от 25.05.2016
+
+VA - Acoustic Worship (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umbu Kaborang - Bersorak
+02. Sidney Mohede - Tiba Saatnya
+03. Violynt Venestia - Terpujilah NamaMu Tuhan
+04. Ryan Valentinus - You Are My Father(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96F13AD5EF36955A813D5D79E368DB096FE0D26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396498   (746839) от 15.07.2020
 
 VA - Modern Disco Fever (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
@@ -665,33 +692,6 @@ VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D07F0583F70DB754B09925A5BA26AB1A08048E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281901   (748299) от 10.02.2019
-
-VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748299.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bigbabygucci - Hypnotized
-002. Armoo - Bozoo
-003. Bebe Scammre - Sega Genesis
-004. Christian Foley - Temptation(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08 :31 :13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD017205C4B64C83CC73C034B43D5DC71319E633
 ```
 
 

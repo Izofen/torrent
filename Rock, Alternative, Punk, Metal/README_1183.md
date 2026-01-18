@@ -1,3 +1,326 @@
+###  Публикация: 271370   (975774) от 09.02.2013
+
+Phil Collins - 4 Albums (1981-1989) Audio Fidelity Remaster Collection /2010-2012, Audio Fidelity/[FLAC|Lossless]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang In Long Enough (4:45)
+02. That's Just The Way It Is (5:21)
+03. Do You Remember (4:37)
+04. Something Happened On The Way To Heaven (4:52)(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 00:59:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974548   (975793) от 12.01.2016
+
+Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Man's Path
+02. Soul Razer
+03. Imperium (Kill Force Rising)
+04. Corporate Weaponry(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747EA57B4B16373D474B0C676355C9F6A2B8F938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974628   (975798) от 12.01.2016
+
+Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 8 Men and 4 Women
+02 - Long Black Veil
+03 - Down so Low
+04 - Interlude (Time)(   Читать дальше...   )Жанр: Piano Blues, AvantgardeПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669F7806C49B6544115DA48C9E80BC9170C39471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615480   (975953) от 09.02.2013
+
+Marty Friedman - 11 albums (1988-2011) Discography [MP3|224 - 320 кб/с] <thrash/speed/instrumental neoclassical metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975953.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.   Tsume Tsume Tsume (5:27)
+2.   GIFT (4:24)
+3.   Amagigoe (4:21)
+4.   Story (5:01)
+5.   Polyrhythm (4:36)
+6.   Kaeritakunattayo (5:55)
+7.   Tsunami (4:54)
+8.   Yuki No Hana (4:01)
+9.   Eki (4:45)
+10. Sekai Ni Hitotsu Dake No Hana (4:16)(   Читать дальше...   )Жанр: thrash/speed/instrumental neoclassical metalПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750B0288E733FBB55E88A27594B1FF24F1DB78CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614916   (975959) от 09.02.2013
+
+Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]<Alt.Metal >
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975959.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. This Time It's Different
+02. Crawl Inside
+03. Thank You
+04. Beyond The Stars
+05. Graveyard Of Empires
+06. Alone Not Lonely
+07. In The Shadow
+08. Live To Die(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.MetalПродолжительность: 00:42:54 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 220857   (976027) от 09.02.2013
+
+ГDР (ГДР) - 4 альбома+Bonus (2006-2011) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Слушай, как поют сердца (03:26)
+02. Имбирь (03:52)
+03. Что-то менять (03:56)
+04. Песенка Негра из к\ф Криминальное Чтиво (03:21)
+05. Верить (из к_ф Путевой Обходчик) (02:41)
+06. Песня о Далекой Родине (03:10)Жанр: Rock |Продолжительность: 00:20:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616066   (976129) от 09.02.2013
+
+Машина Времени - Компиляция студийных и репетиционных записей (1979 - 1980) [MP3|256 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Право
+ 02 Родной дом
+ 03 Кафе "Лира"
+ 04 Поворот
+ 05 Ах, что за Луна
+ 06 Три окна
+ 07 Будет день
+ 08 Синяя птица)
+ 09 Свеча
+ 10 Кого ты хотел удивить?(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781B660FE0FC97824848962B2CE6EB18C11277C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356572   (976170) от 01.02.2020
+
+Красная плесень - Дискография 61 альбом (1993-2019) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976170.jpg" />
+</div>
+
+
+###  Подробнее
+
+(1993) 01-Альбом №1
+(1993) 02-Сопля в левом ухе
+(1993) 03-Удар по яйцам
+(1993) 04-Металлист БаллалайкинЖанр: PunkПродолжительность: 48:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F3E5CB1E4DA1F2C5CD80C1271FC385F229E1B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616073   (976248) от 09.02.2013
+
+Eric Burdon (ex-The Animals) - 'Til Your River Runs Dry - (2013) [FLAC|Lossless]<Classic Rock/Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Water 4:20
+02. Memorial Day 4:39
+03. Devil and Jesus 4:22
+04. Wait 3:45
+05. Old Habits Die Hard 4:00
+06. Bo Diddley Special 5:29
+07. In the Ground 4:10
+08. 27 Forever 4:27
+09. River Is Rising 5:59
+10. Medicine Man 4:39(   Читать дальше...   )Жанр: Classic Rock/BluesПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356850   (976480) от 01.02.2020
+
+Chris Rea - The Best of Chris Rea (1994) Compilation, Japanese Edition [FLAC|Lossless|image + .cue] <Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to Hell (4:33)
+02. Josephine (4:35)
+03. Let's Dance (4:18)
+04. Fool (If You Think It's Over) (4:07)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C25B4993B224B57A1D227A1E6BC1ADFE9EA6B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644426   (976508) от 11.01.2016
+
+David Bowie - 6 альбомов (1995-2013) Blu-spec CD2 Collection /2013, Sony Music Japan/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Next Day (3:27)
+02. Dirty Boys (2:58)
+03. The Stars (Are Out Tonight) (3:57)
+04. Love Is Lost (3:58)(   Читать дальше...   )Жанр: Rock |Продолжительность: 05:56:38 |
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616013   (976625) от 09.02.2013
 
 Hate - Solarflesh (2013) Limited Edition [FLAC|Lossless]<Death Metal>
@@ -409,305 +732,6 @@ Echoterra - The Law of One (2009) [MP3|~224 kbps]<Symphonic/Operatic Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:699F9D79E99997E330A6ED71919AD31E5C588A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614243   (977262) от 08.02.2013
-
-Nick Cave and the Bad Seeds - Push The Sky Away (2013) [MP3|320 кб/с]<Alternative / Rock / Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977262.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We No Who U R [4:05]
-2. Wide Lovely Eyes [3:40]
-3. Water's Edge [3:49
-4. Jubilee Street [6:36]
-5. Mermaids [3:49]
-6. We Real Cool [4:18]
-7. Finishing Jubilee Street [4:28]
-8. Higgs Boson Blues [7:50]
-9. Push The Sky Away [4:09]Жанр: Alternative RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670EC0641C5F1A45D63C00F28F4519E6E8C8F2A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615605   (977306) от 08.02.2013
-
-Bullet For My Valentine - Temper Temper (Deluxe Edition) (2013) [FLAC|Lossless]<Melodic Metalcore / Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Melodic Metalcore / Heavy MetalПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615523   (977506) от 08.02.2013
-
-David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steel Wheels [3:46]
-02. Fire Down Below [4:36]
-03. Sophie's Songs [5:45]
-04. Somebody Kind [4:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278316   (977534) от 31.01.2020
-
-Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 68CD [FLAC|Lossless|image + .cue|tracks+.cue] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девин Гаррет Таунсенд (англ. Devin Garrett Townsend, родился в городе Нью-Уэстминстер 5 мая 1972 года) — канадский певец, гитарист и продюсер. Характерным для его композиций жанром является прогрессивный метал, хотя музыкант не ограничивает себя рамками какого-то одного направления в музыке. Его произведения подвержены влиянию многих жанров, среди которых эмбиент, (   Читать дальше...   )Список альбомов:
-1995 - Heavy As A Really Heavy Thing
-1996 - Punky Bruster
-1997 - City(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Industrial Metal, Thrash Metal, Heavy Metal, Ambient, FolkПродолжительность: 41:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F433C22BB5D8E90DFE86161654D03BABFA95898C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615488   (977608) от 08.02.2013
-
-Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came to Rock (6:34)
-02. Rock and Roll Children (4:27)
-03. The World I See (6:29)
-04. Burn Your Flame (3:30)
-05. Man of the Dark (5:14)
-06. My Road (2:46)
-07. Time to Be King (4:24)
-08. Black Morning (4:37)
-09. Like Stone in Water (5:19)
-10. Vision Eyes (4:56)(   Читать дальше...   )Жанр: Symphonic / Heavy MetalПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356638   (977747) от 31.01.2020
-
-Gorillaz - Song Machine Episode 1 (2020) Single [MP3|320 Kbps] <Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Song Machine: Machine Bitez #1
-2. Momentary Bliss (feat. slowthai and Slaves)
-3. Machine Bitez #2
-4. Machine Bitez #3Жанр: Alternative Rock, ElectronicПродолжительность: 00:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A6EBF9C00B0C2D9FC16045FC3D67BA1223E44F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511928   (977834) от 31.01.2020
-
-Sarah Where Is My Tea - Desolate (2011) [MP3|320 кб/с]<deathcore/melodic metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Procrastination (3:59)
-02 Empty Promises (4:12)
-03 Who's Your Daddy (3:02)
-04 To Perform Last Spurt (3:40)(   Читать дальше...   )Жанр: deathcore/melodic metalcoreПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350C4ACCF88EBD731A092814469BABE96918F8B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356631   (977836) от 31.01.2020
-
-Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Together
-02. Let Me Love You
-03. I Want You Back
-04. Taste of Your Love(   Читать дальше...   )Жанр: Blues, Rock, R'n'BПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE9EA1C6C730A3CBA43073D1E9D4D5D0EA87017
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356532   (977844) от 31.01.2020
-
-Танцы Минус - Лыжи (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977844.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЛыжиЖанр: RockПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE4FA2AAFB406CC135BC2886C0C90B99BDD4D44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356653   (977847) от 31.01.2020
-
-Ensemble Of Christ The Saviour & Crude Mother Earth - Your Knife Will Show (2019) [MP3|320 Kbps] <Radikal Political Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agony Of Government
-02. You Are Forbidden
-03. Viva The War!
-04. We Will Build All The Gulag's Again(   Читать дальше...   )Жанр: Radikal Political HardcoreПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A291480DF8B3C5A333BCB3F50E71E7CDE27F94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356635   (977850) от 31.01.2020
-
-Сурганова и Оркестр - Река (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977850.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. РекаЖанр: RockПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BF97C697BBF3C9D13320ED1BB170090B56A134
 ```
 
 

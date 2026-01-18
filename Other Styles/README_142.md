@@ -1,3 +1,28 @@
+###  Публикация: 1383507   (807999) от 17.05.2020
+
+Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .cue] <New Age, Ambient, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambience (29:32)
+02. Ethereal Dreams (30:23)Жанр: New Age, Ambient, HealingПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B332EF11C5B2803A37E48ECA7C1AE52F46EAD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009475   (808110) от 22.04.2016
 
 Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
@@ -665,33 +690,6 @@ VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007836   (814834) от 18.04.2016
-
-Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #1 11:21
-2. #2 04:09
-3. #3 07:28
-4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1296657   (610130) от 18.04.2019
+
+Arnaud Rebotini - Curiosa (Bande originale du film) (2019) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curiosa
+02. Le miroir
+03. Noircissement direct
+04. Les egouts(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADACAF335D1A847BEFEEE1FD581D6EA5D4DEBB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037870   (610194) от 26.07.2016
 
 Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossless|tracks] <New Age, Relaxation>
@@ -695,33 +722,6 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912048   (614083) от 24.06.2015
-
-Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Silverstar 5:24
-02. Chica 3:14
-03. Amigos 2:40
-04. Brothers 5:52(   Читать дальше...   )Жанр: New Age, Native American, Panflute, FolkПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9FAC37A1D85E23831F02E6FB571A17AB163DB
 ```
 
 

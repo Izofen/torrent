@@ -1,3 +1,298 @@
+###  Публикация: 1356495   (978716) от 30.01.2020
+
+Нуки (Слот) - Волки смотрят в лес (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Холодно
+02. Пищевая цепочка
+03. 451
+04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A240FE3526B4A3F694F84D1FC4F12A36B36E3FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356490   (978899) от 30.01.2020
+
+Нуки (Слот) - Волки смотрят в лес (2020) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Холодно
+02. Пищевая цепочка
+03. 451
+04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A860F182E7339630F06349149BC040B22BEC30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356493   (978901) от 30.01.2020
+
+Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978901.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio SCG 10
+2. Horror for Hire
+3. Shake the Baby Silent
+4. Like a Bee to the Honey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356487   (978902) от 30.01.2020
+
+Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United
+02. Eternal Fire Burning
+03. Looking for You
+04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973670   (978936) от 09.01.2016
+
+Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakin' All Over (Johnny Kidd & The Pirates)
+02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356314   (979016) от 30.01.2020
+
+Фантастика - Первобытный (2019) [MP3|320 Kbps] <Pop Punk, Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Продолжаю путь
+03. Не рабы
+04. 5 аккордов(   Читать дальше...   )Жанр: Pop Punk, Punk Rock, RockПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC555334D74B7A836FE54ECECCBDFB26FA800EEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973239   (979052) от 09.01.2016
+
+Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Girlfriend (03:38)
+02 I Can Do Better (03:18)
+03 Runaway (03:49)
+04 The Best Damn Thing (03:11)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C920904509A8CB38128333464FA59565B0E07F9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356489   (979115) от 30.01.2020
+
+Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Knight
+02. Invictus
+03. Set the World on Fire
+04. Keeper of the Knights(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356080   (979119) от 30.01.2020
+
+Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 2012, Moon Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Širdis
+02. Šilkas
+03. Лихорадка
+04. Stars(   Читать дальше...   )Жанр: Alternative Rock, Acoustic, FolkПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FAD4067F678A754F709A46BF19231CCDF8E8A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356010   (979123) от 30.01.2020
+
+Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Tide (06:09)
+02. Kinda Dark (03:25)
+03. It Just Doesn’t Happen (05:01)
+04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356476   (979124) от 30.01.2020
+
+Martina Edoff - Martina Edoff (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Top
+02. Back Home
+03. Who You Are
+04. Hero(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D814EA577A1D7E53614275536D1547C5A26814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973567   (979144) от 09.01.2016
 
 Genesis - ...And Then There Were Three... (1978) SACD, Remastered, 2007 Virgin [FLAC|Lossless|tracks + .cue] <Prog Rock>
@@ -404,301 +699,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:249065F5FE832ECD1E5DF920159B81EEC9362EBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356030   (980552) от 29.01.2020
-
-Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stones (05:15)
-02. The Voice of My Father (04:37)
-03. Star, Sand and Shadow (05:01)
-04. Dead God's Son (04:42)(   Читать дальше...   )Жанр: Symphonic Rock, Heavy MetalПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E5CAC057E219C089FCAF712BE7C8A07C3C4DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356233   (980553) от 29.01.2020
-
-Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down (5:27)
-02. Where The Winds Blow (5:06)
-03. The Hunchback Of Notre Dame (8:54)
-04. Singers At The World's Dawn (6:57)(   Читать дальше...   )Жанр: Heavy Metal, Progressive RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356175   (980558) от 29.01.2020
-
-Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marching Into Oblivion (5:16)
-02. Confusion On A Grand Scale (4:40)
-03. Darkstar (7:10)
-04. Waiting (3:10)(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8428E0ED2FF57124FC0CDFAAA5CDBD5222CD98EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356275   (980562) от 29.01.2020
-
-Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensationable Submit (3:56)
-02. Art Of The Heart (4:12)
-03. Club Mile High (3:59)
-04. Funky Bonez (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356013   (980563) от 29.01.2020
-
-TORRES - Silver Tongue (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Scare (03:35)
-02. Last Forest (03:44)
-03. Dressing America (03:59)
-04. Records of Your Tenderness (02:47)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24514E825593D651AB991E1B6F42AF699F401C2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355995   (980568) от 29.01.2020
-
-We Are the City - RIP (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Killer B-Side Music (04:05)
-02 - Song in My Head (02:57)
-03 - Night Guest (03:07)
-04 - Obviously (04:27)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD839E77BE42B31E8B090DAA275A11BB3ED4D589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973042   (980651) от 07.01.2016
-
-Uriah Heep - It Was 40 Years Ago (2016) Compilation [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Illusion
-03. The Hanging Tree
-04. Crime Of Passion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60087012877C52B7D1B34A111D92859B0C4B60CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973036   (980663) от 07.01.2016
-
-Uriah Heep - It Was 40 Years Ago (2016) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Illusion
-03. The Hanging Tree
-04. Crime Of Passion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658180C20C20A3EA1ADD634A3336342745CBE6C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973155   (980694) от 07.01.2016
-
-Brunettes Shoot Blondes - Bittersweet (2015) [MP3|320 кб/с] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bittersweet (02:45)
-02.Bang Bang! (02:55)
-03.Tomorrow (02:52)
-04.Knock Knock (02:16)Жанр: Alternative, IndieПродолжительность: 00:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAC552A89BA26A9682E2B95EB0BF080907FD732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972918   (980700) от 07.01.2016
-
-Hinds - Leave Me Alone (2016) [MP3|256 кб/с] <Alternative Rock, Indie Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Garden
-02. Fat Calmed Kiddos
-03. Warts
-04. Easy(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Garage RockПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0111693442E5210166B927CB4E3FC4E442A814A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79536   (980758) от 28.01.2020
-
-Оргия Праведников - 4 альбома, 2 сингла (2000-2007) [MP3|188-320 кб/с]<Art Rock/Progessive/Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Московская группа «Оргия Праведников» образовалась в 1999 году путем слияния творческих потенциалов арт-роковой команды «Артель» и поэта и гитариста Сергея Калугина. Своеобразный саунд группы определяется оригинальным сочетанием акустической (флейта и акустическая гитара) и электрической (ударные, электрогитара и бас) секций.
-Читать далее:Жанр: Art Rock / Progessive / Folk MetalПродолжительность: 04:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA506CDD4B4DEAFC9A44D3C2898620E2D5EDECB4
 ```
 
 

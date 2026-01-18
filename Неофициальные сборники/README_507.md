@@ -1,3 +1,30 @@
+###  Публикация: 1205539   (783534) от 10.02.2018
+
+VA - The Official UK Top 40 Singles Chart 09.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+03. Ramz – Barking
+04. Dua Lipa – IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEAD53DDA7E44ADBD75FDDFB0F66DFF1D7EA74B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389942   (783565) от 13.06.2020
 
 VA - Music News vol.19 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -667,33 +694,6 @@ VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русски�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BC340A1C07472F7F314E28FF6DA50CA875C6F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204628   (784228) от 07.02.2018
-
-Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Faded
-2. Sara Farel
-3. Edo remix
-4. Up MusicЖанр: Deep HouseПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C2348DFD3821CBD12703BF0D6162778643F06
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1603102   (1045822) от 08.01.2023
+
+The Memphis Blues Cream - 706 Union Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bear Cat (2:43)
+02. Tiger Man (3:57)
+03. Red Hot (2:41)
+04. Runnin' around (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727FE932A3A51A486F045BF4A2D815EB224C98AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603054   (1045824) от 08.01.2023
+
+Gary Eisenbraun - Stepping Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clear the Air (6:30)
+02. Telling Me Lies (5:06)
+03. (Back To) Square One (5:21)
+04. Crying out Loud (6:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C477490DA8E8FA636947867A8B5EC11C5C1FD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603100   (1045826) от 08.01.2023
+
+The Groove Krewe feat. Nick Daniels III - Run to Daylight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run to Daylight  (4:00)
+02. That's New Orleans  (4:21)
+03. Have a Party  (3:36)
+04. In the Groove Zone  (3:19)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B671B4E93F7AB6466B02F9445F740840DC09D5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603057   (1045832) от 08.01.2023
+
+Ian Matthew Harper - Cyan Colonel - Cyan Colonel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Degree (4:16)
+02. Two To Tango (3:07)
+03. Devil's Satisfied (3:15)
+04. Orange From Green (2:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87CEDCFA08E05F14FA16D733813B9CFF06C507D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603095   (1045833) от 08.01.2023
+
+Soul Blaque - Shhh.. Hush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Rock With You Baby (4:48)
+02. Whatever You Want (3:55)
+03. Goodmorning Sunshine (5:20)
+04. Anything You Want (3:26)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2903E5D8BE347380A4B23F1363F71EDD07431E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603064   (1045841) от 08.01.2023
+
+Phil Manca - And All That Blues! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Around the World (3:35)
+02. Until You Do (2:29)
+03. Little Girl (Remix 2022) (2:47)
+04. Down Payment Blues (Remix 2022) (7:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0205BB8B83AAAE402C1A8AF6EE9C091887D191E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603089   (1045862) от 08.01.2023
+
+Ram Cheung - 19-22 Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing That Thing (3:23)
+02. Shake That Thing (4:04)
+03. Worried Blues (4:33)
+04. I Just Want Someone (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F5DB7E963343AD317BD84F256B4E8E0A0E2E12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603024   (1045864) от 08.01.2023
+
+Andrew Borg - Let Me Dream Our Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Dream Our Life (4:40)
+02. Way Down (3:09)
+03. Walk Into My Arms (5:26)
+04. Devil On My Back (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D24CCF75784550EFB702CB6B9293EB6D2CD3D27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603019   (1045873) от 08.01.2023
+
+Tri-Fi - A Tri-Fi Christmas (2011) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosty the Snowman [4:39]
+02. O Holy Night [6:37]
+03. Carol of the Bells [3:43]
+04. Joy to the World [3:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FB654137DF1372A19A0DD6E98D6CA5BB5C13B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603013   (1045874) от 08.01.2023
 
 Karin Krog - Sweet Talker: The Best Of Karin Krog (1963 - 2005) 2CD, 2005, Grappa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -452,249 +695,6 @@ Lil' Red & the Rooster - Keep on! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEA7F81C8A9E564A84E4A8A8776965F7F48DB180
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602308   (1046147) от 05.01.2023
-
-Riverboat - Big Talk and Muddy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby That's Alright (3:02)
-02. Hard Times (2:44)
-03. Big Talk & Muddy (3:18)
-04. Riverboat (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60564B7E745E8EA0E2F45183451BDDF50B75F1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602298   (1046148) от 05.01.2023
-
-LJ Mounteney - Mama Danced (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Rat (3:49)
-02. I Like it Hot (3:20)
-03. Wasn't That a Time? (2:52)
-04. Mama Danced... (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50B45AFFF19E162499740177262DE16789BEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602293   (1046151) от 05.01.2023
-
-Justin Lavash Trio - E Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brick by Brick (2:52)
-02. Easy Train (3:52)
-03. Fox & Hounds (4:24)
-04. Avalanche (5:17)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E837AC9CA59BEE7C6BB48D2E90FDB421DFEA8D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602331   (1046153) от 05.01.2023
-
-Lee Wiley - Music Of Manhattan (1951) 1998, Uptown Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Street of Dreams [3:36]
-02. Oh, Look at Me Now [3:11]
-03. Hallelujah [1:49]
-04. Manhattan [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BBC383FA146432BBAE15200D7F5D34A20121345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602335   (1046154) от 05.01.2023
-
-Shorty Rogers & Andre Previn Orchestra - Collaboration (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Delovely [2:28]
-02. Porterhouse [2:47]
-03. Heat Wave [2:38]
-04. 40 Degrees Below [2:43](   Читать дальше...   )Жанр: West Coast JazzПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A550390B0D5F0DC1C3868CA0FF28DA6857DAEAFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602177   (1046211) от 04.01.2023
-
-Karin Krog & Georgie Fame - On A Misty Night (2018) Odin [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On a Misty Night [7:18]
-02. I'm Never Happy Anymore [6:00]
-03. If You Could See Me Now [7:49]
-04. Accentuate the Bass [5:36](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E6C8F4238D357A00E3797DB3155E470F45444D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602121   (1046212) от 04.01.2023
-
-Jeremy Wong - Hey There (2022) Cellar Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:30]
-02. Invitation [6:27]
-03. Only a Dream [4:57]
-04. Easy to Love [4:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7D3174620772837EEAE163268596DA552C9638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602130   (1046213) от 04.01.2023
-
-The Universal-International Orchestra - The Glenn Miller Story (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Serenade [3:31]
-02. Zuxedo Junction [3:12]
-03. Little Brown Jug [3:09]
-04. St. Louis Blues March [3:39](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4AE9D5C4160FEC3C1C7CCCBB5959A05C763655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602126   (1046224) от 04.01.2023
-
-Woody Herman & Erroll Garner - Music For Tired Lovers (1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Melancholy Baby [4:00]
-02. I Hadn't Anyone 'Till You [3:51]
-03. Medley: Let's Fall in Love / Moonglow / I Don't Know Why (I Just Do) / You've Got Me Crying Again [10:26]
-04. If I Could Be With You (One Hour Tonight) [2:39](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583D00AB7BDDA593C823039E7C6E112F844324D7
 ```
 
 

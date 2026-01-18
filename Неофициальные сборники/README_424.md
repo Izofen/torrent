@@ -1,3 +1,30 @@
+###  Публикация: 1029750   (678604) от 28.06.2016
+
+VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rihanna -  This Is What You Came For (Denis First Remix) 4:12
+02. Major Lazer & MOTi ft Ty Dolla Sign, Wizkid & Kranium -  Boom (Gumanev & DJ Cosmos Deeptool) 4:35
+03. R3hab feat. Sia vs. Tom Tyger -  Wolf Nation (Night & Toni Aries Mashup) 4:34
+04. Safri Duo -  Played-A-Live (Yastreb Remix) 4:17(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EBAEEA7544ACB0FC84C53BD635E88B5AB27FAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029504   (678605) от 28.06.2016
 
 VA - DJ World Places Miracle (2016) [MP3|320 кб/с] <Funky, Disco, Electronica, Tropical, Club>
@@ -674,33 +701,6 @@ VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135717   (679422) от 20.05.2017
-
-VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samsaboy - Наташа Танцуй 3:55
-002. Тина Кароль - Я Не Перестану 3:56
-003. Сергей Бузин - Остров 3:56
-004. Тамерлан & Алена - Измены 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFE85E012AB8C27CEEA12E33CE5DF4B2E44BB5C
 ```
 
 

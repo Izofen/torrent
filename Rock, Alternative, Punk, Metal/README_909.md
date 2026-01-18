@@ -1,3 +1,306 @@
+###  Публикация: 1031620   (652151) от 04.07.2016
+
+Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prequel
+02. Misdirect
+03. Architect
+04. Alpha(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF965E4D670C1FCA1345C2D8278B7D75E72FBCBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031551   (652157) от 04.07.2016
+
+Martyr - You Are Next (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Darkest Of All Realms
+02. Infinity
+03. Inch By Inch
+04. Souls Breathe(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A3DB5062681D681D7F9BBEACD7A5AA6E3AD665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031358   (652160) от 04.07.2016
+
+Warfect - Scavengers (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors Of Cadavers
+02. Reptile
+03. Anatomy Of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1BA0067804D2A3C688BDA43F67A62F67473594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031246   (652165) от 04.07.2016
+
+Martin Neuhold (feat. Guy Beeri Mauseth & Colin Powell) - The Fool's Tale (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Act 1-1- Fool's Observations    05:55
+02.  Act 1-2- The Dark Ones    06:34
+03.  Act 1-3- Retreat    05:16
+04.  Intermission No. 1    01:49(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6AA6DCF918A2008AA4686B5E1DA1564F7DDF03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540584   (652303) от 30.03.2022
+
+Traci Trexx Midnite Blues - Blood Death & Tequila (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam, Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood, Death & Tequila (05:48)
+02. I Want You Back (04:16)
+03. Road Danger (04:37)
+04. Rock This Town (04:15)(   Читать дальше...   )Жанр: Glam, Hard Rock, Blues RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F1FF718E5E3C1EFC1AEB4C88668C7729848445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227048   (652348) от 23.05.2018
+
+Icon - Icon (1984) Reissue, 1993, Capitol Records [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652348.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. (Rock On) Through The Night
+2. Killer Machine
+3. On Your Feet
+4. World War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C29058AA12FAE0CBD848E9DEED8EE3A1B7D42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226903   (652352) от 23.05.2018
+
+Симптом - Ближе (2018) [MP3|320 Kbps] <Love Metal, Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Километры Снов
+2. Try
+3. Мегаполис
+4. Тысяча Дней(   Читать дальше...   )Жанр: Love Metal, Gothic Metal, Gothic RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1234CA77ADA946D8CCF691280AEB42D3F6FEE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515949   (652420) от 29.06.2012
+
+АБЛОМ - Za!`Аблakaмu (2011) [MP3|320 кб/с]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты больше не моя
+ 02. Убил
+ 03. Большой
+ 04. Солнце zа 0блаkамu
+ 05. А Гаrарuн летuт!
+ 06. Nнfyzz0рuя
+ 07. Соловьи
+ 08. Эх, kрейzu
+ 09. Летu (& подальше)
+ 10. Песня для той(   Читать дальше...   )Жанр: РокПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16133C55CBEDFBE9F5D61DDC9B19BA10C995E493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291700   (652502) от 26.03.2019
+
+Resonance - Ультрафиолет (2019) [FLAC|Lossless|image + .cue] <Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epic 3:04
+02. When the Levee Breaks 7:39
+03. The House of the Rising Sun 4:32
+04. Other Same 4:16(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085DC03D38EA11C2B293BA1E845ECB4481DAFAD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540369   (652539) от 30.03.2022
+
+ДДТ (DDT) - Это всё... (1995) Reissue, 2011, Navigator Records [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глазища
+02. Ветер
+03. Четыре окна
+04. Белая ночь(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04F34F8859EB576E891D015D0CFB8199D6B998D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141014   (652554) от 09.06.2017
+
+Phish - The Story Of The Ghost (1998) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652554.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Ghost 3:52
+2 Birds Of A Feather 4:14
+3 Meat 2:39
+4 Guyute 8:26(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FA70DC76690AB0C00AC55A91353365CD532D93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540284   (652634) от 30.03.2022
 
 Vivaldi Metal Project - EpiClassica (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -416,329 +719,6 @@ Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904874   (653454) от 04.06.2015
-
-In Virgo - In Virgo (2015) [FLAC|Lossless|WEB-DL]<Alt. Metal | Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Me Free
-02. The Light At the End
-03. The Chosen
-04. Lost All of You(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | ElectronicПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75F06D0077EC4100E8550D1AB137BEFCC4D3F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904758   (653557) от 04.06.2015
-
-Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beauty Of You (05:26)
-02. Maybe (05:25)
-03. Journey Through The Past (05:02)
-04. It's Not On Me (03:32)(   Читать дальше...   )Жанр: Rock, Folk, AmericanaПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904846   (653559) от 04.06.2015
-
-MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bb Shoe-Flay (Live) (4:51)
-02. Leave Me Alone (Live) (4:39)
-03. Deranged (Live) (4:25)
-04. Waitin' Achin' (Live) (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515948   (653652) от 28.06.2012
-
-Бригадный подряд - Best (1986-2004) (2004) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Папарупап
- 02. Кировский завод
- 03. Деньги
- 04. Долой,гопоту!
- 05. Красота сожрет этот мир
- 06. Фанат
- 07. Кошечка
- 08. Мы идем грабить банк
- 09. Иван Факов
- 10. Идиот(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6123F106D6A4973BC5A77190F30D291ACF22CBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516346   (653721) от 28.06.2012
-
-Элизиум - Все острова (2003) [Monkey's Audio|lossless] <Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_653721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алкогольная (03:38)
-02. Альпинист (02:23)
-03. Острова (03:20)
-04. Три белых коня (02:26)
-05. Сказка (03:22)
-06. Как Гоген (03:27)
-07. Как бы всё (02:11)
-08. Как Ван Гог (02:52)
-09. Оптимизм (00:58)
-10. Не грусти (02:37)(   Читать дальше...   )Жанр: SkaПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516034   (653829) от 28.06.2012
-
-Panic Room - Skin (2012) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song For Tomorrow
-02. Chameleon
-03. Screens
-04. Chances
-05. Tightrope Walking
-06. Promises
-07. Velvet & Stars
-08. Freefalling
-09. Skin
-10. Hiding The World(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FDF4A297E593928950146BDAD12AF67FCF43F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516434   (653831) от 28.06.2012
-
-VеSёLый  RоDGеR (Весёлый Роджер) - 2 альбома [MP3|320 kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2004-2007Альбомлист:
-2004 - Нам наплевать!
-2007 - Улыбчивые лицаЖанр: Punk RockПродолжительность: 00:30:25
-
-01 | Прыгай | 01:11
-02 | Что с нами случилось | 02:14
-03 | Улыбчивые лица | 02:32
-04 | Как все | 02:45
-05 | Раздолбай | 01:17
-06 | Изменить | 01:41
-07 | Дети | 03:57
-08 | Дебош | 00:52(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4348FA3DCB1AD893823475BE8C28BADF0DF54D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141083   (653838) от 08.06.2017
-
-Rise Against - Wolves (2017) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves
- 02. House On Fire
- 03. The Violence
- 04. Welcome To The Breakdown(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36BDE62A35079F63E17BDFC83DE4558D59E034D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140839   (653845) от 08.06.2017
-
-Volumes - Different Animals (2017) [MP3|320 Kbps] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves Control
-02. Finite
-03. Feels Good
-04. Disaster Vehicle(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C33CD8C28E5054972668F2AC31EED0CFB243750
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141084   (653850) от 08.06.2017
-
-Lindsey Buckingham & Christine McVie - Lindsey Buckingham & Christine McVie (2017) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleeping Around the Corner (03:48)
-02. Feel About You (03:28)
-03. In My World (04:25)
-04. Red Sun (03:16)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF89A8AC963985750CF2A8A7980D457A3DDEA1F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140821   (653854) от 08.06.2017
-
-Ошибка Птицы - 2 Альбома + Неизданное (2005-2010) [MP3|128-320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официально выпущенные два альбома Новосибирской группы Ошибка Птицы + Неизданное.01 - Начало (4:38)
-02 - Эсхатология (4:52)
-03 - Пингвин (4:13)
-04 - Твои мосты (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 01:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8801D7914FDF1F5C1087C30C19EBD6C98C4242F1
 ```
 
 

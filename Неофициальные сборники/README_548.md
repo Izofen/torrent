@@ -1,3 +1,30 @@
+###  Публикация: 1006904   (825481) от 13.04.2016
+
+VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House:
+01.Detroit Swindle - Howsmusic (Original Mix) (7:36)
+02.COEO - Back In The Days (5:40)
+03.Mad Rey - Quartier sex (7:40)(   Читать дальше...   )Жанр: Deep House, Nu-Disco, Club House, Tech House, TechnoПродолжительность: 16:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577E031E70AEE38C8297AC1F009014887FB08A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 775120   (825535) от 08.04.2014
 
 VA - Лирика шансона (2014) [MP3|320 кб/с]<Шансон, Авторская песня>
@@ -665,33 +692,6 @@ VA - Touch You Dream: Relax Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D8E45B45C6345160EF892E14D58A3913D2D8B12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115552   (826656) от 18.03.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Usher - Wait For It 3:29
-002. Great Good Fine Ok - Get Away 3:27
-003. Jojo - Vibe 3:08
-004. Ани Лорак - Сопрано 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C6B66E56B1AC8029192543F96D564ADF9CF2E1
 ```
 
 

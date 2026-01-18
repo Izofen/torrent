@@ -1,3 +1,56 @@
+###  Публикация: 1031892   (649549) от 05.07.2016
+
+Mahamudra - ScreenSaver (2015) [MP3|320 Kbps] <Morning, Progressive>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Energy
+02 - Momento
+03 - The IndianЖанр: Morning, ProgressiveПродолжительность: 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13994C020737AFDC681DC1A633DDA5EF1E94AA10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031990   (649683) от 05.07.2016
+
+Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colours (6:23)
+02. Ibiza Blue (5:04)
+03. The Ocean (5:13)
+04. Amoralea (5:58)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031829   (649684) от 05.07.2016
 
 VA - Earotic Vol 1 (Chill Out For Your Ears) (2016) [MP3|320 Kbps] <Deep House, Breaks, Сhill>
@@ -635,66 +688,6 @@ Fatboy Slim - Halfway Between The Gutter & The Stars (15Th Anniversary) (2015) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4853A63824DB35BD9851E62A30CE2E9726E1BC18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905257   (651611) от 05.06.2015
-
-Flash Atkins - The Life & Times (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Levenshulme Orphanage For Boys 06:24
-02. The Wilderness (feat Sally Garozzo) 07:43
-03. Saved By The Fall 09:55
-04. A New Kind Of Superhero (feat Aggie Frost) 04:29(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A91E5F82EA737B1F08BBCEA6C688CB3955F15F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515467   (651726) от 29.06.2012
-
-VA - Ibiza 2012 (2012) [MP3|320 кб/с]<Progressive House, Electro House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9Five — Smoke 05:20
-02. Chuckie — Together (Original Club Mix) 06:20
-03. Chuckie Feat. Gregor Salto — What Happens In Vegas (Ibiza Vip) 05:43
-04. Clmd — Black Eyes & Blue (Extended Version) 06:40
-05. Dan Castro Feat. Errol Reid — The Cove (In Your Eyes) 07:27
-06. Dannic — Pipeline 05:16
-07. Denzal Park — Nammos (Original Mix) 06:26
-08. Dj Pp & Silversix — F*Cking Amazing! (Original Mix) 08:07
-09. Etienne Ozbourne — Feeling For You 05:56
-10. Freddy See — Dreamers 06:46(   Читать дальше...   )Жанр: Progressive House, Electro House, HouseПродолжительность: 06:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CAF34DF6F836A21DB56FAECD7C78D637AAA464C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1103834   (883631) от 13.02.2017
+
+VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аполлинария - Околдована 3:00
+002. Sigala & Digital Farm Animals - Only One 3:24
+003. Элемент - Не Мое Кино 3:03
+004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103837   (883638) от 13.02.2017
 
 VA - Музыкальное зимнее настроение. Русский сборник (2017) [MP3|256 Kbps] <Pop>
@@ -673,33 +700,6 @@ VA - Music News vol.130 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F06364A13B7386CD12C5F34EC819BD7FC95CCC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103580   (885945) от 12.02.2017
-
-VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRegi - Shoul'dve Been There For You (Dj Antonio remix)
-02. De Hofnar, MOWE & Freddie Verano - Crazy Love
-03. Emeli Sande - Read All About It (Amice Remix)
-04. Mida - Believe (Extended Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
 ```
 
 

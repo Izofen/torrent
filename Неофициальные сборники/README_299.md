@@ -1,3 +1,30 @@
+###  Публикация: 934488   (502523) от 05.09.2015
+
+VA - Resident Advisor Top 50 Charted Tracks August 2015 (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damian Lazarus & The Ancient Moons - Vermillion (&Me Remix) 07:48
+02. &ME - Woods (Original Mix) 07:58
+03. Wallflower - Manifest (Rampa Remix) 08:58
+04. Peter Makto, Gregory S - HomeBase (Original Mix) 07:24(   Читать дальше...   )Жанр: Techno, Minimal, Electronica, Tech House, Deep HouseПродолжительность: 06:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E2D3C48270D7ADC7BCEA6084E662A9713C7724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934653   (502532) от 05.09.2015
 
 VA - Delicious Deep House Vol 2 (2015) [MP3|320 кб/с]<Deep House>
@@ -727,33 +754,6 @@ VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933982   (504606) от 03.09.2015
-
-VA - Chill Rock (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Taylor - PS Look out for Me - Radio Edit 2015
-02. Franco Salerno - Time to Time
-03. New P - Desaster
-04. Cunz - Gimme Your Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AEC88323F8C34ADE9F26684F53E3E47F410D6C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 932808   (507242) от 31.08.2015
+
+June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Get Along Without You Very Well
+02. It's Always You
+03. Forgetful
+04. Everything Depends On You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C2705B8502688EC20CE0ABB9359ED05F761693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933093   (507250) от 31.08.2015
 
 John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Rarities (1965) /1991, Suisa/[APE|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
@@ -680,39 +707,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF077E42A925C2211B2B5297D845117F0C35C9BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537846   (509737) от 23.08.2012
-
-VA - Capital Gold - Soul Legends (2003) 2CD [MP3|320 кб/с]<Soul, Pop, Rock>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - What's Love Got to Do With It [03:19]
-02. Marvin Gaye - Sexual Healing [04:04]
-03. Deniece Williams - Free [02:38]
-04. Isley Jasper Isley - Caravan of Love [04:21]
-05. Freddie Jackson - Rock Me Tonight [0For Old Time's Sake] [04:04]
-06. Harold Melvin & The Blue Notes - If You Don't Know Me by Now [03:22]
-07. Rose Royce - Wishing on a Star [03:57]
-08. Dionne Warwick - Heartbreaker [04:18]
-09. Ashford & Simpson - Solid [03:21]
-10. Rufus & Chaka Khan - Ain't Nobody [03:20](   Читать дальше...   )Жанр: Soul, PopПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65D017AFE799EE59C150BBFC00BBDEBBB5226AD
 ```
 
 

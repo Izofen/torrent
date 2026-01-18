@@ -1,3 +1,57 @@
+###  Публикация: 1219299   (715229) от 13.04.2018
+
+Нейромонах Феофан - Тропа (2018) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715229.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тропа
+2. Ремесло
+3. На двореЖанр: Drum & Bass, ElectronicПродолжительность: 00:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E2975A91B52D42EDB10C953362A54736F0BB4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893079   (715362) от 28.04.2015
+
+Biosphere - Microgravity (Expanded Edition) (2015) [FLAC|Lossless|WEB-DL]<Techno Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715362.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Microgravity
+ 01. Microgravity (05:21)
+ 02. Baby Satellite (05:06)
+ 03. Tranquilizer (08:24)
+ 04. The Fairy Tale (04:55)(   Читать дальше...   )Жанр: Techno Ambient, DowntempoПродолжительность: 00:48:08+00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8CA3D96E2EA9653A2F51365A68808A503BF0DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025836   (715753) от 01.05.2017
 
 Label Pack - Rielism - 45 Releases (2015-2017) [MP3|320 кб/с] <Trance>
@@ -635,60 +689,6 @@ Nørbak (Norbak) - Macula (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7906888634EEB74DF6C6057D2ADC315975DA94A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024333   (718160) от 08.06.2016
-
-VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta) (5:48)
-02. Mark Moragui - The Oath and the Man (Long Groove Mix) (5:43)
-03. Tommy Angel - Glitter Harmony (Sound of Essence Mix) (5:42)
-04. AS Trax - Remember New York (Lovers Mix) (5:49)(   Читать дальше...   )Жанр: Dance, Electro House, Progressive HouseПродолжительность: 10:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D82DF846934688799C9008A5A679DFD72BA33B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129947   (718432) от 30.04.2017
-
-VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|tracks] <Psy-Trance, Goa-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ovnimoon – The Source (The Digital Blonde Remix) (08:57)
-02. Spiritual Mode – Universe Inside You (08:51)
-03. Egoflame – Breath of Life (07:53)
-04. Isralienn & FLuXusS – The Human Centipede X Nozomi Shirayuki (07:31)(   Читать дальше...   )Жанр: Psy-Trance, Goa-TranceПродолжительность: 02:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B278DCD91777AF7AB8AA0FB47D2C528E9DEA757A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1384049   (806273) от 18.05.2020
+
+VA - Simple Elegance: Ultimate Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806273.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mauro Rawn - Perfume Of You
+002. Gianluigi Toso - My Blue Love
+003. Shawn White - Want To Be My Babe
+004. Alex Cortiz - Chase Me(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 09:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6740579E2946EE044CF16FC1C7B58578450F72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384018   (806276) от 18.05.2020
 
 VA - Beatport Bassline: Electro Sound Pack #84 (2020) [MP3|320 Kbps] <D&B, Dubstep, Bassline>
@@ -674,33 +701,6 @@ VA - Весна на шансоне 5 (2016) [MP3|256 кб/с] <Shanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA779FFE86833304805CC78E8065DE88C2F842DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009657   (808234) от 22.04.2016
-
-VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BassBrothers - It's Right
-02. Royalston, Hannah Joy - People on the Ground
-03. Annix - Forever
-04. Anile - Jack of Clubs(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 05:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BF3E576C6A38D077143DEB661CD51C172A1CEE
 ```
 
 

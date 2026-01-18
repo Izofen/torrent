@@ -1,3 +1,301 @@
+###  Публикация: 1216778   (747931) от 01.04.2018
+
+Eidolon - Coma Nation (2002) [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nemesis	2:02
+02. Coma Nation	4:21
+03. Life Is Agony	4:41
+04. Scarred	7:12(   Читать дальше...   )Жанр: Speed Metal, Power MetalПродолжительность: 01:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473B2AEA8A58EC69B5CDFDC51A1243143559C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216777   (747932) от 01.04.2018
+
+God Dethroned - Ravenous (2001) [APE|Lossless|image + .cue] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swallow The Spikes
+02. The Poison Apple (Eve & Serpentio In The Garden Of Eden)
+03. Villa Vampiria
+04. Consumed By Darkness(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC9867FCF06C578BEBC94D5A36E57A247653F6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216793   (747933) от 01.04.2018
+
+Mortification - Hammer of God (1999) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Crusade
+02. Martyrs
+03. Lock Up The Night
+04. In The Woods(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5700FBBE17E78DCAA43745D4BBF974EB1DF92A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216788   (747934) от 01.04.2018
+
+Mortification - Blood World (1994) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clan Of The Light
+02. Blood World
+03. Starlight
+04. Your Life(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AAFCCAD89A1489257575D89DAEBF5BA244DEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216781   (747935) от 01.04.2018
+
+Infestdead - JesuSatan (1999) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-resurrection
+02. Christinsanity
+03. Born To Burn
+04. JesuSatan(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF8BD9D1F89D53F66FC5C87B883E5FC7D30B31F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019661   (747961) от 24.05.2016
+
+Architects - All Our Gods Have Abandoned Us (2016) [MP3|320 кб/с] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nihilist
+02. Deathwish
+03. Phantom Fear
+04. Downfall(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE461DDB86171F8401C8AE9C537D3509E7B4757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523846   (748081) от 13.01.2022
+
+Magnum - The Monster Roars (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magnum в 2022 году отпразднует свое 50-летие. Как и следовало ожидать, титаны английского хард-рока пробудили монстра, и теперь он рычит.
+"The Monster Roars" - так называется их новый альбом, которым они показывают, что ничего не потеряли в своем качестве, энергии и объеме. Совсем наоборот.01. The Monster Roars
+02. Remember
+03. All You Believe In
+04. I Won't Let You Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D224A63AFE9058B809C77F478E17348A01613C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019943   (748186) от 24.05.2016
+
+Catharsis - Антология. Лучшее (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748186.jpg" />
+</div>
+
+
+###  Подробнее
+
+"25 композиций, прошедших ремастеринг в рамках подготовки проекта 'Антология'. Мы отобрали их с учетом нашего видения и недавнего народного голосования. Конечно, кто-то не найдет в этом списке какую-нибудь свою любимую композицию, но мы постарались соблюсти баланс, чтобы порадовать большинство."01. Воин света (Ремастированная версия)
+02. Сердце мира (Ремастированная версия)
+03. Имаго (Ремастированная версия)
+04. Дальше - тишина... (Ремастированная версия)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2205D0C21B854699FBB431678208B3A04E14E495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019882   (748200) от 24.05.2016
+
+Stratovarius - Best Of (2016) 2CD, Remastered [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until the End of Days (3:44)
+02. My Eternal Dream (Remastered 2016) (6:05)
+03. Eagleheart (Remastered 2016) (3:50)
+04. Speed of Light (Remastered 2016) (3:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53010A352BCC5182D0A7451B9314FAA366E0CCDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523958   (748224) от 13.01.2022
+
+Land Of Gypsies - Land Of Gypsies (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe (04:24)
+02. Shattered (03:57)
+03. Trouble (03:53)
+04. Give Me Love (03:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25489C1FCEF1E54521C6D3F4039636CEECD52CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523927   (748228) от 13.01.2022
+
+Fit For An Autopsy - Oh What the Future Holds (2022) [MP3|320 Kbps] <Deathcore / Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh What the Future Holds
+02. Pandora
+03. Far From Heaven
+04. In Shadows(   Читать дальше...   )Жанр: Deathcore / MetalcoreПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CF19B8AA42BF6868FD6CB87D0919AA95A73EA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523922   (748230) от 13.01.2022
 
 Shadow of Intent - Elegy (2022) [MP3|320 Kbps] <Symphonic Deathcore>
@@ -391,303 +689,6 @@ magnet:?xt=urn:btih:36CF2C9A101EFE2DFD489D68B12631EA239FA96D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B285E195CB05FFC228998F5396517667A554AE8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216298   (749313) от 31.03.2018
-
-Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Send Me an Angel
-03. If I Had the Time
-04. Guilty(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072DA2CB50C37AC4C7C5BA09E8FA614F3FA2138A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216508   (749318) от 31.03.2018
-
-VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749318.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:00] 01. Nickelback - We Will Rock You
-[1:58] 02. Everlone - Breakfast In America
-[3:50] 03. Black–ingvars - Livin' La Vida Loca
-[4:31] 04. Nonpoint - In The Air Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DD1FB80BB1D3E7FD4D5925743CFF76E5A9872E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216493   (749324) от 31.03.2018
-
-Light The Torch - Revival (2018) [MP3|320 Kbps] <Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Alone
-02. The God I Deserve
-03. Calm Before the Storm
-04. Raise the Dead(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBFF754A1D85760A0720127450EBE13704DE7610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216517   (749325) от 31.03.2018
-
-Alice Cooper - The Essential Alice Cooper: The Epic Years (2018) [FLAC|Lossless|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison
-02. Bed of Nails
-03. Hey Stoopid
-04. House of Fire(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 02:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391C7A0D3C15CF0C4F28C8C30921F26B7EF2F6BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216492   (749326) от 31.03.2018
-
-Escape the Fate - I Am Human (2018) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautifully Tragic
-02. Broken Heart
-03. Four Letter Word
-04. I Will Make It Up To You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A217DEA54C87E045AA54CC88BD60BEDE88F7AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216465   (749434) от 31.03.2018
-
-Earthstream - Earth Scream (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain My Spirit
-02. Death Bringer
-03. Deadly Drowned Desperation
-04. The Gate to My Funeral(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA1283D0CBE28FD54689252ABDEF2CA3FA78379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889176   (749535) от 17.04.2015
-
-Apocalyptica - Shadowmaker (2015) Deluxe Edition [MP3|320 кб/с]<Symphonic Metal, Cello Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I-III-V Seed of Chaos
-02. Cold Blood
-03. Shadowmaker
-04. Slow Burn(   Читать дальше...   )Жанр: Symphonic Metal, Cello MetalПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE4362293CD2D0E89C52DCFABF9469A376CEE0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523545   (749794) от 12.01.2022
-
-Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surviving The Game (3:58)
-02. Standing in the Storm (4:17)
-03. Dominion (3:51)
-04. Valley of Death (4:27)(   Читать дальше...   )Жанр: Alt.Rock, Christian MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A1079B44DF41891D71FE2A2BBD1383C9E0FC0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523698   (749801) от 12.01.2022
-
-VA - Greatest Ever Feelgood Songs (2022) 4xCD [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749801.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Monkees - Daydream Believer
-02. Chaka Khan - I Feel for You
-03. Chic - I Want Your Love(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 04:57:81
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72930F09429F67E9EEED000B5EDBC63F58A65364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281696   (749917) от 09.02.2019
-
-Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ending (3:30)
- 02. Renegade Music (3:30)
- 03. Not the Only One (3:25)
- 04. Who Do You Trust? (3:16)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, Pop-RockПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8849924AEBB8ED7B74E62FE23DB1D72F1EF9C822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281235   (749924) от 09.02.2019
-
-Джуна - Высший пилотаж (2018) 2EP on CDr, Limited Edition, Numbered [FLAC|Lossless|tracks] <Post-Punk, Indie Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ни ты, ни я
-02. Рыба
-03. Самолёт
-04. Закат(   Читать дальше...   )Жанр: Post-Punk, Indie Rock, ShoegazeПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C53BA102EEC7DB551A2248BA22704EF02B93CD
 ```
 
 

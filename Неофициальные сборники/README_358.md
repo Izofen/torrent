@@ -1,3 +1,30 @@
+###  Публикация: 915554   (592392) от 05.07.2015
+
+VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<House, Disco, Nu-Disco, Deep, Electronica, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Koze - XTC [08:20]
+02. Trevino - Eclipse [07:04]
+03. Stephan Bodzin - Singularity (Original Mix) [07:02]
+04. Sabb, Forrest - One of Us feat. Forrest (Original Mix) [06:14](   Читать дальше...   )Жанр: House, Disco, Nu-Disco, Deep, Electronica, MinimalПродолжительность: 06:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F23B0378EE2634F14C2675AFAB209E3D4E375
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549632   (592460) от 10.05.2022
 
 Leo Rojas - Compilation (2022) [MP3|320 Kbps] <Instrumental, New Age>
@@ -668,33 +695,6 @@ VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Ene
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C16D8D273B0B882F455A5BDCB05580E95C09BA0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300111   (593685) от 05.05.2019
-
-VA - Record Super Chart 585 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aaron Smith - Dancin (Krono Remix) (4:15)
-2.Filatov & Karas - Au Au (2:54)
-3.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB2D58E7DFBE71AE6A365D999C03D8096AA9358
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1524474   (743636) от 16.01.2022
+
+VA - Uplifting Only - Orchestral Trance Year Mix 2020 (Mixed by Ori Uplift) (2021) [FLAC|Lossless|WEB-DL|tracks|image] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Sun - Hiyoku No Tori (Intro Mix) (7:20)
+02. Etasonic - Bittersweet Hope (Original Mix) (8:29)
+03. DreamLife & Aleksey Gunichev - Maybe Someday (Extended Mix) (7:28)
+04. Tribal Temptation - Sense Of Life (Vocal Extended Mix) (7:24)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E635AEEB14EF94A520F5809343C913701A3C16D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282623   (743735) от 13.02.2019
+
+VA - Armin van Buuren - A State Of Trance 900 (Part 3) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate ft. Foret – Need To Feel Loved
+02. Late Night Alumni – Empty Streets (ALPHA 9 Remix)
+03. Thoba & Kate Miles – Your LoveЖанр: TranceПродолжительность: 03:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133C722E94E8452F4D7E6FF28F6ABB8B92DDB117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282599   (743745) от 13.02.2019
 
 Not Waving - Futuro (Music For The Waldorf Project) (2019) Ecstatic [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, Experimental, Soundtrack>
@@ -638,60 +691,6 @@ VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396772   (745495) от 16.07.2020
-
-VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Progressive Trance, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minddigger - Infinite Motion (08:32)
- 02. RAAS - Floating Forward (Invisible Ralf Remix) (06:36)
- 03. Richard Stonefield - Ashtan (Revisited) (07:46)
- 04. Dynamic Illusion - Back To Life (Revisited) (06:24)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, Downtempo, AmbientПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62E2445194BC4B8ABD3E4BD4C648C72704C1490
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020274   (745521) от 26.05.2016
-
-Bernd Filz - A Good Stuff (2016) [MP3|320 кб/с] <Electronic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745521.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Good Stuff [05:49]
-2. Dark Canyon [06:17]
-3. Daydreamer [06:00]
-4. Houseworker [05:22](   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ED696962D2AAB3984130B8F9B684F7F72E3AEF
 ```
 
 

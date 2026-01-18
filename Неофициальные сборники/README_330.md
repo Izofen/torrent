@@ -1,3 +1,30 @@
+###  Публикация: 1236051   (556162) от 15.07.2018
+
+VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. DJ Cargo - Summer Night (3:01)
+02. Mesto - Give Me Love (3:22)
+03. Sunrise Blvd ft Nelita - Can't Hide (Radio Version) (3:46)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBC602593FAFE9904D771DCA419F3E7C528FB87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236011   (556287) от 15.07.2018
 
 VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924779   (557373) от 04.08.2015
-
-VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Дорин - Для Тебя
-002. Faith Evans - Extraordinary
-003. Профилактика - Навсегда Ухожу
-004. Charli Xcx & Roma Pafos Vs Lilly Wood & Nejtrino & Baur - Player Break The Rules(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
 ```
 
 

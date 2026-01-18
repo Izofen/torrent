@@ -1,3 +1,30 @@
+###  Публикация: 1495505   (880611) от 12.09.2021
+
+VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-Disco, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Take My Breath
+02. Felix Jaehn & Robin Schulz - I Got A Feeling (feat. Georgia Ku)
+03. Tinlicker & Helsloot - Because You Move Me
+04. Pascal Letoublon - Friendships (Lost My Love) (feat. Leony)(   Читать дальше...   )Жанр: Hip Hop, Latin, Dancehall, Post-Disco, SynthpopПродолжительность: 01:01:05 + 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996015   (880628) от 13.03.2016
 
 VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160-320 кб/с] <pop>
@@ -656,33 +683,6 @@ VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C995A2E069C80D12CAF80ECF57F901792ABAE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372907   (882108) от 05.04.2020
-
-VA - Record Super Chart 631 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARIA - Bleu Chanel (NA-NO Remix) 2:43
-02. SAINt JHN - Roses (Imanbek Remix) 3:58
-03. NRD1 - All Good Things (Come To An End) 3:27
-04. Carla Morrison - Disfruto 3:57(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B60B05D2639C148069C0A96F6233102F96CA4A
 ```
 
 

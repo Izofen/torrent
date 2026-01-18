@@ -1,3 +1,30 @@
+###  Публикация: 986476   (931046) от 14.02.2016
+
+VA - Шансон: состояние души 74 (2013) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Радзивило Светлана - Шла девченка
+02. Лабутин Сергей - Я родился в тюрьме
+03. Кенсаринов Анатолий - Костерок
+04. Шафоростов Игорь - Что петь,что танцевать(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D2B6A1CAF848550F4E1887240594025E100E6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 862011   (931367) от 22.01.2015
 
 VA - Дискотека 80-90 годов по - новому от Виталия 72 - Часть- 4 (2015) [MP3|313 - 320 кб/с]<Eurodance, Dance, Disco>
@@ -668,33 +695,6 @@ VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38340B16BD62F3E03A33F07663576ECAF3CAE55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093537   (933890) от 15.01.2017
-
-VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Allen & Envy Ft. Victoriya - Dont Say (Extended Mix)  6:39
-02.  Elite Electronic - The Other Side (Ikerya Project Remix)  7:22
-03.  Chris Schweizer & Heatbeat - Samurai (Extended Mix)  5:10
-04.  David Gravell - The Road (Extended Mix)  4:49(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 09:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E808D67B016BC329467513256832143E83C2AEB
 ```
 
 

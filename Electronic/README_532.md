@@ -1,3 +1,57 @@
+###  Публикация: 1438404   (1041194) от 08.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & HALIENE - Tidal Wave (Daxson Extended Remix)
+02. Claus Backslash - Mental Flow (Extended Mix)
+03. Dave Neven pres. Ocata - A Glimmer Of Hope (Extended Mix)
+04. Iona Coast - Tuvalu (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA0D24D009F6101CAB1988BF3D1B279D47552F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611150   (1041420) от 11.02.2023
+
+VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Penn - Yeah Yeah (Original Mix) (6:22)
+02. Federico Scavo & Moya - Set Me On Fire (Extended Mix) (5:55)
+03. Claptone feat. George Kranz - The Drums (Din Daa Daa) (Dennis Cruz Extended Remix) (6:52)
+04. Milk & Sugar - Riding High (CASSIMM Extended Remix) (5:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82545D48258EECD1EB3A7533CD6C1BEF0792CE7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611153   (1041652) от 10.02.2023
 
 VA - Hit Factory Vol. 1 (2023) CD, Compilation [MP3|320 Kbps] <Soulful, Tech House, Deep Groove>
@@ -641,57 +695,6 @@ Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A52C98A822DB3EADF94FC41945BDD63EFDD3670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436896   (1042813) от 02.01.2021
-
-The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Duguid feat. Julie Thompson - Falling
-02. Michael Cassette - Zeppelin
-03. Cicada - Beautiful (Michael Gray Remix)
-04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436931   (1042815) от 02.01.2021
-
-VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
 ```
 
 

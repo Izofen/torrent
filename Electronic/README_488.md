@@ -1,3 +1,57 @@
+###  Публикация: 975901   (970191) от 16.01.2016
+
+VA - Goa 2016 Vol. 1 (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psytrance, GOA Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi Profile - Archangel (09:22)
+02. Rocky - Among Us (08:28)
+03. Osher & Krunch - Silky Smooth (07:37)
+04. Ellinio & Orisma - Elements (08:21)(   Читать дальше...   )Жанр: Psychedelic, Progressive Psytrance, GOA TranceПродолжительность: 02:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE1C158763089F99076FDDB776F88DCB41BFD35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357990   (970649) от 06.02.2020
+
+VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autograf feat. Jared Lee - Ain't Deep Enough 3:16
+02. Lost Frequencies & Mokita - Black & Blue (Lost Frequencies Sunrise Club Mix) 4:31
+03. Zack Martino feat. Lenii - Crave U 3:32
+04. Joe Smooth - Promised Land (Groove Armada Remix) 3:50(   Читать дальше...   )Жанр: House, DeepHouse, ProgressiveПродолжительность: 01:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D848946AB39ECC6BFB7684F1312A29A0A1061F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975882   (970660) от 16.01.2016
 
 VA - Spanish Hits For Germany - CD1: House Side (1997) [APE|image+.cue] <House, Hard Trance, Happy Hardcore, Makina>
@@ -660,60 +714,6 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24FE2CBE68BF153945EDE582C19D699F1DE05826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356933   (976564) от 01.02.2020
-
-VA - Goa 2020 Vol.1 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Drive - Ozark (Original Mix) 6:17
-02. Marcus (IL) - Malayalam (Original Mix) 8:45
-03. Serenity Flux - Symphony Of A Broken Dream (Original Mix) 8:28
-04. Estefano Haze & Novotech - Bodyscan (Original Mix) 8:11(   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, ElectronicПродолжительность: 02:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B6E44CF3CFBE2BC5004814D1D1954EE0C3F3690
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356939   (976871) от 01.02.2020
-
-Proswell - Amaterasu (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Abstract, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amaterasu (03:33)
- 02. Rakusui (04:32)
- 03. CRT (02:57)
- 04. Usanpo (04:16)(   Читать дальше...   )Жанр: Leftfield, IDM, Abstract, ExperimentalПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0A19119F1B6A3CAB805133B1C33CEBA36D56CB
 ```
 
 

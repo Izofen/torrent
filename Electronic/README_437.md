@@ -1,3 +1,57 @@
+###  Публикация: 310533   (831876) от 21.03.2011
+
+Didier Marouani & Space - Back to The Future (2008) [FLAC|Lossless]<Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introduction
+2. Back To The Future (Touch Edit) (Mix: Philippe Laurent@Phlstudio)
+3. Back To The Future (Easy Mix) (Mix: Pierre Bucco@Pienji)
+4. Back To The Future (Extend Edit) (Edit: Jeff Parent)Жанр: ElectronicПродолжительность: 00:16:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114621   (832079) от 15.03.2017
+
+DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FEEL & Jaren - Losing Time (Extended Mix)
+02. Frainbreeze & Vadim Bonkrashkov - Walhall (Original Mix)
+03. Andrew Rayel feat. Eric Lumiere - I'll Be There
+04. Alexander Popov - Substance (Extended Mix)(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B62E66435134F947C2ABDBA48F8C9F0C2C96FBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114732   (832080) от 15.03.2017
 
 VA - Abora Chillout Best of 2016 (Mixed by Johannes Fischer & Ori Uplift) (2017) [FLAC|Lossless|WEB|tracks|image] <Chillout, Modern Classical>
@@ -641,60 +695,6 @@ VA - Inferno (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:325940798E1426E66AE708407F8A7BD5B1DCA50C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380323   (835060) от 02.05.2020
-
-CJ Burnett - Heartracer (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun, Dreamwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Velocity (4:15)
-02. Streets of Desire (3:38)
-03. Rendezvous (5:26)
-04. Stargaze (4:07)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Outrun, DreamwaveПродолжительность: 00:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D480242D2332605C4DF578996C400B19C86E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380343   (835065) от 02.05.2020
-
-daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835065.jpg" />
-</div>
-
-
-###  Подробнее
-
-daveepa - Festival Anthem Music Mix 2020 2020-04-10 (00:00:00-00:52:44)
-N/A
-
-Fuerte - Festival Anthem Music Mix 2020 2020-04-10 (00:52:44-02:08:43):(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 03:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCB818D53ED3005F33552CD7AFE6BD7DC5DD3D5
 ```
 
 

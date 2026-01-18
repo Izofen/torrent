@@ -1,3 +1,30 @@
+###  Публикация: 1472590   (1014058) от 27.05.2021
+
+VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Club, Dance House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roman Novelrain - She & Me
+002. Inner Sinner - Just Like B4
+003. Groove Control - Real Love
+004. Twenty Six - Consequences(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 08:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E92FCD856516D9E258AF85C1DC826F142D7F0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472650   (1014139) от 26.05.2021
 
 VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Progressive, Future House>
@@ -668,33 +695,6 @@ VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470894   (1015308) от 19.05.2021
-
-VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саунд микса имеет постоянное развитие, отчего назвать его простым и скучным никак не получиться. Музыка, которой присуща своя харизма. Приобретая восточные и этнические мотивы - музыка въедается в мозг, душу и заставляет себя слушать, унося из обычной цивилизации эпохи электроники куда-то в тропики и пещеры.001. Lewis Del Mar - Fever
-002. Calimeros - Du Bist Meine Koenigin
-003. Mickie Krause - Wir Lassen U
-004. Ferdinant. - World Full Of Color(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
 ```
 
 

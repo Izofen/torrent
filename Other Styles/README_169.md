@@ -1,3 +1,30 @@
+###  Публикация: 1364916   (930399) от 07.03.2020
+
+VA - Encyclopedia of Ethnic Music, Vol. 1 (2010) [MP3|192 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nox, Krys Mach - Ancestral Circle
+02. Nox, Krys Mach - Navajo Pride
+03. Nox - Too Many Things to See
+04. Nox - Ancestral Circle(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2357563A425093B0D5C24C89C29292F2AAD55FCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286098   (930572) от 24.01.2011
 
 Enrique Ugarte - 2 albums (2001, 2005) [MP3|320 kbps]<Instrumental / Accordeon>
@@ -716,35 +743,6 @@ Kai Rosenkranz - Risen (2009) [MP3|~245 кб/с (V0)]<OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E80FF2E359E922F0C24DF31D30F0D293C91E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175925   (933576) от 19.02.2010
-
-Ben Chasny (Six Organs of Admittance, Comets on Fire) - Discography (37 albums) (1998-2009) [192-320|mp3] <Psychedelic Folk, Indie rock, Neofolk, Psychedelic Rock, Drone, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Six Organs of Admittance - Furnace (18:06)
-2. Azul - Campanella (4:12)
-3. Azul - Mamo (6:25)
-4. Azul - Ocean (3:15)
-5. Azul - Gnya Gnya Blues (4:02)
-6. Azul - A Short Stop Along the Way (Song for David Tibet) (4:52)Жанр: Psychedelic Folk, Indie rock, Neofolk, Stoner Rock, Drone, ExperimentalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 

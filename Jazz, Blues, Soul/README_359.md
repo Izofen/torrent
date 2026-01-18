@@ -1,3 +1,111 @@
+###  Публикация: 1234232   (572814) от 04.07.2018
+
+Bill Charlap Trio - Uptown, Downtown (2017) Impulse [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curtains [7:00]
+02. Spring Can Really Hang You Up the Most [7:55]
+03. Uptown Downtown [6:00]
+04. The One I Love Belongs to Somebody Else [5:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD2D695ABDDFB8D61B250741C88F82663771476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043292   (572843) от 16.08.2016
+
+Andrea De Luca - Andrea De Luca Blues Trio (2016) [FLAC|Lossless|image + .cue] <Guitar Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blow Wind Blow - 2:50
+02. Good Morning Little Schoolgirl - 3:30
+03. Back to Life - 4:21
+04. Alone - 3:18(   Читать дальше...   )Жанр: Guitar BluesПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FD88E69C91E39E261DEEF7F5CC47A83688C8A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303444   (572856) от 21.05.2019
+
+Vivian Vance Kelly - Chicago Here I Come (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Blues Woman
+2 - People In My Business
+3 - Four Corner Room
+4 - Husband Cheating On Us(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68E6300087C7FC36E602BB7B3BDFDD15444F3D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303525   (572883) от 21.05.2019
+
+Marc Cohn - Walking in Memphis (2019) [MP3|320 Kbps] <Soft-Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Walking In Memphis
+02 – True Companion
+03 – Far Away Nearby
+04 – Blow On Chillywind(   Читать дальше...   )Жанр: Soft-Rock, SoulПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0AE2D5CCB2CB8AA31ADEEFE9D030BD1728CA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151322   (572885) от 19.07.2017
 
 VA - SoulJazz - Get Ready! (2017) [MP3|320 Kbps] <Jazz, Soul Jazz>
@@ -236,6 +344,33 @@ Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CE0CA2F6B1801A1633A82459ED0D06966FF0C94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528330   (573223) от 28.07.2012
+
+Lazer Lloyd - My Own Blues (2012) [FLAC|Lossless|image + .cue]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_573223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Movin (3:41)
+02. Good Man Down (4:14)
+03. My Own Blues (3:18)
+04. By Your Side (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -560,141 +695,6 @@ Buddy Collette - Jazz Heat Bongo Beat (1959) 2000, Blue Moon [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2AC675B73769A47D14EE2B784F1150D880BC24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151363   (574636) от 18.07.2017
-
-Jimmy Raney - Two Jims and Zoot (1964) 1990, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Me [02:56]
-02. A Primera Vez [04:20]
-03. Presente de Natal [03:07]
-04. Morning of the Carnival [04:34](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEC564127B4A5FA2CB551E2429853836FA27258
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042950   (574796) от 15.08.2016
-
-VA - 1 год журналу Джаз.Ру: Юбилейный CD (2007) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sunlight - 24th of May [07:29]
- 02.Helsinki Trio feat. Leonid Sendersky - Fruit Tea [06:57]
- 03.Andrew K - Krasila [08:06]
- 04.Второе Приближение - Джаз давай [08:34](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Guitar JazzПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3407D4EF82E133F32D28B97535288302BCFE523
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043167   (574798) от 15.08.2016
-
-Art Ensemble Of Chicago - Full Force (1980) ECM[FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Magg Zelma [19:51]
- 02.Care Free [00:51]
- 03.Charlie M [09:19]
- 04.Old Time Southside Street Dance [05:13](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80DC028C2EEBD84DF62444DABF251FDFF74B793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042997   (574929) от 15.08.2016
-
-Caroline - Dog Eats Cat Eats Mouse (2015) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574929.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Dogs eats cat eats mouse 8'49
-2 Frogs & fish 9'21
-3 Fish & frogs 6'54
-4 La diagonale 9'10(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD7B9711007A8035A3E613CC9FDCC33B52CDAB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554652   (575779) от 31.05.2022
-
-Theo Croker - Blk2life, A Future Past (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, R&B, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4Knowledge (0:46)
-02. Soul Call, Vibrate (6:32)
-03. Just Be (Prelude) (0:35)
-04. Every Part of Me (feat. Ari Lennox) (3:10)(   Читать дальше...   )Жанр: Jazz-Funk, R&B, Contemporary JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC8900B11F942DAB4883856917E4ADC11BAE8E0
 ```
 
 

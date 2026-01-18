@@ -1,3 +1,36 @@
+###  Публикация: 374255   (516555) от 11.08.2011
+
+VA - Пиратская Станция Часть 10 (2011) [MP3|256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Карась - Гостья Из Будущего
+02. Dj Smash - Blueberry Hill (Extended Mix)
+03. Dj Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
+04. Kazaky - Love (Dj Sebastien & Vengerov Remix)
+05. Mc Zali & Dj Dima Molotov - Дави Танцпол (Bizz Nizz Feat. George Arrendell)
+06. Don Omar Feat. Lucenzo - Danza Kuduro (Ivan Flash Remix)
+07. Ку-Ку - Анжелина Джоли (Рома Лейтенант Remix)
+08. Stromae - Peace Or Violence (Glen N Mix)
+09. Ural Djs & Katrin Queen - Что За Нах
+10. Dan Balan - Freedom (Dj Nejtrino & Dj Stranger Club Mix)(   Читать дальше...   )2011Жанр: ClubПродолжительность: 12:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0A02F73B03823AE01F60ECCE6730E9CC21163C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561114   (516589) от 03.07.2022
 
 Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -695,33 +728,6 @@ VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D2C7B8FF5DFC9C9955C1D15D7C5DE185BED034D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314258   (519277) от 14.07.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
-02. Billie Eilish - Bad Guy 3:14
-03. Ed Sheeran & Justin Bieber - I Don't Care 3:40
-04. Drenchill feat. Indiiana - Freed From Desire 3:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
 ```
 
 

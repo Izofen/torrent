@@ -1,3 +1,341 @@
+###  Публикация: 601823   (997870) от 12.01.2013
+
+Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patterns
+02. Resonance
+03. Cover Bare Arms
+04. Wave LairЖанр: Post Rock, Shoegaze, Dream PopПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601419   (998101) от 11.01.2013
+
+Afgrund - The Age Of Dumb (2012) [MP3|320 кб/с]<Crust Grindcore / Deathgrind>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life And Death Of A Broiler
+ 02. Living The Nightmare
+ 03. The Might Of A Nation
+ 04. H.A.A.R.P.Y.
+ 05. Beaurocrap
+ 06. Carniwars
+ 07. Genocide To Glorify
+ 08. Repaint The Truth
+ 09. An Aggregation Of Misfortune
+ 10. Discorporate(   Читать дальше...   )Жанр: Crust Grindcore / DeathgrindПродолжительность: 00:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38AA56CD3ABD1171FDF224AD25CA309BA8521F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601338   (998107) от 11.01.2013
+
+Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998107.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:19] 01. Cockpit - Mission To Rock
+[02:48] 02. Cockpit - At A Loose End
+[03:06] 03. Cockpit - White Flag
+[03:10] 04. Cockpit - Shot In Hell
+[03:38] 05. Cockpit - Gun For HireЖанр: RockПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601175   (998263) от 10.01.2013
+
+Roger Waters - The Wall - Live in Berlin (1990) 2CD Box Set / PolyGram / [WavPack|Lossless]<Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You
+by Paul CarrackЖанр: Rock, Progressive RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601180   (998288) от 10.01.2013
+
+Black Veil Brides - Wretched and Divine: The Story of the Wild Ones (2013) [MP3|320 кб/с]<Glam Metal | Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium
+02. I Am Bulletproof
+03. New Years Day
+04. F.E.A.R Transmission Stay Close
+05. Wretched And Divine
+06. We Don't Belong
+07. F.E.A.R Transmission Trust
+08. Devil's Choir
+09. Resurrect The Sun
+10. Overture(   Читать дальше...   )Жанр: Glam Metal | Hard RockПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BD9A041C70F19CA79F98FF6B545619C00ECEED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601220   (998338) от 10.01.2013
+
+Prime Circle - Evidence (2012) [MP3|320 кб/с]<Alt.Rock | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998338.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Evidence
+3. Change
+4. Time Kills Us All
+5. Answers
+6. Know you Better
+7. King for a Day
+8. Room of Ghosts
+9. Staring at Satellites
+10. Only Way Out(   Читать дальше...   )Жанр: Alt.Rock | Modern RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB1C2AAE612AC7FED1EDE68F19148809549EF0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600995   (998377) от 10.01.2013
+
+Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Back (03:44)
+02. Shape Of Your Heart (03:27)
+03. King Of Anything (03:44)
+04. Get Up (03:33)
+05. Right Now (03:17)Жанр: RockПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD124F16CC1F92EA3B8EF83C9D52F1E7048E28B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600775   (998414) от 10.01.2013
+
+Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Away (04:09)
+02. Shadows In The Night (04:31)
+03. Tomorrow (05:04)
+04. Without You (05:11)
+05. Ready To Promise (04:51)
+06. L.I.E.S. (03:30)
+07. Dream Of It All (03:32)
+08. Believe (03:57)
+09. Tell Me (04:05)Жанр: Hard RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600524   (998550) от 09.01.2013
+
+Dropkick Murphys - Signed And Sealed in Blood (2013) [FLAC|Lossless]<Celtic Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boys Are Back (3:19)
+02. Prisoner's Song (2:47)
+03. Rose Tattoo (5:06)
+04. Burn (2:39)
+05. Jimmy Collin's Wake (2:59)
+06. The Season's Upon Us (4:02)
+07. The Battle Rages On (2:17)
+08. Don't Tear Us Apart (3:01)
+09. My Hero (3:10)
+10. Out On The Town (3:02)(   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600425   (998560) от 09.01.2013
+
+Billy Joel - Piano Man (1973) Hybrid SACD /2010, MFSL/ [FLAC|Lossless]<Soft-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travelin' Prayer (4:17)
+02. Piano Man (5:39)
+03. Ain't No Crime (3:19)
+04. You're My Home (3:13)
+05. The Ballad Of Billy The Kid (5:48)
+06. Worse Comes To Worst (3:15)
+07. Stop In Nevada (3:55)
+08. If I Only Had The Words (To Tell You) (3:34)
+09. Somewhere Along The Line (3:20)
+10. Captain Jack (7:21)Жанр: Soft-RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600338   (998578) от 09.01.2013
+
+Кам'яний Гість (Каменный гость) - 60/70 Классика рока в украинском стиле (2012) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Під плач гітари моєї #1
+2. Там вдалині
+3. Люди дивні
+4. Мерседес Бенц
+5. Зафарбую чорним
+6. Вітер десь носить
+7. Леді в чорному
+8. Ми знали
+9. Храм короля
+10. Ти скажи мені, друже…(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF70413FD1737B3FB71BCD6A5A37FE3A7A8EE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600694   (998603) от 09.01.2013
 
 The Faceless - Autotheism (2012) [FLAC|Lossless]<Progressive / Technical Death Metal>
@@ -467,314 +805,6 @@ Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599258   (999406) от 06.01.2013
-
-Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fall From The Grace Of Love (3:44)
-02.  Girls In Black (3:36)
-03.  Wash Away (4:16)
-04.  I Believe In You (3:56)
-05.  You Don't Have Me (3:45)
-06.  Money (4:09)
-07.  Someday (4:10)
-08.  Heal Me (7:21)
-09.  Over You (4:06)
-10.  Road To Forever (4:57)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599135   (999409) от 06.01.2013
-
-Coffin Texts - The Tomb of Infinite Ritual (2012) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Atum (Into the Divine Sphere) 00:54
-02 To Manifest 05:54
-03 Final Transformation 04:47
-04 The Sacred Eye 06:43
-05 Divination 08:01
-06 Throne of Genocide 06:04
-07 Dieties of the Prime Evil Chaos 05:21Жанр: Death MetalПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599198   (999428) от 06.01.2013
-
-Sothis - De Opresso Liber (2008) [WavPack|Lossless]<Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Night And Silence [03:57]
-02. De Opresso Liber [05:30]
-03. Beneath A Black Sky [05:49]
-04. Lunar Descent [04:49]
-05. Obsidian Throne [05:30]
-06. Defiance [06:55]
-07. The Cold Disconnection [04:20]
-08. Lair Of The Benighted  [05:29]
-09. Perpetual [05:58]Жанр: Symphonic Black MetalПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599248   (999433) от 06.01.2013
-
-Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bankrupt (4:32)
-02.  Tied Up (3:44)
-03.  Die Singing (3:23)
-04.  The Guilt (4:52)
-05.  Hello Animosity (4:38)
-06.  Travelers (4:40)
-07.  Live And Let Live (4:10)
-08.  Keep Thinking (5:11)
-09.  All We Need (3:38)
-10.  Uneasy Chair (3:45)(   Читать дальше...   )Жанр: 70's RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598511   (999602) от 05.01.2013
-
-Black Cat Bones - Barbed Wire Sandwich (1969) [MP3|320 kbps]<Heavy Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Blues-RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F980C59C70ECF331B414B776C6B7DC3B3DA88106
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598516   (999645) от 05.01.2013
-
-Black Cat Bones - Barbed Wire Sandwich (1969) [FLAC|Lossless]<Heavy Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy Blues-RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598431   (999911) от 04.01.2013
-
-Eagles - The Complete Greatest Hits (2003) 2xCD [FLAC|Lossless]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic RockПродолжительность: 01:13:28 + 01:11:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598062   (1000150) от 03.01.2013
-
-Uriah Heep - Greatest Hits (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 02:30:18
-
-CD1-01:15:02
-CD2-01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40CA892BEC9D3AEF3ACC0C248DF2E0568708CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597999   (1000185) от 03.01.2013
-
-Deep Purple - On The Wings Of A Russian Foxbat  (1976) 2CD /1995, Connoisseur Collection/ [APE|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597471   (1000199) от 03.01.2013
-
-Jace Everett - 4 CDs (2006..2011) Discography [MP3|320 kbps]<Country Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Country Rock, Blues RockПродолжительность: 02:53:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597943   (1000252) от 03.01.2013
-
-НЕТ СЛОВ - Добавь меня в друзья (2012) [MP3|320 кб/с]<Alternative / Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Добавь меня в друзья (02:40)
-2. За тобой (03:09)
-3. Придумай что-то лучше (03:32)
-4. Гигабайты (04:48)
-5. Ответь на мой крик (03:07)
-6. Гопники (03:12)
-7. Всё будет ОК (03:31)
-8. Муза-шлюха (03:19)
-9. Поп-звезда (02.45)
-10. Стресс (02.50)(   Читать дальше...   )Жанр: Alternative / PunkПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61F758DB0CA6998D04AE22019F476FF26BE0A70
 ```
 
 

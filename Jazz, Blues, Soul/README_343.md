@@ -1,3 +1,30 @@
+###  Публикация: 925970   (537104) от 08.08.2015
+
+Scott Bradlee’s Postmodern Jukebox - Swipe Right For Vintage (2015) [MP3|320 кб/с]<Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Blood (3:12)
+02. My Heart Will Go On (3:22)
+03. Lovefool (4:00)
+04. I Kissed A Girl (2:51)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABF2E63F527340B994D9141D3A557270BB49CC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925857   (537270) от 08.08.2015
 
 Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
@@ -683,33 +710,6 @@ Marchio Bossa - Come in un quadro (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68EB223B1084A379F7121004E353F4B0C5237D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239398   (538987) от 05.08.2018
-
-Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Into His Eyes [4:35]
-02. Juicy [4:32]
-03. Hidden Within [5:09]
-04. You On My Mind [3:32](   Читать дальше...   )Жанр: Vocal Jazz, Jazz Fusion, Latin JazzПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1328F97D895C23DBA87B4498743C1CBDACAB0C2
 ```
 
 

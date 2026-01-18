@@ -1,3 +1,30 @@
+###  Публикация: 1455562   (1025621) от 19.03.2021
+
+VA - Music News vol.82 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025621.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MeMaria - Кармен (02:22)
+ 002. 5sta Family & Eva Miller - Зачем (02:43)
+ 003. 22 - Отстаньте От Меня (02:09)
+ 004. Эдуард Хуснутдинов - Судьба Дорога (03:56)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1843D8414982680FD7829D6BE1C03A7CBE61DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455582   (1025628) от 19.03.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 19.03.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - EDC: Deep Techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5696ADB9FE000CD3D6AE95CE83F5E5080C2415
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453565   (1026887) от 11.03.2021
-
-VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop, Rap, Classic>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026887.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Intro
-002 Lamar - Let Your Lovelight Shine (Remix)
-003 A.K.-S.W.I.F.T. - In The Game
-004 Pappa Bear - Cherish (feat. Jan Van Der Toorn)(   Читать дальше...   )Жанр: Hip-Hop, Rap, ClassicПродолжительность: 04:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF49EF8559063557C3927589A72AD4D202A9BFF3
 ```
 
 

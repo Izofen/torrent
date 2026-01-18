@@ -1,3 +1,57 @@
+###  Публикация: 1454057   (1026437) от 14.03.2021
+
+Tricky - Fall to Pieces (Remixes) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, E﻿lectronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Stone (trentemøller Remix) [00:03:40]
+02. Fall Please (Kahn Remix) [00:05:38]
+03. I'm in the Doorway (LA Timpa Remix) [00:05:12]
+04. Vietnam (Lafawndah Remix) [00:03:25]Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C14DA995621AFAFC5AB6C518C6A30A691919EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453892   (1026623) от 13.03.2021
+
+Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRi - Stranger
+02. Alex O’Rion - Cuprum
+03. Emil Berliner - Aoede
+04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453893   (1026745) от 12.03.2021
 
 BlutEngel - Fountain of Destiny (2021) [MP3|320 Kbps] <Darkwave, Synth-pop>
@@ -634,58 +688,6 @@ Solar Fields - Reflective Frequencies (Remastered Special Digital Edition) (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68D9EBC5F4432B2EB9801E324CDDFF71C846FF0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451970   (1028031) от 04.03.2021
-
-VA - Illusion Of Gravity (Compiled by Sunduo) (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subdream - When Stars Light Up (8:18)
-02. Lab's Cloud - System Flow (7:16)
-03. Minddigger - Synthesis (9:18)
-04. Echo Season - Outflow (9:04)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD19D8094422A3EFEEFAFE37429F5AC126985B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830277   (1028047) от 04.03.2021
-
-Patrick Benolkin (Eluder, ElectricWest, Lamont Kohner) - Discography 23 Releases (2006-2020) [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Downtempo, Experimental,  Dub Techno, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusk Requisite (06:40)
- 02. Hollow (06:33)Тип издания: CD, WebЖанр: IDM, Ambient, Downtempo, Glitch, Experimental,  Techno •Продолжительность: 16:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94347EF80981D0DFAB8A8BC5B98FEDA9E0427A4C
 ```
 
 

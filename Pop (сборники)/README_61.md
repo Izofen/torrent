@@ -1,3 +1,30 @@
+###  Публикация: 1234523   (565843) от 08.07.2018
+
+DJ KramniK - Collection (2018) [MP3|320 Kbps] <Italo-Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love The Italo Disco (3:36)
+02. New Day (Pozitivchik 2) (5:38)
+03. The Paradise (Original Version) (9:33)
+04. Winter Voyage (Radio Version) (6:24)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 04:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8B66CF6DED67CDAA3A2EAFFFC1EC982B404FA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234875   (565993) от 08.07.2018
 
 VA - German Top 100 Single Charts 09.07.2018 [MP3|320 Kbps] <Pop>
@@ -695,33 +722,6 @@ VA - 60 лучших песен на французском языке (2017) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:512BA7C0E9749D677AA9ADD349564B1F46193904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043488   (572389) от 16.08.2016
-
-VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Jonas feat. Tove Lo - Close
-002. DJ Khaled feat. Drake - For Free
-003. Twenty One Pilots - Stressed Out
-004. James Bay - Let It Go(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426DB1E9950435BA0347E8B0BFE7D84137113435
 ```
 
 

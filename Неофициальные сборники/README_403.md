@@ -1,3 +1,27 @@
+###  Публикация: 1031352   (652163) от 04.07.2016
+
+A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652163.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ сборникЖанр: Future HouseПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031638   (652170) от 04.07.2016
 
 VA - Relevant Freak Future Massive (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -698,33 +722,6 @@ VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC16C309832BF7698A28D66F2ECE8606BCEE376D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140924   (653443) от 08.06.2017
-
-VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big Beat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Everything But The Girl - Missing (Todd Terry Remix)  4:08
-02.  The Beloved - Sweet Harmony  3:29
-03.  Robert Miles - Children  4:02
-04.  Enigma - Sadeness  4:14(   Читать дальше...   )Жанр: Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big BeatПродолжительность: 03:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
 ```
 
 

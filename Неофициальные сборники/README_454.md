@@ -1,3 +1,30 @@
+###  Публикация: 1531851   (718549) от 17.02.2022
+
+VA - The Rock Organ (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booker T. & The MG's - Green Onions (02:55)
+02. Pink Floyd - Alan's Psychedelic Breakfast (2011 Remastered Version) (13:00)
+03. The Spencer Davis Group - Gimme Some Lovin' (Single Mix) (02:58)
+04. Al Kooper - Stop (04:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4026176BA57AD15B46996780C3BEF91166FC0310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285751   (718586) от 27.02.2019
 
 VA - Hit Music (весна 2019) от Мяу [MP3|320 Kbps] <Pop>
@@ -672,33 +699,6 @@ VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632A07650403EB6957BDC8FD2CB810F031646A5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024104   (720197) от 07.06.2016
-
-VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <Tech House, Tribal, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endorphine - Our Night (Tanya Aura Remix) 07:15
-02. Dennis GRKN - Winner (Original Mix) 05:21
-03. DJ Sandro Mix - The Sick (Original Mix) 05:00
-04. Abel Ramos & Hurt - Believe (Extended Mix) 04:42(   Читать дальше...   )Жанр: Tech House, Tribal, Electro, ProgressiveПродолжительность: 09:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
 ```
 
 

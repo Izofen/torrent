@@ -1,3 +1,57 @@
+###  Публикация: 1047905   (548336) от 31.08.2016
+
+The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue / Fire (4:30)
+02. Manic Depression (6:18)
+03. Sunshine Of Your Love (6:39)
+04. Spanish Castle Magic (5:50)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839741881C68E128E5C86D23E0E1419F723390E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047991   (548346) от 31.08.2016
+
+Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, Post-Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Alive
+02. Follow You
+03. 12 Steps
+04. Smile(   Читать дальше...   )Жанр: Alternative Rock, Post-Grunge, Hard RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99F989B62480417663F09CA75DB8E70583F644C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048036   (548348) от 31.08.2016
 
 The Bai Bang - Are You Ready (2009) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -635,60 +689,6 @@ magnet:?xt=urn:btih:E2F28E724A1ED4973D9AB9FDB464368C435ADF2A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AB4853CC7B0EEF3B3CC2C3BDE8E44BE6677A17C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213191   (549480) от 26.07.2018
-
-Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symphonic Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Greatest Show On Earth (Remastered) (23:59)
- 02. Elan (Remastered) (4:47)
- 03. My Walden (Remastered) (4:42)
- 04. Storytime (Remastered) (5:31)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 02:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7747A0B0011A38E6787139CA3FC739FEA932776F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309816   (549522) от 21.06.2019
-
-Комсомольск - День психа (2019) EP [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что спрятано в моих карманах
-2. Чёрный квадрат
-3. Эйфелева башня
-4. Мы ищем человека(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91CF6269A40060D1AEB4AF539E7E754B216FB8B
 ```
 
 

@@ -1,3 +1,52 @@
+###  Публикация: 1387059   (792382) от 31.05.2020
+
+3D модели - Hum3D - VAZ Lada 21099 1990 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792382.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ВАЗФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF71B60161E3E4207E7495833A06203685BC225D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387056   (792383) от 31.05.2020
+
+NNM-Club Sound Cleaner's - Cleared Soundtracks - Vol.05 [MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792383.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник музыкальных треков очищенных от "голосовых вставок" ("watermark").
+Внимание! Отсутствие "watermark" не дает права на коммерческое использование треков!Формат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF3795363808B7BD86E52AF20210EBA45A3385E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387072   (792385) от 31.05.2020
 
 3D модели - Hum3D - Toyota Hiace Passenger Van 1967 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
@@ -574,54 +623,6 @@ DEBRIS BUNDLE дает вам всю мощь звукового дизайна,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C457CBD6FCB446C8CAE7F73206001EFE48C53BA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274218   (793991) от 06.01.2019
-
-3D модели - Hum3D - Holden Colorado Space Cab Divisional Van 2018 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793991.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки HoldenФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB4A7C87936E3CF1EA11286A2884586867C00C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274305   (793992) от 06.01.2019
-
-3D модели - Hum3D - Toyota Hilux Double Cab Chassis SR 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793992.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ToyotaФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6934ACF19F7C79C8139CFB661549FDB89D0F6E58
 ```
 
 

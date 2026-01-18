@@ -1,3 +1,252 @@
+###  Публикация: 647945   (851553) от 26.04.2013
+
+Los Amigos Invisibles - Repeat After Me (2013) [MP3|320 кб/с]<Funk, Latin, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 La Que Me Gusta
+03 Corazn Tat
+04 Sex Appeal
+05 Ro Porque No Fue Un Sueo
+06 Stay
+07 Mostro
+08 Like Everybody Else
+09 Hopeless Romance
+10 Reino Animal(   Читать дальше...   )Жанр: Funk, Latin, Acid JazzПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985E9FDECD6696D06E8F8D63C3ACFDA3B93338DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377517   (851898) от 22.04.2020
+
+Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [6:21]
+02. Desafinado [5:39]
+03. Dindi [5:04]
+04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377630   (851941) от 22.04.2020
+
+Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The James Bond Theme [0:25]
+02. Surrender [5:23]
+03. On Her Majesty's Secret Service [5:13]
+04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377586   (851950) от 22.04.2020
+
+Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'posin' [5:31]
+02. Hallelujah! [5:58]
+03. Portrait In Black And White [5:08]
+04. Hey There [6:05](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE82470397FFCA09C770774CE12692D53D0E694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110167   (852085) от 03.03.2017
+
+Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Take Five
+2. When You Wish Upon a Star
+3. Taking a Chance on Love(   Читать дальше...   )Жанр: JazzПродолжительность: 03:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A5671286FBA914FBF5B76F99F0BBC6158035C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110637   (852179) от 03.03.2017
+
+Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The Savage And The Sensuous Bongos (1960) 2008, Collectables [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fascinating Rhythm [02:56]
+ 02.How Long Has This Been Going On [02:30]
+ 03.Clap Yo' Hands [03:02]
+ 04.Our Love Is Here To Stay [03:40](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE16DA4A23474808B048D492F5B98A3B916C3479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110739   (852180) от 03.03.2017
+
+Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Killing Me Softly With His Song [05:30]
+ 02.The Windmills Of Your Mind [05:23]
+ 03.Autumn Leaves [04:24]
+ 04.Nocturn [04:49](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5F2DDC8D6B72373EC45DF9C822C14939165BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001589   (852187) от 29.03.2016
+
+Robin Trower - Where You Are Going To (2016) [MP3|320 кб/с] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Will the Next Blow Fall
+02. Where You Are Going To
+03. Back Where You Belong
+04. Jigsaw(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E4E003A7DE61D4E9D05A08DD6EBD61FA719DA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001619   (852285) от 29.03.2016
+
+Skidrola - House Of Hope (2016) [MP3|320 кб/с] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who We Are
+02. No Time Blues
+03. She'll Be Back
+04. Straight Flush(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA7B99B0E5A24831B3B164895A5EC17652D3FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001637   (852292) от 29.03.2016
 
 The Don Rendell / Ian Carr Quintet - Phase III & Live (1967/1968) 2CD, 2004, BGO Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -456,277 +705,6 @@ Dizzy Gillespie - Gillespiana (2011) [FLAC|Lossless]<Jazz, Bop, Big Band>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14461D48E35668A0D1265FF806AB76F10DCA0B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876220   (853008) от 09.03.2015
-
-Stan Getz - Soul Eyes (1999) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage [09:01]
-02. Soul Eyes [08:02]
-03. Feijada [08:53]
-04. Blood Count [03:41]
-05. Stan's Blues [07:41](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8285ABA467A5CC90D41C56D870130477CEEC842D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876452   (853009) от 09.03.2015
-
-North America Jazz Alliance - The Montreal Sessions (2013) [FLAC|Lossless|WEB-DL]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Just One Of Those Things
-02. Close Your Eyes
-03. Cute
-04. Oblivion
-05. Angel Eyes(   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBC410377FFE75DDB6236C6B13038793B0B0A274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876223   (853010) от 09.03.2015
-
-Teodross Avery - My Generation (1996) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Addis Ababa [07:44]
-02. Mode For My Father [08:29]
-03. Theme For Malcolm [06:25]
-04. Lover Man [07:20]
-05. To The East [04:56](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C797D9E677AE0092454D710B7692776DB9C242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876224   (853011) от 09.03.2015
-
-Jack Teagarden - Jazz Great (2014) [FLAC|Lossless]<Jazz, Dixieland, New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. King Porter Stomp [04:18]
-02. Eccentric [03:10]
-03. Davenport Blues [04:12]
-04. Original Dixieland One Step [03:23]
-05. Bad Acting Woman [05:17](   Читать дальше...   )Жанр: Jazz, Dixieland, New Orleans Jazz, SwingПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63A42556FD9122C37D38FC8CCEA6CC99C20A322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770115   (853113) от 24.03.2014
-
-VA - Classic Jazz (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  Dave Brubeck -  Take Five  (5:25)
-03.  The Oscar Peterson Trio -  Night Train  (4:50)
-04.  Vince Guaraldi Trio -  Cast Your Fate To The Wind  (3:07)
-05.  Herbie Hancock -  Cantaloupe Island  (5:31)
-06.  Quincy Jones -  Killer Joe  (5:09)
-07.  Thelonious Monk -  Straight No Chaser  (2:58)
-08.  Sonny Rollins -  Alfie's Theme Differently  (3:45)
-09.  Jimmy Smith -  The Cat  (3:21)
-10.  Charlie Parker -  Koko  (2:55)
-11.  Russ Freeman & Chet Baker -  My Funny Valentine  (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8EEB6EA7E9AB00A95B2D40CC67086689D9CDE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191042   (853120) от 11.04.2010
-
-DePhazz - Big (2009) [FLAC|Lossless]<Acid Jazz, Downtempo  Jazz, Trip Hop, Drum And Bass, Lounge Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Mambo Craze  (3:59)
-02. Jazz Music  (4:15)
-03. Belle De Jour  (3:58)
-04. Jim The Jinn  (3:19)
-05. Jeunesse Doree  (5:19)
-06. Death By Chocolate  (6:24)
-07. Something Special  (4:16)
-08. Excoursion En Mer  (5:56)
-09. Preachin' To The Choir  (4:53)
-10. Dummes Spiel  (4:15)(   Читать дальше...   )Жанр: Acid Jazz, Downtempo  Jazz, Trip Hop, Drum And Bass, Lounge MusicПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191053   (853122) от 11.04.2010
-
-Billy's Band - Блошиный Рынок (2010) [MP3|320 kbps] <Jazz-Rock, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отоспимся В Гробах
-02. Туманная Погода
-03. Некуда
-04. Мария(   Читать дальше...   )Жанр: Jazz-Rock, DixielandПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 306236   (853158) от 09.03.2011
-
-Youn Sun Nah - Voyage (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing With You (4:45)
-02. The Linden (5:01)
-03. Calypso Blues (4:06)
-04. My Bye (4:25)
-05. Jockey Full Of Bourbon (3:42)
-06. Voyage (6:01)
-07. Please Don't Be Sad (3:46)
-08. Shenandoah (4:32)
-09. Come, Come (3:31)
-10. Frevo (5:18)(   Читать дальше...)Жанр: Vocal JazzПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770101   (853187) от 24.03.2014
-
-Oscar Peterson - The Song Is You - Best of the Verve Songbooks (1996) 2CD [FLAC|Lossless]<Bop, Standards, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1 I Only Have Eyes for You (Harry Warren-AI Dubin) 4:07
-2 I Gotta Right to Sing the Blues (Harold Arlen-Theodore 'Ted' Koehler) 5:06
-3 You Must Have Been a Beautiful Baby (Harry Warren-John Herndon "Johnny" Mercer) 4:05
-4 Come Rain or Come Shine (Harold Arlen-Johnny Mercer) 4:27
-5 I Can't Give You Anything but Love (Jimmy McHugh-Dorothy Fields) 5:23
-6 I'm in the Mood for Love (Jimmy McHugh-Dorothy Fields) 3:53
-7. John Hardy's Wife (orig., "John Hardy") (Mercer Kennedy Ellington) 2:32
-8 I Got It Bad (and That Ain't Good) (Duke Ellington-Paul Francis Webster) 3:08
-9 That Old Black Magic (Harold Arlen-Johnny Mercer) 3:03
-10 A Foggy Day (George and Ira Gershwin) 2:51(   Читать дальше...   )Жанр: Bop, Standards, Piano JazzПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF11D70D86DC63AA9399F8E7AFF5E5BF1272B7E
 ```
 
 

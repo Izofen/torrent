@@ -1,3 +1,57 @@
+###  Публикация: 1464265   (1019966) от 21.04.2021
+
+Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Light (4:11)
+02. Heroes (4:18)
+03. Cyberpunk (4:41)
+04. Another Day (4:18)(   Читать дальше...   )Жанр: Cyberpunk, Retrowave, ElectropopПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAA6D4389873C646D409458A53E6F2C59130A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464257   (1019992) от 21.04.2021
+
+Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Line (5:53)
+02. SOS from Planet 0712 (5:34)
+03. Zero Gravity (Pt.1) (0:59)
+04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B84BE2214B910A64B2C9DC46BBEDBBAE91F2C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463811   (1020134) от 20.04.2021
 
 Electric Dark Souls - Heroes (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Electropop>
@@ -638,60 +692,6 @@ Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:355DC28C1B15AE8822EE312060B80C290E352986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462243   (1021317) от 13.04.2021
-
-Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristoph X Franky Wah X Artche - The World You See
-02. Moonwalk - Enigma
-03. iiO - Rapture (Mr. Sid & March Forward Remix)
-04. Alex Kennon & Pete Tong - Apache(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D3C1226AB66BF4E181BAF35971878462F201FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462238   (1021321) от 13.04.2021
-
-Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mako - Roller Coaster (Jan Blomqvist Remix)
-02. Da Fresh & Noidor - Mirari
-03. The Kode - Can't Let Go
-04. Roumex - Inside My Head(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
 ```
 
 

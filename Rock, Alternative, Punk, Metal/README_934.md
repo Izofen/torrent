@@ -1,3 +1,306 @@
+###  Публикация: 1135336   (681092) от 19.05.2017
+
+Charles Manson - Lie: The Love and Terror Cult (1968) 1987, Awareness Records [FLAC|Lossless|image + .cue] <Folk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Look At Your Game Girl 2:03
+2 Ego 2:30
+3 Mechanical Man 3:18
+4 People Say I'm No Good 3:20(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE7F6F96B574253002676C404F12B07D87D0739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135382   (681185) от 19.05.2017
+
+Titanic - Sea Wolf (1971) Remastered, 2000, Repertoire Records [MP3|320 Kbps] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sea Wolf
+2. Underbird
+3. Confusion
+4. Sultana(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956A3B4E276FEDFE5C5F4573917F7E306B4D2B3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 898144   (681379) от 15.05.2015
+
+Nelson - Peace Out (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Everybody
+02. Back In The Day
+03. Invincible
+04. Let It Ride(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB1ADAA66458D80E1AECAC551E442C4187702C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506782   (681610) от 09.06.2012
+
+Diezel - Classic Album Collection (2011) 5 CD [FLAC|Lossless]<Rock, Soul, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_681610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days Like These (Lizotte) — [03:24]
+02. Souldier (Goncalves, Lizotte, Moloney) — [03:13]
+03. Crimson Man (Lizotte) — [02:56]
+04. Lay Down Here (Goncalves, Lizotte, Moloney) — [03:41]
+05. Something Good (Goncalves, Lizotte, Moloney) — [03:26]
+06. Prisoner (Lizotte) — [03:28]
+07. Need Your Fire (Goncalves, Lizotte, Moloney) — [03:20]
+08. Ain't Giving Up (Lizotte) — [04:28]
+09. That Strong (Goncalves, Lizotte, Moloney) — [03:47]
+10. Take My Heart (Lizotte) — [04:47]Жанр: Rock, Soul, BluesПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796765   (681711) от 16.06.2014
+
+Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|image + .cue]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Good As It Gets   (3:57)
+02.  Jealousy   (4:28)
+03.  Beautiful Child   (3:57)
+04.  One Eyed Chicken   (4:53)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0F5B1EF28F424167ABA8D28F26769A2BF16548
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029304   (681853) от 26.06.2016
+
+Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Rammlied 	05:19
+02. 	Ich Tu Dir Weh 	05:02
+03. 	Waidmanns Heil 	03:33
+04. 	Haifisch 	03:45(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4933DF51909F6D750AA2961820D4F6BA9FE56712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289927   (681878) от 18.03.2019
+
+Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Funk Metal, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out In L.A. (02:39)
+02. Backwoods (04:09)
+03. Funky Crime (04:48)
+04. Stone Cold Bush (03:58)(   Читать дальше...   )Жанр: Funk Metal, PunkПродолжительность: 03:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A697BE7B04CF697A1287971FA0C8AFD5CF5EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289995   (681879) от 18.03.2019
+
+Amanda Palmer - There Will Be No Intermission (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Things (01:23)
+02. The Ride (10:13)
+03. Congratulations (00:37)
+04. Drowning In The Sound (05:45)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F9A46AAD00D8507174909E2B9A6FE4AAE63C16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796769   (681928) от 16.06.2014
+
+Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphonic Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Inaugural Bash   (26:56)
+02.  August in the Urals   (15:51)
+03.  Abandoned Mansion Afternoon   (12:13)
+04.  A Squirrel   (8:44)(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFA333BDDAB5534FA7B57E2B084C7751FB2C5A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289823   (681970) от 18.03.2019
+
+The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (12:27)
+02. Moonlight Drive (06:51)
+03. Back Door Man (05:27)
+04. People Are Strange (02:36)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6DAD99A78CF206CDEE23C819D3A219E816638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289891   (681973) от 18.03.2019
+
+Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chain (03:37)
+02. Dreams (04:39)
+03. Isn't It Midnight (04:42)
+04. Oh Well (04:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F938882D7075D6C67F6FC4B6A0E6A704CD848B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289825   (681981) от 18.03.2019
 
 Messer Chups - Mondo Harp (2019) [FLAC|Lossless|tracks + .cue] <Punk, Surf, Trash>
@@ -398,303 +701,6 @@ Wild Ox Moan - Wild Ox Moan (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE366C5825F1690BC021475D89180093B7C25EEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135260   (682397) от 18.05.2017
-
-Papa Roach - Crooked Teeth (2017) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break the Fall
-02. Crooked Teeth
-03. My Medication
-04. Born for Greatness(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57863ABA88B4D9247CE6BFBA738ED0AA263E545
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135318   (682402) от 18.05.2017
-
-Papa Roach - Crooked Teet (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Break The Fall
-2. Crooked Teeth
-3. My Medication
-4. Born For Greatness(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 01:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD6276692713640855385538089CB12073032BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222737   (682449) от 30.04.2018
-
-Ленинград - В Зените (2018) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В ЗенитеЖанр: Rock, SkaПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2922C4A911C4110029326E51852A69B8A965A733
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535848   (682505) от 08.03.2022
-
-Boxer - 3 albums (1975-1979) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из многочисленных пристанищ так и не нашедших себе постоянной гавани варягов Кийта Эллиса (ex-Van Der Graaf Generator, Juicy Lucy) и Тима Богерта (ex-Vanilla Fudge, Cactus, Jeff Beck Group). Небезынтересный коллектив, где лидером был талантливый органист Крис Стэйнтон. Но справляться с супергруппой (а именно таковой нужно считать Boxer) ему было непросто. Помимо (   Читать дальше...   )--------------------------
-
-01. Hey Bulldog (3:49)
-02. The Blizzard (3:19)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 01:59:52 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDE16E2777D4D51B4A8DC9694F99E060AF36E99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535697   (682515) от 08.03.2022
-
-Farseer - Crowned By The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Oblivion (06:43)
-02. The Valiant Dead (04:26)
-03. Calamitas (04:26)
-04. Legion (05:06)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592A6074C7F9957D025D1CFE4879302B80553A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135160   (682523) от 18.05.2017
-
-КняZz - Узники долины снов (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Призраки Там-тама
-02. Рок-н-ролльный Дед Мороз
-03. Наука Билли Бонса
-04. Брат(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6996F3F3F60A0DA2B2CF3D8C84B26371375D1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029342   (682589) от 26.06.2016
-
-Grand Slam - A New Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Up The Sky
-02. Rock My World
-03. Face
-04. One Way To Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EFF8CF23AB60A3A46BEB9A3BCE45452F438889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535854   (682590) от 08.03.2022
-
-Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic Caves (5:06)
-02. Animosity (5:42)
-03. A Strange Forest (2:08)
-04. Echoesof Deepness (6:08)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3921D0BAB65A2827D30576B872B7DDB0EAAF57D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506056   (682617) от 08.06.2012
-
-Pain of Salvation - 13 albums (1997-2011) [FLAC/WavPack|Lossless] <Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Salt Theme (00:44)
-02. Softly She Cries (04:16)
-03. Conditioned (04:15)
-04. Healing Now (04:29)
-05. To the Shoreline (03:03)
-06. Break Darling Break (Bonus track) (02:22)
-07. Eleven (06:55)
-08. 1979 (02:52)
-09. Of Salt (Bonus track) (02:36)
-10. The Deeper Cut (06:07)(   Читать дальше...   )1997-2011Жанр: Progressive Metal, Progressive RockПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029347   (682633) от 26.06.2016
-
-Elephant Plaza - Momentum (2016) [MP3|320 кб/с] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naked
-02. Southwest
-03. Paralyzed
-04. All The Way(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDA487766BEABC662FFC0A6DF13EA4B9F2817E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125768   (682644) от 26.06.2010
-
-Danzig - 12Albums+2Live+EP (1988-2010) [MP3|320 kbps]<Heavy Metal/Hard Rock/Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Danzig — американская хэви-метал группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями. Группа является третьей стадией музыкальной карьеры Гленна Данзига, который до этого играл в хоррор-панк группах The Misfits и Samhain. В 1987 подписав контракт, группа эволюционировала в прочный рок-метал коллектив. Чтобы отразить изменение музыкального направления (   Читать дальше...   )Жанр: Heavy Metal/Hard Rock/IndustrialПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 357036   (588203) от 30.06.2011
+
+VA - Взрывной звездный хит (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5F3EAECC084745ABD46DEA1629CAA5D877D969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357141   (588206) от 30.06.2011
 
 VA - Улетное лето (2011) [MP3|256 kbps]<Pop>
@@ -668,33 +692,6 @@ VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6803DF0F0E36DC9D2EF8FE529662064EC3CB2674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548637   (596194) от 04.05.2022
-
-Jennifer Rush - Compilation (2022) [MP3|320 Kbps] <Pop, Synth-Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Words
-02. A Touch of Paradise
-03. A Broken Heart
-04. Nights in White Satin(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 02:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E751F2134E9C44ABDD5322287C134946BB301733
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1363742   (940733) от 29.02.2020
+
+ScAnDroid Experiment's - Ortus et Occasus (2020) авторская раздача [MP3|320 Kbps] <Experimental, Ambient, Relax>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Janua (Intro)
+02. Insolitum Geometria (Original Mix)
+03. Fabulam Ruina Meae (Original Mix)
+04. Eodem Tempore, in Antecessum Ver (Original Mix)(   Читать дальше...   )Жанр: Experimental, Ambient, RelaxПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA05A262658E5EC7DCCF8E19D5C8DE4501C9AE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363778   (940843) от 29.02.2020
+
+VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brisby & Jingles - It's My Life (Andestro Edit) 3:30
+02. The Enlightment - I Believe (Radio Edit) 3:48
+03. DJ T.H. feat. Miss Cortex - Meeting In The Orchestra (Radio Edit) 3:54
+04. Cosmic & Nilson - See The Light (Radio Edit) 3:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Electronic, DanceПродолжительность: 02:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD2598F336273B141D492AD05E1AB1EAB80D6CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363630   (940849) от 29.02.2020
 
 Panda Eyes - Continue (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep, Electro House>
@@ -645,60 +699,6 @@ Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C11DB69E99A07E643CA466578A359009AF3438D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363578   (942140) от 28.02.2020
-
-Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nessaja (3:29)
-02. The Logical Song (3:54)
-03. Aiii Shot The DJ (3:07)
-04. Posse (I Need You On The Floor) (3:31)(   Читать дальше...   )Жанр: Happy Hardcore, Techno, JampstyleПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D1F4CC25148FA10A6BFCA5B8AD3E0E925FDB56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363581   (942228) от 28.02.2020
-
-Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spybrak! (4:04)
-02. Crash!	(6:54)
-03. Velvet pants	(5:46)
-04. Take California (7:21)(   Читать дальше...   )Жанр: Techno, Big Beat, Acid JazzПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857C546736E234DEE80E999CAA1112C69C2ED3D4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1138667   (663035) от 30.05.2017
+
+VA - Hit Music от Мяу - Лето (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luis Fonsi & Daddy Yankee - Despacito 3:48
+02.  Quest Pistols Show - Любимка 3:15
+03.  Charlie Puth - Attention 3:32
+04.  Katy Perry & Migos - Bon Appetit 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E220195D1F1A71ECEF86F234BA5B77182701BC8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138274   (664147) от 29.05.2017
 
 VA - Русский отрыв Русского радио выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
@@ -650,33 +677,6 @@ VA - Музыкальный адреналин от Русского радио 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3A9344080EA131F400782BFDCB21BF4D3A484DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224063   (668183) от 08.05.2018
-
-VA - German Top 50 Party Schlager Charts 07.05.2018 (2018) [MP3|265-320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Helene Fischer - Nur mit Dir
-04. Ben Zucker - Was fur eine geile Zeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05CA4C9929536517AE4B60366F5B98534754F1A
 ```
 
 

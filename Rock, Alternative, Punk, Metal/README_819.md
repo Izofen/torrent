@@ -1,3 +1,55 @@
+###  Публикация: 1555990   (563238) от 07.06.2022
+
+Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slut Machine (00:03:26)
+02 - Line of Fire (00:03:31)
+03 - Riot in Hell (00:03:09)
+04 - Suicide (00:05:10)(   Читать дальше...   )Жанр: Hard Rock, SleazeПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FAC8582324828A1C37E4B62D2A4F0A894C9C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556038   (563239) от 07.06.2022
+
+Sinister - Syncretism (2017) 2CD [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:13:57
+01. Unhallowed Blood 13:57Жанр: Death MetalПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BE38986EDD2694C2E0FB1EF4A143FE3FE1B7BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556023   (563366) от 07.06.2022
 
 Feral Light - Psychic Contortions (2022) [FLAC|Lossless|tracks] <Black Metal, Black'n'Roll>
@@ -644,60 +696,6 @@ Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923324   (564549) от 31.07.2015
-
-Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|image + .cue]<Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Don't Tell [5:02]
-02. Chain Lightning [4:33]
-03. The Pass [4:51]
-04. War Paint [5:24](   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF78A04669A5F5A3AD67791A28B2E7D479C7AD09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505753   (564600) от 06.06.2022
-
-Сектор газовой атаки - 18 Albums + 4 Compilation + 7 Single (2002-2022) [MP3|320 кб/с] <Punk-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564600.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Памяти Юрия Хоя...
-2002 - Романтика с перцем
-2003 - Мат для вампира
-2003 - Страшные сказкиЖанр: Punk Rock |Продолжительность: 15:51:33 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82601C7EF5B898A06ACA6AB5D205BF791D42079
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1129599   (720806) от 29.04.2017
+
+Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Song [04:30]
+02. Mercy, Mercy, Mercy [05:19]
+03. This Here [10:14]
+04. Money In The Pocket [10:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6454EDCD2AE7B1B17BA90E2DB426C394D88C60D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531633   (720833) от 16.02.2022
+
+Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Room [6:52]
+02. Blues For Basie [6:22]
+03. Mood Indigo [6:22]
+04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285519   (721195) от 26.02.2019
+
+Humphrey Lyttelton - Classic Years (2005) Delta Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgia on My Mind [3:03]
+02. Travellin' Blues [2:59]
+03. Wolverine Blues [3:05]
+04. Blues for an Unknown Gypsy [3:11](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D523CC12752B675F8256FC221791ED0A4B8E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285478   (721197) от 26.02.2019
+
+Victor Lewis - Eeeyyess! (1997) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eeeyyess! [6:00]
+02. Vulnerability [6:36]
+03. Un-til [12:02]
+04. Buttercups [3:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz-FunkПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F899503E188C9781FBE6A38F499D93F003B287
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400243   (721290) от 04.08.2020
+
+Instrumental Jazz Music Ambient and Jazz Instrumental Relax Center - Summer Luxury Beach Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enjoying Life (3:23)
+02 - Being Happy (3:16)
+03 - Whiskey and Smooth Jazz (3:22)
+04 - Enjoying the Atmosphere (3:28)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A04680E335B742ECD4B99F77F41531ECDDEB64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400296   (721422) от 04.08.2020
+
+Claire Austin - When Your Lover Has Gone (1954 - 1956) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Your Lover Has Gone [4:33]
+02. Can't We Talk It Over [3:44]
+03. My Melancholy Baby [3:56]
+04. I'll Never Be the Same [4:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474908D5F344A492B22955DF79D6C5E435A462F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218700   (721733) от 10.04.2018
+
+Joe Pass - What Is There To Say (1990) 2001, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django [05:03]
+02. Old Folks [04:14]
+03. I Concentrate on You [04:05]
+04. I'll Be Around [05:02](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3554C3C2467C9C355DA5A7144A375E065455F2C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023877   (722373) от 06.06.2016
+
+Dave Steffen Band - Give Me A Thrill! (1993) [FLAC|Lossless|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Mover    03:14
+02. Gotta Love For You Baby    03:31
+03. Give Me A Thrill    02:56
+04. Rainy Blues    05:34(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6317B70EEFC73FE2F1469A6E1297D6BBCCEFFEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023721   (722380) от 06.06.2016
+
+Will Goble - Consider The Blues (2016) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Man Done Gone (4:47)
+02. Johnson's Magic Umbrella (4:18)
+03. Dirge Blues (6:14)
+04. It Ain't Necessarily So (6:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:031A2424887E4822DF8E2069706F73E8963432F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023677   (722382) от 06.06.2016
 
 Gerardo Nunez & Ulf Wakenius - Logos (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -452,249 +695,6 @@ Bebop & Beyond - Plays Thelonious Monk (1990) Bluemoon [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:953EAE00F23D1EC8A7C5077BB71C98C09D849FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400016   (723166) от 03.08.2020
-
-Chet Baker Quartet featuring Phil Markowitz - Live at Nick's (1989) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Thing for You Is Me [9:44]
-02. Broken Wing [9:56]
-03. This Is Always [8:27]
-04. Beautiful Black Eyes [17:11](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242D1CC7ACD2970E7404573EB595981419862EE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218422   (723401) от 09.04.2018
-
-Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Another Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's You Or No One [08:36]
-02. Jamph [11:11]
-03. Nutville [10:17]
-04. Wee [11:29]Жанр: Hard BopПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34F53611ED0C33431EED961F2D3C5D308BEB686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218195   (723404) от 09.04.2018
-
-Joey DeFrancesco - Incredible! (2000) Concord Jazz [APE|Lossless|image + .cue] <Organ Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Champ [13:03]
-02. When You're Smilin' [07:17]
-03. The Good Life [08:37]
-04. Back Home Again in Indiana [10:56](   Читать дальше...   )Жанр: Organ Jazz, Soul-JazzПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF02B77AED3972971B266500BB072A2BCE2B59C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667951   (723558) от 15.06.2013
-
-Andy Summers - 14 альбомов (1982-2005) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Andy Summers & Robert Fripp - I Advance Masked (1982):
-Andy Summers & Robert Fripp - Bewitched (1984):
-Andy Summers - XYZ (1987):(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 12:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023112   (724109) от 05.06.2016
-
-Fantastic Negrito - The Last Days Of Oakland (2016) [MP3|320 кб/с] <Blues Rock, Roots>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Days Of Oakland (Intro) (00:35)
-02. Working Poor (03:59)
-03. About A Bird (03:39)
-04. Scary Woman (03:10)(   Читать дальше...   )Жанр: Blues Rock, RootsПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60FED9C3FA047029B7859D67F8D2C7DB4975216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128671   (724227) от 27.04.2017
-
-VA - Bossa N' Rihanna (2017) [MP3|320 Kbps] <Jazz, Bossa Nova, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Russian Roulette (3:43)
-02. Jingo - Kiss It Better (3:40)
-03. Sao Vicente , Shelly Sony - Stay (3:55)
-04. Banda Do Sul - Sex with Me (4:24)(   Читать дальше...   )Производство: Music BrokersЖанр: Jazz, Bossa Nova, ChilloutПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6197C5A4F914A1C70CF68381093A9BABE6912B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531258   (724277) от 14.02.2022
-
-Louise Hoffsten - Crossing the Border (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Part of Stockholm (4:10)
-02. I Know a Place Called Memphis (4:31)
-03. Child of Man (2:57)
-04. Together (5:17)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BF8B58FA16AF4056C5BD1711B4525910444DD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023514   (724400) от 05.06.2016
-
-Laura Fygi - 25th Anniversary Collection: Fans' Choice (2015) 2CD, Compilation [FLAC|Lossless|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream A Little Dream (3:37)
-02. Caravane (4:26)
-03. Quizas, Quizas, Quizas (3:24)
-04. It's Crazy (4:04)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 02:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E077A5822CF912E1AA555B1A9B5C8B37642D9011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023434   (724408) от 05.06.2016
-
-Wax & Boogie - Lost In A Dream (Milano Club Blues Nights) (2012) [MP3|320 кб/с] <Blues, Swing, Boogie Woogie>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mellow One
-02. Jump Jack Jump
-03. Reconsider Baby
-04. Hand Holding Baby(   Читать дальше...   )Жанр: Blues, Swing, Boogie WoogieПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490033E7DCBA7514C02F1C2FA3A9ADD016CF7A1D
 ```
 
 

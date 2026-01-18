@@ -1,3 +1,246 @@
+###  Публикация: 1620697   (1031857) от 21.03.2023
+
+Elles Bailey - Shining in the Half Light (Deluxe Edition) (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheats and Liars (3:49)
+02. The Game (3:04)
+03. Stones (3:25)
+04. Colours Start To Run (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E83ED192D622FDC6DD0FABCE3340D58A624852
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620682   (1031860) от 21.03.2023
+
+Big Shoes - Fresh Tracks (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got You Covered (3:22)
+02. Hole in the Sky (5:24)
+03. If the Blues Was Green (4:24)
+04. You Can't Love Me Like That (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A7917BB95C5748897A9127B3F5427FEC4EB1FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620687   (1031862) от 21.03.2023
+
+Daddy Long Legs - Street Sermons (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Street Sermon (2:25)
+02. Nightmare (3:23)
+03. Rockin' My Boogie (3:51)
+04. Harmonica Razor (2:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96D601326618D31F94E2B882E207B109EF4EC5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620673   (1031863) от 21.03.2023
+
+Atomica Music - Hello Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aint Goin Down (3:44)
+02. Hello Blues (3:20)
+03. I Dont Want Nothin (2:28)
+04. If I Ever (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17917474E4FA87C75E9CB0BA393D071EFD96EAF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620671   (1031864) от 21.03.2023
+
+Angels Of Libra - Revelations (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Thing Left (4:50)
+02. Revelations (feat. Nathan Johnston) (4:39)
+03. House of Zeus (3:27)
+04. Gabriel (feat. Milo Milone) (4:30)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D94CBF414030C4EFE077CE7C5A8A670F0333FC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620670   (1031865) от 21.03.2023
+
+Ain’t No Square - Taking Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belly Dancing (4:26)
+02. Millionaire (5:34)
+03. What Goes Around comes around (5:04)
+04. Happy Day (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F82DC55B3BE3DA8DCBE3295061676B8914E02F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620691   (1031868) от 21.03.2023
+
+Deb Callahan - Backbone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I'm Workin With (3:34)
+02. Crazy Ride (4:05)
+03. Big Girl Pants (3:54)
+04. Rogue (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F865658C85B08148F52073E924AEDD497DD2D04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620642   (1031903) от 21.03.2023
+
+Dave Brubeck - Greatest Hits (1967) 1987, CBS [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five [5:27]
+02. I'm in a Dancing Mood [3:02]
+03. In Your Own Sweet Way [5:01]
+04. Camptown Races [2:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0689069DA24D8755A864F65FD209E2640701A59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447259   (1031929) от 13.02.2021
+
+Charlie Christian - Jazz Guitar Hero (1939 - 1941) 2010, Grammercy Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Lib Blues [3:20]
+02. Flying Home [3:08]
+03. Dinah [2:56]
+04. Sheik of Araby [3:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331369372237C688EA1E90BB930DA2B8E472C5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447356   (1031932) от 13.02.2021
 
 Sonny Rollins Trio - Live in Munich (1965) 2011, Domino Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -452,249 +695,6 @@ The Answer - Sundowners (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock, Hard-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AE3F262B808844694C0B82C7BD1F6E45E7EE723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620294   (1032360) от 19.03.2023
-
-PD Martin - Soulbeat Incarnate (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Me Pay (4:09)
-02. Come To Bed (3:01)
-03. Strip It Down (3:29)
-04. Burn The Witch (4:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A021E2CB2217B1223D8B622787E6B071A65A85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620277   (1032361) от 19.03.2023
-
-Jim Oblon - I Wanna Be Loved (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boss Man (feat. Jim Keltner) (4:33)
-02. My First Plea (feat. Jim Keltner) (4:57)
-03. Ain't That Lovin' You Baby (feat. Jim Keltner) (4:08)
-04. Found Love (feat. Jim Keltner) (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C5A2BC549F0348DF8ABA707C9897B76A3CE788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446799   (1032483) от 10.02.2021
-
-The Floating Trunks - На расстоянии шепота (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пятничное танго (3:10)
-02. Блюз спящей собаки (3:31)
-03. Лодка грез (2:31)
-04. Дождаться дождя (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BEF1D2804CA0B78D6F5F5B61A84C28BE2115BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446780   (1032486) от 10.02.2021
-
-Layla Zoe - Nowhere Left to Go (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pray    [0:04:10.04]
-02. Nowhere left to go    [0:03:47.24]
-03. Sometimes we fight    [0:04:43.68]
-04. Don't wanna help anyone    [0:04:40.50](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EF2AC5370E11F2D7FEC480E30BA79038D9D639F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446687   (1032550) от 10.02.2021
-
-Richard M. Jones - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzin' Babies Blues [2:44]
-02. 12th Street Rag [2:53]
-03. New Orleans Shags [3:21]
-04. Spanish Shawl [3:25](   Читать дальше...   )Жанр: Early Jazz, New Orleans JazzПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D33971EEE4D7F6C0C88C8DA3A3EF10CCEAB480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446677   (1032592) от 10.02.2021
-
-Mary Lou Williams - 1944 (1995) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies [2:24]
-02. Caravan [2:34]
-03. Yesterdays [2:18]
-04. Lullaby of the Leaves [3:46](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D90B9AF4B8BEFC0F509A35307C5066CD039952
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446685   (1032593) от 10.02.2021
-
-Mildred Bailey - 1945 - 1947 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things [3:12]
-02. I've Got the World on a String [2:59]
-03. Can't Help Lovin' That Man [3:05]
-04. Summertime [2:53](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCFFEA00A65ABB26EA3808E8A08757F9BACF8B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446683   (1032594) от 10.02.2021
-
-Mary Lou Williams - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Minute Man [2:07]
-02. Froggy Bottom [2:55]
-03. Carcinoma [3:41]
-04. Song in My Soul [3:03](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BE177D8128AD44AE5FDF5EF2ABAAD310FA4824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446675   (1032599) от 10.02.2021
-
-Jimmie Noone - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything You Want [3:22]
-02. Birmingham Bertha [3:13]
-03. Am I Blue? [3:29]
-04. My Daddy Rocks Me (With One Steady Roll) [3:08](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53966F15F3C235F27AADB7923F6A56FE8F7DD665
 ```
 
 

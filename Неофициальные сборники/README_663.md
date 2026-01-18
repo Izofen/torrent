@@ -1,3 +1,30 @@
+###  Публикация: 1470894   (1015308) от 19.05.2021
+
+VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саунд микса имеет постоянное развитие, отчего назвать его простым и скучным никак не получиться. Музыка, которой присуща своя харизма. Приобретая восточные и этнические мотивы - музыка въедается в мозг, душу и заставляет себя слушать, унося из обычной цивилизации эпохи электроники куда-то в тропики и пещеры.001. Lewis Del Mar - Fever
+002. Calimeros - Du Bist Meine Koenigin
+003. Mickie Krause - Wir Lassen U
+004. Ferdinant. - World Full Of Color(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470913   (1015317) от 19.05.2021
 
 VA - Discohustle (2CD) (2021) [MP3|320 Kbps] <Disco House, Funky House, Nu Disco>
@@ -668,33 +695,6 @@ VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467664   (1017186) от 07.05.2021
-
-VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps] <Dance, Electro, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amchi - Уже всё равно (DJ Safiter Remix)
-02.Artik - Asti - Бла Бла (Shnaps and Kolya Funk Remix)
-03.Artik and Kacher - Bailame (Yudzhin Remix)
-04.Dabro - Мой Путь (Misha Slam & Alexey Ezh Remix)(   Читать дальше...   )Жанр: Dance, Electro, RemixesПродолжительность: 02:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDC0F78744C3371E486623E2565C6D6B1B9E6F7
 ```
 
 

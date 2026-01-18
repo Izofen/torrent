@@ -1,3 +1,274 @@
+###  Публикация: 1498302   (858179) от 26.09.2021
+
+Art Foxall - Blue Fox (1992) Audio Daddio [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That One Thing Was You [5:26]
+02. Blue Fox [7:37]
+03. Tory Train [4:50]
+04. September Song [6:42](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5B3863689AFF9259BFF3D68BDF64E7813F9CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647084   (858708) от 22.04.2013
+
+V.A. - Sax Chill Out Vol. 3 (2011) [MP3|320 кб/с]<Jazz, Sax, ChillOut>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Moon River
+02. Memory
+03. Just the Way You Are
+04. Nuages
+05. A Whiter Shade of Pale
+06. Fly Me to the Moon
+07. Magdalena
+08. Still
+09. A Little Thing
+10. I Write the Songs(   Читать дальше...   )Жанр: Jazz, Sax, ChillOutПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004235EF7872C49ABB932FB5D0D20ED1A41894C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304406   (858751) от 06.03.2011
+
+G. Love - Fixin' To Die (2011) [FLAC|Lossless]<Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fixin' to DieЖанр: Blues, CountryПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768602   (858830) от 21.03.2014
+
+Weather Report - Live and Unreleased 2CD (2002) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Black Market (9:26)
+02. Where The Moon Goes (12:05)
+03. River People (6:57)
+04. Two Lines (8:15)
+05. Cigano (3:59)
+06. In A Silent Way/Waterfall (5:46)
+07. Night Passage (5:53)
+08. Port Of Entry (8:08)
+09. Rumba Mama (1:15)
+10. Directions/Dr. Honoris Causa (8:38)Жанр: Jazz, Fusion |Продолжительность: 02:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B32809A3A23E91C48FA8B53184C83192C59035B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 769011   (858833) от 21.03.2014
+
+The Nick Moss Band - Time Ain't Free (2014) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. She Wants It (04:56)
+02. Was I Ever Heard (05:51)
+03. Light It Up (04:18)
+04. Fare Thee Well (07:06)
+05. Time Ain't Free (04:58)
+06. Been Gone So Long (05:42)
+07. Tell You Somethin' 'Bout Yourself (06:37)
+08. I Want the World to Know (05:46)
+09. Death Letter Blues (05:17)
+10. No Reason (05:06)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3482A8DCC98C13A43AFDEE4A79C14DBFBDA5E86B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768609   (858952) от 21.03.2014
+
+Art Pepper - Besame Mucho - Live In Tokyo (2003) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Red Car (9:14)
+02. The Shadow Of Your Smile (6:29)
+03. The Trip (10:02)
+04. Mambo De La Pinta (11:57)
+05. Besame Mucho (9:12)Жанр: JazzПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0170C0C8C8E3D187F8FAEA733D7A2BFFBB781FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768754   (858953) от 21.03.2014
+
+Ambrose Akinmusire - The Imagined Savior is Far Easier to Paint (2014) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Christie
+ 02. As We Fight
+ 03. Our Basement
+ 04. Vartha
+ 05. Memo
+ 06. The Beauty Of Dissolving Portraits
+ 07. Asiam
+ 08. Bubbles
+ 09. Ceaseless Inexhaustible Child
+ 10. Rollcall For Those Absent(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3E00167C94112170DE68F45265A2DBE7C313BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 768591   (858957) от 21.03.2014
+
+Mississippi Cadillac Blues Band - Stone Cold (2011) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Every Night And Every Day [00:03:57]
+02 - Sweet Ludella [00:04:23]
+03 - Cheatin' Ways [00:04:01]
+04 - Our Love Is Driftin' [00:04:28]
+05 - Stone Cold [00:04:34]
+06 - Home To Mississippi [00:03:45]
+07 - Beauty Operator [00:03:44]
+08 - Country Wagon Wheel [00:03:08]
+09 - Six Months Ago [00:05:15]
+10 - Automobile Blues [00:04:30]Жанр: Blues RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA05AEB6546616BDE717ADA665ABFC97426575E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109378   (859149) от 27.02.2017
+
+Konstantin Klashtorni - Groove Jazz N Chill #5 (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wherever I Go
+02. Sentimental Things
+03. Send My Love
+04. Live on Forever(   Читать дальше...   )Жанр: Smooth Jazz, ChilloutПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2585C113E24263D12B788959B489CBF7E68611A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109387   (859162) от 27.02.2017
 
 Cameron Graves - Planetary Prince (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz>
@@ -464,274 +735,6 @@ Patrice Rushen - Straight From The Heart (1982) [WavPack|Lossless]<R&B, Funk, So
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376162   (860238) от 17.04.2020
-
-Fiona Apple - Fetch the Bolt Cutters (2020) [FLAC|Lossless|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want You to Love Me (03:57)
-02. Shameika (04:08)
-03. Fetch the Bolt Cutters (04:58)
-04. Under the Table (03:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A656C2148496A8F92A20AC23A52762CF18FEEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376182   (860376) от 17.04.2020
-
-The Penitent Man - The Penitent Man (2020) [MP3|320 Kbps] <Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Devil Was Christ [00:10:46]
-02 - Purple Kiss [00:05:42]
-03 - Stone [00:08:44]
-04 - Buffalo [00:09:36]Жанр: Heavy Blues RockПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C309F445484207D82B6BE403963A16646B1A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768341   (860423) от 20.03.2014
-
-Jim Byrnes - St. Louis Time (2014) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. I Get Evil
-02. Somebody Lied
-03. Nadine
-04. Old Dogs, New Tricks
-05. You'll Miss Me (When I'm Gone)
-06. The Duck's Yas Yas Yas
-07. The Journey Home
-08. St. Louis Blues
-09. Cake Alley
-10. I Need A Change(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC48F465683FF7742B1AF7633583BE155443A653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768376   (860436) от 20.03.2014
-
-Toots Lorraine - Make It Easy (2014) [MP3|320 кб/с]<Blues, Blues-Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Easy (5:14)
-02. When Did You Stop Tryin' (6:45)
-03. Let Your Tears Fall Baby (3:11)
-04. Get Back To Lovin' (5:38)
-05. Satisfied (Feat. Kid Andersen) (3:48)
-06. Wade In The Water (4:18)
-07. Built For Comfort (4:00)
-08. Wrong Side Of Love (5:34)
-09. Chad Mo Shuffle (4:15)
-10. Low Down Dog (3:16)(   Читать дальше...   )Жанр: Blues, Chicago Blues, Blues-JazzПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE85880FE0451F722CF0F4DDEC4A6FE3D7DAFDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768598   (860546) от 20.03.2014
-
-Joe Zawinul - Brown Street 2CD (2007) [APE|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Lost Children (5:50)
-02. A Remark You Made (8:07)
-03. Night Passage (6:27)
-04. Procession (9:02)
-05. Carnavalito (10:41)Жанр: Jazz, Fusion /Продолжительность: 01:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4840D848EDFF47965EB163FAFDC65A94874AF0E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768539   (860548) от 20.03.2014
-
-Erroll Garner - Collection Vol.6: That's My Kick & Gemini (1999) [FLAC|Lossless]<Bop, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. That's My Kick [02:47]
-02. The Shadow of Your Smile [03:56]
-03. Like It Is [02:44]
-04. It Ain't Necessarily So [03:31]
-05. Autumn Leaves [03:21]
-06. Blue Moon [02:47]
-07. More [02:54]
-08. Gaslight [04:28]
-09. Nervous Waltz [03:24]
-10. Passing Through [02:36](   Читать дальше...   )Жанр: Bop, Swing, Piano JazzПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DB4CCD93F8FD1106A667727FA9F5D831D85A4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768369   (860549) от 20.03.2014
-
-The Audreys - 'Til My Tears Roll Away (2014) [MP3|320 кб/с]<Blues, Roots, Alt-Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. My Darlin’ Girl (02:59)
-02. Baby, Are You There (03:53)
-03. Keep Your Company (04:09)
-04. Ballad For The Fallen (04:30)
-05. Roll Away (03:50)
-06. Comfort Me (Feat. The Nymphs) (03:35)
-07. Bring The Stars Out (04:38)
-08. Lady Luck (04:25)
-09. Come On Back To Bed (03:15)
-10. Why Must I Wait (04:48)(   Читать дальше...   )Жанр: Blues, Roots, Alt-CountryПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080B88B779F4FB65BFA8365D1DEE89097DA24443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376411   (860692) от 17.04.2020
-
-Harry Allen with John Pizzarelli Trio - Plays The Hits of Stage & Screen (2004) Sony Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Could Write A Book [5:09]
-02. You Are Too Beautiful [4:35]
-03. Let's Face The Music And Dance [5:10]
-04. But Not For Me [4:00](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99E0938CE77F5910830B6216ED0D244F022D274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376243   (860703) от 17.04.2020
-
-Harry Allen - Dreamer (2001) BMG [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change Partners [4:37]
-02. A Night In Tunigsia [6:31]
-03. Out Of This World [5:37]
-04. The Shining Sea [3:15](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E179135DF60100F881102D76E085E86718887057
 ```
 
 

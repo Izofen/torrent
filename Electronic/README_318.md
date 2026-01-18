@@ -1,3 +1,57 @@
+###  Публикация: 1144181   (627751) от 22.06.2017
+
+VA - This Is My Church Vol.6 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Waldo Munoz - Reverse (Miami Beach Mix)  3:32
+02.  Jason Smith - Bull Drake (Original Mix)  3:45
+03.  Danny Hay - Tendency (Cosmic Light Mix)  5:52
+04.  Ranner Richard - Arab (Desert Roses Mix)  5:40(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F1A7D53D64BCB469B6BB998623E6CAA9D29043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144259   (627753) от 22.06.2017
+
+Evolving Atmospheres - Evolving Atmospheres (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar Journey, Part One
+02. Interstellar Journey, Part Two
+03. Lost in Space
+04. Ground Control(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB02FFF24A4C49825967FF313BE32EABD484798D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144369   (627754) от 22.06.2017
 
 Ronny Vergara - Remixes Compilation Vol.02 (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -641,60 +695,6 @@ Jens Buchert - Gravity (2017) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836EFBEEDFCC41E0EAAEE9DA77C4E18CF2697803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144190   (629367) от 21.06.2017
-
-VA - Powerful Mantra Meditation & Yoga: 111 The Best Tracks For Deep Concentration Sleep & Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Meditation Music Zone - Powerful Mantra (Meditation And Yoga)  4:26
-002.  Mindfulness Meditation Music Spa Maestro - World Meditation  4:04
-003.  Healing Yoga Meditation Music Consort - Rainy Yoga  3:27
-004.  Buddhist Meditation Music Set - Silence Of The Spirit  3:26(   Читать дальше...   )Жанр: Downtempo, Chillout, RelaxПродолжительность: 07:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9CB0A1A59C30AB5E12E07EC111140B1BB20DF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144236   (629654) от 21.06.2017
-
-VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Project Weekend Sound - Close To You (Instrumental)  4:17
-02.  After Sunrise - Deep Blue Something (Club Mix)  5:59
-03.  Bildertal - Sunder Uul (Stefan Reh Remix)  7:11
-04.  Svendaq - Golden Patch  5:40(   Читать дальше...   )Жанр: HouseПродолжительность: 02:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
 ```
 
 

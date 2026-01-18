@@ -1,3 +1,57 @@
+###  Публикация: 1133392   (693027) от 13.05.2017
+
+Jackie Evancho - Two Hearts (2017) 2CD [FLAC|Lossless|tracks + .cue] <Classical Crossover, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caruso (featuring William Joseph, piano) (4:28)
+02. Attesa (4:32)
+03. How Great Thou Art (5:19)
+04. Mamma (3:23)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7312144DA4DE634AA4297B441439E99E9F1A37AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221479   (693070) от 25.04.2018
+
+VA - Piano Cloud Series - Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matti Bye - Elephants made the piano
+02. Federico Albanese - Early Dance
+03. Angus MacRae - Mirror Lake
+04. Clem Leek - Temps(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4627024D95B8964592DDA18DF88605A4F41749A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 74433   (693618) от 18.08.2020
 
 Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
@@ -641,60 +695,6 @@ Giovanni Battista Sammartini (1700-1775) • Tomaso Albinoni (1671-1751) • Ant
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1F8211C7372CCE3396EE01C8264DE5644F94193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668060   (725524) от 14.06.2013
-
-Paul McCartney - Ocean's Kingdom (Studio and Live Audio) (2011) [FLAC 2.0 24/96|tracks (WEB-DL)] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Movement 1: Ocean's Kingdom (00:14:07)
-02. Movement 2: Hall of Dance (00:16:19)
-03. Movement 3: Imprisonment (00:13:36)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E99F2B6332232E3907EBA259C1DF751EA734714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667537   (726770) от 13.06.2013
-
-VA - Great Romantic Symphonies (2012) Naxos 25th Anniversary. The Great Classics. 10CD Box #4[FLAC|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.     I. Adagio 00:11:40
-2.     II. Largo 00:12:01
-3.     III. Molto vivace 00:08:08
-4.     IV. Allegro con fuoco 00:11:11(   Читать дальше...   )Жанр: ClassicalПродолжительность: 12:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612EF465954F617B234D5D49847F4AA537102F71
 ```
 
 

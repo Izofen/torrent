@@ -1,3 +1,30 @@
+###  Публикация: 906112   (647543) от 07.06.2015
+
+Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duma Sa Duma
+02. Bay City Shimmy (Fusion Mix)
+03. Golden Gate Mist
+04. Raqs Shehani(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517511   (647614) от 01.07.2012
 
 VA - Radio Rebel / Бунтарка (2012) [MP3|320 кб/с]<OST>
@@ -671,33 +698,6 @@ Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031614   (651997) от 04.07.2016
-
-Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owen's Boat [00:03:21]
-02. Inishowen Dawn [00:03:16]
-03. Vardo [00:04:50]
-04. Mantra [00:03:26](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A91698AC1D8518029B58D861F98B82B25C04AD
 ```
 
 

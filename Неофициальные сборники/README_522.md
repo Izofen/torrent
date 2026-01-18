@@ -1,3 +1,30 @@
+###  Публикация: 1509641   (794031) от 13.11.2021
+
+VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794031.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kapibara - Mittrei
+002. Sasha - Hndi
+003. Floex - The Edge Of Light
+004. Fatih Tuter - Steps Into Wilderness(   Читать дальше...   )Жанр: Chillout, Relax ElectronicПродолжительность: 08:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C9177775F457F1AF41847E0EE3CF6C261A22ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274335   (794051) от 06.01.2019
 
 VA - Сегодня на радио хиты FM Vol.2 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -668,30 +695,6 @@ VA - Music Collection - NewAge Enigmatic Meditation Ethnic Electronic (2018) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:117A7CB4EFF510B9F0527E4FEE5267DDFA88D4B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274088   (794706) от 05.01.2019
-
-Max Oazo feat CAMI - What Is Love (2018) Remix, Cover [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794706.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Max Oazo feat CAMI - What Is Love (The Distance & Igi Remix) Haddaway CoverЖанр: Club, DanceПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCEA56511C6E84D4236296A1E7D91F1268882A0
 ```
 
 

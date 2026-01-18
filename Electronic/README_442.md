@@ -1,3 +1,57 @@
+###  Публикация: 1186372   (846521) от 25.04.2020
+
+0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 111 (14:40)
+ 02. Feda (03:44)
+ 03. Gluten Tag (10:23)
+ 04. Serendip 25 (06:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno/IDM/ExperimentalПродолжительность: 06:22:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9BA1A1E4C6F078A838CE01886B1525801C42CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378330   (846691) от 25.04.2020
+
+Lemongrass - Temptations (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tropical Garden (04:40)
+02. Straight Ahead (04:49)
+03. Come Over (03:56)
+04. Go In (04:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5CA7A1E6EA0DF1397BE4C0DC9874C09419576B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002809   (847102) от 01.04.2016
 
 VA - Lounge Deluxe, Vol 3 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -635,60 +689,6 @@ VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AB634888A51F8A436CCE16E020DB01817A4B467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378020   (850090) от 23.04.2020
-
-Synergic - A World Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Axiom (Original Mix) (7:41)
-2. Dissonance Theory (Original Mix) (7:05)
-3. Synergic; Kala - Old Night (Original Mix) (7:02)
-4. A World Beyond (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567C156CC97FA7C4EBFA7076355BF3EB2A771583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001700   (850208) от 30.03.2016
-
-Pet Shop Boys - Super (2016) [MP3|320 кб/с] <Electronic, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happiness
- 02. The Pop Kids
- 03. Twenty-Something
- 04. Groovy(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9070F8A050D30CD05F62185E30D8098EE82FEACE
 ```
 
 

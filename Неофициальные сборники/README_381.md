@@ -1,3 +1,30 @@
+###  Публикация: 1035583   (626513) от 17.07.2016
+
+VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нетсмысла - Мегаполис
+02. Никита Хазановский - Воробьи
+03. Mozgi - Полицаи
+04. Quest Pistols - Непохожие(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035628   (626518) от 17.07.2016
 
 VA - Blue Pills Lounge: Love Making, Tantric Massage, Smooth Jazz (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -676,36 +703,6 @@ VA - Italo & Space Vol.39 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19087A4B8785D1B191DD3307AFE562AD4FD1D3F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294441   (627709) от 08.04.2019
-
-VA - Hits of My Soul Vol. 45 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Jon O'Bir feat. Fisher - Found A Way (Original Mix) (07:37)
-02. Dash Berlin - Earth Hour (Club Mix) (08:15)
-03. Dominik Dudek pres. Astral Forteness - Enchanted In Time (Original Mix) (010:09)
-04. Nianaro - Citadel (Original Mix) (08:07)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9801C53C0BB603E71CDFA73B1A9ABDCFAB4C9D
 ```
 
 

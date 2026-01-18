@@ -1,3 +1,30 @@
+###  Публикация: 1370151   (898451) от 26.03.2020
+
+VA - Hear My Soul: Deep House Fashion Mix (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giuliano Rodrigues - Volta
+002. The Godfathers - Same Kind
+003. Shawanna - Turn Around
+004. Seaman - Hymalaya(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370149   (898484) от 26.03.2020
 
 VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
@@ -680,33 +707,6 @@ VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC45238A6F7073308F794BFC286211A471A91E9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100287   (900643) от 03.02.2017
-
-VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900643.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A R I Z O N A - Oceans Away (Sam Feldt Remix)
-002. Adrian Lux - All Aloud
-003. Afrojack feat. Jay Karama - Diamonds
-004. Aidenn & AR5 feat. Max Landry - Far Away (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, Electro House, TranceПродолжительность: 05:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:189FFD6E70112A5F94A2CEDF249C02B76A9F015D
 ```
 
 

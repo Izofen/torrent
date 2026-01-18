@@ -1,3 +1,30 @@
+###  Публикация: 984603   (938495) от 09.02.2016
+
+VA - Italo & Space Disco Vol.2 (2016) [MP3|320 кб/с] <Italo-Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto – Laser Coaster (04:39)
+02. Digital Galaxy – Planet Of Fire (05:02)
+03. Holomatrix – A Star Was Born (04:45)
+04. Synthesis – Guardian Of The Galaxy (07:00)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 05:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BF0EFFD2D73A7BC26E2E2AC1914F7B58249F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092595   (938636) от 12.01.2017
 
 VA - Золото Русского Диско - 19 (2017) [MP3|160-320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Top 100 Russian Hits (2017) [MP3|256~320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E95C090D543D3D7C55FF94F17257911A21F9252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362977   (944757) от 26.02.2020
-
-VA - Весна 2020. Hit Music от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944757.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DiscoVer. - Can't Get You Out Of My Head
-002. Alex Gaudino & Bottai feat. Moncrieff & Blush - Remember Me
-003. Slider & Magnit feat. KDDK - Туда
-004. Seven Lions feat. Tyler Graves - Only Now(   Читать дальше...   )Жанр: PopПродолжительность: 12:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A85A119181D2CDC6EC77DE2DE9315EA2DE0F337
 ```
 
 

@@ -1,72 +1,69 @@
-###  Публикация: 1468227   (1017265) от 07.05.2021
+###  Публикация: 1476003   (1012008) от 09.06.2021
 
-Downcast 2.10.2 [En]
+GeoGebra 6.0.646.0 Classic + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017265.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.05.2021Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.13.2 +Язык интерфейса: Английский
+GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B825D364554FE779E21446C02CB13D26FF460338
+magnet:?xt=urn:btih:037B8572B998E48712941F8068A40057CB21DEEB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468324   (1017266) от 07.05.2021
+###  Публикация: 1476078   (1012009) от 09.06.2021
 
-Saiyuuki Gaiden | Саюки: Истоки [2011, OVA, 3 + SP] BDRip 1080p raw
+Ночь в Венеции / Stanotte a Venezia (2017) DVB [H.264]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Документалистика и Телепередачи
+>>История
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017266.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История происходит за 500 лет до истории Сайюки. Ребенок-еретик с золотыми глазами попадает на Небеса. Он неохотно передан на попечение второстепенного божества по имени Конзэн, племянника Милосердной Богини Канзеон Босацу.
-
-Конзен в конце концов дает ребенку имя «Гоку». Гоку подружился с двумя другими второстепенными богами, маршалом Тенпу и генералом Кенреном из (   Читать дальше...   )Производство: Студия Anpro / アンプロЖанр: приключения, мистикаРежиссер: Кудзуя НаоюкиПеревод: Xellos Slayer; KasandraЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 эп. + SP по 30 мин.
+Альберто Анджела в новом увлекательном ночном путешествии. На этот раз в Венеции. Этот город представляется сценой, на которой разыгрываются картины венецианской жизни, вдохновлявшей артистов, писателей, художников, в том числе Карло Гольдони, нарисовавшего в своих комедиях портрет этого города. Сколько здесь было встреч, ссор, смеха! Сколько людей влюблялось на (   Читать дальше...   )Производство: Италия, RAI Radiotelevisione ItalianaЖанр: Документальный, история, архитектураРежиссер: Габриэле ЧиполлиттиПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:53:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68A1E54775695BC936C6D09DBB779D4E4DF935A
+magnet:?xt=urn:btih:0970AEFBEA656F70804BD009B25D1F26F2B08371
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468248   (1017267) от 07.05.2021
+###  Публикация: 1475855   (1012010) от 09.06.2021
 
-Mirko Hirsch - Missing Pieces - From Obsession to Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco, Synthpop>
+Dezza - 44° North, 63° West (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Melodic House>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017267.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It's Love (Single Edit) (4:08)
-02. And Tonight (Remastered) (5:39)
-03. Rainy Day in Moscow (Remastered) (6:38)
-04. Tango Tonight (Remastered) (3:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, SynthpopПродолжительность: 01:19:26
+01. Real Love (5:16)
+ 02. Lost In You (Falling In Love) (3:18)
+ 03. Settle (ft. Lauren L'aimant) (4:12)
+ 04. My Breath (ft. Dan Soleil) (3:01)(   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic HouseПродолжительность: 01:12:16
 
 ## Скачать торент
 ```bash
@@ -76,413 +73,102 @@ Mirko Hirsch - Missing Pieces - From Obsession to Desire (2021) [FLAC|Lossless|W
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468208   (1017268) от 07.05.2021
+###  Публикация: 1475851   (1012011) от 09.06.2021
 
-VA - The Mastermix Collection – Disco (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
+VA - Chill House: Electro Sound Pack #294 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
 
->>
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017268.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mastermix - DJ Playlist: 70s Disco Floorfillers
-02. Mastermix - Disco Queens
-03. Mastermix - Funky Disco
-04. Mastermix - Boogie Nights(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:23:08
+001. Mansionair - Astronaut
+002. Turu Anasi - Baabaa
+003. Dennis Lloyd - Nevermind
+004. Luka Sambe - Fry Dimension(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:56:13
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A749AD2810F56032FD78156034ED6ECD6B8BFC65
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468367   (1017269) от 07.05.2021
+###  Публикация: 1476051   (1012012) от 09.06.2021
 
-Ларри Симон. Переходящее богатство (Черная рука) / Passing the Buck (1919) WEBRip
+Леонс Перре. Андре Шенье / Andre Chenier (1910) DVDRip
 
->>
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017269.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вот это подарок судьбы - саквояж с драгоценностями! Да вот только на такой лакомый кусочек не один претендент. В том числе и зловещая Черная рука! Просто ужас!Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Ларри СимонАктеры: Ларри Симон, Фрэнк Александр, Люсиль Карлайл, Джеймс Доннелли, Louise Du Pre, Уильям Хаубер, Спенсер БеллПеревод: НемойСубтитры: ОтсутствуютПродолжительность: 00:14:35
+Фильм о судьбе французского поэта восемнадцатого века Андре Шенье, предшественника романтического движения, во время Великой французской революции. Несмотря на небольшой объем, авторы фильма умудрились коснуться почти всех основных событий этого периода его жизни. Андре Шенье был гильотинирован в возрасте 31 года.Производство: Франция, GaumontЖанр: Драма, короткометражный, немое киноРежиссер: Этьен Арно, Луи ФейадАктеры: Рене Александр, Эдмунд Бреон, Рени Карл, Рене Наваро, Леонс Перре, Алис Тиссо, Марта Винот, Морис Винот, Georges WagueПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:13:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B05C1D1DDE3B1935CE59A74E0D53D6BF719515AA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468445   (1017270) от 07.05.2021
+###  Публикация: 1475832   (1012013) от 09.06.2021
 
-PrivaZer 4.0.23 Free + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017270.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468089   (1017271) от 07.05.2021
-
-VA - The Mastermix Collection – Cool Dance (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - DJ Set: Cool Dance
-02. Mastermix - Monte Carlo Cool
-03. Mastermix - Nikki Beach: The Mix
-04. Mastermix - Laidback Beats(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D0FF88775C3833DB18F5E3FAC65D9B7919D483
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468219   (1017272) от 07.05.2021
-
-VA - Ibiza Opening Megamix 2021 [MP3|320 Kbps] <House, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faul & Wad vs. PNAU - Changes (Zonderling Remix)
-02. The Disco Boys & Jay Frog - I Think
-03. Klaas - Push The Feeling On
-04. Darius & Finlay & LOTUS feat. Snoop Dogg - Last Flame(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 04:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72850D3265B93C05F1CF127496C12516DD634AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741916   (1017273) от 07.05.2021
-
-С. Заречная | Орленок (1942) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о партизане Шуре Чекалине. Для среднего и старшего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F25204E0C130583B25E58086371E4FA02A9DD9FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468215   (1017274) от 07.05.2021
-
-VA - The Mastermix Collection – Summer 2 (2021) [MP3|320 Kbps] <DJ Sets, Disco, Funky, Big Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - Dancehall For The Dancefloor
-02. Mastermix - On A Reggae Trip!
-03. Mastermix - Summer Party (Stars On 45 Version)
-04. Mastermix - Sound Of Tropical House(   Читать дальше...   )Жанр: DJ Sets, Disco, Funky, Big BeatПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB64F1F16672601F007CAD6BDA8D5A927EAC975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468154   (1017275) от 07.05.2021
-
-Peter Gabriel - Rated PG (2020) [FLAC|Lossless|tracks + .cue] <Prog Rock, Soundtrack>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That'll Do (3:56)
-02. Down to Earth (5:59)
-03. The Worldbeaters and This Is Party Man (6:37)
-04. The Book of Love (3:38)(   Читать дальше...   )Жанр: Prog Rock, SoundtrackПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771DA643729BF27B8F09F6F7D7059C880506D668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468362   (1017276) от 07.05.2021
-
-VA - Saltwater Dream: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matej Blanusa - Wakening (Pine) (2:45)
-02. Mission Brown - First Rain (Original Mix) (6:03)
-03. The Soul Crusaders, Marc Hartman - Observing the Clouds (Original Mix) (3:49)
-04. J. R. Haim - Kaneo (4:07)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468092   (1017277) от 07.05.2021
-
-VA - The Mastermix Collection – Chart 2020-2021 (2021) [MP3|320 Kbps] <DJ Sets, Disco, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mastermix - Mastermixed: January 2020
-02. Mastermix - Pop Party: Spring 2020
-03. Mastermix - Mastermixed: February 2020
-04. Mastermix - Mastermixed: May 2020 (Pop Dance)(   Читать дальше...   )Жанр: DJ Sets, Disco, Pop, DanceПродолжительность: 02:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B1A5F84FF4DAFC55FDCED128BCDB4A0600D5E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468382   (1017278) от 07.05.2021
-
-ON1 Effects 2021.5 v15.5.0.10403 [Multi/Rus]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окончательная коллекция фотоэффектов, фильтров, LUT и пресетов. ON1 Effects включает в себя сотни встроенных фотоэффектов, фильтров, LUT, границ, текстур и пресетов - все это полностью настраивается под ваш стиль. Есть бесконечные творческие возможности с эффектами ON1. Наши самые популярные включают HDR Look, B & W, Lens Blur (tilt-shift), Glow, Color Enhancer, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.05.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58D1B5090CD71C9A0B129E7C5C1F85A579E1B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468259   (1017279) от 07.05.2021
-
-Jeremy Olander - Live @ Vivrant at the Lockdown, Trainyard in Stockholm, Sweden (2021-04-29) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Olander - ID
-02. Jeremy Olander - ID
-03. Jeremy Olander - ID
-04. Jeremy Olander - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468193   (1017280) от 07.05.2021
-
-Bootstrap Studio 5.6.2 [En]
+Чёрная Ленточка - Правда (2021) [MP3|256 Kbps] <Psychedelic Rock,  Punk Rock>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017280.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.04.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+01 - Правда [00:00:48]
+02 - Десант штурмует небеса [00:03:47]
+03 - Невыносимые потери [00:03:12]
+04 - Всё что я нарисовал [00:05:42](   Читать дальше...   )Жанр: Psychedelic Rock,  Punk RockПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30EC0C2A13ED099805EE22A31E007E24AF1C2085
+magnet:?xt=urn:btih:5BC1CCB189D4564F4943EB244E0BE99422D0F298
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468262   (1017281) от 07.05.2021
+###  Публикация: 1475834   (1012014) от 09.06.2021
 
-Diamante - 2 Albums (2018-2021) [MP3|320 Kbps] <Alt.Metal, Modern Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Dream [00:03:05]
-02. Ghost Myself [00:03:12]
-03. Serves You Right [00:03:34]
-04. Obvious [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Modern Rock, Female VocalПродолжительность: 2CD, 01:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C9705AC7BF5B3213E1A382239DAC86941BE18F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468242   (1017282) от 07.05.2021
-
-Jody Grind - 2 albums, 4CD (1969-2006) [FLAC|Lossless|image + .cue] <Prog Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017282.jpg" />
-</div>
-
-
-###  Подробнее
-
-JODY GRIND - английский коллектив прогрессивного рока. К огромному сожалению, этот ансамбль не достиг тех вершин, которых заслуживал и сейчас их диски являются украшением коллекции лишь истинных любителей британской сцены рубежа 60х 70х годов. И это несмотря на то, что почти все участники в дальнейшей карьере смогли принять участие во многих гораздо более известных (   Читать дальше...   )--------------------------
-
-01. We've Had It (5:07)
-02. Bath Sister (3:30)(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 02:57:13 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634A584E9C10A1017AF6285F3C00FCA0CDD0CF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468393   (1017283) от 07.05.2021
-
-iA Writer 5.6.11 [Multi/Ru]
+VA - Classy Psy Trance: White Session (2021) [MP3|320 Kbps] <Psy, Goa Trance, Electro>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017283.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012014.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.05.2021Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+001. Sixsense - Psycho Machines
+002. At Mind - They-Re Here
+003. Median Project - Human Error
+004. Duologic - Orgasmologic(   Читать дальше...   )Жанр: Psy, Goa Trance, ElectroПродолжительность: 12:28:11
 
 ## Скачать торент
 ```bash
@@ -492,21 +178,24 @@ iA Writer 5.6.11 [Multi/Ru]
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468197   (1017284) от 07.05.2021
+###  Публикация: 1473157   (1012015) от 09.06.2021
 
-Сибирская Благозвонница (изд.) | Канон в Неделю Святой Пасхи (2019) [FB2, EPUB]
+Eden Shadow - 3 Albums (2012 - 2016) [FLAC|Lossless|image + .cue | tracks + .cue]<Neo-Progressive>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017284.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012015.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пасхальный канон, Стихиры и Часы Святой Пасхи — творения преподобного Иоанна Дамаскина — составляют существеннейшую часть пасхальной утрени «Праздника Праздников» и представляют собой выдающиеся произведения церковной словесности не только со стороны торжественности своей внешней формы, но и по своим внутренним достоинствам, по силе заключающихся в нём мыслей, по (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+01. Ventriloquist
+02. False Prophet
+03. Burden of Power
+04. Introspect Part 1(   Читать дальше...   )Жанр: Neo-ProgressiveПродолжительность: 02:25:36
 
 ## Скачать торент
 ```bash
@@ -516,160 +205,478 @@ iA Writer 5.6.11 [Multi/Ru]
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468257   (1017285) от 07.05.2021
+###  Публикация: 1476040   (1012016) от 09.06.2021
 
-Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <Power Metal, Metal Opera>
+Мэйбл Норманд. Новый герой Мэйбл / Mabel's New Hero (1913) WEBRip
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017285.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012016.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seven Ancient Artefact [00:05:35]
-02. Journey to the North [00:04:12]
-03. The Ballad of Arnoth the Wild [00:06:06]
-04. Mines of Eloroth [00:05:28](   Читать дальше...   )Жанр: Power Metal, Metal OperaПродолжительность: 3CD, 03:32:36
+Мэйбл с подругами собралась на пляж, а Фатти хочет, чтобы она пошла с ним. Мэйбл ссорится с Фатти. На пляже некий «волокита» подсматривает за Мэйбл в раздевалке и пристаёт к ней. Видя такое безобразие, Фатти устраивает драку. Мэйбл убегает и прячется в корзине «припаркованного» тут же на пляже воздушного шара. Волокита от злобности отвязывает верёвку, удерживающую (   Читать дальше...   )Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Роско Арбакл, Чарльз Инсли, Вирджиния Кёртли, Чарльз Эйвери, Эдгар Кеннеди, Хэнк МаннПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:08:30 / 00:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468115   (1017286) от 07.05.2021
+###  Публикация: 1475876   (1012017) от 09.06.2021
 
-High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock, Pop-Rock>
+Demon's Eye - The Stranger Within (2011) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017286.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peace, Love and Harmony (4:07)
-02. Make It Better (3:03)
-03. All We Need (3:33)
-04. Roll That Stone Away (3:11)(   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 00:52:55
+01. The Unknown Stranger
+02. Sins Of The Father
+03. The Best Of Times
+04. Ain't Nothing Better(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468022   (1017287) от 07.05.2021
+###  Публикация: 1475758   (1012018) от 09.06.2021
 
-Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cue] <Easy Listening>
+Rancor - Evilization (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idolize Your Demons
+02. Cruelty
+03. Blue Depths...
+04. ...Black Devil Bites(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475817   (1012019) от 09.06.2021
+
+Eyes - Perfect Vision 20/20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing To Win
+02. Turn Of Your Life
+03. Get Out Of My Head
+04. This Is Us(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476018   (1012020) от 09.06.2021
+
+Stephan Thelen - Fractal Guitar 2 (2021) [FLAC|Lossless|tracks + .cue] <Jazz Rock, Prog Rock, Fusion>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012020.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cosmic Krautrock - 14:08
+2. Fractal Guitar 2 - 07:58
+3. Mercury Transit - 12:03
+4. Ladder To The Stars - 14:54(   Читать дальше...   )Жанр: Jazz Rock, Prog Rock, FusionПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475933   (1012021) от 09.06.2021
+
+Ella Fitzgerald - The Best Of Twelve Nights In Hollywood (1961) 2010, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [1:57]
+02. Ac-Cent-Tchu-Ate the Positive [2:48]
+03. On a Slow Boat to China [2:25]
+04. I'm Glad There Is You [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475830   (1012022) от 09.06.2021
+
+VA - Inter Galactic: Synth Electronic Mixtape (2021) [MP3|320 Kbps] <Synthetic, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012022.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4handz - Been Around
+002. Wenping Monkeys - Oil
+003. Rush Hours - Free Dropping
+004. Moullinex - Minina Di Céu(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 11:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEAAE1D73605036FD3E6300A7F08E084FFCC391
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475805   (1012023) от 09.06.2021
+
+Liima Inui - Testament (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Progressive Metal,Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apostel [00:04:59]
+02. Crazy Law [00:04:41]
+03. Testament [00:06:03]
+04. Mortify [00:05:01](   Читать дальше...   )Жанр: Symphonic Metal, Progressive Metal,Female VocalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A6F30C2D94A1870127571844A48A373C4FBA31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475795   (1012024) от 09.06.2021
+
+Wyatt Olney & The Wreckage - Silver Bullet (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Within 03:43
+02. Allegory 03:03
+03. Get Haunted 03:33
+04. TraumaQueen 04:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6712D5648B49210C384DF64418EF9C393079C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475929   (1012025) от 09.06.2021
+
+Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017287.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jean
-02. We've Only Just Begun
-03. The Rose
-04. Eres Tu (Touch The Wind)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:52:11
+01. Outrospection [6:28]
+02. New Sunday [4:12]
+03. Dollah Hollah [3:31]
+04. Bridge to Nashua [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:284ECEB6DC6E9BCAC5F445A6DD85E65C65EEE35F
+magnet:?xt=urn:btih:10867BA08B170D02C662AF5440AAD166986CE68B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467961   (1017288) от 07.05.2021
+###  Публикация: 1475828   (1012026) от 09.06.2021
 
-Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+The Ogre - Aeon Zero (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Ride with Demons [00:04:47]
+02. Polybius [00:01:26]
+03. Crawling Chaos Underground [00:05:25]
+04. The Horrible [00:04:55](   Читать дальше...   )Жанр: Progressive Metal, Black Metal, Heavy MetalПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C8179A9A115C176D8790C7E63EE0789B1B2678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475926   (1012027) от 09.06.2021
+
+Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017288.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Billy May - On the Sunny Side of the Street [3:07]
-02. Billy May - Twilight Time [3:28]
-03. Billy May - Oh, What a Beautiful Mornin' [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:02:05
+01. Evan's-ville [6:28]
+02. Love Me a Long, Long Time [2:51]
+03. My Brother Don [5:50]
+04. Christina [7:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:12:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2230F6FF6118796FA8D7EA50E8A1DA11A4214090
+magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468213   (1017289) от 07.05.2021
+###  Публикация: 1475824   (1012028) от 09.06.2021
 
-Stats 2.5.13 [Multi/Ru]
+Caliban - Gravity (2016) [FLAC|Lossless|image + .cue] <Metalcore>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017289.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 06.05.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+01. Paralyzed (4:29)
+02. Mein Schwarzes Herz (3:01)
+03. Who I Am (4:12)
+04. Left For Dead (3:24)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E23B657DF82EE09102EA383861468C18011AC4AF
+magnet:?xt=urn:btih:55B7FBDBE86EF89DCE1DB7F1A84540D48AD7955E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468255   (1017290) от 07.05.2021
+###  Публикация: 1475937   (1012029) от 09.06.2021
 
-Kryder & Stevie Krash - Kryteria Radio 289 (2021-05-04) [MP3|192 Kbps] <House, Progressive House, Future House>
+Lalle Larsson's Weaveworld - Infinity Of Worlds (2010) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017290.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Choujaa - I Feel Like
-02. ID - Be The One
-03. Sidekick - Deep Fear (Lumberjack & BRØMANCE Remix)
-04. O.B - Techno Tribal (Drums'N Drums Mix)(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 01:17:41
+01. A Demon's Kiss 06:10
+02. Otherworldly 06:20
+03. City Of Lost Souls 11:10
+04. Beyond Shadows 08:52(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6C013E6C210D44FFA901A314091533439EA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475763   (1012030) от 09.06.2021
+
+Rancor - Release The Rancor (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wounded Wolf
+02. Violent Dreams
+03. Soul Chamber
+04. From Warrior To God(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76DD535ECF0B363C3D5B60EE03B720EDCBBEA22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475761   (1012031) от 09.06.2021
+
+Rancor - Dark Future (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Drop Of Blood
+02. Addicted To Hate
+03. Knocking At The Gates Of Hell
+04. Deaf People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:35
 
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297368   (1012032) от 08.06.2021
+
+Цифровое ТВ v2.2.1 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет смотреть 20 цифровых общероссийских ТВ каналов на любом устройстве в отличном качестве после отключения аналогового ТВ. Цифровые общероссйские ТВ каналы: Первый канал, Россия 1, Матч ТВ, НТВ, Пятый канал, Россия К, Россия 24, Карусель, ОТР, ТВ Центр,РЕН-ТВ, Спас, СТС, Домашний, ТВ-3, Пятница, Звезда, Мир, ТНТ, Муз-ТВ. Каналы цифровых мультиплексов (   Читать дальше...   )Тип издания: Mod (удалён гуглохлам и добавлены каналы)Релиз состоялся: 06.06.2021Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00129C8A175C6A68FCC1D7DEC6561A5A14208503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276949   (1012033) от 08.06.2021
+
+DESOLATE (2019) [Ru/Multi] (1.3.5) Repack Other s
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года назад остров Граничный оказался в эпицентре крупномасштабной катастрофы. Конгломерат «Новый свет» скрыл информацию о трагедии и теперь пытается исправить последствия. В рамках этой кампании многочисленных Добровольцев — многие из которых ни разу не держали оружие — отправляют на Граничный, чтобы исследовать паранормальное воздействие катастрофы, собирать (   Читать дальше...   )Тип издания: RepackРазработчик: NeargaЖанр: Adventure, Action (Survival horror), RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF296224E44DBF433DEC3A74E371F9D01CBC477
 ```
 
 

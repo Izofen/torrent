@@ -1,3 +1,56 @@
+###  Публикация: 1292817   (643291) от 31.03.2019
+
+Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutant Disco (7:00)
+ 02. Mutant DX (5:40)
+ 03. Mutant Romance (6:45)
+ 04. Mutant Pulse (8:45)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB43C79372C4B53C2D247401659E4E7005F4CC89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906529   (643491) от 09.06.2015
+
+The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<ElectroHouse, Drumstep>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Full of Shadows
+02. Better Hide, Better Run (feat. Mark Johns)
+03. The Clouds Breathe for YouЖанр: ElectroHouse, DrumstepПродолжительность: 00:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:422E2A9F0AD84D9E1905400AED134128F7F64990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032637   (643549) от 08.07.2016
 
 Adrika - Prana (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient, Downtempo, Progressive Trance>
@@ -637,60 +690,6 @@ Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336AC9EFD3DB11DE2B4E5ADE6C54240925514374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292523   (645195) от 30.03.2019
-
-Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odyssey Overture (1:53)
-02. Ace of Space (5:40)
-03. Galaxy Joyride (5:17)
-04. Light Years (4:29)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C31D58105B29316BD1D49043630D3E7CD9890BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292709   (645199) от 30.03.2019
-
-Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life on Earth (4:57)
-02. New Horizons (4:18)
-03. Constellation (4:56)
-04. Destroyer (4:22)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA86315DE77D43AD30BB122D788B344A2662281
 ```
 
 

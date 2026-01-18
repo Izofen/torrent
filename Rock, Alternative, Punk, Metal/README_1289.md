@@ -1,3 +1,300 @@
+###  Публикация: 1611540   (1040749) от 13.02.2023
+
+Fast Food - Collapsing Babylon (2023) [MP3|320 Kbps] <Pop Rock, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Madness I [00:03:46]
+02 - TV-Dead [00:03:00]
+03 - Hunting Is Crime [00:02:57]
+04 - Parasites [00:02:53](   Читать дальше...   )Жанр: Pop Rock, Thrash MetalПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A147DCC9B43BD7B83AE7637797B72C2F29EB8173
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611797   (1040756) от 13.02.2023
+
+Chris Norman - Rediscovered Love Songs (2022) [FLAC|Lossless|image + .cue] <Pop-Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need You Now
+02. To Love Somebody
+03. Wonderful Tonight
+04. I Drove All Night(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA42815317760922F86F6CE197E82FB036579F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438590   (1040810) от 09.01.2021
+
+Метанойя - Чистые дни (2020) [MP3|320 Kbps] <Prog Rock, Art Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Засуха перед грозой
+02. Не разбудит весна
+03. Тропами единорога
+04. Чистые дни(   Читать дальше...   )Жанр: Prog Rock, Art Rock, Blues RockПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457C3C2784109FE46ECA2B4397D40E96E43E503C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438515   (1040822) от 09.01.2021
+
+Wight Lighters - Rose Colored Glasses (2021) [FLAC|Lossless|tracks + .cue] <Southern Rock, Blues Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Nihntro (00:00:36)
+02 - American Dream (00:03:40)
+03 - Run On Run Along (00:03:42)
+04 - Heart (00:04:48)(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Country RockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8495749ED7BF2D79CB4833F2A0AADF75CC646EA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611960   (1040831) от 13.02.2023
+
+Within Temptation - An Acoustic Night At The Theatre (2009) Reissue, 2022, Music On CD [FLAC|Lossless|image + .cue] <Symphonic Metal, Alternative Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Towards The End (Live) 03:29
+02. Stand My Ground (Live) 03:54
+03. Caged (Live) 05:19
+04. All I Need (Live) 05:21(   Читать дальше...   )Жанр: Symphonic Metal, Alternative Metal, Gothic MetalПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44137E2F57DAC4E19F6D94AA2912757336E0F8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611732   (1040834) от 13.02.2023
+
+Burshtyn - 4 Albums (2016-2023) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Прах Відчайдухів / The Daredevils' Ashes
+2017 - Безвірник / Nothingarian
+2020 - Чортория / Chthonichasm(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73046F62ACE941A1F8345B6B2B8C41EF4CBB0AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611923   (1040838) от 13.02.2023
+
+Kreator - Under The Guillotine - The Noise Records Anthology (2021) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040838.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Extreme Aggression
+02. Terrible Certainty (Remix)
+03. Endless Pain(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91B8D49B8621172E88C96FE31823A358243BB7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611721   (1040840) от 13.02.2023
+
+Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Prophecy
+2020 - Sia
+2022 - Light UpЖанр: Neo-Progressive, Folk RockПродолжительность: 3 CD, 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611451   (1040843) от 13.02.2023
+
+Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Mercy of an Approaching Dream (Introduction) [00:02:03]
+02. The Brilliance of the Brightest Star [00:03:51]
+03. Far Away in the North [00:04:49]
+04. Dense People [00:06:23](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FA640C405792EB7A459BF708237DF19B18B10F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611537   (1040864) от 13.02.2023
+
+DegrodTeam - Поеб... (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Поеб...[00:01:33]
+02 - 2121 [00:02:32]
+03 - Электричка [00:02:42]
+04 - Какое-то название, забыл (Типа медляк, посвящается Ей) [00:02:16](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7D6FE49CEDF3C92FF0C91CDB7E627D970BCE66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611861   (1040867) от 13.02.2023
+
+Земля Ветров - На Одной Волне (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Встуление [00:01:52]
+02. Вместе с нами [00:03:48]
+03. На одной волне [00:03:24]
+04. Не считая лет [00:04:17](   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE4B04C190D325DA0D0D69ABE2181E15DC31B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611824   (1040869) от 13.02.2023
 
 ...and Oceans - As in Gardens, So in Tombs (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
@@ -397,303 +694,6 @@ Fallen Arise - Enigma (2020) [FLAC|Lossless|image + .cue] <Symphonic Gothic Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F71D5B695DF52ED137035BB784EEA62C3206FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438658   (1040926) от 09.01.2021
-
-Exodus to Infinity - Archetype Asylum (2021) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Other (05:36)
- 02. Shadow Self (08:50)
- 03. Just Like Us (feat. Dr. Gabor Mate) (01:45)
- 04. The Body, the Drive, and the Dreamer (04:32)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1915362BF61BE5A76F6EA2477548E7A0D0287BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438722   (1040942) от 09.01.2021
-
-Strange to Believe - Asylum (2021) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PHASE I-The Lure (01:39)
- 02. What You Need (04:14)
- 03. The Philosopher (04:00)
- 04. A Delicate Promise (04:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBF70C65A9118C4C7C4E28445EF47F2B4BC2E43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438527   (1040949) от 09.01.2021
-
-Vjuga - Aeternum (2021) [FLAC|Lossless|tracks + .cue] <Post-Black Metal, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeternum [00:01:01]
-02. Rotten: Thousand Times 'Good Night' [00:05:31]
-03. Rotten: Godforsaken [00:04:20]
-04. On a Vision or in None [00:04:16](   Читать дальше...   )Жанр: Post-Black Metal, ShoegazeПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8CDB94C0886D0A4202AC8986C10470663D3EA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438516   (1040950) от 09.01.2021
-
-Works of the Flesh - Works of the Flesh (2020) [FLAC|Lossless|tracks + .cue] <Oldschool Death Metal, Crust>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Constant Pressure [00:01:57]
-02. God Is the Gospel [00:02:53]
-03. The Great Dictatewhore [00:01:51]
-04. Double Standards [00:02:45](   Читать дальше...   )Жанр: Oldschool Death Metal, CrustПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6EBCDBBC08C4330C1827E3E65B9D5AFFADD0B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611409   (1041045) от 12.02.2023
-
-In Flames - Сollection (1994 - 2019) 36 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041045.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Flames - (с англ. — «В пламени») Шведская группа, созданная гитаристом Jesper Strömblad в Гетеборге в 1990 году. Наряду с At the Gates и Dark Tranquillity, In Flames стали пионерами жанров, известных как шведский дэт-метал и мелодичный дэт-метал. В первые годы существования группы In Flames записывалась целая группа музыкантов, в том числе многие (   Читать дальше...   )Список альбомов:
-1994 - Lunar Strain
-1995 - Subterranean
-1996 - The Jester Race(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 29:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1542D77AFB719333D00C1BAE15AFFEE6149BDB8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438302   (1041062) от 08.01.2021
-
-Mother's Day - Alta Reign (2021) [FLAC|Lossless|tracks + .cue] <Heavy-Metal, Melodic-Progressive-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine [00:04:43]
-02 - Witness [00:04:11]
-03 - Thin Red Line [00:05:42]
-04 - Never Say Never [00:04:59](   Читать дальше...   )Жанр: Heavy-Metal, Melodic-Progressive-MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BEB72500F83C53BE9A6A4A368B15CBD3D6C18D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438484   (1041077) от 08.01.2021
-
-The Almas - Truth Sells (2021) [MP3|320 Kbps] <Original Modern Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hell Raiser [00:03:59]
-02 - Sin City [00:02:56]
-03 - Chemistry [00:04:48]
-04 - Toxic [00:02:44](   Читать дальше...   )Жанр: Original Modern Hard Rock, Female VocalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37EB87CEF23C2C57EDE5755736DBCBEB50884F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611676   (1041087) от 12.02.2023
-
-Angelwarrior Ace - Devotion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senseless War
-02. God of Power
-03. Time Labyrinth
-04. Crunchy Punchy(   Читать дальше...   )Жанр: Death, Thrash, Power MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA60921FE35A13769ABECC3B00FD931AF0F6E0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611589   (1041093) от 12.02.2023
-
-Tommy DeCarlo - Dancing In The Moonlight (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Moonlight (3:08)
-02. Change Our Fate (4:16)
-03. Beyond Forever (4:43)
-04. Life Is Just A Game (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEDA4EA96F209757EA4D7E8A204A6F32109F4FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438351   (1041101) от 08.01.2021
-
-VA - Rock Classics Rock Legends Rock Anthems (2021) Explicit [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitesnake - Here I Go Again (03:52)
-02. Yes - Owner of a Lonely Heart (2008 Remaster) (04:27)
-03. Alice Cooper - School's Out (03:29)
-04. Faces - Stay with Me (04:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360752B028002B97D6D3CBEBE02F3A053F9B100F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438460   (1041105) от 08.01.2021
-
-Korpiklaani - Niemi (2021) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041105.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Niemi
-2. Sanaton maa
-3. Mylly
-4. LeväluhtaЖанр: Folk MetalПродолжительность: 00:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FC8380DE9DE8604BD3F1DE61FDB238256DB47D
 ```
 
 

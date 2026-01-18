@@ -1,3 +1,58 @@
+###  Публикация: 1613549   (1039382) от 19.02.2023
+
+YqpY - Near (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire [00:03:04]
+02. Gravitation [00:03:33]
+03. Signal [00:03:35]
+04. Magnetism [00:03:31](   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:35:23
+deezer
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88F6319EFC9BC310F954F7872FB11EB422865B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613568   (1039396) от 19.02.2023
+
+The Sundial - Kaliningrad (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loop [00:04:48]
+02. Gagarin Stayed On The Moon [00:06:59]
+03. Kaliningrad [00:04:35]
+04. I'm Coming Home [00:04:28](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15EEBDAFD94ED35FC47CA3F369D79E847431DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613562   (1039400) от 19.02.2023
 
 Нечего Терять - Sadness is Rebellion (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -640,60 +695,6 @@ magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437398   (1042045) от 05.01.2021
-
-Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthcult (14:58)
-02. Everywhere And Nowhere (17:58)
-03. The Heart Of Time (16:06)
-04. Thaw (16:50)Производство: Not On Label (Trna Self-released)Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Ambient Black Metal, Post RockПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437374   (1042301) от 04.01.2021
-
-Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morbid Delusion
-02. Buried In Snow
-03. In November Forest
-04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
 ```
 
 

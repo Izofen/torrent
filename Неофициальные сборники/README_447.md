@@ -1,3 +1,32 @@
+###  Публикация: 792363   (710351) от 02.06.2014
+
+VA - The Official UK Top 40 Singles Chart (01-06-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+В нынешнем чате 6 новых исполнителей. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Second City - I Wanna Feel (Club Mix)  (5:20)
+02. Sam Smith - Stay With Me  (2:53)
+03. Klingande - Jubel  (2:28)
+04. Mr. Probz - Waves  (3:28)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683D4F2304BB0F74E7C9A469D5CBD85F65B84382
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131060   (710401) от 04.05.2017
 
 VA - Italo & Space Disco Vol.3 (2017) [MP3|320 Kbps] <Italodisco , Spacesynth>
@@ -668,33 +697,6 @@ VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025289   (712195) от 11.06.2016
-
-VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
-02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
-03. Geck-O - Sorry Not Sorry [3:16]
-04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
 ```
 
 

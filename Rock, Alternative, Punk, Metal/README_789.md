@@ -1,3 +1,57 @@
+###  Публикация: 1156044   (528499) от 06.08.2017
+
+Dying Fetus - The Wrong One To Fuck With (2017) [MP3|320 Kbps] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fixated on Devastation
+02. Panic Amongst the Herd
+03. Die with Integrity
+04. Reveling in the Abyss(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488A380180C75C6C8231E4CA66E2B4287AE83905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927165   (528503) от 13.08.2015
+
+August Burns Red - Found in Far Away Places (2015) Deluxe Edition [FLAC|Lossless]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Wake  03:27
+02 - Martyr  04:36
+03 - Identity  04:20
+04 - Separating The Seas  04:20(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 01:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B36AC1001DA97BA8176DF40E5E7ED9E97757F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927601   (528572) от 13.08.2015
 
 We Are Harlot - We Are Harlot (2015) [MP3|320 кб/с]<Hard Rock>
@@ -641,60 +695,6 @@ Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41E7CA4DB09130906B1E17AA1C4BAFC805AA9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558696   (529905) от 21.06.2022
-
-VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529905.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 25/17 - Апрель
-2. Комсомольск - Ночь
-3. Диктофон - Печаль
-4. Стереополина - Разреши мне...(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A6BDEEF313CF6DB47A052EA6F696C701869C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927308   (529934) от 12.08.2015
-
-Legs Diamond - Legs Diamond (1977) Remastered /2007, Diamond Records/ [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529934.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Its Not The Music
-2. Stage Fright
-3. Satin Peacock
-4. Rock And Roll Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6893A464E8541D2666BAB6FF5AB3EBF86AD97AA
 ```
 
 

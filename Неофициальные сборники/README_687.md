@@ -1,3 +1,30 @@
+###  Публикация: 1606996   (1044246) от 24.01.2023
+
+VA - Simply Dance Vol. 05 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Jacobson - I Love You Stop
+02. Ruesche - Sometimes (Radio Mix)
+03. Tony S3rmani - Be With Me
+04. Paul Damixie - Crazy(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:39:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9E89254BBF557A0B64933BF51EBDA3153CD0BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606998   (1044252) от 24.01.2023
 
 VA - Simply Dance Vol. 06 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
@@ -668,33 +695,6 @@ VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:181B1876238906E1625F83B975EDEBF3D61B4747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603120   (1045726) от 09.01.2023
-
-VA - Suflower Reggae (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Winston Wright - Eccles Skank [02:08]
-002. Megumi Mesaku - Sun Shines For Me [03:57]
-003. Susan Cadogan Feat. The Magnetics - Happy Birthday [02:14]
-004. Stranger Cole - Stranger At The Door [02:41](   Читать дальше...   )Жанр: Reggae, Dub, RiddimПродолжительность: 10:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C58E61586408C9DE4E616F6F778E505D2759E2
 ```
 
 

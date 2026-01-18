@@ -1,3 +1,30 @@
+###  Публикация: 1287942   (699772) от 09.03.2019
+
+VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Yarranton - Meridian
+002. Michael Hooker - Melindas Secrets (Original Mix)
+003. Moscoman - Song for Bourdain
+004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402549   (699824) от 15.08.2020
 
 VA - German Top 100 Single Charts 14.08.2020 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132381   (701144) от 09.05.2017
-
-VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701144.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amun - Red Eyes 4:23
-002. Chill 2 U - Nightwalker 4:54
-003. Amure - Intim 5:40
-004. Crystal Morgan - Do It 5:58(   Читать дальше...   )Жанр: Chillout, Lounge, DountempoПродолжительность: 07:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1240374   (524538) от 12.08.2018
+
+VA - German Top 100 Single Charts 10.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Melodien (feat. Juju)
+002. Dynoro & Gigi D'Agostino - In My Mind
+003. Bonez MC & RAF Camora - 500 PS
+004. El Profesor - Bella ciao (HUGEL Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48ACBE0E55D13DF417715C4CF65ED3FE9E8C83E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 370102   (525739) от 01.08.2011
 
 VA - Лучшие Хиты Муз-ТВ Часть 6 (2011) [MP3|256 kbps]<Pop>
@@ -698,33 +725,6 @@ VA - Обнимай меня. Топ новинок попмузыки (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95FB7EB869920941E896433915ADD93855D0305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557418   (535642) от 18.06.2022
-
-VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steffen Juergens - Du bist Liebe (Mixmaster JJ Remix)
-02. Zweiklang - Schattenseiten (Treanen sollten wir bewahren)
-03. Flamingoboys - Egoist (Mf-Remix)
-04. Michael Fischer - Wo bist du (Mf-Fox Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:12:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44488F26836C34B08B5EC1C8B73754DAFC340915
 ```
 
 

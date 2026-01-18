@@ -1,3 +1,57 @@
+###  Публикация: 1028675   (688762) от 23.06.2016
+
+GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem (07:51)
+02. Northern Lights (06:12)
+03. Earl Grey (07:06)
+04. Purple (09:20)(   Читать дальше...   )Жанр: Techno, Progressive House, Trance, Breaks, DowntempoПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028638   (688850) от 23.06.2016
+
+Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neoprene (04:08)
+02. Breathing Space (02:18)
+03. Well Connected (04:46)
+04. Meanwhile (02:32)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B44D78E224EC4885AC97A8E5E3B1A695477B117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134308   (688885) от 15.05.2017
 
 Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance, Progressive House>
@@ -639,60 +693,6 @@ VA - Mykonos Deep House Session (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A25D6ECBDB97B2A4720528566015E6816FD9F8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134125   (691650) от 14.05.2017
-
-Stephanie Sante - In Your Eyes (2017) [MP3|320 Kbps] <Lounge, Nu Jazz, Smooth Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sand and Sea
-02 - In Your Eyes
-03 - Can You Hear Me
-04 - Slow Moves(   Читать дальше...   )Жанр: Lounge, Nu Jazz, Smooth JazzПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56DE221788888F6300324B423CE46AA5B165E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134103   (691659) от 14.05.2017
-
-VA - Clouds Over - Havana Vol.1: 30 Fantastic Chill Out Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florzinho - Music Is The Universal Language (Instrumental Mix)  5:22
-02.  Endless All - Alone In Space  4:14
-03.  Marga Sol - Children  6:42
-04.  Sunyata Project - Eastern Promises (Extended Mix)  4:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10FC46D2DB7CEFD9168487D5EAFD9C3647E2885
 ```
 
 

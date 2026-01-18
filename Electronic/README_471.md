@@ -1,3 +1,57 @@
+###  Публикация: 1490289   (919025) от 20.08.2021
+
+VA - Cafe Italiano: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robertinho De Paula - Overjoyed (5:30)
+02. Massimo Faraò - Winchester Cathedral (3:03)
+03. Sergio Coppotelli - Summer Dream (5:49)
+04. Brava HitMakers - Pasos De Cero (In the Style of Pablo Alboran) (Tribute Version) (3:55)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFE4D6F9F96F8AF55540C089D1A1EA8E49B39B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366994   (919130) от 14.03.2020
+
+VA - Goa Trance Vol.42 (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919130.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flexus - Paradise (6:54)
+2. Serenity Flux - Bombay Sapphire (7:37)
+3. Orisma; Spinney Lainey; Dewaan - Creative Process (9:22)
+4. Entropia; Serenity Flux - Fluxtropia (7:32)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29EB2A566B8A3CAA4B6BABE6230EC7AD62FDD95D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988861   (919192) от 21.02.2016
 
 Daniel Masson - Jetlag 2015 Edition (2015) [MP3|320 кб/с] <Electronic, Chillout, World Fusion>
@@ -640,60 +694,6 @@ VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096368   (921090) от 23.01.2017
-
-VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vadim Bonkrashkov – Super 8 (original mix)
-02. Pulsar – One (Mino Safy "One World One Passion" remix)
-03. Darvo – Wandering Flames (Club mix)
-04. Taglo – San Antonio (Daniel Rise remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0418757EAC622B70920B5ABC86B0CACFA1D97834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113297   (921468) от 12.03.2020
-
-SKAM Records (Skam, 33, Kasm, 30mil Recordings) - Label-Pack 118 Releases (1991-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Abstract, Experimental, Techno>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fhorth (05:35)
- 02. Herzzatzz (06:08)
- 03. Avantual (05:44)
- 04. Evensong (07:49)(   Читать дальше...   )Тип издания: CD, Web, Vinyl, CassetteЖанр: IDM, Leftfield, Abstract, Experimental, Techno, Conscious, Acid, Ambient •Продолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94243C38E216F85B3E364873ABAFFB413EBB282
 ```
 
 

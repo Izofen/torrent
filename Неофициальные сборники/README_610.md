@@ -1,3 +1,30 @@
+###  Публикация: 1096695   (917751) от 25.01.2017
+
+VA - Лучшие зимние хиты года. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917751.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mamikon - Отойди 2:42
+002. Craig David - Warm It Up 3:11
+003. Женя Отрадная - Губы 3:04
+004. James Arthur - Remember Who I Was 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D09BCA19676E0EFB91C395696527DEB45B76429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096676   (917774) от 25.01.2017
 
 VA - Зимние лучшие блатные песни Выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
@@ -666,35 +693,6 @@ magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7704F4A4B932F1F109AA2669AC85A3DB6B6D92DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632499   (919817) от 20.03.2013
-
-VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2-4 Grooves - Rockset 2012 (Extended Club Mix)
-02. Carly Rae Jepsen - Call Me Maybe (FuzzDead Remix)
-03. DB Pure - Fire & Passion (Original Extended Mix)
-04. Diego Logic & Carlo Dall Anese & Glasgo - Arms Wide Open (Ready2Go Remix)
-05. DJane HouseKat ft. Rameez - All The Time (Bodybangers Remix)
-06. DJ M.E.G & N.E.R.A.K ft. Karina Koks - На краю земли (Original Mix) -Жанр: Electro House, Progressive House, Electro Progressive, HouseПродолжительность: 02:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
 ```
 
 

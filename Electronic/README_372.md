@@ -1,3 +1,57 @@
+###  Публикация: 1396934   (741341) от 19.07.2020
+
+VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Taylor & Martin Graff - Falling (Extended Mix) 06:31
+02. Orkidea - That Feeling (Extended Mix) 07:13
+03. Craig Connelly & Siskin - All For Love (Extended Mix) 07:45
+04. Gordey Tsukanov - The Clutch (Extended Mix) 07:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821EBC5652E2DC19DB9D0482DD6A80D79CCE942F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397272   (741371) от 19.07.2020
 
 Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep House, Dub Techno>
@@ -636,59 +690,6 @@ Stereo - Back To Somewhere (2015) [MP3|320 кб/с] <Electronic, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:407C606E0A390F66D8A9B7B44592DB03F6D656F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524474   (743636) от 16.01.2022
-
-VA - Uplifting Only - Orchestral Trance Year Mix 2020 (Mixed by Ori Uplift) (2021) [FLAC|Lossless|WEB-DL|tracks|image] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Sun - Hiyoku No Tori (Intro Mix) (7:20)
-02. Etasonic - Bittersweet Hope (Original Mix) (8:29)
-03. DreamLife & Aleksey Gunichev - Maybe Someday (Extended Mix) (7:28)
-04. Tribal Temptation - Sense Of Life (Vocal Extended Mix) (7:24)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E635AEEB14EF94A520F5809343C913701A3C16D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282623   (743735) от 13.02.2019
-
-VA - Armin van Buuren - A State Of Trance 900 (Part 3) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate ft. Foret – Need To Feel Loved
-02. Late Night Alumni – Empty Streets (ALPHA 9 Remix)
-03. Thoba & Kate Miles – Your LoveЖанр: TranceПродолжительность: 03:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133C722E94E8452F4D7E6FF28F6ABB8B92DDB117
 ```
 
 

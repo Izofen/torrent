@@ -1,3 +1,57 @@
+###  Публикация: 1203929   (785439) от 04.02.2018
+
+VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
+02. Leslie Dhani - What I Need - Deep House Dance Mix
+03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
+04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277492   (785447) от 20.01.2019
+
+The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salem (6:14)
+02. Alma (4:39)
+03. Hedra (5:24)
+04. Zigurhat (4:32)(   Читать дальше...   )Производство: Svart Lava Records 003Жанр: Dark Ambient, Dark Jazz, Electronic, Arabica, CinematicaПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECDBB83FE5AE3567ADE3EC0F01F12F920D3FEB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277311   (785451) от 20.01.2019
 
 VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
@@ -637,60 +691,6 @@ VA - Ibiza Night Tales: The Best of Mediterranean Chillout Music (2017) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D420B8CC9ED108A5C230D72F3CCE092859A81DEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124475   (785827) от 11.04.2017
-
-VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter Pearson - Feeling Free  6:03
-02.  Michael E - She's Hypnotic  5:27
-03.  Placid Larry - Mend  4:32
-04.  Lazy Hammock - Surround Me  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729CD9CD6F2B699CA229868180D60901035A4282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124417   (785830) от 11.04.2017
-
-VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soap Bubbles - I Remember U & Me (Extended Mix)  5:13
-02.  Bildertal - Sunder Uul (Soundspretty Remix)  4:53
-03.  Sak Chaime - Swag (Extended Mix)  5:08
-04.  After Sunrise - Time To Chill  7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
 ```
 
 

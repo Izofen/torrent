@@ -1,3 +1,32 @@
+###  Публикация: 632499   (919817) от 20.03.2013
+
+VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2-4 Grooves - Rockset 2012 (Extended Club Mix)
+02. Carly Rae Jepsen - Call Me Maybe (FuzzDead Remix)
+03. DB Pure - Fire & Passion (Original Extended Mix)
+04. Diego Logic & Carlo Dall Anese & Glasgo - Arms Wide Open (Ready2Go Remix)
+05. DJane HouseKat ft. Rameez - All The Time (Bodybangers Remix)
+06. DJ M.E.G & N.E.R.A.K ft. Karina Koks - На краю земли (Original Mix) -Жанр: Electro House, Progressive House, Electro Progressive, HouseПродолжительность: 02:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 630484   (919818) от 20.03.2013
 
 VA - New Street Music One (2013) [MP3|320 кб/с]<Glitchhop, Trap>
@@ -668,39 +697,6 @@ VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631960   (921487) от 19.03.2013
-
-VA - Попсовый Драйв Весны (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Галицына - Беги по небу
-002. Виталий Козловский - Целую
-003. Наталья Могилевская - Helele
-004. Т9 - Шаг
-005. Ромади & Батишта - Формула любви
-006. Лолита - Я Живая
-007. Митя Фомин - Paninaro (Огни Большого Города)
-008. Татьяна Буланова И Саша Попов - Вбил Себе В Голову
-009. Ваня Романов и Лера Туманова - Доброе Утро Москва
-010. Глюкоза и Макс Барских - Адреналин(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC06404A86967EB30D3F551CFA6AFD5D7F3CB4F
 ```
 
 

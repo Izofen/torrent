@@ -1,3 +1,296 @@
+###  Публикация: 1277676   (785067) от 21.01.2019
+
+Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oozing Vaginal Discharge (3:53)
+ 02. The Urge to Splurge (1:38)
+ 03. Chamber of Bone (4:28)
+ 04. Anal Action Wife (4:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F3D01BE79BDD586300876DA087204AAE035BC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277684   (785068) от 21.01.2019
+
+Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asphyxiation Through Human Arteries (3:42)
+ 02. Fermented Intestine Warfare (3:52)Жанр: Death MetalПродолжительность: 00:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9456082F60FA1604C63433D92363D45091EBD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277675   (785069) от 21.01.2019
+
+Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Senectuous Entrance (2:53)
+ 02. In the Presence of Eurus (3:55)
+ 03. Xipe Totec (3:15)
+ 04. Stealing Strength From the Ivory Boar (3:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57221767CB27F99AC4F98B5F0F9DB7C5D882950B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277662   (785072) от 21.01.2019
+
+Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debridement (2:06)
+ 02. Writhing in Psychotic Hysteria (2:30)
+ 03. Fourth Blessed Gorge (2:59)
+ 04. Procreate to Eviscerate (2:46)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFCB8B17DF28EDE0BBC3F91A0F1449DC482899C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277673   (785073) от 21.01.2019
+
+Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embodiment of a Failed Brood (3:52)
+ 02. Fucked (5:00)
+ 03. 9mm Headfuck (4:27)
+ 04. God on Acid (4:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B726B4FCB7B201112E8E9DE30A6F1D1F6E01157E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277674   (785074) от 21.01.2019
+
+Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agonized Display (3:46)
+ 02. A Thousand Years of Anguish (3:12)
+ 03. Cannibal Autopsy (3:40)
+ 04. Devoured (2:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3E967C64DBAB0C448612294769FCB8E5896D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277667   (785075) от 21.01.2019
+
+Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Feast Ripping Putrescent (3:57)
+ 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148355   (785119) от 08.06.2020
+
+Make Them Suffer - 4 альбома + 1 EP + 3 сингла + 1 demo (2008-2020) [MP3|320 Kbps] <Blackened Deathcore, Symphonic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step One
+02. Falling Ashes
+03. Bones
+04. Drown With Me(   Читать дальше...   )Жанр: Blackened Deathcore, Symphonic MetalcoreПродолжительность: 03:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DF6A4DACBEA0980B0D706E50D147BFB5A3484E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388883   (785157) от 08.06.2020
+
+Add1ction - Leave It All Behind (2020) [MP3|320 Kbps] <Alt.Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down (03:34)
+ 02. Take What You Give (03:48)
+ 03. Erase These Memories (03:39)
+ 04. Walk Away (03:38)(   Читать дальше...   )Жанр: Alt.Metal, RapcoreПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2C0CA6B266843C026C8D5B56BBAB5C0BD3AB72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388863   (785167) от 08.06.2020
+
+AngeLight - Singles (2020) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Face Down (03:16)
+ 02. If You Could Only See (04:30)
+ 03. Not Forsaken (03:13)
+ 04. Voice of the Silent (03:34)Жанр: Alternative MetalПродолжительность: 00:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BCF8C99D1E668E1A5851193B5A5865AFF17E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203961   (785307) от 04.02.2018
+
+AWOLNATION - Here Come the Runts (2018) [FLAC|Lossless|tracks] <Alternative Rock, Electronic Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Come The Runts
+02. Passion
+03. Sound Witness System
+04. Miracle Man(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Indie RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0935FB88FBB9FA73FC60E0878A5008952BD620A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204158   (785347) от 04.02.2018
 
 Saxon - Thunderbolt (2018) [MP3|320 Kbps] <Heavy Metal>
@@ -400,303 +693,6 @@ Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277390   (785472) от 20.01.2019
-
-Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Fire Zone
-02. Change of Front
-03. Beyond Nightmares
-04. Trial by Combat(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075FEE05577A5E3F9D9B95A2F67F9E4AB728B463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277241   (785476) от 20.01.2019
-
-Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rectal Wench (2:50)
- 02. Feasting on Mankind (1:51)
- 03. Devour Humanity (2:00)
- 04. Lacerations of an Unclean Twat (2:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36D34041F44C52F8791AE997E30D4AC97265829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277221   (785477) от 20.01.2019
-
-Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revealed in Obscurity (5:13)
- 02. Enthroned Abominations (4:05)
- 03. Atonement (2:57)
- 04. Abhorrent Desecration of Thee Iniquity (4:17)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B34DB33933DCD120DFEC776B10A314F4D6BFFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277369   (785481) от 20.01.2019
-
-Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Yata-Garasu
-02. Thy the Ancient Wyvern
-03. Sea of Sacrifice
-04. For Whom the Bell of Ruin Tolls(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277382   (785482) от 20.01.2019
-
-Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Disenthrall (1:44)
-02 - Entre Suffrage Et Mirage (4:20)
-03 - Surface's Echoes (6:54)
-04 - Ethereal Kingdom (5:19)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124585   (785540) от 12.04.2017
-
-Александр Барыкин и группа Карнавал - Дискография (1981 - 2011) [MP3|128-320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785540.jpg" />
-</div>
-
-
-###  Подробнее
-
-1981 — «Карнавал», миньон («Мелодия»)
-1981 — Супермен (магнитофонный альбом) (две версии альбома)
-1982 — Карусель (магнитофонный альбом)
-1983 — Актёр (магнитофонный альбом) (320 kbps)(   Читать дальше...   )Жанр: RockПродолжительность: 73:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948BAC3B158D3199ED4AA0B74C2139158514EE43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124682   (785608) от 12.04.2017
-
-Tak Matsumoto - Enigma (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma (5:51)
-02. Vermillion Palace (4:26)
-03. Step to Heaven (4:30)
-04. Ups and Downs (3:47)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82BC5EB6C47C1284FC963BA218DB8F7526CC34B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124643   (785622) от 12.04.2017
-
-Six Feet Under - Torment (2017) [FLAC|Lossless|image + .cue] <Death, Groove Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrificial Kill 03:55
-02. Exploratory Homicide 02:45
-03. The Separation Of Flesh From Bone 04:52
-04. Schizomaniac 03:54(   Читать дальше...   )Жанр: Death, Groove Metal, Death 'n' RollПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DE67E054F59DD64A0B263F7EAC126D76CD6DB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124657   (785638) от 12.04.2017
-
-Gyze - Northern Hell Song (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirates Of Upas 05:12
-02. Horkew 04:26
-03. Dead Bone Blue 05:09
-04. Black Shumari 03:21(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19DD20364499B5A0C673AF46C5E3A81B29F57B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124720   (785643) от 12.04.2017
-
-Ray Wilson - Makes Me Think Of Home (2016) [APE|Lossless|image + .cue] <Alternative Rock, Pop Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. They Never Should Have Sent You Roses  (06:10) 
-02. The Next Life  (03:41) 
-03. Tennessee Mountains  (04:18) 
-04. Worship The Sun  (05:02) (   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Prog RockПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9785E1C8F30ED4B742A0328E07F90618714CD76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124539   (785645) от 12.04.2017
-
-Piledriver - Brothers In Boogie (2015) [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way To Rock  (03:42) 
-02. Together  (03:46) 
-03. Rock In A Crossfire-Hurricane  (04:35) 
-04. Good Times  (04:47) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AD641C95DC70F15D058651BE5E2CAF81197AD3
 ```
 
 

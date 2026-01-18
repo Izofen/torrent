@@ -1,3 +1,297 @@
+###  Публикация: 1467635   (1017771) от 04.05.2021
+
+Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watanabe (3:56)
+02. Hypnotized (4:57)
+03. (I Fell So) Amused (3:43)
+04. Pictures (Of My Favorite Things) (6:04)(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41E1F5D60CA68AC2639E4670B2791819E682FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467669   (1017776) от 04.05.2021
+
+Mystic Storm - From The Ancient Chaos (2021) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ночной кошмар
+02. Звон мечей
+03. Секрет стали
+04. Обезглавлен(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A5C53F396C624431DE69AE1BF1B8C5EB97EC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467501   (1017780) от 04.05.2021
+
+Heart - Rock The House Live! (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Child
+02. Fallen From Grace
+03. Call Of The Wild
+04. How Can I Refuse(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929FF273DA7C674B1030CC230328EE79E8DADFC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467113   (1017861) от 03.05.2021
+
+The Electric Cactus - The Electric Cactus (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel [00:03:07]
+02. Psycho [00:04:23]
+03. Dance Real Rude [00:05:20]
+04. Gemini [00:03:50](   Читать дальше...   )Жанр: Stoner, Heavy, Blues RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764A5A924AB54EB6FD392A643045F3A752867CE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467243   (1017933) от 03.05.2021
+
+Touch - The Complete Works - Definitive Edition (2008) 2xCD, Compilation, Jараnese Еditiоn [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017933.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - 1979:
+01. Don't You Know What Love Is
+02. When The Spirit Moves You
+03. Love, Don't Fail Me(   Читать дальше...   )Жанр: AORПродолжительность: 02:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B336E84BD896EFD598A1F67D892AA4FCE7D9DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467131   (1017934) от 03.05.2021
+
+Static-X - 12 Albums (1999-2020) [FLAC|Lossless|image + .cue] <Industrial Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Static-X - Американская метал-группа из Лос-Анджелеса, Калифорния, играющая преимущественно в стиле индастриал-метал с элементами ню-метала.Жанр: Industrial Metal, Nu MetalПродолжительность: 08:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F693448BA9FFFD48CE95A02D5BAD328AA0F6C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467346   (1017935) от 03.05.2021
+
+Akira Kajiyama & Joe Lynn Turner - Fire Without Flame (2006) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Day Away
+02. Fire Without Flame
+03. Survival
+04. Heart Against Heart(   Читать дальше...   )Жанр: AORПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1D65DDD5880880FD50CE4F9DF91B4131649C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467123   (1017936) от 03.05.2021
+
+Freedom To Glide - Seed (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seed (0:57)
+02. Holding On (5:06)
+03. No Turning Back (4:18)
+04. Undertones Of War (4:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046FCB5D4CB19ECA7BDF487AEC3B2EF4DB52531A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467291   (1017952) от 03.05.2021
+
+Warrior Angel - Griffin 1.29, Chapter 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise
+02. Falling Angel
+03. Can't Live Without You
+04. Old City Boy(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6794B23508B7E7C64CE714A8625F1234B657D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467294   (1017959) от 03.05.2021
+
+Warrior Angel - Griffin 1.29, Chapter 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airborne
+02. All Time Low
+03. Come Back
+04. Don't You Cry(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A3086D782D04473C14AFF7C209EE892B62075A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304268   (1018009) от 02.05.2021
+
+Adrian Smith & Steve Harris (Iron Maiden) Projects (1989-2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стив Харрис  — британский рок-музыкант, основатель, бессменный бас-гитарист и автор большинства песен (как музыки, так и текстов) легенларной группы Iron Maiden. Он был движущей силой величайшей металлической группы всех времен и народов на протяжении более 35 лет. Живая икона, герой и абсолютный "зверь" баса, стиль игры Стива настолько уникален, что по (   Читать дальше...   )--------------------------
+
+01. City Of Fallen Angels (5:21)
+02. The Burning (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock |Продолжительность: 07:05:55 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44A8EBDEB67820A3C0460410D3EF8D5D15EF4F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149312   (1018014) от 02.05.2021
 
 Jürgen Blackmore (J.R. Blackmore) - 4 albums (1993-2011) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Instrumental>
@@ -398,303 +692,6 @@ Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466834   (1018122) от 02.05.2021
-
-Escape - Borderline (2013) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost And Found
-02. Coming Home
-03. Marianne
-04. Restless Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE09E8D1DE6ADC0CDA78C916C67CC1B183BE872D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466777   (1018194) от 01.05.2021
-
-David Gilmour With Romany Gilmour - Yes, I Have Ghosts (2021) EP [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Have Ghosts
-02. Tell The Truth
-03. Astral Dust
-04. KokinelЖанр: RockПродолжительность: 00:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81FB57B1495794B069E89788C9CEBF3969A9E772
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466783   (1018227) от 01.05.2021
-
-Russia - Russia (1980) LP [MP3|320 Kbps] <Hard Rock, Classic Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Back (Time After Time) (2:37)
-02. Who Do You Think You Are? (3:21)
-03. Gotta Get Away (5:00)
-04. Nothing To Say (3:42)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, New WaveПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87939F0D5C91BBFB546A0B17859E6F1A43628C75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466570   (1018228) от 01.05.2021
-
-Cheat Engine - Pandemica (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cradle to Grave 4:03
-02. Pandemica 4:10
-03. Nemesis 3:53
-04. Disorder 4:03(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09E59376C5413E6870B177B406BB17F1FF80EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466758   (1018243) от 01.05.2021
-
-Evile - Hell Unleashed (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralysed (05:03)
-02. Gore (04:49)
-03. Incarcerated (06:16)
-04. War of Attrition (04:26)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A314BC98F17A662D16CB39FE52DD7B693A3CC04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466752   (1018247) от 01.05.2021
-
-Farcry - Balance (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balance
-02. Stay Away
-03. I’ll Find a Way
-04. I Am Your Man(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677F601D2CD8D7F91331B91F7FE893AE1FAA1705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466748   (1018251) от 01.05.2021
-
-Hunter - Hungry Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry Heart
-02. Tore Love
-03. Far Away
-04. Love Hunter(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF88277BDA2E8E759974F4CC8A93A6268B0E70A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466701   (1018257) от 01.05.2021
-
-Royal Blood - Typhoons (2021) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble's Coming (3:48)
-02. Oblivion (2:41)
-03. Typhoons (3:57)
-04. Who Needs Friends (3:10)(   Читать дальше...   )Производство: Warner Records, Black Mammoth RecordsЖанр: Alternative Rock, Indie RockПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A4B765084FC61A2D56D6289C307D7CE96B48E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466656   (1018258) от 01.05.2021
-
-Escape - Fire in the Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost and Found (04:34)
-02. Heroes in the Night (04:39)
-03. Temptation (04:33)
-04. Restless Heart (04:34)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5650DDD4861ACA4AC7BEC30AD216C17B5ABE0C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466663   (1018264) от 01.05.2021
-
-Soulkick - No Turning Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Turning Back
-02. No Shelter
-03. Mirror Eyes
-04. When the Lights Are Gone(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316825CB28D80D11046BD03C8F5D8760A3715987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466646   (1018267) от 01.05.2021
-
-Galaad - Frat3R (2019) [FLAC|Lossless|image + .cue] <Progressive Rock, Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018267.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. La Machine (5:17)
-2. Moloch (2:35)
-3. Kim (5:40)
-4. Stone (9:11)(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7282B45072E718DDBCC0093803C37C20D40465
 ```
 
 

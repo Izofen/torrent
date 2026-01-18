@@ -1,3 +1,57 @@
+###  Публикация: 1369979   (900162) от 25.03.2020
+
+Сергей Сиротин (Sergey Sirotin) - Эротическая музыка (3 альбома) (2001) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листок лотоса (3:32)
+02. До свидания (3:49)
+03. Фантазия (3:50)
+04. Колдовство (4:33)(   Читать дальше...   )Жанр: Chillout, Ambient, LoungeПродолжительность: 02:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E30D6E63A747C51C7956A476430976966535070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369624   (900338) от 25.03.2020
+
+Sufjan Stevens and Lowell Brams - Aporia (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ousia (02:33)
+02. What It Takes (03:23)
+03. Disinheritance (01:13)
+04. Agathon (03:02)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1CC22F33B1A6D3DCBC0372731DFF862E69EEDA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991391   (900611) от 02.03.2016
 
 Depeche Mode - Some Great Reward (1984) remastered 2006, collectors edition, CD+DVD [FLAC|Lossless|image + .cue] <New Vawe,  Synth-pop>
@@ -641,60 +695,6 @@ VA - Universal Language Lounge Anthems Vol.1 (2017) [MP3|320 Kbps] <Downtempo, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ACE5EE109AB023F149EA5C6343B3EAAC6F1123D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368672   (903662) от 23.03.2020
-
-VA - KID Recordings presents: Compilations Collection - 6 Releases (2016-2019) [MP3|320 Kbps] <Downtempo, Deep House, Chillout, Future Disco>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903662.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Subterranean Disco • Volume One
-2016 - KID Recordings presents: Tropicana Vol. 1 • Poolside Rendezvous
-2017 - Subterranean Disco • Volume Two: Nite Romantics
-2018 - KID Recordings presents: Snowed In • A Fireside Companion(   Читать дальше...   )Жанр: Downtempo, Deep House, Chillout, Synth-Pop, Future Disco, Lounge, AmbientПродолжительность: 09:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B92620AD8B97EA45168E4B102F1F3B073EA425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099388   (903669) от 02.02.2017
-
-VA - Jazz Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chill Factory - Dark Glassed  3:34
-02.  Yves St. Pierre - Only Presence  2:53
-03.  Caanall Groove - Around The Planet  3:13
-04.  Chill Ars Project - Attached To Life (International Mix)  3:13(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86001B52B71FDF61ECCBDEB6CBA3E469B2812E13
 ```
 
 

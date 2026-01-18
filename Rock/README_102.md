@@ -132,3 +132,30 @@ magnet:?xt=urn:btih:39CD8A64F3438AB80BF7F27353FE7F270771EECA
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847554   (1052509) от 
+
+Nicholas Knecht - Synthetic Horizon (2026) [MP3|320 Kbps] <Psychedelic Rock, Progressive-Metal, Neoclassical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052509.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Silent Pulse [00:06:34]
+2. Neural Veins [00:09:25]
+3. Echoes in the Code [00:06:21]
+4. Silicon Muse [00:09:28](   Читать дальше...   )Жанр: Psychedelic Rock, Progressive-Metal, NeoclassicalПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329DAFEC42F3C2B897180F83A5E57BC11A182794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

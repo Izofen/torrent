@@ -1,3 +1,57 @@
+###  Публикация: 1455831   (1025495) от 20.03.2021
+
+Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Protoxidation (Ouverture) 02:08
+02. The Space Between Us 04:04
+03. No More Pain 04:50(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15ADBE6E0540A17A6C03E97D4B7FBF2CC9E76368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455464   (1025619) от 19.03.2021
+
+VA - Tribute To Красная плесень (2014) 2CD [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый газовый котёл - Клава              [3:12]
+02. Мазер факер - Мы е... первый раз          [2:48]
+03. Палата № 6 - Г.Ю. Рок-н-ролл              [3:11]
+04. Зюг-Вест - Желтая подводная лодка         [2:15](   Читать дальше...   )Жанр: PunkПродолжительность: 02:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4286C4ABDCDFAC2BAFFC8B4640CB543F3CA50C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455086   (1025671) от 19.03.2021
 
 Радар - Очевидное и невероятное (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska>
@@ -641,60 +695,6 @@ Shakti Loka - Кукушкины слёзки (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0301043F4000C5AB7B9641D35A1651511142D5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447890   (1031359) от 15.02.2021
-
-Гран-КуражЪ - Эпохи, Герои и Судьбы (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Царство диких людей
-02. Эра пустоты
-03. Без потерь
-04. Город-призрак(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F89CC18843756C6894CCEA5ACDEDD6FCC27987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620832   (1031671) от 22.03.2023
-
-RGPO - Ешка (2023) [FLAC|Lossless|WEB-DL|tracks] <ska-core>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ешка [00:03:25]
-02. Аналог жизни [00:02:49]
-03. Цепи [00:02:18]
-04. Краски [00:02:44](   Читать дальше...   )Жанр: ska-coreПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E582EF0B4539EA7095E709D77CFB9834205A5AB
 ```
 
 

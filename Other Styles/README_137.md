@@ -1,3 +1,30 @@
+###  Публикация: 1122646   (793428) от 06.04.2017
+
+Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ch'ien (Heaven) 8:03
+02. K'un (Earth) 8:25
+03. Chen (Thuder) 5:41
+04. Sun (Wind) 8:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122210   (793430) от 06.04.2017
 
 VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
@@ -668,33 +695,6 @@ Richard Clayderman - Hi-Res Best (2016) [FLAC|24/192|Lossless|WEB-DL|tracks] <Ea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A25A56DE10746453B212C884667FBCE03CC2CA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200853   (794919) от 22.01.2018
-
-Liquid Mind - Liquid Mind XII: Peace (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. At the Center Is Love (6:08)
-2. Communication (12:17)
-3. Person to Person (4:31)
-4. Shared Values (9:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250A529EA8D34DC73A89B3D1423FBAED3A60CDE5
 ```
 
 

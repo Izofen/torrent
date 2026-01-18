@@ -1,3 +1,30 @@
+###  Публикация: 1840975   (1047659) от 08.12.2025
+
+VA - Christmas Blues for the Evening (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christmas Blues,Blues Christmas Music,Blues Christmas Instrumentals - Back Door Santa [01:37]
+002. Christmas 2020,Instrumental Christmas,Blues Christmas - Christmas Blues Coffee Shop [04:37]
+003. Blues Christmas - North Pole Midnight Blues [03:44]
+004. Blues Christmas - Sweet Cookies [04:58](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 05:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F2E8A427C2649B0BE04D1CD2F8D33AA0F0D069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840944   (1047688) от 08.12.2025
 
 VA - #010 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAEB814B0E9013D7FFA6E96C96C9120229BC9C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842753   (1048892) от 16.12.2025
-
-VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dova Music - Stay Close
-02 - Umideep - Ra-Ta-Ta Love
-03 - Kasimoff - Je Tombe Sans Bruit
-04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
 ```
 
 

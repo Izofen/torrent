@@ -1,3 +1,57 @@
+###  Публикация: 1207822   (780313) от 20.02.2018
+
+VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Square Moon  -  Event Horizon (Original Mix)  6:22
+02.  Sergei Vasilenko  -  Mysterious Voices (Original Mix)  7:51
+03.  Martins White  -  The Golden Age (Original Mix)  7:19
+04.  Nicola Maddaloni  -  The Journey (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F96138C9BF66874FD376942DD7445B34C71861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207646   (780387) от 19.02.2018
+
+Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Streams Pt.1 (14:36)
+02. Streams Pt.2 (11:20)
+03. Streams Pt.3 (11:56)
+04. Streams Pt.4 (09:36)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6625DFF448A6755FE43CDA75DB2AB6AB0A3EFE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207136   (780418) от 19.02.2018
 
 VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
@@ -636,58 +690,6 @@ Propellerheads - Decksandrumsandrockandroll (Delux) (1998) Virgin [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA1D8DE7CDAA50193B5F16F796B8E9DB7A2B6F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206716   (781705) от 15.02.2018
-
-Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ambient Sounds NA11 20:45
-2. Ambient Sounds NA22 19:46
-3. Ambient Sounds NA33 19:46
-4. Ambient Sounds NA44 16:33(   Читать дальше...   )Жанр: Ambient, Drone, DowntempoПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59DD9B6390A1645A83F1AA091D0DC976140A8E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206841   (781718) от 15.02.2018
-
-Zero Cult - Tangoa (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Psychill, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tangoa (06:46)
-02. Sweet Apathy (06:05)Жанр: Tech House, Psychill, DowntempoПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197ACCE79F8A0DA9B2AB3B042E512BF19F1A6790
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1139742   (659377) от 03.06.2017
+
+VA - Pool Service Summer Chill 4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Guitatmar - Bahia Blanca 6:27
+02.  Dubdiver - Mermaid 7:25
+03.  Red Buddha - Distant Air 5:27
+04.  Vibemares - Chill Vibes 4:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF7A999E46DB6F537ABF7FAD03C26D95C1FA425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139583   (659378) от 03.06.2017
+
+VA - Classic Progressive House Vol 3 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Da Funk - Stay With Me (Blugazer remix) (07:37)
+02. Alex Drayling - Hope (Monojoke remix) (07:42)
+03. Digital Department - Lake Towers (Slam Duck remix) (07:14)
+04. James Woods - Parallax (Mizar B remix) (07:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958C744EA2D2F2093F67A732CE795640E8C57F3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225650   (659581) от 16.05.2018
 
 VA - Coastal Remixes 02 (2018) [MP3|320 Kbps] <Progressive House>
@@ -647,60 +701,6 @@ VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225265   (661827) от 14.05.2018
-
-Lemongrass - Unite (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Wings (4:24)
- 02. Joyful (6:38)
- 03. I Miss You (4:40)
- 04. Time to Go (4:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F61EC5C7097153DFFCD60D04D455205C3FB9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225303   (661887) от 14.05.2018
-
-VA - Vocal Trance: London (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timmy D & DJ Bullskull - Digital Presence (Original Mix)
-02. DJ Schillings - I Remember the 90s (Original Mix)
-03. Karl Schaap feat. Veela - Perfect (2017 Remix)
-04. Rheligie feat. Spectre Cross - Ardent Fever (Adip Kiyoi Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B5A62210C4274A574AB25F09D0EA0CCFF3E251
 ```
 
 

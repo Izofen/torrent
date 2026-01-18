@@ -1,3 +1,117 @@
+###  Публикация: 1152160   (567341) от 22.07.2017
+
+Warren Haynes featuring Railroad Earth - Ashes & Dust (2015) [FLAC|Lossless|image + .cue] <Blues, Folk, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Is It Me Or You  (05:14) 
+02.Coal Tattoo  (07:26) 
+03.Blue Maiden's Tale  (07:26) 
+04.Company Man  (04:48) (   Читать дальше...   )Жанр: Blues, Folk, AmericanaПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D58ADFDD2AEAFCB1E0B1A59DAA949CEAD5038FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555663   (567344) от 05.06.2022
+
+Pearl Django - Live (2019) Modern Hot Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile [5:24]
+02. Saskia [6:16]
+03. Friends Like These [6:27]
+04. Under Paris Skies [2:53](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F998A030C8D4EC23937B02836E98170E63B09E1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529368   (567411) от 31.07.2012
+
+Adam Holt & The Blues Congregation - Who I Am (2002) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who I am
+02. Killer On The Loose
+03. The End
+04. Drunk On Love
+05. Holding On To Your Love
+06. Honey-Doos
+07. Going Back To Mobile
+08. Queenie Makes Me Feel
+09. How Do I Love Thee
+10. Knocking At Your Door(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304107   (567446) от 24.05.2019
+
+Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567446.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Home Cookin':
+01. See See Rider [6:36]
+02. Sugar Hill [5:20]
+03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304051   (567452) от 24.05.2019
 
 Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
@@ -628,125 +742,6 @@ Bohuslan Big Band - Dont Fence Me In (2011) [FLAC|Lossless]<Modern Big Band, Pos
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043969   (568933) от 18.08.2016
-
-Naomi & Goro - Bossa Nova Songbook 1 & 2 (2008,2009) [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568933.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008 - Bossa Nova Songbook 1:
-01. Aguas De Marco
-02. So Tinha De Ser Com Voce
-03. Samba De Uma Nota So (One Note Samba)Жанр: Bossa Nova, Vocal JazzПродолжительность: 01:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED0EE6095BB9556810839C06BBF3EBF480C8DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528154   (568954) от 30.07.2012
-
-VA - Something Swingin' (2002) [FLAC|Lossless]<Blues, Funk/Soul, Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nancy Sinatra & Lee Hazelwood - Summer Wine [03:42]
-02. Shirley Basses - Goldfinger [02:50]
-03. Dione Warwick - Walk On By [02:57]
-04. Ella Fitzgerald - Night And Day [03:05]
-05. Julie London - Fly Me To The Moon [02:33]
-06. Dinah Washington - What A Difference A Day Makes [02:30]
-07. Paul Mauriat An His Orchestra - Love Is Blue [02:36]
-08. Tona Bennet - The Good Life [02:17]
-09. Nat King Cole - Let There Be Love [02:46]
-10. Lou Rawls - Summertime [03:32](   Читать дальше...   )Жанр: Blues, Funk/Soul, Jazz, PopФормат: 2CDПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527719   (568987) от 30.07.2012
-
-Boston Horns - East Coast Funk (2003) [FLAC|Lossless]<Funk, Soul, Nu-Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Charles
-02. Soundcheck Jam
-03. kdoggd7
-04. Jackie's Song
-05. Speedball
-06. Ain't Nothin' 2it
-07. Crosstown Traffic
-08. Buttered Popcorn
-09. SkilletЖанр: Funk, Soul, Nu-JazzПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152141   (569019) от 21.07.2017
-
-Philly Joe Jones - Six Classic Albums (1956 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569019.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues For Dracula & Drums Around The World:
-01. Blues For Dracula [08:19]
-02. Trick Street [03:54]
-03. Fiesta [10:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6EB4F6014830D8940CBEF756FB4070C7BC8604
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 516384   (651935) от 29.06.2012
+
+VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura Dione - Friends
+ 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
+ 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
+ 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
+ 05. Avicii - Levels
+ 06. Global Deejays - Hardcore vibes (Radio Edit)
+ 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
+ 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
+ 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
+ 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516708   (651943) от 29.06.2012
 
 VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Vocal Trance, Progressive>
@@ -692,30 +725,6 @@ VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CB08126D72D6C8917BC0C9F333E1DE7372E6A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031352   (652163) от 04.07.2016
-
-A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652163.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ сборникЖанр: Future HouseПродолжительность: 00:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD597BF5A84579E2759AE746286BA6989D0D16BD
 ```
 
 

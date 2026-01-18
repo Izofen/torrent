@@ -1,3 +1,246 @@
+###  Публикация: 1138646   (662324) от 31.05.2017
+
+Howlin' Wolf - The Back Door Wolf (1973) 1995 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving 2:47
+02. Coon On The Moon 3:47
+03. Speak Now Woman 4:53
+04. Trying To Forget You 3:36(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697BA4D806BB8BB260DA84E8BD180FFCF0655E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538519   (662389) от 21.03.2022
+
+Scott Ellison - There's Something About The Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half A Bottle Down (4:05)
+02. There's Something About The Night (4:46)
+03. Ain't No Love (In The Heart Of The City) (4:33)
+04. Bury Your Bone At Home (5:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAD685017F119F481DA75AD47274921153E8169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538520   (662394) от 21.03.2022
+
+Sean McKee Band - So Long My Queen (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Outside The Lines (2:15)
+02. Under Command Of The Admiral (3:08)
+03. To Keep On Loving You (3:57)
+04. Drove Me Crazy (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60F07E4B1E3C12DCF4210DA5A4C099844964DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538504   (662397) от 21.03.2022
+
+North Mississippi Allstars - Set Sail (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Sail, Part I (4:58)
+02. Bumpin' (2:53)
+03. See the Moon (3:22)
+04. Outside (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBC3F0A711054661119BA45808A4893FE036505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538511   (662398) от 21.03.2022
+
+Pierce Dipner - Goin' Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fool's Gold (2:54)
+02. Higher Ground (5:59)
+03. Empty Bed Blues (3:41)
+04. Nobody but Myself to Blame (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF15E1A5CEA580558A40BCF360C68CC5D1BAD394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538500   (662399) от 21.03.2022
+
+Nik Clovsky - Wooden Music - Wooden Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost in Her Eyes (3:43)
+02. Runnin' Down in Dixie (3:20)
+03. See the Blues (3:54)
+04. Mama (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CE552C56EBC067EA2D0AC458411E504DDB2531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538516   (662401) от 21.03.2022
+
+Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Comin' Down (3:39)
+02. Summertime Ghost (3:03)
+03. Cold Water (3:27)
+04. Truth Don't Rhyme (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E88BA4B808FA171CAA366418EA52D07C67D843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538506   (662405) от 21.03.2022
+
+Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raidho (4:16)
+02. Poison Man (3:16)
+03. Left is the Blues (4:28)
+04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538509   (662406) от 21.03.2022
+
+Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Done with Bad Luck (4:28)
+02. I've Got the Blues This Morning (4:25)
+03. I Miss You So (5:16)
+04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538557   (662408) от 21.03.2022
 
 Junior Mance Trio & Orchestra - The Soul of Hollywood & That Lovin' Feelin' (1962, 1972) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -452,255 +695,6 @@ Al Cohn & Zoot Sims - Al And Zoot / You 'N' Me (1957, 1960) 2002, Азбука �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FA29AD42BEC864E99CF4D6ED4E206C0943462F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138683   (663249) от 30.05.2017
-
-Terri Wells - Just Like Dreamin' (1984) 2012,  Big Break Records [FLAC|Lossless|tracks + .cue] <Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Givin' All My Love (6:33)
-02. Just Like Dreamin' (5:16)
-03. Falling Leaves (4:42)
-04. Can't Stop (4:11)(   Читать дальше...   )Жанр: Soul, R&BПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57EE7E5427A04D99A92C3B826A7AD55CB7997A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538274   (663368) от 20.03.2022
-
-Gary Eisenbraun - Sticks and Stones (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luck Of The Draw
-02. Outta My Mind
-03. If You Don't Play By The Rules
-04. Whatcha See(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CEC8C2BEC50E716D462318188A24B4C54241CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224728   (663820) от 12.05.2018
-
-De-Phazz - Black White Mono (2018) [MP3|320 Kbps] <Nu-Jazz, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoiled (Feat. Pat Appleton)
-02. Esperance
-03. Love Vampire
-04. May(   Читать дальше...   )Жанр: Nu-Jazz, Acid Jazz, LoungeПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CF9C96CEF93A09E7B2553776BDDC1D4F88F480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340771   (663840) от 23.05.2011
-
-Bob James - Angels of Shanghai (2007) [FLAC|Lossless]<Contemporary Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_663840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration (4:13)
-02. Gulangyu Island (4:48)
-03. Endless Time (3:36)
-04. Theme 'Onara' from 'DAEJANGKEUM' (4:05)
-05. Dream With Me (4:59)
-06. Angels' Theme: The Invention of Love (4:58)
-07. The Magic Paintbrush (6:31)
-08. Melodia : A Quiet Place for Two (2:27)
-09. Butterfly Lovers (5:48)
-10. Dialogues: The Universal Language (4:54)(   Читать дальше...)Жанр: Contemporary Jazz, World FusionПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224794   (664017) от 12.05.2018
-
-Harry Allen Quartet - French Lullaby (2018) Venus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Wait For You [06:37]
-02. La Mer [06:36]
-03. C'est Si Bon [05:15]
-04. The Summer Knows [05:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C94EF52E1DD253A4D62AE226E5E59FDE67A772
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138301   (664267) от 29.05.2017
-
-VA - Jazz Chill Acoustic Classical Playlist (2017) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Bridge over Troubled Water
-02. Meg Birch - Sex on Fire
-03. Chris Snelling - Sleeping Lotus
-04. Karizma Duo - (I Can't Get No) Satisfaction(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADF7DC8C5B21D34DF94B8AE6DAA35574D0B922F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138303   (664332) от 29.05.2017
-
-VA - Jazz Dictionary J (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harold Mabern Trio - Jackson Park El Train (4:16)
-02. The Eddie Higgins Trio - Jalousie (5:11)
-03. Dan Nimmer Trio - Jambangle (5:41)
-04. Laura Ann - Jardim (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29137B8C6968FE49C144C259F6E7718381C82F45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138412   (664373) от 29.05.2017
-
-VA - Jazz Dictionary S-1 (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicole Henry - S Wonderful (3:33)
-02. Keissy Costa - Samba De Uma Nota So (2:37)
-03. Lee Konitz & the Brazilian Band - Samba Triste (7:28)
-04. Dewey Redman - Satin Doll (8:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9BBA589298B564159C50A79D9908463E9B7A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138447   (664485) от 29.05.2017
-
-Gato Barbieri - The Shadow Of The Cat (2002) Peak Records [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Chico [05:01]
-02. The Shadow Of The Cat [05:19]
-03. Last Kiss [05:13]
-04. If I Was Your Woman [04:37](   Читать дальше...   )Жанр: Ethnic Jazz, Latin JazzПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998219E4116BF5FBD6689587A584FE9D1B96F7F4
 ```
 
 

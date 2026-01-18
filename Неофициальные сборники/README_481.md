@@ -1,3 +1,30 @@
+###  Публикация: 1522768   (756766) от 08.01.2022
+
+VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756766.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lynnea M - Three Little Words (Syn Cole VIP Mix) (03:05)
+ 002. ALIENKEY feat. NADVAMU - Чужая (03:23)
+ 003. Alina Gerc - Hello (01:37)
+ 004. Alison Wonderland - Fear Of Dying (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522733   (756777) от 08.01.2022
 
 Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
@@ -674,33 +701,6 @@ VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018002   (759017) от 18.05.2016
-
-VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred V & Grafix - Constellations
- 02. Mona (Ex. Монокини) - Слушай Сердце
-03. Илья Гуров - Знаешь Я Скучаю
-04. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57E6E62EA4B941056E33A5D36D957F52B736E86
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1145834   (616489) от 28.06.2017
+
+VA - Acoustic Pop Edition (2017) [MP3|320 Kbps] <Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ZEDD feat. Alessia Cara - Stay (Acoustic)  3:16
+02.  Julia Michaels - Issues (Acoustic)  2:55
+03.  Niall Horan - This Town (Live, 1 Mic 1 Take)  3:40
+04.  Hailee Steinfeld & Grey feat. ZEDD - Starving (Acoustic)  3:01(   Читать дальше...   )Жанр: AcousticПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B7C56701D7FFC42A5D02F3D9ABEB2D7A8E3DB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146209   (616509) от 28.06.2017
+
+VA - Main Stage Festival (2017) [MP3|320 Kbps] <House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ryos & Envy Monroe - Discover Love (Original Mix)  3:45
+02.  Tritonal - Waiting 4 U (Original Mix)  3:27
+03.  Cuebrick & Karra - Smoke & Fire (Original Mix)  3:17
+04.  Mike Shiver - Stay (Original Mix)  3:02(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDCF24FEACBCC8901C7BAC47D8A45E2664EE268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209157   (616642) от 14.04.2019
 
 VA - Pumping Storm 7 Special Release (2010) [MP3|160-320 kbps]<Hardbass, Pumping House>
@@ -638,58 +692,6 @@ Hocico - HyperViolent (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A579CAF18AC44F788631C830C2DD9ED871192B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911288   (618409) от 22.06.2015
-
-VA - Special Treats Of Chill & Deep House (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uncledog - Night Calling [06:45]
-02. Simplex Sensus - Scintilla [06:16]
-03. Ashmere - Tell Me [05:36]
-04. Over Range - Undulations [06:24](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3810275496479EC9029DE0CCF3C8A4CF91C521E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911277   (618418) от 22.06.2015
-
-VA - Chillout King Ibiza (Club Del Mar) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laid Back Avenue - Slow Motion Ballade (Quiet Earth Mix) [04:29]
-02. Orange Music - Take Me 2 the Sea (Floating Voice Mix)Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C2F4473448D54A7A30EB9A0582868ECE8A1569
 ```
 
 

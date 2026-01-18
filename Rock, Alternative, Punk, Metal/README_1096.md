@@ -1,3 +1,300 @@
+###  Публикация: 1110227   (853816) от 02.03.2017
+
+Behexen - Rituale Satanum (2000) Remastered, 2004 [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro / The Summoning
+02. Sota valon jumalaa vastaan
+03. Night of the Blasphemy
+04. Christ Forever Die(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515B9BB7B9DB0953B11188748C45DD994B9193EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110233   (853817) от 02.03.2017
+
+Gra - Necrology of the Witch (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Cordibus Vestris
+02. Necrology of the Witch
+03. Οδεύοντας προς την Στύγα
+04. Worms and Crows(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5AA300414D9C7B408CBD81E5A372FEBAAFAE54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110226   (853865) от 02.03.2017
+
+Ascension - The Dead Of The World (2014) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silence of Abel
+02. Death's Golden Temple
+03. Black Ember
+04. Unlocking Tiamat(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9693695C602B088595648305869054CD47E9DD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110236   (853866) от 02.03.2017
+
+Hamelyn - Forjando el Camino (2008) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Entre Dos Mundos
+03. Forjando El Camino
+04. Eternidad(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:26:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495396C596389974DFFBA57F1F5E1B41DCFA502E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110230   (853868) от 02.03.2017
+
+Ewiges Reich - Krieg, Hass, Tod (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opferblut
+02. Von Illusionen und Götzenkult
+03. Propaganda
+04. Humanist - Masochist(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C3E9BACF639235BA134934D39D2412E69F5026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110225   (853869) от 02.03.2017
+
+Abysmal Dawn - Programmed to Consume (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Programmed to Consume
+02. Compulsory Resurrection
+03. Twilight s Fallen
+04. Grotesque Modern Art(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0D15EC8C852CED540F5B360497466AC164FCD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110229   (853870) от 02.03.2017
+
+Carnival In Coal - Fear Not (2001) [FLAC|Lossless|image + .cue] <Metal Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes! We Have No Bananas
+02. Cadillac
+03. 1308.JP.08*
+04. Exit Upon Void(   Читать дальше...   )Жанр: Metal FusionПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3C5EB08CA6F998DFD8B6C0DCDF702A9ED80FF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110232   (853871) от 02.03.2017
+
+Exoto - Beyond The Depths Of Hate (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness & Hate (instrumental Intro) 01:06
+02. Beyond The Depths Of Hate 03:33
+03. Necromantic Love-Affair 05:39
+04. Final Discorporation 04:26(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1055EA371CA49F9BB544343F94C0F47154637A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001477   (853880) от 28.03.2016
+
+Opia - Eon (2016) [FLAC|Lossless|image + .cue]<Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One By One
+02. Somethings
+03. Signs
+04. Eon(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B08E73B080234B9987866B8EF95D92C84C027D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284985   (854071) от 28.09.2021
+
+Status Quo Pictures: 40 Years Of Hits, 4CD Box Set EarBooks (2008) [FLAC|Lossless] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Walk In The Room :: 3:06
+02. Fun Fun Fun :: 3:05
+03. Don't Stop :: 3:10
+04. All Around My Hat :: 3:08(   Читать дальше...   )Жанр: Classic RockПродолжительность: 04:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386066A65961FD32A0819AC6E18B7C74606B40DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647396   (854110) от 24.04.2013
+
+Гарик Сукачев - 17 Альбомов (1993-2010) [FLAC|Lossless|image + .cue] <Rock, Russian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Король проспекта (4:43)
+02. Янки Дотсон (5:49)
+03. Watch TV (3:15)
+04. Право на выбор (6:58)(   Читать дальше...   )Жанр: Rock, Russian RockПродолжительность: 17:50:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498726   (854280) от 28.09.2021
 
 Carcass - 15 Studio Albums (1987-2021) 17xCD [FLAC|Lossless|image + .cue] <Death Metal>
@@ -400,303 +697,6 @@ In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000786   (855414) от 27.03.2016
-
-The Hillbilly Moon Explosion - With Monsters and Gods (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Psychobilly, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Boogie
-02. You Miss Something
-03. Jackson (feat. Mark Philips)
-04. Depression(   Читать дальше...   )Жанр: Rock'n'Roll, Psychobilly, RockabillyПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496F37FF172A54037CC74120A41F8797F88D9CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001187   (855471) от 27.03.2016
-
-VA - Latest & Greatest Rock Ballads (2016) 3CD Box [MP3|320 кб/с] <Pop Rock, Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  More Than A Feeling - Boston (3:23)
- 02.  Don't You (Forget About Me) - Simple Minds (4:18)
- 03.  Time After Time - Cyndi Lauper (4:01)
- 04.  Africa - Toto (4:25)(   Читать дальше...   )Жанр: Pop Rock, BalladsПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1572FBD5FF099F19A2E0566C3A1C574BD9B945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109947   (855476) от 01.03.2017
-
-Kingdom Come - Balladesque: The Pearls (1998) Compilation [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Should Have Know (4:33)
- 02. Can't Let Go (6:30)
- 03. Twilight Cruiser (6:39)
- 04. Cold Groumd (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29232C49785DAE4CAE91DEDCF39ED98FCC53C88F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110198   (855611) от 01.03.2017
-
-Toad - B.U.F.O. (Blues United Fighting Organization) (1970) Akarma, 2003 [MP3|320 Kbps] <Heavy Blues, Acid, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pig's Walk (Alternate Version)
-02. Pig's Walk - Reprise (Alternate Version)
-03. Animal's World (Alternate Version)
-04. Animal's World (Alternate Version)(   Читать дальше...   )Жанр: Heavy Blues, Acid, Hard RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80918610DDB4D0DB79DA8CDAD91949A3AE60EB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110003   (855617) от 01.03.2017
-
-Alina Orlova - Laukinis Šuo Dingo (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovesong (1:49)
- 02. Vaiduokliai (2:37)
- 03. Lijo (1:57)
- 04. Paskutinio mamuto daina (2:50)(   Читать дальше...   )Жанр: Alternative Rock, Acoustic, Folk, Indie RockПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2237D01B9CDADC6685B66E0A9302E6004D393C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091298   (855800) от 27.09.2021
-
-Status Quo - Whatever You Want: The Essential (2016) 3CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Status Quo - британская рок-группа, основанная бас-гитаристом Аланом Ланкастером и гитаристом Фрэнсисом Росси в 1962 году в Лондоне, Англия (поначалу как The Scorpions, The Spectres и Traffic Jam; название Status Quo было принято в 1967 году). Группа, с начала 1970-х годов практически не меняющая стиль и исполняющая жёсткий ритмичный рок-н-ролл с элементами ритм-энд-блюза (   Читать дальше...   )01 | Paper Plane | 02:57
-02 | Again and Again | 03:41
-03 | Rockin All Over The World (John Eden remix)  | 03:51
-04 | Roll Over Lay Down | 05:42(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F82E7BE2E78E1C8B9968FD08B0B8965D1E02BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001088   (855817) от 27.03.2016
-
-Thunderstone - Apocalypse Again (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Veterans Of The Apocalypse
-2. The Path
-3. Fire And Ice
-4. Through The Pain(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660A89F36D961E72C211CDC2B1B542AF5AF8C2B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001001   (855824) от 27.03.2016
-
-Norhod - Voices From The Ocean (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm 00:38
-02. Endless Ocean 06:23
-03. The Abyss Of Knowledge 06:19
-04. July Rain 04:48(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13B623E55B88865318AE57EBF569B4694F4AB31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887647   (855899) от 27.09.2021
-
-Status Quo - Aquostic! Live At The Roundhouse (2015) [FLAC|Lossless]<Classic Rock, Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And It's Better Now (Live and Acoustic) (4:26)
-02. Break the Rules (Live and Acoustic) (3:09)
-03. Again and Again (Live and Acoustic) (3:23)
-04. Paper Plane (Live and Acoustic) (5:11)(   Читать дальше...   )Жанр: Classic Rock, Acoustic RockПродолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A83177219DC759C8BAFF11CA54683FE2A7C6B88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498568   (855911) от 27.09.2021
-
-Красная плесень - Памяти В.Цоя (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А может это сон (New Version)
-2. Электричество (New Version)
-3. Уничтожили ночь (New Version)
-4. У кого-то есть... (New Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105E9513C735E9CEAFAE8AEE4BA290D0C894AE68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498580   (855916) от 27.09.2021
-
-Кино - Ночь (1986) Reissue, Remastered, 2021, AnTrop [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом "Ночь", в отличие от предыдущих альбомов, был записан при помощи многоканальной аппаратуры фирмы AMPEX. В процессе микширования песен делалось "предварительное сведение" (демо), которое представлено на втором диске. При издании впервые использованы оригинальные записи студии "АнТроп".1. Видели Ночь
-2. Фильмы
-3. Твой Номер
-4. Танец(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E17482E1E69B9DBBDA0168611DEE24BBECFE983
 ```
 
 

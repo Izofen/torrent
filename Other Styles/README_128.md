@@ -1,3 +1,30 @@
+###  Публикация: 1394272   (763729) от 05.07.2020
+
+Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Rose of Spring (03:40)
+ 02. Blue Star (04:35)
+ 03. I ll Break Out Again Tonight (02:50)
+ 04. Don t Let the Old Man In (03:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126599   (764330) от 19.04.2017
 
 Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
@@ -668,33 +695,6 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907020AECF82FCB1184DA0D968CE46F776DC0065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124894   (768748) от 14.04.2017
-
-bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Starlight (Live)
-02 - There's No Other Name (Live)
-03 - Extravagant (Live)
-04 - Breathe (Spontaneous)Жанр: Christians, worshipПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
 ```
 
 

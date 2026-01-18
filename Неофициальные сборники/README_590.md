@@ -1,3 +1,30 @@
+###  Публикация: 994418   (891342) от 07.03.2016
+
+VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kilye Minogue - Confide In Me
+02 Phill Collins - Another Day
+03 Iggi Pop - In The Death Car
+04 Sandra - Free Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD58C8A9B7DA529D1F5582219AF40D844258F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102312   (891417) от 09.02.2017
 
 VA - Beatport Trance Pack (09.02.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
@@ -667,33 +694,6 @@ VA - Beatport Deep House: Electro Sound Pack #43 (2020) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33F120FBB8559C81021451FADDE27117FF660DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371395   (892034) от 30.03.2020
-
-VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Club Bizarre - Persona
-02. Franz Matthews - All I Wanted
-03. Occams Laser - Abandoned Vows
-04. Colya Zucker - Magazine(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 06:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A4A4C431A9AD35AE9987F3805F9DA673F4DA53
 ```
 
 

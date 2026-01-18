@@ -1,3 +1,62 @@
+###  Публикация: 1303893   (569133) от 23.05.2019
+
+Vampire Weekend - Father of the Bride (2019) Japanese Edition / Scene [FLAC|Lossless|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold You Now (feat. Danielle Haim) (02:33)
+02. Harmony Hall (05:08)
+03. Bambina (01:42)
+04. This Life (04:28)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E449F33A733993448D8B87443C9D393224B2AFAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223904   (569138) от 06.08.2010
+
+Владимир Кузьмин - Собрание лучших лирических песен (1996) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто я люблю тебя [05:41]
+02. Огонь ("Обойдет стороной суета") [07:17]
+03. Подогрей мне молока [05:27]
+04. Голос [03:36]
+05. Менестрели [04:18]
+06. Последняя весна [01:41]
+07. Теряю тебя [04:35]
+08. Лед слезы льет [04:52]
+09. Прощальный блюз [05:47]Жанр: RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528714   (569287) от 30.07.2012
 
 Изморозь - Зигомёд (2012) [MP3|320 кб/с]<Pagan, Folk, Black Metal>
@@ -576,6 +635,30 @@ magnet:?xt=urn:btih:D86125D97532882F0845C087A642E437749571B2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 223406   (570790) от 05.08.2010
+
+Хард-рок баллады из России vol.1 (2005) [FLAC | Lossless]< Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_570790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043499   (570807) от 17.08.2016
 
 Soilwork - Death Resonance (2016) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -625,87 +708,6 @@ CD 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEAAFBD3A7D78A3FD8202665C93FAB0632ED65E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234513   (570903) от 05.07.2018
-
-Blue Stahli - The Devil (Remixes) (2018) [MP3|320 Kbps] <Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Not Over Til We Say So (feat. Emma Anzai) (Rabbit Junk Remix)
-2. Enemy (Gydra Remix)
-3. The Devil (ANX Remix)
-4. Shoot Em Up (Thomas Vent Remix)(   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB19C50D197530CEB04728FC556C3E3A18990E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043705   (570917) от 17.08.2016
-
-Jo Harman - Dirt On My Tongue (2013) [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shall Not Be Moved - 4:07
-02. Worthy Of Love - 3:30
-03. (This is My) Amnesty - 4:47
-04. Heartstring - 3:27(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52B6412F5D75F000F17C80205A21287CDC7E98F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043733   (570945) от 17.08.2016
-
-PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Community Of Hope 02:23
-02. The Ministry Of Defence 04:11
-03. A Line In The Sand 03:33
-04. Chain Of Keys 03:09(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
 ```
 
 

@@ -1,3 +1,300 @@
+###  Публикация: 913687   (600879) от 30.06.2015
+
+Мумий Тролль - Пиратские Копии (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600879.jpg" />
+</div>
+
+
+###  Подробнее
+
+В концепции нового альбома группа Мумий Тролль параллельно придерживается и другой  трактовки «пиратства» - в переводе с древнегреческого «пират» означает "пытающий счастья, испытывающий свою судьбу". Мумий Тролль - неисправимые романтики, ассоциирующие себя с мореплавателями прошлых веков, которые в поисках гармонии не боялись отправиться к неизведанным (   Читать дальше...   )01. С Чистого Листа
+02. Медленные Танцы
+03. Мумий Витамины
+04. Пиратские Копии(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C01CCEE5D5339F5CB77122EC7F134AD61ABD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547891   (600956) от 01.05.2022
+
+Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Muscle
+02. Come and Take It
+03. Born in the MotorCity
+04. American Campfire(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FEABEEE9F9089515453911EA6495C868B891CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547563   (600958) от 01.05.2022
+
+Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outsider (Originally Released on The Stories of H. P. Lovecraft) [00:11:51]
+02. Decameron Date 6 Tale 9 (Originally Released on Decameron - 10 Days in 100 No... [00:20:05]
+03. Haunted Storm (Previously Unreleased) [00:06:41]
+04. Ride (Dance mix) [00:05:43](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 3 CD, 03:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548021   (600962) от 01.05.2022
+
+The Spirit - Of Clarity and Galactic Structures (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Black Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Clarity and Galactic Structures (7:36)
+02. The Climax of Dejection (5:49)
+03. Repression (5:51)
+04. Celestial Fire (4:33)(   Читать дальше...   )Жанр: Black Death MetalПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA149E83ACBBA92357572B587E5533943CFEC55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548005   (600966) от 01.05.2022
+
+Abated Mass of Flesh - The Existence of Human Suffering (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Realm of Contorted Perceptions
+2. In the Absence of Time
+3. Endlessly Carving
+4. Throes of Depravation(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBEED623EB8BFB9DE7BBD561EA685A5F8803237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913715   (601000) от 30.06.2015
+
+Emerson, Lake & Palmer - Once Upon A Time In South America (2015)  (4CD) [FLAC|Lossless]<Progressive / Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction Fanfare (live Satntiago, Chile - April 1, 1993)
+02. Tarkus (live Satntiago, Chile - April 1, 1993)
+03. Knife Edge (live Satntiago, Chile - April 1, 1993)
+04. Paper Blood (live Satntiago, Chile - April 1, 1993)(   Читать дальше...   )Жанр: Progressive / Art-RockПродолжительность: 04:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB624467A9E56F077F66C7731C5E2CA7D76A4FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547898   (601010) от 01.05.2022
+
+Charlie Collins - Undone (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovers To Strangers (03:51)
+02. Just My Luck (02:23)
+03. Undone (03:12)
+04. Hit The Lights (04:05)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7030DD4E6C1D18CCB6917039F7BF0353E0BD17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548040   (601015) от 01.05.2022
+
+This Raging Silence - Broken Oceans (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timeless Machines
+02. Save Me
+03. 2 Hours Too Far From The Sun
+04. Broken Oceans(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12985B41287BE202228734A4ACF354C87DAAFD4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548015   (601025) от 01.05.2022
+
+LionSoul - A Pledge to Darkness (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuum (1:35)
+02. Exile To Arise (4:28)
+03. Amber Of Illusion (4:48)
+04. Wailing In Red (4:38)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0E1095E903D42C428B1F0050786DFFCC45AAFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149311   (601159) от 10.07.2017
+
+Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbeat (03:22)
+02. Kisses Never Lie (03:33)
+03. Firestorm (03:08)
+04. Bruises Fade (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913785   (601288) от 30.06.2015
+
+Niva - Relievin' Rain (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relievin' Rain
+02. Save My Soul
+03. Lying To Get Your Trust
+04. Freakshow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDD4B09874750EE02E32149367590AF2D9E729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 355704   (601394) от 26.06.2011
 
 Iron Maiden - Powerslave (1984) 1st Press /1984, EMI/ [FLAC|Lossless]<Heavy Metal>
@@ -397,303 +694,6 @@ Grand Funk Railroad (или Grand Funk) — американская хард-р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA4887D5CABC2770C0A1F45D59660E26DF3E19CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298535   (601711) от 28.04.2019
-
-Вячеслав Бутусов и Екатерина Мечетина - Концерт-спектакль: Пробужденная радость (2016) [MP3|~245 Kbps (V0)] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro
-02. Из реки
-03. Сёстры печали (хор)
-04. Бедная птица(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F50D0AB12B7A3FBC460C66CCC8A3749F45F9AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298483   (601740) от 28.04.2019
-
-Мураками - Без даты (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Невыносим
-02 - Вали домой
-03 - В Белом море
-04 - Музыка по венам(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE6472E73DCBF6E5A7D2ACF5BBEB6AA38B90C9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298593   (601766) от 28.04.2019
-
-Steel Prophet - The God Machine (2019) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601766.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The God Machine (3:22)
- 2 - Crucify (4:04)
- 3 - Thrashed Relentlessly (4:36)
- 4 - Dark Mask (Between Love and Hate) (3:09)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12202707E92928B8B5DF9675A7020987112F8E7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298682   (601769) от 28.04.2019
-
-Prefab Sprout - The Gunman and Other Stories (2001) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowboy Dreams 05:19
-02. Wild Card in the Pack 03:41
-03. I’m a Troubled Man 03:19
-04. The Streets of Laredo-Not Long for This World (trad. / arr. by Paddy McAloon) 04:38(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-Pop, CountryПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B37B77D356B088DD45DE21A2476E495B763932E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298206   (601833) от 27.04.2019
-
-VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part I (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вадим Самойлов - Мы за ценой не постоим (03:06)
-02 - Сергей Бобунец - Песенка о ночной Москве (03:27)
-03 - Громыка - Марья Петровна идет за селёдочкой… (03:42)
-04 - Пикник - Грузинская песня (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9698C230AED1C287E21C3D1707B25AD259F311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298404   (601836) от 27.04.2019
-
-Queen - Made in Heaven (1995) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Beautiful Day (02:32)
-02. Made in Heaven (05:25)
-03. Let Me Live (04:46)
-04. Mother Love (04:49)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136047EB01BDEEF07F158649F7424A7C59979146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298377   (601837) от 27.04.2019
-
-Queen - Innuendo (1991) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo (06:32)
-02. I'm Going Slightly Mad (04:22)
-03. Headlong (04:38)
-04. I Can't Live With You (04:33)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969242059347B8258326851A09432CEC6A0198B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298426   (601883) от 27.04.2019
-
-МультFильмы (Мультфильмы) - Романтика-2 (2019) [MP3|320 kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Романтика-2 (02:20)
-02. Стой! Это не любовь (03:17)
-03. Расстаться (03:08)
-04. Play (02:58)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3802AD9613B15FB55995FF42662ABA24A2CEAA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298390   (601893) от 27.04.2019
-
-Mott The Hoople - Mental Train: The Island Years 1969-1971 (2018) 6-Disc Box Set Universal Music [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mott the Hoople - британская рок-группа, образованная в 1968 году в Херефордшире, Англия, бывшими участниками группы Silence и заимствовавшая название у романа Уилларда Мануса (главный герой которого — эксцентрик, работающий в цирковом фрик-шоу). Mott the Hoople, согласно Allmusic, «дерзко спаяли хеви-метал и глэм-рок с дилановским сарказмом, подготовив тем самым (   Читать дальше...   )01 | You Really Got Me | 02:55
-02 | At The Crossroads | 05:33
-03 | Laugh At Me | 06:32
-04 | Backsliding Fearlessly | 03:46(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, GlamПродолжительность: 07:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3C1943816B7F1987B620391B7DEEEBAA32210E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298409   (601916) от 27.04.2019
-
-Band of Skulls - Love Is All You Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnivorous
-02. That's My Trouble
-03. Love Is All You Love
-04. Not the Kind of Nothing I Know(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Pop RockПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2509F2B45A00C91CCD02695FAFB4654AFE66C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298403   (601919) от 27.04.2019
-
-Mechanical Organic - This Global Hive Part Two (2014) [FLAC|lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me Oblivion (06:19)
-02. The Guiding Lie (05:26)
-03. Of Leprous Minds (04:09)
-04. Hate Remembers / Love Forgot (06:48)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF38F35215B4308D718EC2DF9950B8D22EF1249D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1362272   (949555) от 23.02.2020
+
+John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949555.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:37| 01. Wake the Girls
+|04:02| 02. Train North
+|02:31| 03. Skagway, Alaska
+|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362469   (949562) от 23.02.2020
 
 Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
@@ -665,33 +692,6 @@ VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACB820689B9633E4667F1D415E229775A8EA374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088521   (953506) от 02.01.2017
-
-Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayward Sisters (02:56)
-02. Exhibition (01:13)
-03. Restless (01:21)
-04. A Solitary Woman (02:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8B0599DB715708058E2F67AB51E3911DD8D83
 ```
 
 

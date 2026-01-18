@@ -1,3 +1,30 @@
+###  Публикация: 1382198   (820601) от 10.05.2020
+
+VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820601.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alex Dalimjanov - Депрессия (2:50)
+2.Anthony El Mejor - Не Забывай Меня (2:59)
+3.BeRill - Бумеранг (2:32)
+4.DJ Jedy feat. AnasteZia - Имя Моё (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F33847C3FA318C52BC29DFCC7C3FDBEF6CA17BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196797   (820638) от 04.01.2018
 
 VA - German Top 100 Single Charts 05.01.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -671,33 +698,6 @@ VA - Chill House Diamonds Vol.3 (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECD67E97B3529880F0E3920CE367A65921FFBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007426   (821707) от 15.04.2016
-
-VA - Electric Nights Dance Sensation Vol.4 (2016) [MP3|320 кб/с] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Reger - Freak Out (Mark Room Remix) 04:53
-02. Alex Reger - Freak Out 04:23
-03. Andy LaToggo - Lonely I Won't Let Go (feat. Paula P'cay) (Brandon Steel Remix Radio Edit) 03:34
-04. Climax 2 - Saying It Live 06:07(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7868E57A56F4F6444406C1F44F1B08EC738ED6
 ```
 
 

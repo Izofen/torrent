@@ -1,3 +1,30 @@
+###  Публикация: 1206872   (781277) от 16.02.2018
+
+VA - Theme For Lovery Story (2018) [MP3|320 Kbps] <Smooth, Nu Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781277.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Anita Baker  -  My Funny Valentine  5:06
+002.  The Rippingtons  -  Gypsy Eyes  4:20
+003.  Matteo Brancaleoni  -  Winter Wonderlan  2:31
+004.  Peter White  -  Chasing The Dawn  5:22(   Читать дальше...   )Жанр: Smooth, Nu JazzПродолжительность: 07:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE51E89833CE1AC8D73CA68111E13C776BFA9B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206974   (781278) от 16.02.2018
 
 VA - Хит FM ВосХИТительная Двадцатка 10.02. (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -673,33 +700,6 @@ VA - Deep House Collection vol.157 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D508674DE3819708C08CA7D6D024B7E9AD750D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206325   (782570) от 13.02.2018
-
-VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.5 (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Khardiac - Get Into The Mood
-02 Alignments And Liquid Viking - Starchild
-03 Berg And Capital Monkey - Future (wilder remix)
-04 Psymon And Sixsense - Relative Path(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3C93E537EE1EFE60857A3E7FD87C113C6B55D2
 ```
 
 

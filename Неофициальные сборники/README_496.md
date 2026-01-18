@@ -1,3 +1,30 @@
+###  Публикация: 1014929   (775073) от 10.05.2016
+
+Dosis - Technoir: Part 1 (2016) [MP3|320 кб/с|image+cue] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Henning Baer - Gemini
+2. Roberto Capuano - Flashback
+3. Julian Jeweil - Meteorite
+4. A.Paul - Inception (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87A4C821F0D2431F5547230453393D17B08572
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015285   (775079) от 10.05.2016
 
 VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
@@ -663,33 +690,6 @@ VA - 40 Top Hits DJ Boom (2016) [MP3|320 кб/с] <House, Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4302883C54EE5A8BBC6F5859A47141340EFE727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014980   (775853) от 09.05.2016
-
-VA - Sexy Deep Chilling (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sura Quintet - Hit Your Deadline
-02. Circuito Zeta - Stomp
-03. Chillelektro - Vitt
-04. Unexpected Marvel - Spread the Rumor(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:07:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B494D332C8D03EEBDA6549549493CA6ED5221A
 ```
 
 

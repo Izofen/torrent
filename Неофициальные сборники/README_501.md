@@ -1,3 +1,30 @@
+###  Публикация: 1211123   (778154) от 05.03.2018
+
+VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La groupie du pianiste - Michel Berger
+02. Ella, Elle L'A - France Gall
+03. Vancouver - Veronique Sanson
+04. Ce n'est rien - Julien Clerc(   Читать дальше...   )Жанр: ChansonПродолжительность: 04:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D11F3469B3E9486963BB55AD41CBBFF83BE0AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211096   (778204) от 05.03.2018
 
 VA - Empire Records - Deep Disco 7 (2018) [MP3|320 Kbps] <Disco, Nu Disco, Dance>
@@ -668,33 +695,6 @@ VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209826   (778688) от 03.03.2018
-
-VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778688.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. V Sparks - (IRP) Intro
-2. The Magnetic North - A Death In The Woods
-3. Roald van Oosten - A Dream Within A Dream
-4. Cold Weather Company - Another Involved(   Читать дальше...   )Жанр: Indie/RockПродолжительность: 05:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08ECB016E23063D89CF16F061F3F3976365D6D5E
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1492519   (901778) от 30.08.2021
+
+Шрифты - Shopee - 60000+ Unlimited Mega Font Pack Bundle Collection Bonus Plugin - Addons - Software Lain [TTF, OTF, FON, TTC, PFM]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом пакете множество различных стилей и форматов шрифтов, которые используются в графическом дизайне, книгах, журналах и т. д.Формат: TTF, OTF, FON, TTC, PFM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81ED8E24AD3F150D3D1A6D899B1220B00447D56B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992284   (901833) от 01.03.2016
+
+Шаблоны сайта - ThemeForest - Toddlers - Kids, Child Care & Playgroup WordPress Theme [PHP, HTML, CSS, JS]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toddlers — премиум-тема WordPress с великолепным дизайном для сайтов детских садов, школ, центров детского творчества и т.д. Toddlers поддерживает все популярные плагины, такие как WPML, Woo-commerce, Event Calendar Pro, Buddy Press, bbPress, Contact form 7.Формат: PHP, HTML, CSS, JS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B5BE6A2243A0C87FFC9CF2C720EE5D9C53A44A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369299   (903093) от 23.03.2020
 
 Звуковые библиотеки - Strezov Sampling - BALKAN Ethnic Orchestra [Kontakt, OGG]
@@ -581,55 +629,6 @@ magnet:?xt=urn:btih:0F1B5585FBB3D9BB21B0037BFD537C2D50319843
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0F9ADDE83D8874E21D4635AB1075EFCE68E169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492235   (905214) от 28.08.2021
-
-Стили - Creative Market - Mega bundle 100 Photoshop Styles - 218061 [PSD, ASL]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mega bundle 100. Это премиальные стили слоя Adobe Photoshop. В этот набор входит исходный psd. Все стили слоев организованы, просты в использовании и на 100% масштабируемы.Формат: PSD, ASL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9F20A22BDBEE0E1E892A6118D039A411C65554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369073   (905220) от 22.03.2020
-
-Рамки - NNM-Club - Рамки от Warrior 123 #8 - 1369073 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рамки созданные нашим одноклубником Warrior 123
-ОднослойныеФормат: PSDРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F72CBE828421E723E76FA32CCA3F2EC0B0770B7
 ```
 
 

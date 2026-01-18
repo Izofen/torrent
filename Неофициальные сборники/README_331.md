@@ -1,3 +1,30 @@
+###  Публикация: 924779   (557373) от 04.08.2015
+
+VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Дорин - Для Тебя
+002. Faith Evans - Extraordinary
+003. Профилактика - Навсегда Ухожу
+004. Charli Xcx & Roma Pafos Vs Lilly Wood & Nejtrino & Baur - Player Break The Rules(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113D4AAAD6F391755C5112B9BA1CE68E5AF73DF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045573   (557415) от 24.08.2016
 
 VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 37 ) (2016) [MP3|192 Kbps] <Pop, Disco, Eurodance>
@@ -676,33 +703,6 @@ VA-Сборник нашего радио 2012 (2012) [MP3|256 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F9BEDBCBE534FB2700BAF5CFE49BAE84CA7C89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235500   (558678) от 12.07.2018
-
-VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate - YEAH (Extended Mix)
-02. Kevin Vergauwen & Chatry Van Hove - Glimmer Of Hope (Denis Sender Radio Edit)
-03. Glacial Storm - Tundra (Original Mix)
-04. Elite Electronic - Digital Age (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF61D96B94E231ECD79EE190C8198547F3C889E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1137318   (669404) от 25.05.2017
+
+VA - Evening Acoustic Playlist: 14 Relaxing and Chilled Acoustic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Say Something
+02. Meg Birch - Your Song
+03. Shannon & Keast - Promise This
+04. Nora & Will - Shape of You(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF1F558B9DA854FB3B1097EDBA9A38FF40558533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136843   (669405) от 25.05.2017
+
+Keosz - Seclusion (2015) EP [MP3|320 Kbps] <Ambient, Atmospheric Bass, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glib (03:03)
+02. Intention (05:43)
+03. All come back (04:18)
+04. Inside (01:32)(   Читать дальше...   )Жанр: Ambient, Atmospheric Bass, DroneПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A094B440CFB199FC9386CC6A4D46D55244E93DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137083   (669406) от 25.05.2017
 
 VA - Santorini Beach and Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -640,60 +694,6 @@ VA - Miami Deep House (2019) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CED4BC7494E6723722D177880B83D4A4A353985
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291429   (670702) от 24.03.2019
-
-VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Cooper feat. Natasha Burnett - Eyes Shut (O.B.M Notion Remix) 6:56
-02. Milosh K feat. Paula P'cay & Victor Special - Your Choice (NyTiGen Remix) 6:40
-03. Ward Palmen & Adam Cooper - Flames (Adam Cooper WMC Miami Club Mix) 6:12
-04. Em Appelgren - Game Over (Adam Cooper Remix) 6:17(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Progressive House, DanceПродолжительность: 03:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC90689ED493DEE813EE2D78A0CD0D576DE2C4C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291360   (670704) от 24.03.2019
-
-Ercos Blanka - Classic Trick Remixes (2019) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 36h (Agatha Pher Remix) (9:12)
- 02. Brigante (Nhar Remix) (6:00)
- 03. Strade (Pablo Bolivar Remake) (7:03)
- 04. Sun Street (Gadi Mitrani Remix) (8:22)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD33BD82ED4F33CCCE1F825C20CCF35E0C5EDF2C
 ```
 
 

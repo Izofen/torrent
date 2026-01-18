@@ -1,3 +1,30 @@
+###  Публикация: 1022528   (727785) от 03.06.2016
+
+VA - Chill Out XSTATION Complete (2016) [MP3|320 кб/с] <ChillOut, Ambient, Downtempo, Lounge, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Byrd - Without You (Aleksey Beloozerov Remix)
+02. Imogen Heap - Run-Time (Matt Lange Remix)
+03. MALARIS - Mystery Planet
+04. Mr FijiWiji feat. Anna Yvette - Hostage (Original Mix)(   Читать дальше...   )Жанр: ChillOut, Ambient, Downtempo, Lounge, ElectronicaПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9820D41635876F733FDD7A6FB1275A539F9C76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530754   (727826) от 12.02.2022
 
 VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - 50 оттенков музыки 18+ (05.2016) [MP3|128-320 кб/с] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C3E8E8141EDA4C751FA44A7BCF37F9D6ABD5D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128008   (729616) от 23.04.2017
-
-VA - Rock Blues Ballads Story 12 (2017) [MP3|320 Kbps] <Rock Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729616.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walter Trout - Fly Away
-002. Cactus - Black Dawn
-003. The Rippingtons - Wild Tales
-004. Deb Ryder - Get A Little Steam Up(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 10:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C382CF0D2FFAF39E1CF722AFC0BF15F7EA5386
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1046881   (550253) от 29.08.2016
+
+Magic Slim & The Teardrops - Chicago Blues Session Vol.3 (1986 - 1987) 1993, Wolf Records [FLAC|Lossless|tracks + .cue] <Chicago Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Talk To Your Daughter  04:14
+02. Bad Avenue  06:13
+03. Gambler  04:24
+04. So Easy To Love You  07:22(   Читать дальше...   )Жанр: Chicago Blues, Modern Electric BluesПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53019AFF663F763483F72A80320461BB8722A097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047257   (550257) от 29.08.2016
 
 Bud Shank, Clare Fischer, Joe Pass - Brasamba! (1962) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool, Latin Jazz>
@@ -666,33 +693,6 @@ Rosemary Clooney - Demi-Centennial (1995) Concord Jazz [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B22E428B45E461CB2B771CBA52127A47A64F9DF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237137   (552521) от 23.07.2018
-
-Brother Jack McDuff - The Best Of The Concord Years (1992 - 2001) 2CD, 2003, Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552521.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cold Duck Time [5:18]
-02. Blooze in G [8:50]
-03. Pork Chops & Pasta [7:16](   Читать дальше...   )Жанр: Soul Jazz, Hard BopПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A67FAAD3C133798F24368778DBBBAF31C44597
 ```
 
 

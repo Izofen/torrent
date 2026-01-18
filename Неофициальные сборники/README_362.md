@@ -1,3 +1,30 @@
+###  Публикация: 1039119   (597635) от 31.07.2016
+
+VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything But The Girl - Missing
+02. George Michael - Praying For Time
+03. Robert Miles - Children
+04. Andru Donalds - Mishale(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39BB9A911F55E34535A95A1D238344D6DC1A46B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526350   (597644) от 24.07.2012
 
 VA - Всю ночь танцы (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -695,39 +722,6 @@ VA - В ритме танца (2011) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57E992887ED5A0E01AEF58D3FDBB6150AAD2B739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526058   (599213) от 23.07.2012
-
-VA - Флейта в Рок Музыке (2012) [MP3|181-320 кб/с]<Blues Rock, Folk Rock, Jazz Rock, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laurelie - Remember Ronny
- 02. Out Of Focus - Huchen 55, A
- 03. Back Door - It's Nice When It's Up
- 04. Abstract Truth - Oxford Town
- 05. Breche - La Fuite
- 06. Sol Simiente Sur - Taquirari Experimental Para Un Amigo
- 07. Sol Simiente Sur - Continuando El Camino
- 08. Breche - Les P'tits Cuillers
- 09. Skin Alley - Living In Sin
- 10. Galadriel - Things To ComeЖанр: Blues Rock, Folk Rock, Jazz Rock, InstrumentalПродолжительность: 05:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E9477DB0D65B2D5FA26E5DB402B9D6AAB2DED4
 ```
 
 

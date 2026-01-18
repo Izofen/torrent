@@ -1,3 +1,30 @@
+###  Публикация: 1118210   (811679) от 26.03.2017
+
+VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mojiito - Summer Love  7:51
+02.  Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria Radio Mix)  3:07
+03.  Ultramarin - The Sea (George Whyman Remix)  5:12
+04.  Boehm - Music  7:19(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 05:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383294   (811725) от 15.05.2020
 
 VA - Nu Metal Heaven (2020) [MP3|320 Kbps] <Metal, Nu-Metal>
@@ -668,33 +695,6 @@ VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1CDE3EFB92A8B667758707ABAD88B2F72792F64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383146   (813749) от 14.05.2020
-
-VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Udo Jürgens - Mit 66 Jahren 03:39
-02. Connie Francis - Schöner fremder Mann 02:41
-03. Jürgen Marcus - Eine neue Liebe ist wie ein neues Leben 03:46
-04. Juliane Werding - Am Tag als Conny Kramer starb 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
 ```
 
 

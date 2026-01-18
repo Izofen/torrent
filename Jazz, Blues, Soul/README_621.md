@@ -1,3 +1,246 @@
+###  Публикация: 1605494   (1044871) от 18.01.2023
+
+Larry Coryell - Larry Coryell's Last Swing With Ireland (2016) 2021, Angel Air [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Sentimental Mood [10:33]
+02. Morning of the Carnival [6:45]
+03. Relaxin' at the Camarillo [6:34]
+04. Someday My Prince Will Come [6:45](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C35A5B835C6ED761AF80AD983D38F06EF47A639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605488   (1044877) от 18.01.2023
+
+Paul Desmond - The Complete Albums Collection (1953 - 1963) 4CD, 2018, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044877.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Over the Rainbow [5:04]
+02. You Go to My Head [7:24]
+03. Give a Little Whistle [6:32](   Читать дальше...   )Жанр: CoolПродолжительность: 05:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9470ADCEC187ED985F9357B01D93430DA7664A8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605226   (1044987) от 17.01.2023
+
+Lee Morgan - Candy (1957) 2012, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candy [7:04]
+02. Since I Fell for You [5:38]
+03. C.T.A. [5:10]
+04. All the Way [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65575D00551D1D1A66B32450A374D10FE6949851
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605219   (1044990) от 17.01.2023
+
+Paul Chambers - The Complete Albums Collection (1956 - 1960) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044990.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Afternoon in Paris [5:58]
+02. You Turned the Tables on Me [4:46]
+03. Apothegm [5:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008C17AFC891A10D411EE78DB035AC22A3FE6883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605223   (1044993) от 17.01.2023
+
+Stanley Turrentine - That's Where It's At (1962) 2021, Audio Wave [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile, Stacey [8:06]
+02. Soft Pedal Blues [7:27]
+03. Pia [5:31]
+04. We'll See Yaw'll After While, Ya Heah [7:25](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719BA40679C639140CAB6104DBF91F71DA52B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605042   (1045040) от 16.01.2023
+
+Old Man Blues - Ready for Fun (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready for Fun (3:23)
+02. #Wetoo (Endless Song) (6:54)
+03. Dawn (8:21)
+04. Honeysuckle Blues (6:37)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC2073FDE2C00BA3E03881F5888B4C6659BFF20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605047   (1045088) от 16.01.2023
+
+Kim Waters - That Special Touch (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy Dance
+02. House Call
+03. Easy on Me (feat. Kayla Waters)
+04. That Special Touch(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EB5D276D7645F086AD048F43CE0A033E7F10F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604983   (1045089) от 16.01.2023
+
+Junior Mance - The Complete Albums Collection (1959 - 1962) 4CD, 2017, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045089.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Smooth One [3:28]
+02. Miss Jackie's Delight [3:53]
+03. Whisper Not [4:20](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 05:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AA575014C5B926F4B917AF868E1C17B50B8EFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604985   (1045092) от 16.01.2023
+
+Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet Ceremony (2022) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chase [4:56]
+02. Stolen Sweets [5:01]
+03. Vibes Boogie/Gaby's Gabbin (Medley) [4:32]
+04. Bottoms Up [5:09](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:09:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE19B76570E4EF9C89527D1E8E9602B9610CB4EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604987   (1045103) от 16.01.2023
 
 Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -452,249 +695,6 @@ The Charles Mingus Group - Debuts Rarities, Vol. 3 (1957) 1993, Universal [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA42BA68A52CDEA98C469AAB37C394E808E82A0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604056   (1045522) от 12.01.2023
-
-Tri-Fi - Postcards (2007) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pumpkin [6:00]
-02. Postcards from Abroad [7:12]
-03. Wisdom... 1st Things 1st [7:20]
-04. Creative Force [4:54](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860E08B32D97A2AA6696AA49E982031C7BA2E33E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603932   (1045565) от 11.01.2023
-
-TNYFBB - Rocking Horse (2023) [FLAC 2.0|48/24|tracks|WEB-DL] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's My Time/And If... (07:30)
-02. Break It Apart (04:54)
-03. Boundary Street (00:44)
-04. Fight the Good Fight (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1214CB81DF302BA8771915AA8EF32CF55F4771A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603865   (1045584) от 11.01.2023
-
-Herb Alpert - Sunny Side of the Street (2022) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Childhood
-02. Pata Pata
-03. Goo Goo Eyes
-04. I'll Remember You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D510111EED05706231C7E16E8C0C89E8F65381B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603869   (1045599) от 11.01.2023
-
-Scott Hamilton & Karin Krog - The Best Things In Life (2015) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Things in Life Are Free [3:22]
-02. I Must Have That Man [5:24]
-03. Will You Still Be Mine [8:11]
-04. How Am I to Know [3:04](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E35DCD2E9AE1DF98D34D0FE7423191C730ED2F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603876   (1045604) от 11.01.2023
-
-Hank Jones, Milt Hinton, Bob Rosengarden - The Trio (1977) 2003, Chiaroscuro Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful [5:04]
-02. Queen of Hearts [3:58]
-03. Mona's Feeling Lonely [5:24]
-04. Right Here, Right Now [6:00](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3E75C62538B4A4310D3984630835B26CE8BED6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603873   (1045606) от 11.01.2023
-
-Hank Jones & Frank Wess - Hank And Frank (2003) 2006, Lineage [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Made a Good Move [5:45]
-02. The Very Thought of You [4:26]
-03. Just One of Those Things [4:21]
-04. Autumn Serenade [6:52](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84ABE6BB7CB30B71C29515CE2AC0108B2DCE0579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603667   (1045633) от 10.01.2023
-
-Eric Clapton - Nothing But The Blues (2022) Live at the Fillmore, San Francisco, 1994 [FLAC|Lossless|tracks + .cue] <Blues Rock, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues All Day Long
-02. Standin' Round Crying
-03. Forty-Four
-04. It Hurts Me Too(   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08A7E3695E108151D53B2250BCE15DB9727ECF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603665   (1045641) от 10.01.2023
-
-VA - Real American Country Anthems (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blake Shelton -- God's Country (3:25)
-02. Zach Bryan -- Something in the Orange (3:48)
-03. Dan + Shay -- 10,000 Hours (2:48)
-04. Cole Swindell -- She Had Me at Heads Carolina (3:26)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 02:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315BA4696BD584A3CE6ED8B678E927C0E5B15F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603662   (1045655) от 10.01.2023
-
-The Mojoes - Can You Hear the Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe Someday Baby (3:29)
-02. Can You Hear the Music (3:26)
-03. When a Man Loves a Woman (4:21)
-04. Sweet Joline (3:28)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B23BCB929993D3E69E136FFCEDF77F0C54BD81
 ```
 
 

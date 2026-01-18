@@ -1,3 +1,111 @@
+###  Публикация: 923925   (560923) от 02.08.2015
+
+Buddy Guy - Born To Play Guitar (2015) [MP3|320 кб/с]<Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Play Guitar (04:57)
+02. Wear You Out (feat. Billy Gibbons) (03:31)
+03. Back Up Mama (04:42)
+04. Too Late (feat. Kim Wilson) (02:46)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B49DCD8F4C7D1C0ABED3DAF74C6FC16AEA883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364932   (560958) от 18.07.2011
+
+Ketil Bjornstad - 21 albums (1990-2011) [FLAC/APE|Lossless] <Contemporary Jazz, Neoclassical, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кетил Бьорнстад (Ketil Bjørnstad) уже в течении 30 лет работает в импровизационной музыке. Получив классическое музыкальное образование (в Осло, Лондоне и Париже), Бьорнстад в 1969 году стал солистом Филармонического оркестра Осло. Однако, познакомившись с альбомом Майлса Дэвиса (Miles Davis) In A Silent Way, пианист обратил свои музыкальные устремления в сторону (   Читать дальше...   )Список альбомов:
+1990 - The Shadow
+1993 - Water Stories
+1995 - The Sea (with David Darling, Terje Rypdal, Jon Christensen)(   Читать дальше...   )Жанр: Contemporary Jazz, Neoclassical, PianoПродолжительность: 22:26:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924129   (561036) от 02.08.2015
+
+Ted Drozdowski's Scissormen - Love & Life (2015) [MP3|320 кб/с]<Electric Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beggin' Jesus (03:39)
+02. Letter From Hell (02:56)
+03. The River (06:50)
+04. Watermelon Kid (04:24)(   Читать дальше...   )Жанр: Electric Blues RockПродолжительность: 00:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3D7B149C018C27EBD09523C64F70CBE69346E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923899   (561043) от 02.08.2015
+
+Cedar Walton - Eastern Rebellion (1975) /2015, Solid Records/[FLAC|tracks+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bolivia [10:11]
+02. Naima [08:39]
+03. 5/4 Thing [07:55]
+04. Bittersweet [06:55](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2DDD0A92FBEE665E71FD598BA2779CA3542E81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924052   (561044) от 02.08.2015
 
 Sam Most - The Amazing Mr. Sam Most (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
@@ -587,132 +695,6 @@ George Gershwin - Rhapsody In Blue - An American In Paris (James Levine & Chicag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C08312AFD7EEE5B732A7AF4265ABE6DF99D2D781
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527326   (562806) от 02.08.2012
-
-Luciana Souza - 6 Albums (2001-2009) [MP3|320 kbps]<Brazilian jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страна: Brazil01. Adeus America & Eu Quero Um Samba
-02. Fire And Wood
-03. Our Gilded Home
-04. Love - Poem 65
-05. Circus Life
-06. Once Again
-07 Tide
-08. Sorriu Para Mim
-09. Chuva
-10. Amulet(   Читать дальше...   )Жанр: JazzФормат: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D1EFC521ED9ED260E6BE461B15DBE4238EAC70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923669   (562853) от 01.08.2015
-
-Jimmy McGriff - The Worm (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Worm [03:22]
-02. Keep Loose [05:56]
-03. Heavyweight [06:51]
-04. Think [03:17](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBE57C6810F00151074B3264C0414C01185EC4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530219   (563062) от 02.08.2012
-
-Becca Langsford - Big Surprise (2011) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born To Cry
-02. King Size Papa
-03. While I Wait For You
-04. Big Surprise
-05. Some These Days I'll Be Gone
-06. Do It This Way
-07. Love Me Like A Man
-08. Hot And Cold Runnin' Tears
-09. Can't Keep From Cryin'
-10. Never No More(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530202   (563072) от 02.08.2012
-
-Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble With A Capital 'T'
-02. Back By Popular Demand
-03. Tool Box Blues
-04. Don't Lead Me On
-05. Road Blues
-06. Can't Get Your Lovin' Off My Mind
-07. Sell My Jewelry
-08. From The Delta To The Golden Gate
-09. Cheatin' Blues
-10. Drunken Angel(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 

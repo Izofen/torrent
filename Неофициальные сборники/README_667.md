@@ -1,3 +1,30 @@
+###  Публикация: 1462116   (1021238) от 13.04.2021
+
+VA - Громкие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby, Jim James - Porcelain (Reprise Version) (5:53)
+02. Монатик - Ресницы безопасности (4:54)
+03. Taylor Swift - Mr. Perfectly Fine (4:37)
+04. БАСТА, РЕМ ДИГГА, Каста, Белый Будда - Годы неправды (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5600DBBBF5B141CBD1B5AAA85FCE20925DB963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462212   (1021256) от 13.04.2021
 
 VA - Best 80s Disco Hits (2021) [MP3|320 Kbps] <Pop, Disco>
@@ -668,33 +695,6 @@ VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB32A9839296DCAA08B854C1DA53F7E3EA86980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461220   (1021882) от 09.04.2021
-
-VA - Slow Blues Songs (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mamas & The Papas - Dream A Little Dream Of Me (Album Version With Introduction)
-02. Magic Slim / Nick Holt / The Teardrops - How Unlucky Can One Man Be
-03. ZZ Top - Blue Jean Blues
-04. Gary Moore - Story Of The Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6D88B7EEE34585D80759D38080767BDDF84571
 ```
 
 

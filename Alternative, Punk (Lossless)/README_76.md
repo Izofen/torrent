@@ -187,3 +187,30 @@ magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847547   (1052168) от 
+
+Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведский мультиинструменталист Лайм Эспиноза вместе со своей группой Ends With A Bullet представил новый студийный альбом. Пластинка получила название "For All My Sins" и появилась 6 января 2026 года. Всего треклист включил 10 композиций.01. Before The Silence [00:03:29]
+02. For All My Sins [00:03:08]
+03. Shattered Reflections [00:03:45]
+04. The Fray [00:02:58](   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, MetalcoreПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64CE020F58F415F74031CC38B4D4B0CF27BB313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

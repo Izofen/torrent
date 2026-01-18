@@ -1,621 +1,639 @@
-###  Публикация: 1282134   (745399) от 12.02.2019
+###  Публикация: 1527344   (736931) от 28.01.2022
 
-Евгения Перова | Другая женщина (2018) [MP3]
+Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лёка и Дмитрий, Варвара и Глеб, Андрей и Ирина встречают друг друга слишком поздно… «Солнечный удар», поразивший героев, ставит их перед моральным выбором – укротить свое сердце или отдаться роковому танцу любви на осколках собственной нравственности. Обстоятельства обязывают смириться. Но, может быть, стоит еще побороться с судьбой за свои чувства и по праву, данному (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:57:03
+01. Praeparatus Supervivet
+02. Solur
+03. Prometheus Rise
+04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F13BC08FC1F82ED47D543A5E26CFD968D02F0BF
+magnet:?xt=urn:btih:6DCF255E05E9A7ACD10979FC75C697C9B8EEDDA4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282367   (745400) от 12.02.2019
+###  Публикация: 1527356   (736932) от 28.01.2022
 
-VA - Welcome To Miami (2019) [MP3|320 Kbps] <House, FutureHouse, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons Of Maria feat. Angelika Vee - Sweet Madness 3:09
-02. EDX - Daybreak 3:13
-03. Barkley - Ligona 2:20
-04. Playinfields - You and Me 3:10(   Читать дальше...   )Жанр: House, FutureHouse, DanceПродолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:472F3EE0145B60F54CE7F9742E80D11ACB5BAA89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282338   (745401) от 12.02.2019
-
-David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narciso (08:40)
-02. D'Angelo (06:28)
-03. 33Chants (05:34)
-04. Florence (01:40)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282580   (745402) от 12.02.2019
-
-Хоккей. Еврохоккейтур 2018-2019. Шведские хоккейные игры 2019. Финляндия — Чехия (2019) WEB-DL [H.264/720p-LQ]
+NetWorker Pro 8.2.5 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745402.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-09 февраля 2019, суббота. 14:00 МСК
-Еврохоккейтур (Euro Hockey Tour) - ежегодный хоккейный турнир
-Шведские хоккейные игры 2019.
-Финляндия — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:53
+NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FCAD71A836626A90E970AF72087485947A12862
+magnet:?xt=urn:btih:FD1FB5F503E86FF66862E42314F17BF68298332D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282458   (745403) от 12.02.2019
+###  Публикация: 1527494   (736933) от 28.01.2022
 
-10,000 Maniacs - Trouble Me (1989) Mini-Single [FLAC|Lossless|tracks + .cue] <Folk Rock, Alternative Rock>
+VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Easy Listening, Lounge, Nu Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745403.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Trouble Me (LP Version) (03:08)
-02. The Lion's Share (LP Version) (03:00)Жанр: Folk Rock, Alternative RockПродолжительность: 06:08
+01. Nightview - Deep Flow (3:43)
+02. Soundset City - Sweeping (3:55)
+03. Jean Mare - Break of Day (3:10)
+04. Soundset City - Smooth and Funky (2:59)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 01:02:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E2AD4082AF1DD3C2267D87B48DFB352E7DEDFE1
+magnet:?xt=urn:btih:8210F5B8474FD4B118B9D70DD04A74EAB891887E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282299   (745404) от 12.02.2019
+###  Публикация: 1527469   (736934) от 28.01.2022
 
-Angelo De Augustine - Tomb (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomb 04:18
-02. All to the Wind (02:52)
-03. You Needed Love, I Needed You (03:25)
-04. I Could Be Wrong (04:09)(   Читать дальше...   )Жанр: Indie Pop, FolkПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFBECCEF494964F1423DF5F170C2E22A3CE8E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282324   (745405) от 12.02.2019
-
-VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Maite Kelly - Heute Nacht für immer
-03. Kerstin Ott - Regenbogenfarben
-04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282490   (745406) от 12.02.2019
-
-Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teryan 1 (08:02)
- 02. Arpa River (07:03)
- 03. Opposition Crowd (07:17)
- 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282422   (745407) от 12.02.2019
-
-Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of The Highway (05:55)
- 02. Sonar Conversation (08:15)
- 03. Robotic Arm Wrestle (07:32)
- 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282323   (745408) от 12.02.2019
-
-Tunic - Complexion (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Nothing
-02. Envious
-03. Getting Sick
-04. Evan(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FA02C4A3B65631FDC4CA20866170E21FDA51D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282246   (745409) от 12.02.2019
-
-Deerhunter - Why Hasn't Everything Already Disappeared? (2019) [FLAC|Lossless|tracks + .cue] <Art Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death in Midsummer (04:22)
-02. No One's Sleeping (04:25)
-03. Greenpoint Gothic (02:02)
-04. Element (02:59)(   Читать дальше...   )Жанр: Art Rock, Indie RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4327B639073035734353C36360F9EF37C5815ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282235   (745410) от 12.02.2019
-
-Say Anything - Oliver Appropriate (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Emo, Punk>
+4K Stogram Pro for Mac 4.2.3 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745410.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Band Fuel (02:09)
-02. Daze (02:21)
-03. Pink Snot (02:49)
-04. Greased (02:05)(   Читать дальше...   )Жанр: Alternative Rock, Emo, PunkПродолжительность: 00:34:04
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8005CA173E47CE6A6D9E5D44FCD90598B123C1F9
+magnet:?xt=urn:btih:0443FC014220226BD61D61C5B7CDFC3E4D7B9339
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282488   (745411) от 12.02.2019
+###  Публикация: 1527431   (736935) от 28.01.2022
 
-Bruut! - Bruut! (2012) [FLAC|Lossless|tracks + .cue] <Swing, Jazz-Funk>
+ArchCommander 2.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ArchCommander - это легкий файловый менеджер архивов для macOS.
+• Browsing
+• Просмотр элементов
+• Создание новых архивов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFA2C6F7F189172AD51D9A3BF5B050C1720BF18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527533   (736936) от 28.01.2022
+
+Mirror for Panasonic TV 3.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется.
+Mirror for Panasonic позволяет отображать экран вашего Mac на любом телевизоре Panasonic Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527293   (736937) от 28.01.2022
+
+VA - Electro Swing Dance Session (2018) [AAC|~324 Kbps] <Electro Swing, Nu Jazz, Broken Beat>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marebo - Jamaican Klezmer (4:07)
+02. Doobie - Swing Interlude (0:53)
+03. DJ Tissue, Googirl - The Time (Tik - Tak) (Electro Swing Mix) (5:42)
+04. Half Decent - Something Like This (4:04)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Broken BeatПродолжительность: 01:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18118489221E1D6046E12FEDF5B1E51A38972690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527295   (736938) от 28.01.2022
+
+VA - Mediterraneo 3 (2020) [AAC|~332 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christos Papadopoulos, Dim Angelo, Alex Mihalakis - Sunset In Aegean (3:51)
+02. Elias Fassos, RisK (Gr), Ghenwa Nemnom - Ilios (6:15)
+03. Nikos Kaponis - Gypsy Day (6:46)
+04. Bassi, Jojo Rose - Epidaurus (4:26)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8681B209FBCD1085E4A23BA80E390806C065C9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527536   (736939) от 28.01.2022
+
+System Toolkit 5.2.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736939.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C05D436DEFAFD30B3E9757EC1D9917982CCA5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527310   (736940) от 28.01.2022
+
+Joe 'Fingers' Carr - Honky Tonk Hits (1997) Good Music [FLAC|Lossless|image + .cue] <Ragtime, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bounce (03:32)
-02. Bumper (02:48)
-03. Foxxy (05:17)
-04. Gospel (00:33)(   Читать дальше...   )Жанр: Swing, Jazz-FunkПродолжительность: 00:47:08
+01. Too Much Mustard [2:32]
+02. Twelfth Street Rag [2:20]
+03. Stumbling [2:05]
+04. Somebody Stole My Gal [2:14](   Читать дальше...   )Жанр: Ragtime, Piano JazzПродолжительность: 00:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:889A0446C0BB62C3F2AC11197510492C7692CE0E
+magnet:?xt=urn:btih:09D11567703DA414C1DA807D849565FE67EAF314
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 783427   (745412) от 04.05.2014
+###  Публикация: 1527365   (736941) от 28.01.2022
 
-Где ты был, Одиссей? (1978) DVD9 (3 серии из 3)
+World Clock Deluxe 4.18.1 [En]
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745412.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит во Франции и Германии в 1944 году. Советский разведчик, действующий под именем французского коммерсанта Огюста Птижана, «сдается» гестаповцам, которые принимают его за английского шпиона. Таким образом, он получает возможность установить непосредственные контакты с высокопоставленными сотрудниками гестапо и абвера, понимающими неизбежность поражения (   Читать дальше...   )Производство: СССР, Одесская киностудияЖанр: ВоенныйРежиссер: Тимур ЗолоевАктеры: Донатас Банионис, Анатолий Ромашин, Ирина Терещенко, Георгий Дрозд, Лев Перфилов, Карлис Себрис, Виктор Маляревич, Александр Лазарев ст., Лиля Максименко, Эрвин Кнаусмюллер, Пётр Кудлай, Владимир Наумцев, Юрий ОрловПродолжительность: 01:05:59 + 01:15:53 + 01:11:19
+World Clock Deluxe - это надежное и простое в использовании ПО, которое позволяет отображать несколько часов в горизонтальной или вертикальной палитре, в строке меню и в Dock.
+С помощью World Clock Deluxe можно также отображать среднее время по Гринвичу и всемирное координированное время, легко определять лучшее время для конференц-связи или видеоконференции в нескольких (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 1997-2022 MaBaSoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7CBCF6DBE807455A907B8DEBC1D6423589809678
+magnet:?xt=urn:btih:72E4982E5B4C28ED2AFBEF18A7D85A243E7F5332
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396710   (745432) от 16.07.2020
+###  Публикация: 1527392   (736942) от 28.01.2022
 
-VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+VA - Cappuccino Lounge, Vol. 1 (Relaxed Coffee Tunes) (2015) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. FlyAway - The Virus (6:08)
-2. Sabedoria; Creepy Deep; Cosmic Sound; SIL - Pachamama (8:07)
-3. Zeg; CiriZen - Hustle (7:40)
-4. Hasten; Cymatic Effects - Mind Effects (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:26:01
+01. Urban Phunk Society - De Janeiro (4:14)
+02. Elisabetta - L'idea Dell'amore (Sax on the Beach Mix) (3:30)
+03. Peter Pearson - Bossalove (4:43)
+04. Florito - Shirabyoshi Love (Instrumental) (4:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD0C429D8ECFE1D12FA70B36648FFAD5DC0897CE
+magnet:?xt=urn:btih:901627D8E91E1B93CBB38DDA741AEFF84804F26D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396629   (745433) от 16.07.2020
+###  Публикация: 1527491   (736943) от 28.01.2022
 
-Е.В. Семёнова (сост.) | Русский ответ на украинский вопрос (2019) [PDF, DJVU]
+VA - Cappuccino Lounge, Vol. 3 (Relaxed Coffee Tunes) (2017) [AAC|~343 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Разное (категория книг)
->>Публицистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нередко антирусская пропаганда пытается представить нынешнюю войну, идущую на Юго-Западе Украины, борьбой  с «проклятой советчиной». К такому проукраинскому лобби примкнули и отдельные деятели, пытающиеся позиционировать себя, как «белые», «русские националисты» и т.д. В данном сборнике, посвящённом скорбной годовщине — 5-летию начала войны в Новороссии, собраны материалы (   Читать дальше...   )Жанр: История. ПублицистикаФормат: PDF, DJVU
+01. Martin Liege - Morning Coffee (4:16)
+02. De La Cream - Holding Back The Years (4:22)
+03. Florito - Loungery (4:34)
+04. James Butler - Cloud No 9 (3:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87B6D5EC0247A3951A802B104A1742FEA7957241
+magnet:?xt=urn:btih:219FCC15FEEB78452209AC6F7BC89901CA5948DD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396700   (745434) от 16.07.2020
+###  Публикация: 1527384   (736944) от 28.01.2022
 
-Звуковые библиотеки - SoundMorph - Future Weapons [WAV]
+VA - Lounge Tales, Vol. 2 (2014) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745434.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из самых продвинутых библиотек звуковых эффектов оружия, когда-либо созданных. Черпая вдохновение из некоторых последних современных научно-фантастических фильмов, Future Weapons переносит высокотехнологичное вооружение на другие вселенные. Разделенное на две фракции «Альянс» и «Сопротивление», Future Weapons создает звуковые подписи как для добра, так и для (   Читать дальше...   )Формат: WAV
+01. Lazy Hammock - StarSoul (7:52)
+02. Jens Buchert - Aztec (4:47)
+03. Sugarman - Phonk Reprise (2:47)
+04. Domenic - Analog (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9761FC2FAAACB5FBD5F552A47EAF4A0E2A7A808
+magnet:?xt=urn:btih:BC5A1C21C4E737873B32F99576509979743F5AFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396636   (745435) от 16.07.2020
+###  Публикация: 1527396   (736945) от 28.01.2022
 
-VA - Шансон года: часть 1 - 2 (2003) [FLAC|Lossless|tracks + .cue]<Шансон>
+VA - Cappuccino Lounge, Vol. 2 (Relaxed Coffee Tunes) (2017) [AAC|~334 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745435.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. О. Митяев - Небесный калькулятор
-02. Воскресение - Листопад
-03. А. Маршал - Снежный вальс
-04. А. Розенбаум - Где-нибудь, как-нибудь(   Читать дальше...   )Жанр: ШансонПродолжительность: 02:14:27
+01. Urban Phunk Society - Spring 2 Summer (3:03)
+02. Artur Bayramgalin - Cafe Rendez-Vouz (5:02)
+03. Greg Walker - Rio Geo (Revisited) (3:30)
+04. Charly McLion, Susannah Mavis - Sunrise (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76B014BF5700216ADE26A5B308D57D4C4CB1A635
+magnet:?xt=urn:btih:5CE0E22A8040C521FC5376E6EFCAC48DEBD57DA5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396779   (745436) от 16.07.2020
+###  Публикация: 1527294   (736946) от 28.01.2022
 
-Eguana - Abyss (2020) Cosmicleaf Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
+VA - Mediterraneo 2 (2018) [AAC|~328 Kbps] <Chill Out, Downtempo, Organic House>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745436.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gravity (08:22)
- 02. Radiation Energy (07:43)
- 03. Twinkling Stars (06:06)
- 04. Lost Space Probe (06:24)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:42:52
+01. Nacho Sotomayor - Mykonos (4:15)
+02. Dj Brahms, Ankoku Project - Horasango (5:52)
+03. Ersin Ersavaş - Night (4:10)
+04. Christophe Goze - Ja Vidi (5:58)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 00:55:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AB9DA9F94F166B06DA39940FD26C31489517FFCC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396687   (745437) от 16.07.2020
+###  Публикация: 1527382   (736947) от 28.01.2022
 
-Прощай, сын мой / Di Jiu Tian Chang / So Long, My Son (2019) HDRip [MVO]
+VA - Lounge Tales, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EK - Sonho (6:00)
+02. Life Audience - Waves & Particles (7:22)
+03. Didascalis - 4 Chords (4:27)
+04. Taco-Town - Acerado (3:54)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBDE537A88FA417A8E3DB8EAD0C3E76D88DFC0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527386   (736948) от 28.01.2022
+
+VA - Lounge Tales, Vol. 3 (2015) [AAC|~337 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pnfa - Along the Way (6:01)
+02. Ganesha Love Duo - Kalkuttas Theme (4:22)
+03. Mindel - Seeds of Love (4:14)
+04. Martin Sponticcia - Super Connect (2:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF53E8238694A2E7405DEC313C37EBEB0D9CFA7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527391   (736949) от 28.01.2022
+
+VA - Lounge Tales, Vol. 4 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minus Blue - Ocean Sky (5:23)
+02. Chambre 41 - Promenade No.2 (6:18)
+03. Twentyeight - Faith (4:28)
+04. The Soulful Sun - Loose It (4:45)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2B9DAB627F4A21BF97818C24E2058FD8076E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011883   (736950) от 23.07.2020
+
+Коробка (2015) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Костя, Серж, Мел и Танцор — лучшие друзья. Они молоды и увлечены уличным футболом. Самый крутой из них Костя. Его девушка Настя считает, что он должен попробовать себя в профессиональной футбольной команде, но для Кости уличный футбол — это его жизнь, а футбольная коробка — второй дом, где играют только друзья, только свои. Однажды команда Кости сталкивается на коробке (   Читать дальше...   )Производство: Россия, Кинокомпания «Телесто»Жанр: Драма, Комедия, СпортРежиссер: Эдуард БордуковАктеры: Сергей Романович, Сергей Подольный, Кирилл Дегтярь, Георгий Соскин, Степан Тавризян, Сослан Засеев, Руслан Нигматулин, Ульви Вердиев, Стася Милославская, Евгения ДмитриеваПеревод: Не требуется (русский) iTunesПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B20F1440F7007CDAB7640A471290D8652D65021A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397674   (736951) от 23.07.2020
+
+Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.388.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF266F6C587F5E74BAFF3229FA932192380C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397983   (736952) от 23.07.2020
+
+Шаг вперед 6: Год танцев / Step Up China (2019) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые движения. Новый этап. Новый баттл. Стань частью танцевальной вселенной, шагни навстречу приключениям месте с главными героями, которые отправляются в Китай. Ведь Пекин – главная столица новых побед. Парни и девушки из разных стран объединятся в одну семью, чтобы завоевать звание лучшего танцора планеты!Производство: США, Китай, Lion's Gate FilmsЖанр: Мюзикл, мелодрамаРежиссер: Рон ЮаньАктеры: Хуан Цзинсин, Мэн Мэйци, Оводог, Джейд Чайновет, Чжоу Исюань, У Синь, Джанель Гинестра, Шон Лью, Джан Ю, Lil SwaggПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4D51D03E476C1EF8BB92256C4B2EED2E4F2C88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397696   (736953) от 23.07.2020
+
+Бесшумный / The Silencing (2020) WEBRip [MVO]
 
 >>Зарубежное кино
->>Азиатское кино (SD)
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745437.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Китай, начало 1990-х. Правительство с особой строгостью следит за выполнением правила «одна семья — один ребенок». Семья рабочих металлургического завода скрывает вторую беременность жены, но вскоре об этом узнают в профкоме, и глава комитета по рождаемости уговаривает женщину на аборт на третьем месяце. Операция проходит с осложнениями, не позволяющими героине больше (   Читать дальше...   )Производство: Китай, Dongchun FilmsЖанр: ДрамаРежиссер: Ван СяошуайАктеры: Ван Цзинчунь, Юн Мэй, Ай Лия, Ду Цзян, Чжаоянь Гочжан, Ли Цзинцзин, Ци Си, Рой Ван, Сюй ЧэнПеревод: Многоголосый любительский (STEPonee)Субтитры: Русские, английские, французские - отдельными файламиПродолжительность: 03:05:10
+Мужчина с тяжелым прошлым живёт в уединении в лесу, когда на местности начинают находить девушек, убитых необычным способом. Он объединяется с шерифом, пытается выследить маньяка и вскоре начинает подозревать, что тот несколько лет назад похитил его дочь.Производство: Канада, США / Anova Pictures, Madrona Drive, Silencing Canada Productions, Wildling PicturesЖанр: Боевик, триллер, криминалРежиссер: Робин ПронтАктеры: Николай Костер-Вальдау, Аннабелль Уоллис, Зан Маккларнон, Мелани Скрофано, Хиро Файнс-Тиффин, Джош Круддас, Даниэль Райан, Kayla Dumont, Даина Барбо, Шон СмитПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced), английские (Full)Продолжительность: 01:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D46D75B0EBCB6A63AD99FB57B28E2DA9AD89047B
+magnet:?xt=urn:btih:1D6466B82335157292483B964AB7A66AA7323368
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396638   (745438) от 16.07.2020
+###  Публикация: 1397910   (736954) от 23.07.2020
 
-Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Rock>
+Вильям Столлингс | Операционные системы. Внутренняя структура и принципы проектирования, 9-е издание (2020) [PDF]
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745438.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Immigrant Song
-02. Stairway To Heaven
-03. Black Dog
-04. Communication Breakdown(   Читать дальше...   )Жанр: Reggae, RockПродолжительность: 01:09:21
+Как бы ни развивалась вычислительная техника и какие бы изменения в принципах вычислений ни происходили — во всех ее применениях, от смартфона и скромного ноутбука до больших мейнфреймов, распределенных систем и Интернета вещей, — всегда есть нечто неизменное: наличие операционной системы. Многие пользователи даже не подозревают, что операционная система — это не (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C912FE830929D53C79CB9083ECD2E47717B89D8
+magnet:?xt=urn:btih:E1813314EE4D8CAE431491C73785EE7450A5B3FF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396590   (745439) от 16.07.2020
+###  Публикация: 1347977   (736955) от 23.07.2020
 
-Морской круиз. Обратно в Средиземноморье / The Cruise. Return to The Mediterranean (2018) HDTVRip [H.264/1080i] (серии 1-3)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каково это - путешествовать на одном из самых шикарных круизных лайнеров? А сколько усилий нужно приложить команде судна, чтобы 4000 пассажиров были всем довольны? Авторы сериала попытаются приоткрыть завесу тайны.Производство: EU, Wild pictures limitedЖанр: Документальный, путешествияРежиссер: С. Льюис, Р. МакдоналдПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 3 x ~00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0803EC517E0AC854050D0678ED01B66093C7792
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396719   (745440) от 16.07.2020
-
-Piano Fantasia - Best of Collector: Piano Fantasia (Le meilleur des annees 80) (2012) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Denise (3:12)
-02. Walkman (4:26)
-03. Playing (4:19)
-04. Sidewalk (5:02)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6627A7D3D712079DA2F73DC55007AD076172B329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396745   (745442) от 16.07.2020
-
-Opera GX 68.0.3618.197 + Portable [Multi/Ru]
+World War Z (2019) [Ru/Multi] (1.70/dlc) EGS-Rip =nemos= [Goty Edition]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745442.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_736955.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+World War Z — это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z — наследнице одноименного блокбастера от Paramount Pictures — вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: EGS-RipРазработчик: Saber InteractiveЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
@@ -625,52 +643,28 @@ Opera GX - это специальная версия браузера Opera, с
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396709   (745443) от 16.07.2020
+###  Публикация: 1397979   (736956) от 23.07.2020
 
-Грегори Ян | Паркуйся правильно, и еще 32 принципа яркой жизни (2020) [PDF]
+VA - Дискотека 2020 Dance Club Vol.202 от NNNB (2020) [MP3|320 Kbps] <Dance, House, Trance>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736956.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вся жизнь, если задуматься, это одна большая дорога. Здесь можно встретить надежных товарищей, которые помогут в трудную минуту. Также можно гоняться на безумных скоростях, выясняя, кто самый смелый и быстрый. А еще тут ломаются, подрезают и опережают. Как в этом хаосе не потеряться и не простоять отпущенные годы в «пробках»?
-
-Грегори Ян собрал под одной обложкой (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+Part 1 (Discoteka)
+01. Techno Project, Geny Tur - Love to See (4:00)
+02. Edward Maya & Violet Light - The Show Must Go On (3:43)
+03. DJ Goja - I Never Let You Go (3:01)(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 16:41:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4676A020C3CAB829636AF9AA6EB3205BAEA6DF83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396674   (745444) от 16.07.2020
-
-Athentech Perfectly Clear Complete 3.10.0.1804 RePack (& Portable) by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Athentech Perfectly Clear Complete может работать отдельно или как плагин для Photoshop и Lightroom. Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A44A08F7451F11F1CAEB25D72937E56EBC475CF
+magnet:?xt=urn:btih:D85EF43DA40C42042C145C4697F98C529FB228C0
 ```
 
 

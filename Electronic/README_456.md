@@ -1,3 +1,57 @@
+###  Публикация: 1373228   (882037) от 05.04.2020
+
+VA - Coffee Bar Lounge, Vol. 18 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну чем ещё заниматься в период самоизоляции? Конечно, слушая хорошую и спокойную музыку, успокаивать себя, что всё будет замечательно, все будут живы и здоровы. Вот и вы медитируйте и будьте здоровы!01. Chambre 2 - Le matin se reveille (Original Mix)  (4:38)
+02. Jens Buchert - Fluffy Sky (Original Mix)  (5:51)
+03. Ladder & Rachel Rubinger - Infinity (Original Mix)  (4:32)
+04. Counterweight - Magic Night (Original Mix)  (5:47)(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D94CFDFB37416E056E303E464AAA455342BE76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372954   (882061) от 05.04.2020
+
+VA - Psychedelic Selections Vol.004 (Compiled by Antinomy) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Antinomy - A New Dawn (7:46)
+2. Symbolic - The Future (Original mix) (8:17)
+3. Liquid Soul; Protonica; Ljuuba - Levitate (7:55)
+4. Modus - Disconnected (Original mix) (6:49)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB48FBE40FE4A34F05FA7578DABBD78CC7AD3813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373096   (882088) от 05.04.2020
 
 Complicated - Time and Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -639,60 +693,6 @@ VA - Lovely Mood Music presents: Airport Lounge Series (Chill Out & Lounge Tunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4610A0158D91479655660FF43977ABAABAD07C3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 734337   (884128) от 10.09.2021
-
-Ocoeur | Franck Zaragoza - Discography 13 Releases (2010-2021) Música Vermella, n5MD, Bonne Pioche [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pixys (02:26)
- 02. Majya (07:11)
- 03. Altair (04:00)
- 04. Polaris (07:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Ambient, Glitch •Продолжительность: 07:25:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF3B02D9C8A4F6E3EFFE1BAA3CCE42514CD40C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204956   (884132) от 10.09.2021
-
-Dan Abrams (Shuttle358, Fenton, Dabrams) - Discography 12 Releases (1999-2021) 12k [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Abstract, Minimal, Glitch>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rubai (08:32)
- 02. Failures (A Fire Of Pleasure) (04:57)
- 03. Forces And Beliefs (05:55)
- 04. Osos (05:28)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Experimental, Abstract, Minimal, Glitch •Продолжительность: 10:22:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1D15F5C87BC9B8EE976814BC8BFB2B553F31CD
 ```
 
 

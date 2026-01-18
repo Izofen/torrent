@@ -1,3 +1,301 @@
+###  Публикация: 1366493   (922018) от 12.03.2020
+
+Gealdýr (Gealdyr) - Valravn (2020) [MP3|320 Kbps] <Folk & Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Valravn [00:03:18]
+02 Deyr Fé [00:02:18]
+03 The Ritual [00:03:09]
+04 The Seeress [00:03:04](   Читать дальше...   )Жанр: Folk & Viking MetalПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AFB1288CA93D952895BCD268853F764EF6D8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366644   (922036) от 12.03.2020
+
+Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad News
+2. Every Time I Die
+3. Missteria
+4. 10.000 Faces(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E6724066E96A462DD910BF7966B1465ECFF114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095997   (922076) от 22.01.2017
+
+Макс Фадеев - 3 Albums + 1 Compilation + 1 Soundtrak + 3 Singles (1991-2016) [MP3|320 kbps] <Alternative, Rock, Meditative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Александрович Фадеев (род. 6 мая 1968, Курган, РСФСР, СССР) — российский музыкальный продюсер, композитор, режиссёр, автор-исполнитель, аранжировщик.
+В 2016 году удостоин премии "Лучший композитор десятилетия".1991 - Танцуй на битом стекле
+1992 - Танцуй на битом стекле (LP)
+1997 - Нега
+1997 - НожницыЖанр: Alternative, Rock, MeditativeПродолжительность: 00:03:33
+
+01 | Вдвоём | 03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39D0CFC764BCD305044F643714A3EAC7770A7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366502   (922244) от 12.03.2020
+
+Yngwie Malmsteen - War To End All Wars (2000) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophet Of Doom (5:31)
+02. Crucify (6:44)
+03. Bad Reputation (4:52)
+04. Catch 22 (4:12)(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B68DAF8B6D90AAFDE86889902033D2CED0194CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366505   (922318) от 12.03.2020
+
+Passenger - Passenger (2003) voice Anders Friden (In Flames) [FLAC|Lossless|image + .cue] <Nu-Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Reverse
+02. In My Head
+03. For You
+04. Just The Same(   Читать дальше...   )Жанр: Nu-Metal, Alternative MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71AD22E0563051DF56EE97E2BB397021910D7FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366459   (922363) от 12.03.2020
+
+State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD73E1C8C66FDBF207260CB58FB476EE0B3CA45D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987996   (922449) от 19.02.2016
+
+Inglorious - Inglorious (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until I Die
+02. Breakaway
+03. High Flying Gypsy
+04. Holy Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9605B3F210B6B17B4B566DD75ABEF85873DE3734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366504   (922451) от 12.03.2020
+
+Primal Fear - Devil's Ground (2004) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Is Forever (4:46)
+02. Suicide And Mania (4:04)
+03. Visions Of Fate (4:50)
+04. Sea Of Flames (4:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8705AF4C0589D0F0FDE8BA211CAD66CBE6B5B0A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366456   (922481) от 12.03.2020
+
+State Cows - 2 альбома (2010-2013) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - State Cows
+2013 - The Second OneЖанр: Westcoast, AORПродолжительность: 02:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2324BC3F1B715D830D0EB23010C02E29DF57B640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988295   (922507) от 19.02.2016
+
+ДДТ - Пластун (1995) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922507.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 	Дороги 	05:34
+2. 	Пластун 	05:46
+3. 	Предчувствие Гражданской Войны 	04:15
+4. 	Ветры 	07:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFFCA7657F5CCBC6610990C5FB4AADE952477D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489907   (922527) от 18.08.2021
+
+Prestige - Reveal The Ravage (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocent
+02. Burn My Eyes
+03. Blessed Be
+04. Pick Your Poison(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98192E494BF52D3FE039E2CDE6AA379EE58A52DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489833   (922534) от 18.08.2021
 
 Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -397,312 +695,6 @@ Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B067A35FAB4AD50C1684AE6392572441072ACBD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988073   (922895) от 19.02.2016
-
-Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Premonition
-02.	Conquest
-03.	Insurgency
-04.	Mystery In A Blazing Dream(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257D424E7DE9CB2A74FB31966EE8BBA5FF491D44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631341   (922934) от 18.03.2013
-
-Урфин Джюс - Легенды Русского рока (2002) [FLAC|lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человек наподобие ветра (03:37)
-02. Последний день воды (08:14)
-03. Мышь (03:04)
-04. Чего это стоило мне (03:10)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178845   (923067) от 26.02.2010
-
-The White Stripes (with side projects) - Discography (25 albums) (1999-2009) [MP3|320 kbps]<Garage Rock, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 Star Tabernacle - Lily White Mama and Jet Black Daddy (2:55)
-2. 2 Star Tabernacle - Ramblin' Man (4:29)
-3. Jack White - Christmas Time Will Soon Be Over (3:16)
-4. Jack White - Fly Farm Blues (3:18)
-5. Jack White - Great High Mountain (4:33)
-6. Jack White - Never Far Away (3:40)
-7. Jack White - Sittin' On Top of The World (3:48)
-8. Jack White - Wayfaring Stranger (4:25)
-9. J.White and A.Keys - Another Way To Die (Instrumental) (4:18)
-10. J.White and A.Keys - Another Way To Die (4:18)(   Читать дальше...   )Жанр: Garage Rock, Alternative Rock, Indie RockПродолжительность: 05:25:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631336   (923259) от 18.03.2013
-
-Александр Лаэртский - Grand Collection (2001) [FLAC|lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грудничёк (02:36)
-02. Сапоги Тамары (02:44)
-03. Таджикский поэт (03:05)
-04. Химфак МГУ (02:40)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863589   (923320) от 27.01.2015
-
-Злые Роботы - Ура товарищи, космос наш! (2015) [MP3|320 кб/с]<Modern Metal, Chiptune, Nintendocore, 8 Bit>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Играй! (02:40)
-02. Железная пыль (05:04)
-03. Фантомная боль (04:20)
-04. Стимтанк (04:50)(   Читать дальше...   )Жанр: Modern Metal, Chiptune, Nintendocore, 8 BitПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C7D7366EC0887ED9C8E8712EC4B298D25A35BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489675   (923555) от 17.08.2021
-
-Robin McAuley - Standing On The Edge (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Will Be Done
-02. Standing On The Edge
-03. Late December
-04. Do You Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73E06B9B052F1C1AFB71C263F5A5AF39700B9BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288084   (923577) от 28.01.2011
-
-David Byron - Man Of Yesterday - The Anthology (2005) 2CD [APE|Lossless]<Rock/Progressive Rock/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923577.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Byron — английский рок-музыкант, певец и автор песен, начинавший в Spice (1967—1969), но всемирную известность получивший как вокалист хард-рок-группы Uriah Heep (1969—1976), с которой записал 10 первых студийных альбомов. Умер в 1985 году от последствий тяжёлой формы алкоголизма.Жанр: Rock/Progressive Rock/Hard RockПродолжительность: 02:39:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288186   (923789) от 28.01.2011
-
-I Am Empire - Kings (2011) [MP3|320 kbps]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brain Damage
-02. Heart Attack
-03. Saints & Sinners
-04. Hammers & Anvils
-05. Love & Despair
-06. To The Moon
-07. The Elevator
-08. Dig You Out
-09. Take Me Away
-10. You're A Fake(   Читать дальше...)Жанр: Alternative RockПродолжительность: 00:39:03"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD2221B9BC8F41BAD540C903B93E5375AE59B142
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331345   (923892) от 17.08.2021
-
-Acid Test - Drop 1993  [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock, Industrial, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksand 0:40
-02. Drop 3:37
-03. Blown 4:15
-04. I've Been 3:58(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Industrial, AmbientПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DC84E5DA8052C54C6EC6097E81390FF87916ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489742   (923899) от 17.08.2021
-
-VA - Предатели ваших идей (2021) Трибьют Бригадный Подряд [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ШИШЪ - Гитары
-2. Dёргать! - Детская
-3. Действуй! - Питер рок-н-ролл
-4. Начало! - Марш неудачников(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB012BC34FCC8BE003248330F320E5855FEEEF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489672   (923982) от 17.08.2021
-
-Seventh Crystal - Delirium (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say What You Need To Say
-02. When We Were Young
-03. Broken Mirror
-04. Delirium(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275757DF4891F1E8DED31E77B515ACADBF338460
 ```
 
 

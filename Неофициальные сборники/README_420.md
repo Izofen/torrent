@@ -1,3 +1,30 @@
+###  Публикация: 1030254   (673680) от 30.06.2016
+
+W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X.T.C. Riders
+02. Miss You
+03. Skin Walker
+04. Shotgun(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF5EBFDBEA66F32DFBE97D4E3EFFF12511CA936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290751   (673725) от 22.03.2019
 
 Heiko And Maiko - Techno Rock (2018) Radio Remix [MP3|320 Kbps] <Club, Dance>
@@ -664,33 +691,6 @@ VA - Русская Дискотека ХХ Века - 8 (2010) [MP3|320 Kbps]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D58D44AA789824950714FEE31AFD05AFFA5E5F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030206   (674712) от 30.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 34 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azucar Moreno - Bandido ( Spain ) ( Eurovision 1990 )
-02. Kim Wilde - Action City ( 1982 )
-03. Fancy - I Can't Live Without You ( Lonely Nights ) ( 1988 )
-04. Divine - Shoot Your Shot ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA3C76C037872AD2F02F2EC68F4E49980C6B143
 ```
 
 

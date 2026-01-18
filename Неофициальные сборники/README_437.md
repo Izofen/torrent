@@ -1,3 +1,30 @@
+###  Публикация: 1402899   (697328) от 16.08.2020
+
+VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umami - And Stay With Me There Forever (2019) (4:02)
+02. Corazza & Steve Paradise - Pachamama (FNX Omar remix, 2018) (5:15)
+03. Damian Lazarus & The Ancient Moons - Vermillion (&Me remix, 2015) (7:12)
+04. Mike Salta - Escape From Rico Bay (Drop Out Orchestra club cut, 2012) (5:35)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C926E7DA21667718DA3694D5DFC92772874E7B95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402937   (697438) от 16.08.2020
 
 VA - Зайцев.нет Лучшие новинки Августа (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Fleeting Moment: Dream Blues Compilation (2017) [MP3|320 Kbps] <Rock Blues,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A285FBBBCAA9E6F22E8D39D5241C107102D6BA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132652   (698692) от 10.05.2017
-
-VA - Вальяжный Май: Сборник Шансона (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698692.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Кравцов - Свой Путь 3:36
-002. Вадим Петров - Три Дороги 3:35
-003. Дмитрий Романов - Журавли 3:53
-004. Смирнов & Компания - Девчонка Русская 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2572B5BE0E938637BE4C9A219B9FF9A7D4F3F442
 ```
 
 

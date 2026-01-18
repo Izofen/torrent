@@ -1,3 +1,301 @@
+###  Публикация: 1493522   (895708) от 03.09.2021
+
+Alessandro Corvaglia - Out Of The Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный сольный альбом известного итальянского вокалиста,участника таких коллективов,как Delirium, La Maschera di Cera, Hostsonaten.01. Promised Land
+02. The Night of the Eyes
+03. Preaching on Line
+04. ...and the Lady Came in(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8477AEDD31776764ADD56D4EC3D7690FE7CA967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183570   (895742) от 16.03.2010
+
+Foreigner - 6 альбомов (1977-1987) Remaster /2007, Atlantic/ [APE|Lossless]<Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1977 - Foreigner
+1978 - Double Vision
+1979 Head Games(   Читать дальше...   )Жанр: Hard rockПродолжительность: 06:09:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993350   (895779) от 05.03.2016
+
+Diamond Head - Diamond Head (2016) [MP3|320 кб/с] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bones
+02. Shout at the Devil
+03. Set My Soul on Fire
+04. See You Rise(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0585B3DC8E06E1CB3A27CDE8B47A5EC62D007F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993540   (895950) от 05.03.2016
+
+Burning Black - MechanicHell (2009) [MP3|320 кб/с] <Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckoning Day (Instrumental)  00:35
+02. Our Sentence  04:48
+03. MechanicHell  03:41
+04. Purgatory Child  04:52(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0651880438A603F37A23FA454B51A8184F3B49E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993504   (895983) от 05.03.2016
+
+Breaking Fate Down - Over The Seasons (2016) [MP3|320 кб/с]<Progressive Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895983.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:43] 01. The Beast
+[04:11] 02. Over The Seasons
+[02:48] 03. My Collapse
+[03:30] 04. Appearance(   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD01FD9AB3191F2989D419E82EB217B79C8E5837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101475   (896169) от 06.02.2017
+
+September Mourning - 2 Albums + 1 EP (2012-2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896169.jpg" />
+</div>
+
+
+###  Подробнее
+
+September Mourning - проект, созданный Эмили Лазар в 2007 и основанный на истории девушки September - потрошительницы, забирающей души живых. Она может входить как в мир живых, так и в мир мёртвых, а также влиять на судьбы людей, игнорируя смерть.
+Известность к September Mourning пришла после выступлений вместе с такими группами как The Birthday Massacre, I Am Ghost, (   Читать дальше...   )Жанр: Gothic Metal, Alternative Metal, Female VocalПродолжительность: 00:42:53
+
+01 | The Collection | 01:10
+02 | Angels To Dust | 04:14(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9279CEC927679AC53FCD68DFE5AB06F534E7EE8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637813   (896188) от 02.04.2013
+
+Mark Knopfler - Privateering (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redbud Tree [03:19]
+ 02. Haul Away [04:01]
+ 03. Dont Forget Your Hat [05:15]
+ 04. Privateering [06:19](   Читать дальше...   )Жанр: Rock, Blues-RockПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EFE2E625F5AAB27EEC6FC9E1B9686FF9FBE0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101240   (896272) от 06.02.2017
+
+Night Ranger - 35 Years And A Night In Chicago (2016) Live [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Touch Of Madness
+03. Sing Me Away
+04. Four In The Morning(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E783BC195A9EF6BFDD234EFC3BCF3FC1AA54EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101237   (896288) от 06.02.2017
+
+Night Ranger - High Road (2014) Japanese Deluxe Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896288.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. High Road - 3:56
+2. Knock Knock Never Stop - 3:41
+3. Rollin’ On - 4:46
+4. Don’t Live Here Anymore - 5:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02CFC5D15D03BBC35F668F555F56D5B5D90818E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101281   (896312) от 06.02.2017
+
+Ocean Grove - The Rhapsody Tapes (2017) [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Love About A Natural Woman (01:21)
+02. Beers (02:51)
+03. Thunderdome (feat. Running Touch) (03:44)
+04. Intimate Alien (03:33)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF53E666AAB884EC13DD96F7C5314D51832EC42A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761511   (896372) от 28.02.2014
+
+Axxis - Kingdom of the Night II (2014) 2 CD [MP3|320 кб/с]<Melodic Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingdom of the Night II
+02. Venom
+03. Beyond the Sky
+04. The War(   Читать дальше...   )Жанр: Melodic Heavy / Power Metal |Продолжительность: 01:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D2B137C5499B38F022B7CAF0DFA5FE37EA9AC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101019   (896394) от 06.02.2017
 
 Bridgeville - Aftershock (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -398,301 +696,6 @@ Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E4A0BBBA3D31BB075F004F1FE90D2CAEC58B7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493098   (896973) от 02.09.2021
-
-Константин Кинчев (АлисА) - Белый шум (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Век воли не видать [00:04:11]
-02. Черней чем блюз [00:03:51]
-03. Оксюморон [00:04:17]
-04. Бит [00:04:37](   Читать дальше...   )Жанр: RockПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9F922B242DBB2612D8D88047DA31E9EC725B97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370380   (897029) от 27.03.2020
-
-The Black Dahlia Murder - Verminous (2020) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verminous [00:03:49]
-02. Godlessly [00:03:28]
-03. Removal of the Oaken Stake [00:04:25]
-04. Child of Night [00:03:37](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED3328CB3CE0A63B02149BC4C87030C6779E2E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370277   (897036) от 27.03.2020
-
-Brian Fallon - Local Honey (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Ready (04:32)
-02. 21 Days (03:32)
-03. Vincent (04:18)
-04. I Don't Mind (If I'm with You) (03:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A36D7656CBF12C0765B231CE10B05787FDC8681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370455   (897045) от 27.03.2020
-
-Welicoruss - The Best of Welicoruss / Siberian Heathen Horde (2016-2020) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spellcaster [00:06:12]
-02. Siberian Heathen Horde [00:05:20]
-03. Path of Seductions [00:05:01]
-04. Frostbounded [00:05:08](   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 2 CD, 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6943DBFAD2D8C3D046313C8FB1838F8FB0B46A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370437   (897058) от 27.03.2020
-
-Shaark - Again With Hatred (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.H.T.T 01:01
-02. Face It 04:10
-03. Fire 03:25
-04. The River 04:41(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E233DD26ED66AAB03902466E49A975B3BDEE1CFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370534   (897063) от 27.03.2020
-
-Svengali - Sayonara (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alcatraz (04:34)
-02. Breakaway (03:55)
-03. This Is Kombat (03:33)
-04. Better Off (03:27)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE8E7F7AF7230ABE9E66AABA554205172F21727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493331   (897102) от 02.09.2021
-
-Iron Maiden - Senjutsu (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Senjutsu (8:20) (Smith/Harris)
-02 Stratego (4:59) (Gers/Harris)
-03 The Writing On The Wall (6:13) (Smith/Dickinson)
-04 Lost In A Lost World (9:31) (Harris)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9095C880B9B8422D6469FE6AC471C158766DD3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101058   (897172) от 05.02.2017
-
-Nightwish - Vehicle of Spirit (Live) (2016) 3CD [MP3|320 kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vehicle of Spirit - релиз от финской симфо - метал группы Nightwish . Два шоу были записаны во время Endless Forms Most Beautiful World Tour. Oдин на Tampere Stadium (31 июля 2015 года) , а другой на Уэмбли (19 декабря 2015). Кроме того , различные песни были записаны по всему миру. Он был выпущен 16 декабря 2016 года в Европе и 7 января 2017 года в Северной Америке.01 | Shudder Before The Beautiful | 06:58
-02 | Yours Is An Empty Hope | 05:47
-03 | Ever Dream | 05:10
-04 | Storytime | 05:41(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 05:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42048AAB513CEBAB8FCCCA302DFA986E14D28224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493217   (897189) от 02.09.2021
-
-Iron Maiden - Senjutsu (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senjutsu
-02. Stratego
-03. The Writing On The Wall
-04. Lost In A Lost World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB4EE9FF6FC04796CFC84EB4411C56CF8B9DC43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993174   (897242) от 04.03.2016
-
-Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Winds Are Blowing (2:41)
-02. Raining In My Champagne (3:17)
-03. It's All Right By Me (3:22)
-04. She Did It To Me (3:15)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6CB10485C8020F64B7C60BA72D32DB0652BD9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993255   (897276) от 04.03.2016
-
-Animal ДжаZ - Не Твоя Смерть (2016) Single [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песня «Не твоя смерть» станет первой ласточкой из готовящегося девятого электрического альбома группы. «Наш звукорежиссер боится летать. Однажды мы сидели на соседних креслах, и я ему сказал: «Не переживай, Юрец, пока ты со мной — все будет ок. Это не моя смерть». Не знаю, почему я так сказал. Будем считать это неким откровением свыше», — рассказывает фронтмен коллектива (   Читать дальше...   )01. Волшебный Корабль
-02. Не Твоя СмертьЖанр: RockПродолжительность: 00:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805DF8B3402838C34C4C222090FD7A2AAA0978CD
 ```
 
 

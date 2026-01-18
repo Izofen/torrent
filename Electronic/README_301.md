@@ -1,3 +1,57 @@
+###  Публикация: 1300568   (593125) от 06.05.2019
+
+VA - A State Of Trance 2019 (Mixed by Armin van Buuren) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren vs. Shapov - La Resistance De L'Amour (Original Mix)
+02. Maor Levi & OTIOT - Aria (Original Mix)
+03. Genix x Jaytech & jUdAh feat. Fatum - All In (Original Mix)
+04. Armin Van Buuren x Lucas & Steve feat. Josh Cumbee - Don't Give Up On Me Feat. Josh Cumbee (Trance Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33D459F47D4CA2F456D9522609AB3D5AA9034F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233132   (593295) от 29.06.2018
+
+Pendulum - The Reworks (2018) [MP3|320 Kbps] <Drum'n'Bass / Electronic Rock>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Your Colour (Noisia Remix)
+02. Blood Sugar (Knife Party Remix)
+03. 9,000 Miles (Eelke Kleijn Remix)
+04. The Island, Pt. I (Dawn)Жанр: Drum'n'Bass / Electronic RockПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A5D29BAAF5F5333B35E26280D04D3C5DA11301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233294   (593413) от 29.06.2018
 
 VA - Chillout Cup - Moment In Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -641,60 +695,6 @@ VA - Perfect Day Chillout Music (2016) [MP3|320 Kbps] <Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C60C3D470D90009B73693B91BFE864673B93025A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548936   (594865) от 05.05.2022
-
-Isidor - Portals & Dimensions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jinx [00:04:19]
-02 - The Ghost of Sioux [00:04:09]
-03 - Tune Into Space Radio [00:03:50]
-04 - Club at The End of The Universe [00:03:32](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6BFAA2FB63F8FF61EABB59BD7336D38474013B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549067   (594868) от 05.05.2022
-
-VA - 12.04, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zodiac - New Zodiac (4:09)
-02. Oleg Gurtovoy and VEGA - Supernova (4:20)
-03. Human Factor - Upstream (7:08)
-04. WooDMooD - Hub 591 (3:53)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A5A47D016395BDF9E0DA4EB459EC497C5C694B
 ```
 
 

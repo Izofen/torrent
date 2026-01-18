@@ -1,3 +1,57 @@
+###  Публикация: 1238264   (547137) от 29.07.2018
+
+Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Column Of Grey
+02.The Way Of All Flesh
+03.Within The Silence
+04.Esoteric Traditions(   Читать дальше...   )Жанр: Thrash-Death MetalПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4881660C10212DF3DABF1A3EA12AED5ECF8E4FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238239   (547139) от 29.07.2018
+
+Seance - Fornever Laid To Rest (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Who Will Not Be Dead
+02.Reincarnage
+03.The Blessing Of Death
+04.Sin(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FF691E632FD3C9F26A573C50EFB872774F7327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048347   (547268) от 01.09.2016
 
 Бранимир - Жить на глубине (2016) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047905   (548336) от 31.08.2016
-
-The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue / Fire (4:30)
-02. Manic Depression (6:18)
-03. Sunshine Of Your Love (6:39)
-04. Spanish Castle Magic (5:50)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839741881C68E128E5C86D23E0E1419F723390E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047991   (548346) от 31.08.2016
-
-Beyond the Fade - Welcome to the Pain (2016) [MP3|320 Kbps] <Alternative Rock, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Alive
-02. Follow You
-03. 12 Steps
-04. Smile(   Читать дальше...   )Жанр: Alternative Rock, Post-Grunge, Hard RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F989B62480417663F09CA75DB8E70583F644C9
 ```
 
 

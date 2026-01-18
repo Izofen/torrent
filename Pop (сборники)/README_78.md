@@ -1,3 +1,36 @@
+###  Публикация: 515644   (655425) от 26.06.2012
+
+VA - Жаркие Хиты Лета 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655425.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Justin Bieber - Live My Life
+002. Нюша - Воспоминание
+003. Tanzamomo - Rum & Coca
+004. Инфинити - А Он Такой
+005. Loreen - Euphoria
+006. Дилайс - Нежно-Нежно
+007. Oceana - Endless Summer (Single Mix)
+008. Чи-Ли - Океан
+009. Jennifer Lopez feat. Flo Rida - Goin' In
+010. Ksela feat. DJ Alix - Наше Лето(   Читать дальше...   )Жанр: PopПродолжительность: 11:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A6F6820EAB959B3B995F2C420E2027DF321CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515412   (655433) от 26.06.2012
 
 VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (2012) [MP3|256 kbps]<Pop>
@@ -698,33 +731,6 @@ VA - German Top 50 Official Dance Charts 11.05.2018 (2018) [MP3|320 Kbps] <Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:922C0695006AAF1E97B80A39B57FFA96FAAC7F9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138667   (663035) от 30.05.2017
-
-VA - Hit Music от Мяу - Лето (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luis Fonsi & Daddy Yankee - Despacito 3:48
-02.  Quest Pistols Show - Любимка 3:15
-03.  Charlie Puth - Attention 3:32
-04.  Katy Perry & Migos - Bon Appetit 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E220195D1F1A71ECEF86F234BA5B77182701BC8A
 ```
 
 

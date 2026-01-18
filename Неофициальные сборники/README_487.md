@@ -1,3 +1,30 @@
+###  Публикация: 1279840   (764530) от 31.01.2019
+
+VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764530.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zikim - Kоut Djеl
+002. Aldubb - Dub13
+003. Mаikеl Dеlасаllе - Rерlау
+004. Nуnо Vаrgаs - Diсеn Dе Mi(   Читать дальше...   )Жанр: Reggae, Dub, SKAПродолжительность: 08:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AA8692AD31B15922C6C7C3D27B1C756F67CCF50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279715   (764534) от 31.01.2019
 
 VA - Hands Up Dance Music (2019) [MP3|320 Kbps] <Dance, Club, Electro House>
@@ -665,33 +692,6 @@ VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126565   (765371) от 18.04.2017
-
-VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13Tries - Burned Down 4:22
-002. Al Atkins - Heavy Thoughts 6:12
-003. Almah - Capital Punishment 4:01
-004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
 ```
 
 

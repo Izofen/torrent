@@ -1,3 +1,30 @@
+###  Публикация: 1554691   (568748) от 04.06.2022
+
+Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer In Your Heart (radio version)
+02 Summer In Your Heart (rock house - radio mix)
+03 Summer In Your Heart (oceanal blue house mix)
+04 Do You Believe In LoveЖанр: Enigmatic, New AgeПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BCC62B104EC74FFB3CD8D860FE6055B63CEA14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529103   (568809) от 30.07.2012
 
 101 Strings Orchestra - Audiophile Movie & Love Classic (2CD) (2011) [MP3|320 кб/с]<Instrumental>
@@ -701,33 +728,6 @@ Andrew Lockington - Землетрясение в Сан - Андреас / Ра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921611   (573592) от 26.07.2015
-
-Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573592.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parameshwara Mantra (Deep in Love) - 14:03
-2. Sarveshaam Mantra - 6:37
-3. Ganapati Mantra (Strong My Roots) - 7:20
-4. Karuna - 4:38(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1280778   (758512) от 04.02.2019
+
+Kauan - 8 Albums (2007-2017) [FLAC|Lossless|image + .cue] <Atmospheric Post Rock, Folk Rock, Doom Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kauan - музыкальный проект из Челябинска. Проект KAUAN основался в феврале 2005 года и за всю его историю пережил много перемен, как в стилях, так и в самом названии. Само слово «kauan» с финского переводится как «даль» или «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали фолк-дум-метал. Проект концентрирует внимание на передаче (   Читать дальше...   )Список альбомов:
+2007 - Lumikuuro
+2008 - Tietäjän Laulu
+2009 - Aava Tuulen Maa(   Читать дальше...   )Жанр: Atmospheric Post Rock, Folk Rock, Doom Metal, AmbientПродолжительность: 06:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522254   (758651) от 07.01.2022
+
+Дай Дарогу! - Бусел (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бусел [2:47]
+2. Боли нет (Велоакустика)Жанр: RockПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8E2492FCB5454D4D7CDD028A7920106FE4907E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280513   (760206) от 03.02.2019
 
 Константин Никольский - Энциклопедия российского рока (2003) [FLAC|Lossless|image + .cue] <Rock>
@@ -642,60 +694,6 @@ magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20581F30E89E02B5EF219909647EEC3F224BAB0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391203   (781413) от 19.06.2020
-
-СЛОТ - Ин да хаос. Re-play (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 войны (2020 Re-play)
-2. Хаос (2020 Re-play)
-3. Кукла вуду (2020 Re-play)
-4. Если (2020 Re-Play)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206390   (782124) от 14.02.2018
-
-Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрный флаг (3:08)
- 02. Великий Джордано (6:05)
- 03. Russian Rock Brothers (4:59)
- 04. Один в поле воин (2:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
 ```
 
 

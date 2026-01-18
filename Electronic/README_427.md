@@ -1,3 +1,57 @@
+###  Публикация: 942641   (807722) от 17.05.2020
+
+Riz Maslen (Neotropic, Small Fish with Spine) - Discography 20 Releases (1996-2019) [FLAC|Lossless]<Leftfield, IDM, Breaks, Downtempo, Ambient, Acoustic, Folk, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Make Very Good Sushi (01:40)
+ 02. Fung Koo (04:37)
+ 03. Opium Den (feat. Paul Jason Fredericks) (05:22)
+ 04. Foul Play (04:49)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Abstract/Downtempo/Experimental/AmbientПродолжительность: 14:05:29 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42C85505E379EB4DB9ECE88FF35436B5348C657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009734   (807969) от 22.04.2016
+
+Triplex - Катапульта (2003) [FLAC|Lossless|tracks + .cue] <House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triplex - Катапульта (Ivanov Club Mix) (6:00)
+02. Miguel - Бумеранг (Original Mix) (6:39)
+03. Motor - Written To John (Remix) (4:52)
+04. Triplex - Погружение (Ivanov Club Mix) (5:41)(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34209664F5546223530F09C777703C5E132EA75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009671   (807984) от 22.04.2016
 
 Roger Shah - Music For Meditation, Yoga & Other Wellbeing Moments (2016) [MP3|320 кб/с] <Ambient, Chillout>
@@ -636,60 +690,6 @@ Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A145F54F1A059761D42C95EE0A16899387603C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383710   (810102) от 16.05.2020
-
-Dimitri Vegas and Like Mike - Garden Of Madness (2020) EP [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas & Like Mike - Garden of Madness 2020 Megamix
-02. Dimitri Vegas & Like Mike - Ocarina (Bassjackers Remix)
-03. Dimitri Vegas & Like Mike - Beast (All As One)
-04. Timmy Trumpet & MATTN & Wolfpack ft. X-TOF - Carnival (Dimitri Vegas & Like Mike Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D376361BBDCA90321ABB79FB6501C27784BA0825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198090   (810127) от 10.01.2018
-
-VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  Big Dada (Extended Mix)  5:28
-02.  Clubhunter  -  Pump It! (Turbotronic Extended Mix)  3:56
-03.  Turbotronic  -  Bba Ra Bam (Extended Mix)  4:26
-04.  Turbotronic  -  Do It (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D9704510B7213FD389ABFE65CFEE120EBB6960
 ```
 
 

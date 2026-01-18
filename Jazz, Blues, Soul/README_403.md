@@ -1,3 +1,246 @@
+###  Публикация: 903860   (656887) от 01.06.2015
+
+Duke Ellington - Duke Ellington At The Bal Masque (1958) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656887.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alice Blue Gown
+2. Who's Afraid Of The Big Bad Wolf
+3. Got A Date With An Angel
+4. Poor Butterfly(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2015138D921330E304DCE46ABE9C4944F68519
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903768   (656892) от 01.06.2015
+
+Jessy Martens & Band - Touch My Blues Away (2015) Live [MP3|320 кб/с]<Contemporary Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Not The One I Need (05:18)
+02. One Minute Love (04:31)
+03. Hey Mister (04:59)
+04. I Don't Need No Doctor (07:20)(   Читать дальше...   )Жанр: Contemporary Blues, Blues RockПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC994B178B23374DD8808B9B307DF6DEDB31534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903917   (656983) от 01.06.2015
+
+Blackburn - Brothers In This World (2015) [MP3|320 кб/с]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Train (04:27)
+02. Good Woman (03:44)
+03. Holla Back (02:42)
+04. Walking In New, New Orleans (03:48)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2FADBDA9C05C46B73440F6F5917D52DCB62704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140143   (657003) от 05.06.2017
+
+Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque [04:25]
+02. Chilhood Memory [04:10]
+03. Reverso [02:54]
+04. Twisted Nerve [02:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF3A60C752C13BCA97D18561D4892ED6DF9E5C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140279   (657004) от 05.06.2017
+
+Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Modern Creative, Chamber Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown World [04:41]
+02. Valentine's Day [05:15]
+03. Occasion [03:02]
+04. Spot [05:59](   Читать дальше...   )Жанр: Modern Creative, Chamber JazzПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D6A2A9A898BD717B763C05761AB20CB77CE119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140268   (657005) от 05.06.2017
+
+Tubby Hayes & Paul Gonsalves - Change of Setting (1965) 2016, Harkit Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change of Setting [04:23]
+02. Royal Flush [03:40]
+03. Child's Fancy [04:19]
+04. Min and Madge Blues [04:16](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45032D75AA64CA3C91FD41AB17D358FF81F9D273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140263   (657006) от 05.06.2017
+
+The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Dipper [06:18]
+02. Cheers [02:50]
+03. Basically Blues [05:08]
+04. Bud's Blues [05:30](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991182A9F2B533BF347747180FA786A31806692C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539486   (657060) от 26.03.2022
+
+Gary Moore - Bad For You Baby (2008) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad For You Baby
+02. Down The Line
+03. Umbrella Man
+04. Holding On(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA56CC6930160AEAB646143A9AC70703ADA8A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226103   (657076) от 19.05.2018
+
+Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Baron [05:55]
+02. False Faces [06:20]
+03. Love Gets Better [05:09]
+04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226034   (657080) от 19.05.2018
 
 Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -451,255 +694,6 @@ The Kentucky Headhunters & Johnnie Johnson - Meet Me in Bluesland (2015) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5874BB81D1D46C8B2CBBBF175BEFB3BC41EE5C8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139998   (658220) от 04.06.2017
-
-Sandi Thom - Merchants And Thieves (2010) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie McCall  (03:47) 
-02. Runaway Train  (04:25) 
-03. Gold Dust  (03:48) 
-04. Let It Stay  (04:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130DCA0343E0BC94D885A99C25870E90019AF7FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140006   (658225) от 04.06.2017
-
-The Robbie McIntosh Band - Emotional Bends (2000) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarecrow  (04:45) 
-02. Joe And Me  (03:47) 
-03. Hang Me On The Line  (06:12) 
-04. Emotional Bends  (03:54) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDA9359D8CCB704E418E9A70F998FFEA9B9B666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225838   (658831) от 17.05.2018
-
-Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inside Parts [11:14]
-02. Stella by Starlight [09:37]
-03. T.I. [08:51]
-04. Sleep, My Love [07:49]Жанр: Jazz Fusion, Post-BopПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767D68201EE3E5A5FFD6C0301279774E50B2D035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539110   (658943) от 24.03.2022
-
-Wille and the Bandits - When the World Stood Still (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught in the Middle (3:57)
-02. I'm Alive (6:22)
-03. Without You (8:33)
-04. Good Stuff (4:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FE1B35332128C23253976CC92356C059372C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903197   (658961) от 30.05.2015
-
-Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don`t Want To Cry Any More [03:59]
-02. Prelude To a Kiss [05:38]
-03. (I Don`t Stand a) Ghost of a Chance (with You) [04:31]
-04. When Your Lover Has Gone [05:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8290B74DAEE927205DDFB1DEEC32ED2C17C5DAA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903215   (658967) от 30.05.2015
-
-Jessy J - My One And Only One (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mas
-02. My One And Only One
-03. Lovesong
-04. The Tango Boy(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77599DE3DB48342D99D21CBA68D41F6A342DE84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514041   (659125) от 23.06.2012
-
-Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think Before You Think
-02. Faces
-03. Dewey Said
-04. When You're Smiling
-05. Goodbye
-06. Processional
-07. I'm Gettin' Sentimental Over You
-08. Rain
-09. Deed-Lee-Yah
-10. Little Niles1998Жанр: Post-BopПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903186   (659217) от 30.05.2015
-
-John Petters Swing Band - Sing Sing Sing (2013) [MP3|320 кб/с]<Jazz, Retro Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sing Sing Sing (03:53)
-02. Special Delivery Stomp (03:21)
-03. Blues At The Honky Tonk (04:43)
-04. Seven Come Eleven (05:26)(   Читать дальше...   )Жанр: Jazz, Retro Swing, Big BandПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8CD1DEC99AE33A54288551C73F60C06B654B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903310   (659222) от 30.05.2015
-
-David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A La Verticale
-02. Ordinary People
-03. Drift
-04. Cant Get Next To You (feat. Larry Braggs)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72753864F3D2645321FEF2D71E8CFCAEF1F0A27
 ```
 
 

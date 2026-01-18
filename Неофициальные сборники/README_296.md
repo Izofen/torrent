@@ -1,3 +1,30 @@
+###  Публикация: 936100   (497658) от 10.09.2015
+
+VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497658.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A.SWIFT - Weekend Day (Bee Hunter Remix)
+002. Catrina Davies, Danny Jr Crash - Dick (Extended Mix)
+003. Coraz Feat. Chris Lago - With My Love Again (Dan Chase Remix)
+004. Christopher Hermann - Dilemma(   Читать дальше...   )Жанр: Progressive, Club HouseПродолжительность: 10:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318031   (497758) от 04.08.2019
 
 VA - Record Super Chart 598 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -710,39 +737,6 @@ Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADCC269F4E18F8FE634688D19FDA09CCE1F1DBA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542578   (499284) от 02.09.2012
-
-VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New Age, Meditative, Ambient, Classical, Folklore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ForeverLive - Тучное небо
-02. Fiona Joy Hawkins - Contemplating
-03. Yiruma  - I'm Just A...
-04. Pure Meditation - Sandstream
-05. Polarkreis 18 - Untitled picture
-06. Thierry David - Forgive Me
-07. Роман Коляда - Trinity
-08. ForeverLive - Дорога вверх
-09. Ніна Матвієнко - Чарівна скрипка
-10. Fiona Joy Hawkins - Cobalt Interlude(   Читать дальше...   )Жанр: Piano, New Age, Meditative, Ambient, Classical, FolkloreПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F5257872A7CDE20959CC3DFFEB700991A0682D
 ```
 
 

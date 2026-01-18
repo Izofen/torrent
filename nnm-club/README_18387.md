@@ -1,683 +1,658 @@
-###  Публикация: 1528061   (735410) от 31.01.2022
+###  Публикация: 1022785   (727230) от 03.06.2016
 
-EdgeView 3 v3.2.5 [En]
+Dark Funeral - Where Shadows Forever Reign (2016) [MP3|320 кб/с] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727230.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unchain My Soul
+2. As One We Shall Conquer
+3. Beast Above Man
+4. As I Ascend(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5893A86D40F1110A2B4679A2F16AB051B4807B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022738   (727231) от 03.06.2016
+
+ScreenFlow 6.0 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735410.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+ScreenFlow  - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+
+Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2016Разработчик: Telestream, Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF71CB82333136FEDE685B200F9D76623562FC81
+magnet:?xt=urn:btih:A3633BAD22343957E4851973E477A0F21A48F7FD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528177   (735411) от 31.01.2022
+###  Публикация: 1022896   (727232) от 03.06.2016
 
-The Man Behind C. - Chillout Sessions, Vol. 2 (Sounds Del Mar) (2009) [AAC|~351 Kbps] <Lounge, Chill Out, Downtempo>
+Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 кб/с] <Instrumental, New Age, Easy Listening>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back on the Streets (Smooth Jazz Mix) (6:02)
-02. The Man Behind C., Debora Vilchez - Fluye (Del Mar Mix) (6:10)
-03. Back in Time (Bossa Chill Mix) (6:28)
-04. Pretty Stranger (On the Road Mix) (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:16
+01. One Man's Dream (Live) (2:47)
+02. For All Seasons (Live) (6:01)
+03. Yanni: Welcome (Live) (3:45)
+04. Felitsa (Live) (4:51)(   Читать дальше...   )Жанр: Instrumental, New Age, Easy ListeningПродолжительность: 00:58:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1068AE228E69CCD178AC11B3F02FACBCF2B92F69
+magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528048   (735412) от 31.01.2022
+###  Публикация: 1022829   (727233) от 03.06.2016
 
-VA - Chillaxing Time, Vol. 09 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Blood Whispers - Opening Titles - 3248797 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735412.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tapelapse - Forgotten Memories (2:39)
-02. Weathertunes - Natural High (Original Mix) (4:12)
-03. Yantra Mantra - Body and Mind (Original Mix) (4:27)
-04. Marc Hartman - Wait for Me (Original Mix) (5:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:21
+Blood Whispers - Opening Titles - вдохновленный многими фильмами, телевизионными шоу, автор сделал эту кинематографическую анимацию в жанре триллера-ужаса. Кто то найдет этот проект полезным для фильмов, а кто то для игровых роликов.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C44B0E8C392E2501E13EB37B245E21A6D5FFBCE
+magnet:?xt=urn:btih:EF0CD3ED8340678B4EDEC6A5205CA38C9924F99B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528045   (735413) от 31.01.2022
+###  Публикация: 1022660   (727234) от 03.06.2016
 
-VA - Chillaxing Time, Vol. 07 (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+Чарльз Уильям Гекерторн | Тайные общества всех веков и всех стран. [В 2-х частях] (2012) [MP3]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735413.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Anything I'll Do (Original Mix) (4:23)
-02. Weathertunes - La jolie (Original Mix) (4:54)
-03. VAN - Evening by the Fire (Original Mix) (7:06)
-04. Openzone Bar - Cafe Brulot (Original Mix) (4:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:20:58
+Кто управляет миром? Что происходит на самом деле? Они всегда были среди нас!
+Книга, которую вы держите в руках, методично и последовательно описывает все тайные общества, ордены и организации, существовавшие на земле с незапамятных времен. Масоны, тамплиеры, каббалисты - многие из них существуют и по сей день. Их члены обязаны скрывать и отрицать свое участие в (   Читать дальше...   )Жанр: научно-популярная литератураПродолжительность: 26:05:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E74DE3B870A39012E9C0023C85A2F60047304F3
+magnet:?xt=urn:btih:2977FE6504DEDD5402C00B6D35B7F9EF3D2C5F64
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528049   (735414) от 31.01.2022
+###  Публикация: 1023003   (727235) от 03.06.2016
 
-VA - Chillaxing Time, Vol. 10 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Memories - 129889 [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735414.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tapelapse - Daydreaming (2:10)
-02. Weathertunes - Long Beach (Original Mix) (5:22)
-03. Minus Blue - Ocean Sky (Original Version) (5:23)
-04. Tapelapse - Benztown Lo-Fi (3:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:03
+Проект для создания фото-видео слайд-шоу. Добавьте столько заполнителей, сколько нужно! Вам нужно добавить 100 фотографий в слайд-шоу? Это возможно, просто посмотрите видео уроки.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44AC2E13F134ADBA53E585EF29B23436355C2108
+magnet:?xt=urn:btih:077A9AA5E181EA4DA1E1B824BEC11C9C24D20877
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528089   (735415) от 31.01.2022
+###  Публикация: 1022821   (727236) от 03.06.2016
 
-MUUI - No Man Is an Island (2022) [AAC|~335 Kbps] <Deep House, Progressive House, Downtempo>
+Wise Memory Optimizer 3.46.97 + Portable [Multi/Ru]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735415.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Afirmación De Energía (5:23)
-02. Archipelago (7:21)
-03. Beyond the Physical (8:10)
-04. Beyond the Physical I (8:09)(   Читать дальше...   )Жанр: Deep House, Progressive House, DowntempoПродолжительность: 06:17:09
+Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D73DD3349BC63E67122C067A7A8A48598E6B86D
+magnet:?xt=urn:btih:97AD6A0ADE89A27E8330D72D2494E026B9E52ED4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528016   (735416) от 31.01.2022
+###  Публикация: 1022707   (727237) от 03.06.2016
 
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 1 (2019) [AAC|~320 Kbps] <Lounge, Chill Out, Downtempo>
+Melody Gardot - Live at the Olympia Paris (2015) DVD5
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735416.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Speak Of The Mind (Original Mix) (4:12)
-02. Marc Hartman - Troubles So Hard (Original Mix) (5:04)
-03. Music Of The Earth - Spectrum (Instrumental Mix) (4:22)
-04. Svendaq - El Mundo Groove (Original Mix) (4:44)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:23
+Выступление американской джазовой певицы,автора и композитора Мелоди Гардо (Melody Joy Gardot) на сцене L'Olympia Bruno Coquatrix в Париже 26-27.10.2015.1. Don't Misunderstand
+2. Same To You
+3. She Don t Know
+4. Bad News(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: МузыкальныйРежиссер: Thierry VilleneuveАктеры: Melody GardotПеревод: ОтсутствуетПродолжительность: 01:41:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:046CE148BE58893AB754AC8FCD484B372BAEB721
+magnet:?xt=urn:btih:83E63D8CCBB9E998DB488CE71968C9B493B82C72
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528163   (735417) от 31.01.2022
+###  Публикация: 1023002   (727238) от 03.06.2016
 
-CheckBook Pro 2.7.4 [En]
+Проекты - VideoHive - Slideshow - Pictures On The Wall [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания простого слайд-шоу, семейных фотографий на стене.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD0B41D29007161082B8DA3C007FC0B8FDF906F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022760   (727239) от 03.06.2016
+
+Проекты - VideoHive - Simple Folding Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simple Folding Logo - простой чистый показ вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0381A3EBC64DFA6433B577543E7BEA0AEDD06C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022797   (727240) от 03.06.2016
+
+Да здравствует Цезарь! / Hail, Caesar! (2016) BDRip [H.264/720p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Голливуд – империю блеска, роскоши и порока. Здесь обитают кумиры миллионов. Что ни день – пиршество для светских хроникеров. И вот однажды исчезает исполнитель главной роли в фильме «Да здравствует Цезарь!». Ни жена, ни многочисленные любовницы не знают, где он. И теперь продюсера студии ждет веселый денек, ведь он должен найти звезду раньше репортеров…Производство: Великобритания, США, Япония / Dentsu, Mike Zoss Productions, Working Title FilmsЖанр: комедия, детективРежиссер: Итан Коэн, Джоэл КоэнАктеры: Джош Бролин, Джордж Клуни, Олден Эренрайк, Рэйф Файнс, Скарлетт Йоханссон, Тильда Суинтон, Фрэнсис МакДорманд, Ченнинг Татум, Джона Хилл, Вероника ОсориоПеревод: Дублированный (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:878CAD2C946CABC0D3464D4E67B3E7D812282196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022603   (727241) от 03.06.2016
+
+Павел  Мельников | В лесах. [Книга 1] (2001) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпопея П.И.Мельникова (Андрея Печерского) "В Лесах" и "На Горах" - его главный литературный труд, которому писатель отдал около двадцати лет жизни. Эти книги открыли читателю целую область русской действительности, до того не освещенную и не исследованную. Мельников рассказал о Заволжье и Нагорье, какими они были в середине XIX века, о старообрядческом (   Читать дальше...   )Жанр: Историческя. ЭпопеяПродолжительность: 22:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A720D7B9726EE1B87F0AFFE42B87E3E82E9D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999686   (727242) от 03.06.2016
+
+Анжела Колесникова | Любимица Судьбы (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Саашандра».
+
+Извечное противостояние мужчины и женщины. Он — второй наследник престола, авантюрист и прожигатель жизни. Она — дочь богатых родителей, известная контрабандистка и воровка. Вот уже десять лет они непримиримые соперники. И все бы оставалось так и дальше, если бы однажды император не поручил ей охранять своего сына в длительном путешествии…Жанр: Космическая фантастика, Любовно-фантастические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A306798E981D595040266171B757691FBB7321E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022755   (727243) от 03.06.2016
+
+Roxette - Good Karma (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Don'tcha? (2:45)
+02. It Just Happens (3:46)
+03. Good Karma (3:19)
+04. This One (3:11)(   Читать дальше...   )Жанр: Pop, Rock, Pop Rock, Soft RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4441E12694DF9D2DDD9017C8EDB892E1AE4220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022795   (727244) от 03.06.2016
+
+AnyToISO Pro 3.7.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735417.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CheckBook Pro - это не просто базовый инструмент регистрации чеков и создания отчетов, в нем есть все! Это ваш очень простой менеджер по личным финансам и многое другое. Получите отчет для всех ваших учетных записей одновременно. Поиск транзакций по любой комбинации критериев. Сгруппируйте свои транзакции в папки. Изменить детали группы транзакций в один штрих. CheckBook (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2002-2022 Splasm Software, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+AnyToISO Pro - создание ISO из других форматов/дисков/папок
+Скачали CD/DVD образ неизвестного формата? Нет нужды искать или покупать дорогой коммерческий софт, который его поддерживает - одна программа работает с любыми форматами.
+
+AnyToISO Pro - это простой в эксплуатации и функциональный конвертер поможет преобразовывать образы дисков CD и DVD в специфических форматах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2016Разработчик: CrystalIdea SoftwareПоддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Русский, Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E63CE2CA400FDA921DC2A242DF6B9227238AA9B
+magnet:?xt=urn:btih:B9742FE24313711C1225FB85FC1F76B747C1F624
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528047   (735418) от 31.01.2022
+###  Публикация: 1022086   (727245) от 03.06.2016
 
-VA - Chillaxing Time, Vol. 08 (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
+Перетасовка / Shuffle (2011) BDRemux [H.264 /1080p]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735418.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Hartman - Whistle (Original Mix) (4:49)
-02. Weathertunes - People Love (Original Mix) (4:47)
-03. Tapelapse - Sunday Morning Vibes (2:07)
-04. Weber & Weber - Time Keeps Its Own Time (Original Mix) (4:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:28:59
+Это история человека, который вдруг начинает жить не по порядку, каждый день он просыпается в разном возрасте, не зная, где и когда он окажется после очередного сна. Он испуган до смерти и хочет как-то это изменить. Вскоре он замечает некоторую зависимость и порядок в происходящем и пытается остановить кошмар, узнать кто в этом виновен…Производство: США, Theatre JunkiesЖанр: Драма, фэнтезиРежиссер: Курт КенниАктеры: Ти-Джей Тайн, Паула Родс, Крис Стоун, Меган Холавэй, Дилан Спрейберри, Эль Лабади, Мишель Крусик, Патриция Белчер, Тамара Тейлор, Коуди ЭберкромбиПеревод: Профессиональный (Многоголосый закадровый)Продолжительность: 01:22:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71D8D851C7F5DF865E95F30D35A744B78CCB6A20
+magnet:?xt=urn:btih:196F109AAE55032CCB38C232425F81CDEC5EB84D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528020   (735419) от 31.01.2022
+###  Публикация: 1023001   (727246) от 03.06.2016
 
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Проекты - VideoHive - Dreaming [AEP]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Проекты
+>>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735419.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - Just To See Your Face (Original Mix) (5:00)
-02. Matthew Daniel, Lina Loi - Joy (Original Mix) (4:57)
-03. Ntracks - Bob's Delay (Original Mix) (3:30)
-04. Dub Mars - John Dope (Original Mix) (4:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:54:17
+"Мечтать" является идеальным шаблоном для вас, если вы хотите создать эмоциональный и элегантный слайд-шоу. Вы можете создать большой слайд-шоу, или легко превратить его в трейлер фильма.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17CC6B81A2EC4369ACE059FDB7328AE16BE55E66
+magnet:?xt=urn:btih:DFE60A83786930ACF706C4D8DDF07E61602E9CFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528109   (735420) от 31.01.2022
+###  Публикация: 350486   (727247) от 03.06.2016
 
-Bhakta - Open Transmission (2002) [AAC|~327 Kbps] <Tribal, Downtempo, Trance>
+Wicked Minds (Electric Swan) - 6 альбомов (2004 - 2012) [APE|FLAC|Lossless]<Hard Rock, Psychedelic, Progressive>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735420.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Third Eye (6:37)
-02. Open Transmission (a. Seduced Again, b. That Sha-Sha Groove, c. Let's Whirl) (14:41)
-03. Khidr (a. Another World, b. Rain, c. Khidr) (8:28)
-04. In-Between Moments (4:22)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:50:03
+.. В начале девяностых годов трое молодых итальянских музыкантов играли металлический трэш на разогреве у Monster Magnet. Знаменитая группа психоделического хард-рока вдохновила троицу и через некоторое время они выпустили альбом "Return to Uranus". Они пишут хорошо аранжированные композиции от мечтательных баллад с мягким вокалом, флейтой и акустической (   Читать дальше...   )Список альбомов:
+2004 - Wicked Minds - From the Purple Skies
+2006 - Wicked Minds - Live at Burg Herzberg Festival
+2006 - Wicked Minds - Witchflower(   Читать дальше...   )Жанр: Hard Rock, Psychedelic, ProgressiveПродолжительность: 07:01:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:257F1A2620F412DE35B2BC1F983B8380C14D0921
+magnet:?xt=urn:btih:F07F20BE8D8FE26808A5CACB2A17FB8FA3A07219
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528044   (735421) от 31.01.2022
+###  Публикация: 326266   (727252) от 20.04.2011
 
-VA - Chillaxing Time, Vol. 06 (2020) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
+Paul Anka - Greatest Hits CD1 + CD2(2009) [MP3|320 kbps]<Pop, Jazz, Rock'n'Roll, General Pop Vocal>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735421.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_727252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock, Ivan M-sax - Wavedrops (Original Mix) (4:16)
-02. Florent Campana - Et dieu pour tous (Original Mix) (3:55)
-03. Weathertunes - Into a Dream (Original Mix) (3:43)
-04. VAN - Pink Flamingo (Original Mix) (8:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
+CD1
+1. Time After Time (4:01)
+2. It's My Life (4:01)
+3. Wonderwall (3:35)(   Читать дальше...   )Жанр: Pop, Jazz, Rock'n'Roll, General Pop VocalПродолжительность: 02:34:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FBA7D8C1A5270624BFE8E67FE3BD42DE7E815F8
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528026   (735422) от 31.01.2022
+###  Публикация: 326357   (727254) от 20.04.2011
 
-VA - Lounge Weekend - Chillout Beats for Relaxation (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+Дилемма / The Dilemma (2011) HDRip | [звук с TS]
 
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill 2 U - Nightwalker (4:53)
-02. Ryan Pearce - Open All Night (Ibiza Guitar Lounge Mix) (4:19)
-03. Lady Tut - Sleeping in My Bed (Instrumental) (5:46)
-04. Terrace Chillerz - Breathing (Ibiza Beachclub Vocal Mix) (4:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6855E6D6F6F83255B103A2D10483304FFDB120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528017   (735423) от 31.01.2022
-
-VA - Easy Like Sunday Morning (Beautiful Lounge Session), Vol. 2 (2019) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Wavedrops (MichaelE Remix) (5:13)
-02. Bob Zopp - Dubby Day (Original Mix) (5:58)
-03. Peter Pearson - That Pass In The Night (Original Mix) (4:51)
-04. Svendaq - Space Dimension (Original Mix) (4:01)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF14AFE3C6B45862FBDAC25ECCDA223AE808A44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528036   (735425) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 02 (2019) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jens Buchert - Nanotime (2:28)
-02. Taburet - Blue Fire (5:35)
-03. Placid Larry - Mountain Run (3:38)
-04. Anemine - White Series 256 (7:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BA3A33C194EE9A38E715B976C5267C1F50739A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528024   (735426) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthya - Orchidea (3:53)
-02. Sin Plomo - For Jesus (In the Sky Mix) (4:36)
-03. Project Blue Sun - Carpe Diem (3:43)
-04. Guenter Haas - Without You (5:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4726DE3E37290B25A5BA753B600B1A0C8AA37AF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528037   (735427) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 03 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasmon - Cuchama (Original Mix) (4:47)
-02. Openzone Bar - Mint Julep (Original Mix) (5:13)
-03. Weathertunes - Dimanche Matin (Original Mix) (4:38)
-04. Corrado Saija, Florent Campana - Amanda (Original Mix) (4:11)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8960C8BA24C3B19658CBAAFB70FD8F58310E375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528038   (735428) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 04 (2020) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Moment to Relax (Original Mix) (3:56)
-02. VAN - Evening by the Fire (Original Mix) (7:06)
-03. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-04. Weathertunes - Into a Dream (Original Mix) (3:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F15C36866505659DF4CAA9D3F18506B0C09E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528042   (735429) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 05 (2020) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Hammock - Tears of El Nino (Original Mix) (4:33)
-02. VAN - Musician (Original Mix) (3:20)
-03. Weathertunes - La jolie (Original Mix) (4:54)
-04. VAN - Old Story (Original Mix) (6:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3029362C573E9540E9823B81DEB54E0005A909D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528035   (735431) от 31.01.2022
-
-VA - Chillaxing Time, Vol. 01 (2013) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Bitz, Trox - Missing You (Acidrain Remix) (4:12)
-02. Roy Bebop - Addicted to Minor (4:37)
-03. Pnfa - Concho (7:22)
-04. Mas Flores - Skywalker (Original Deep Mix) (8:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0277A92791BA83B30ACB4CF962168721F88B72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528023   (735432) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Art of Love (3:44)
-02. Sunset Boulevard Project - Fly Like an Eagle (4:08)
-03. Marco Moli - This Natural Groove (4:00)
-04. Guenter Haas - Black Rose (3:17)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAF216F52AB81EE1B80549BC410ED0DF8296E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528025   (735433) от 31.01.2022
-
-VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Negrini, Anthya, Alaera - Love Has Gone (Anthya Chill Mix) (4:56)
-02. York, Nathan Red, Kim Sanders - How Did I Fall in Love (R.I.B. Remix) (4:16)
-03. 351 Lake Shore Drive - Nylon (10:02)
-04. Project Blue Sun - All I Wanna Be (6:46)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765C5129D2A8C3D237A12BFBDBDD8FDC1FC039D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705209   (735434) от 19.05.2014
-
-Элементарно / Elementary (2013-2014) WEB-DLRip (Сезон 2, серии 1–24 из 24) (LostFilm)
-
->>След.
+>>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735434.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_727254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Очередная версия приключений знаменитого сыщика Шерлока Холмса. Герой сэра Артура Конан Дойла переедет из Лондона в НьюЙорк, променяв викторианскую Англию на современную Америку.
-«Элементарно» — современная криминальная драма о дуэте детектива Шерлока Холмса и доктора Джоан Ватсон, которые решают самые запутанные дела в полицейском департаменте Нью-Йорка.Жанр: Драма, ДетективРежиссер: Джон Полсон, Джерри Ливайн, Майкл Прессман, Эндрю Бернштейн, Санаа Хамри, Кристин Мур, Гай Ферленд, Аарон Липстадт, Ларри Тенг, Хелен Шейвер, Жан Де Сегонзак, Сет Манн, Майкл Словис, Люси ЛьюПеревод: Многоголосый закадровый, профессиональный — LostFilmПродолжительность: 24  ~00:43:30
+Главные герои истории — два друга и деловых компаньона Ронни и Исаак. Однажды Ронни застукал жену друга с другим мужчиной и теперь мучается дилеммой: либо смолчать, либо рассказать обо всем обманутому товарищу.Жанр: драма, комедияРежиссер: Рон ХовардАктеры: Винс Вон, Кевин Джеймс, Дженнифер Коннелли, Вайнона Райдер, Ченнинг Татум, Куин Латифа, Эми Мортон, Челси Росс, Эдуардо Н. Мартинез, Рэнс ХовардПеревод: Профессиональный (двухголосый)Продолжительность: 01:51:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E80D478AB4CCD3910EA5F4121029A247163BFAB
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 705358   (735435) от 19.05.2014
+###  Публикация: 325621   (727264) от 20.04.2011
 
-Элементарно / Elementary (2013-2014) WEB-DLRip (Сезон-2 / Серии 1-24 из 24) NewStudio
+Boom Boom Satellites - To The Loveless (2010) [MP3|320 kbps]<JRock/Electronic, Big Beat>
 
->>След.
->>
+>>East Asian Music
+>>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735435.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая интерпретация классического произведения Артура Конана Дойла о Шерлоке Холмсе. Но сюжет сериала будет развиваться не по классическому сценарию, главный герой поменяет не только прописку, он переедет из Лондона в Нью-Йорк, но и эпоху, сюжет будет разворачиваться в наше время. Также зрителей ждет еще один сюрприз, теперь у Шерлока будет не помощник в лице Доктора (   Читать дальше...   )Жанр: драма, криминал, детективРежиссер: Джон Полсон, Эндрю Бернштейн, Сет МаннАктеры: Джонни Ли Миллер, Люси Лью, Эйдан Куинн, Джон Майкл Хилл, Натали Дормер, Ато Эссонда, Линда Эмонд, Майкл Ден Деккер, Винни Джонс, Эрик Дженсен и др.Перевод: Многоголосый закадровый, профессиональный - NewStudioФормат: AVIПродолжительность: ~00:43:00 серия
+01 BACK ON MY FEET
+02 DRAIN
+03 LOCK ME OUT
+04 THE HARDER THEY COME.THE HARDER THEY FALL
+05 UNDERTAKER
+06 ALL IN A DAY
+07 TO THE LOVELESS
+08 VAPOUR
+09 SPELLBOUND
+10 STAY(   Читать дальше...)Жанр: JRock/Electronic, Big BeatПродолжительность: 01:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5554132A01EC4BB59663E374E778479A8F68ED2
+magnet:?xt=urn:btih:48DC7E0B771B3EDAF8FC0CB16A5B65B36DD10589
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 704817   (735437) от 19.05.2014
+###  Публикация: 325927   (727265) от 20.04.2011
 
-В поле зрения / Подозреваемый / Person of Interest (2013-2014) WEB-DLRip (Сезон 3, Серия 1-23 из 23) LostFilm
+Правила игры / The Rules of the Game (1939) DVDRip
 
->>След.
->>
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735437.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предполагаемо погибший бывший агент ЦРУ Риз объединяется с таинственным миллионером чтобы предотвращать преступления. Подготовка Риза в проведении операций под прикрытием привлекает внимание миллионера Финча, гения-программиста, который изобрел программу, позволяющую предсказывать преступные склонности людей на базе анализа поведения. Используя последние достижения (   Читать дальше...   )Жанр: Триллер, ДрамаРежиссер: Ричард Дж. Льюис, Дэвид СемелАктеры: Джеймс Кэвизел, Майкл Эмерсон, Сара Шахи, Тараджи П. Хенсон, Кевин Чэпмен, Эми Экер, Пейдж Турко, Энни Пэрисс, Сол Рубинек, Кармин Мэнхейм, Лесли Одом мл. и др.Перевод: Многоголосый закадровый, профессиональный (LostFilm)Продолжительность: 23 серии по ~00:42:00
+На аэродроме Ле Бурже восхищенная толпа встречает своего героя - авиатора Андре Жюрье, завершившего трансатлантический перелет. Однако Андре огорчен, потому что женщина, ради которой он совершил этот подвиг, не пришла его поприветствовать. В радиоэфире он обвиняет ее в нечестности. В высшем свете все догадываются, что эта женщина - Кристина, супруга графа де ля Шенье. (   Читать дальше...   )Производство: Франция, Nouvelles Éditions de FilmsЖанр: Драма, комедияРежиссер: Жан РенуарАктеры: Жан Ренуар, Марсель Далио, Гастон Модо, Поль Франкер, Пьер Манье, Ролан Тутэн, Нора Грегор, Жюльен Каретт, Одетт Талазак, Мила Парели, Полетт ДюбоПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:46:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15CCD133BAC040B5E0E1D80EBA128373031CABF7
+magnet:?xt=urn:btih:BDD5DD11C79F97DC3FE30085894ABCBC79529875
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 787894   (735439) от 19.05.2014
+###  Публикация: 1394720   (727268) от 12.02.2022
 
-Замороженные солдаты / Ice Soldiers (2013) HDRip
+Робин Гуд / Robin Hood (1973) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в дремучий Шервудский лес, где ты встретишь храброго и забавного лиса по имени Робин Гуд и его лучшего друга Крошку Джона — большого добродушного медведя. Эту веселую компанию давно разыскивает шериф Нотингема. Он готовит друзьям ловушку: на турнире лучников Робин Гуда будет ждать засада. Но отважный лис все равно собирается участвовать в состязании: (   Читать дальше...   )Производство: США / Walt Disney Productions, Walt Disney Animation StudiosЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Вольфганг РайтерманПеревод: ДублированныйСубтитры: Русские (форс., полные), английские (полные)Продолжительность: 01:23:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5F142409C60909451CA74C76ED7EEA8CFE1AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530767   (727269) от 12.02.2022
+
+Снайпер / The Sniper (The Magical Shooters) (2021) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой человек по имени Лу Лан искал своего старшего брата, но в итоге обнаруживает, что тот был убит легендарным боевиком в Цзянчэне по прозвищу Призрачная Рука. Поэтому он решает отомстить и убить Призрачную Руку.Производство: КитайЖанр: Драма, боевикРежиссер: Тан ЦзечаоАктеры: Син Юй, Ван Вэньцзе, Ли Мэнмэн, Хуан Мэн, Хуан Исюань, Чжу И ...Перевод: Многоголосый любительский (КОЛОБОК)Субтитры: ОтсутствуютПродолжительность: 01:27:29Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBCC70436DDAC5D04E9E7E629A59558B5A65961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530637   (727270) от 12.02.2022
+
+King’s Man: Начало / The King's Man (2021) WEB-DLRip [MVO]
 
 >>След.
 >>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735439.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ученый в снегах Канады обнаруживает три тела русских военных, с генетическими изменениями. Он приводит их в чувство и зря — он разморозил смертельную опасность для общества.Производство: Канада | Bunk 11 Pictures, TAJJ Media, Hideaway PicturesЖанр: Фантастика, БоевикРежиссер: Стурла ГуннарссонАктеры: Доминик Пёрселл, Адам Бич, Майкл Айронсайд, Гэбриел Хоган, Бенц Антуан, Даина Барбо, Рауль Банеджа, Нику Бранзеа, Грег Стивен Браун, Майкл Клилэнд ...Перевод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:35:00
+Kingsman — организация супершпионов, действующая на благо человечества вдали от любопытных глаз. И один из первых и самых талантливых оперативников в истории организации — Конрад, молодой и наглый сын герцога Оксфордского. Как и многие его друзья, он мечтал служить на благо Англии, но в итоге оказался втянут в тайный мир шпионов и убийц.Производство: США, Великобритания / 20th Century Studios, Marv Films, Marv StudiosЖанр: Боевик, триллер, приключенияРежиссер: Мэттью ВонАктеры: Харрис Дикинсон, Даниэль Брюль, Рэйф Файнс, Аарон Тейлор-Джонсон, Рис Иванс, Джемма Артертон, Мэттью Гуд, Том Холландер, Бранка Катич, Стэнли ТуччиПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: РусскийСубтитры: Русские (forced hardsub, full), Английские отдельными файламиПродолжительность: 02:10:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE0636967B64727DF912B25EC957F18FC7A1332E
+magnet:?xt=urn:btih:5D9A48FADECCBB0C64BB0E83A94F7A0ED43AFD5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200385   (727271) от 12.02.2022
+
+Стань легендой! Бигфут Младший / The Son of Bigfoot (2017) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный подросток по имени Адам отправляется на поиски своего давно пропавшего отца и попадает в приключение мифических масштабов. Его мир переворачивается вверх дном, когда оказывается, что в нем течет кровь последних легендарных хранителей леса — бигфутов. Теперь ему открыты такие способности как суперскорость, живительное прикосновение и возможность понимать язык (   Читать дальше...   )Производство: Франция, Бельгия / Belga Productions, Illuminata Pictures, nWave Pictures, Studio Canal, Waterman EntertainmentЖанр: мультфильм, фэнтези, комедия, семейныйРежиссер: Жереми Дегрусон, Бен СтассенАктеры: Синда Адамс, Боб Барлен, Кэллан Брункер, Джои Камен, Дэвид Эпштейн, Кристофер Л. Парсон, Джо ТомасПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E9C2C2CAF4BB7A79AEB7D27277ECAD0EF796CA
 ```
 
 

@@ -1,3 +1,245 @@
+###  Публикация: 1288437   (695935) от 11.03.2019
+
+Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [6:42]
+02. Onsaya Joy [15:36]
+03. Green Dolphin Street [7:23]
+04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288369   (695937) от 11.03.2019
+
+KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losen (5:19)
+02. Charinskiy (5:48)
+03. Asfalt (5:47)
+04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402976   (696044) от 17.08.2020
+
+Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Variations On A Motive By Bud [3:47]
+02. Wailing Dervish [4:51]
+03. Further Out [2:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534297   (696072) от 01.03.2022
+
+Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magma (6:34)
+02. O Fogo (4:47)
+03. The Light (6:24)
+04. Half Liquid (3:48)(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BA0CA68A6F0CE72936AC1C540F3C1E759E33F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027650   (696656) от 19.06.2016
+
+Phil Woods & Michel Legrand And Orchestra - Images (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Windmills Of Your Mind [04:19]
+ 02.A Song For You [04:05]
+ 03.Nicole [03:34]
+ 04.The Summer Knows [03:02](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Modern Big BandПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BF00935ABF8506255D62A9DF4AD48E9496EAF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027645   (696762) от 19.06.2016
+
+Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.New Life Blues [06:29]
+ 02.Leira [09:29]
+ 03.Guys And Dolls [07:07]
+ 04.Falling [05:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD13F8C2FC6972163F1525BB0086596E002BD81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133193   (696878) от 11.05.2017
+
+Leela James - Did It For Love (2017) [FLAC|Lossless|tracks + .cue] <Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard for Me (3:21)
+02. Don't Mean a Thang (3:10)
+03. Don't Want You Back (3:38)
+04. Real Talk - Relationships (Interlude) (0:28)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EAD9C9FEEA70CC514D158C049566150E1491EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221198   (696888) от 23.04.2018
+
+Fats Waller and His Rhythm - Ain't Misbehavin (1929 - 1941) 2016, Sony Music [FLAC|Lossless|image + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honeysuckle Rose [03:36]
+02. Ain't Misbehavin' [03:02]
+03. I Can't Give You Anything But Love [02:58]
+04. Two Sleepy People [03:06](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E71666C6FCDD7F9A2A00A518B046CE25E560557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132404   (697111) от 11.05.2017
+
+Dirty Bourbon River Show - 2 Albums (2015, 2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Orleans Jazz, Big Band, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Important Things Humans Should Know
+2017 - The Flying Musical CircusЖанр: New Orleans Jazz, Big Band, Gypsy JazzПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975E2AF7A9EB50DC2A716E8FD469FD808EA26575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132860   (697226) от 11.05.2017
 
 Guy Lafitte & Wild Bill Davis - Lotus Blossom (1983) 2003, Black And Blue [FLAC|Lossless|tracks + .cue] <Black And Blue>
@@ -452,249 +694,6 @@ Taj Mahal & Keb Mo - TajMo (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6286A355B80FC5E44565D10453980F571015E744
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132672   (698698) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 2 - The Electro Vintage (2013) [MP3|320 Kbps] <Electro Swing, Electro Blues, Glitch Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr Jennings - Mr Jennings -Man of Constant Sorrow (Remix of Soggy Bottom Boys) (04:07)
-02. Warp9 & Essex Groove - Warp9 & Essex Groove - Shake Your Hips (05:22)
-03. Thornato - Golden Gate Quartet - "Travelin' Shoes" (Thornato Remix) (02:48)
-04. Eclectic Mick - Eclectic Mick - Hypocrite Shoes (Bessie Smith & Friends) (05:18)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Glitch HopПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCA230ABDAE89AAC3F7AB5AE27F42A7EBCED430
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221128   (698706) от 22.04.2018
-
-Shaggy Dogs - All Inclusive (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Steady (03:40)
-02. Facebook Fury (03:21)
-03. El Dia De Los Muertos (03:25)
-04. No Second Round (03:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F88BD503ADB53600CD01838B0E6DFE24DA77F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220859   (698716) от 22.04.2018
-
-Miles Davis - Plays For Lovers (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love
-02. Something That I Dreamed Last Night
-03. That Old Devil Moon
-04. You Don't Know What Love Is(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7FA8ADC41FFA38BF2AFAE30976574B0B907D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132681   (698779) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 4 - The Roaring 2020's (2015) [MP3|320 Kbps] <Electro Swing, Electro Blues, Glitch Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dunkelbunt - Flat Foot Boogie (04:24)
-02. The Good Co - Lou's New Suit (03:04)
-03. Bryan Ferry - Love is the drug (Mr. Automatic Electro Swing Remix) (06:38)
-04. The Gentleman Callers - Jasmin (03:12)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Glitch HopПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30F40C2E49AC8E741C83929C9E5C5D8043A3AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132686   (698785) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 5 - Soul Sisters Remixed (2016) [MP3|320 Kbps] <Electro Swing, Electro Blues, Glitch Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amy Winehouse - Valerie (Reggaesta remix) (03:52)
-02. Lauryn Hill - Lost one (Dj Inko remix) (03:12)
-03. Aretha Franklin - Chain Of Fools (RocknRolla Soundsystem edit) (06:24)
-04. Camille Yarbrough - Praise You (Jim Sharp Edit) (05:08)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Glitch HopПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBBB8EED08803050A9F0DF8814AFC6406C1FD84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132677   (698796) от 10.05.2017
-
-VA - Speakeasy Electro Swing Compilation Vol. 3 - Swing-Hop Don't Stop (2014) [MP3|320 Kbps] <Electro Swing, Electro Blues, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedy Dread & Dj Rebel feat. Delhi Sultanate - Criss N Shine (03:45)
-02. Ray Charles - I Got A Woman (Beatsy Collins Edit) (02:53)
-03. ProleteR - It don't mean a thing (03:38)
-04. Mr Frisbee - No Swingity (04:12)(   Читать дальше...   )Жанр: Electro Swing, Electro Blues, Hip HopПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279E49D856371CCFD112C25E0E8B201F75C02788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220514   (698804) от 22.04.2018
-
-Eddie South - 1937 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fiddle Blues [02:47]
-02. Interpretation Swing Du Premier Mouvement Du Concerto En Re Mineur De Jean-Sebastien Bach - Part 2 [03:23]
-03. Honeysuckle Rose [03:06]
-04. On The Sunny Side Of The Street [03:03](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D5CA6691E541BA5D9B345957C7E8EE6960D480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221059   (698808) от 22.04.2018
-
-Curtis Fuller Jazztet with Benny Golson (1959) 1991, Savoy Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Right With Me [07:39]
-02. Wheatleith Hall [14:06]
-03. I'll Walk Alone [06:57]
-04. Arabia [06:36](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FEC85F9F1D62E4D1162D73A40D0CFC3E38F52D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221056   (698809) от 22.04.2018
-
-Oscar Pettiford Sextet (1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burt's Pad [09:47]
-02. Marcel The Furrier [06:01]
-03. Ondine [03:10]
-04. Stardust [05:11](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F45EBC89606A5228F6D164D39876F77767F64A2
 ```
 
 

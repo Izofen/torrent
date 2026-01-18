@@ -1,3 +1,30 @@
+###  Публикация: 1844843   (1050416) от 28.12.2025
+
+VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
+02-Dua Lipa - Dance The Night (De Soffer Mix)
+03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
+04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844805   (1050418) от 28.12.2025
 
 VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
@@ -668,33 +695,6 @@ Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Song
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845813   (1051094) от 
-
-Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You're the Reason I Still Believe
-02 - Glows
-03 - No One Feels Like Home But You
-04 - So Real(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
 ```
 
 

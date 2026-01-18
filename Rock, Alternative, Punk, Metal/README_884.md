@@ -1,3 +1,298 @@
+###  Публикация: 1294390   (628370) от 08.04.2019
+
+VA - Music Inspired by the Film Roma (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciudad de México – Tepeji 21 (The Sounds of Roma) (02:36)
+02. Patti Smith – Wing (04:44)
+03. Beck – Tarantula (03:47)
+04. Billie Eilish – When I Was Older (04:31)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B11B8083D091DFEB984570B90B4359A42BD568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909590   (628473) от 17.06.2015
+
+Whispered - Sakura Omen (2015) Single [MP3|320 кб/с]<Melodic Death Metal, Folk Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628473.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sakura Omen
+2. Boomer Kuwanger (Bonus track)Жанр: Melodic Death Metal, Folk Metal, Symphonic MetalПродолжительность: 00:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590E569D5EEEEB99638AA5F7B38732741CF3EB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909096   (628475) от 17.06.2015
+
+Darker By Design - Sinister At Last (2015) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omen
+02. A Grim Conception
+03. …And This Night’s The Nightingales
+04. HELLFORGED(   Читать дальше...   )Жанр: Melodic Death Metal/Продолжительность: 00:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084DD5CD0F043DEE636854B4E2B446E810B9F3CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909437   (628476) от 17.06.2015
+
+Dagoba - Tales Of The Black Dawn (2015) [MP3|320 кб/с]<Groove, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epilogue (1:14)
+02. The Sunset Curse (4:47)
+03. Half Damn Life (3:37)
+04. Eclipsed (4:11)(   Читать дальше...   )Жанр: Groove, Melodic Death MetalПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8019BDFCF5161C972F608407BF564B49C73C26C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294422   (628480) от 08.04.2019
+
+King James - MaXimus 2013 (2016) [FLAC|Lossless|image + .cue] <Christian Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void 0:43
+02. Hard Road To Go 5:53
+03. Black Stone Woman 5:40
+04. Mississippi Kid 6:02(   Читать дальше...   )Жанр: Christian Hard RockПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDB19E89D4C864E3DDBBC4693F0278D46CDB91B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294545   (628481) от 08.04.2019
+
+Lucy Rose - 7 releases (2012 - 2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Face (03:33)
+02. Middle Of The Bed (03:12)
+03. Lines (03:40)
+04. Shiver (03:53)(   Читать дальше...   )Жанр: Folk Rock, Indie PopПродолжительность: 04:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BB27083DCF810068920ABB14EF48647BCE5A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294587   (628487) от 08.04.2019
+
+Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Waiting (03:23)
+02. Look at You Now (04:08)
+03. The Sun Also Rises (03:39)
+04. Dig (02:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFE26517F026A5E2D3F1F2217F94F7487B49A13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035293   (628537) от 16.07.2016
+
+Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Worst Enemy (5:11)
+02. Were All Somebody From Somewhere (2:58)
+03. Hold On (Wont Let Go) (2:53)
+04. It Aint Easy (4:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6875D2371EFFB0D1570786065DFDFA60A84415A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909581   (628577) от 17.06.2015
+
+Kegan DeBoheme - Songs of Woe (2015) [MP3|320 кб/с]<Classic Rock 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songs of woe (04:11)
+02. Gone Tomorrow (03:01)
+03. Flowers (for a brother) (02:42)
+04. Rose Painted Gold (02:44)(   Читать дальше...   )Жанр: Classic Rock 70'sПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:792742B94E181D227AE1E5BC171955C78F2CF25D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909112   (628580) от 17.06.2015
+
+Dew-Scented - Intermination (2015) [MP3|320 кб/с]<Death/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Declaration Of Intent
+02. On A Collision Course
+03. Scars Of Creation
+04. Affect Gravity(   Читать дальше...   )Жанр: Death/Thrash MetalПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFA5D2484F3C45715C59F6BB8259EF3B4623589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035252   (628624) от 16.07.2016
+
+Doro - Strong And Proud / 30 Years Of Rock And Metal (2016) Live [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Run
+02. Save My Soul
+03. Raise Your Fist
+04. Fear Of The Dark (with Blaze Bayley)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A2C9C5F3C0E90B496A6CC2A3729205308101D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035155   (628642) от 16.07.2016
 
 Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie, Folk, Rock>
@@ -422,320 +717,6 @@ It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520782   (629189) от 10.07.2012
-
-Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Time [04:55]
-02. You Never Know Til You Get There [04:04]
-03. Calling You [04:53]
-04. I Love You More Than Words Can Say [05:31]
-05. It Takes A Lot To Laugh (It Takes A Train To Cry) [04:46]
-06. I Cried So Hard [04:21]
-07. Staxability [04:04]
-08. You Make Me Feel So Good (All Over) [04:25]
-09. Susan [03:52]
-10. Hold On (Feat Catharine Russell) [03:51](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543329   (629244) от 11.04.2022
-
-Scorpions - Lovedrive (1979) Reissue, 1989, Mercury [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving You Sunday Morning
-02. Another Piece of Meat
-03. Always Somewhere
-04. Coast to Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110C561FBF0AE52B7F6004C62412A90D402E9371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543373   (629259) от 11.04.2022
-
-Beitthemeans - Crude Alabama Storytellers (2008) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Blues Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down The River [00:04:54]
-02. Mr. Devil And The Black Widow Woman [00:04:35]
-03. The Hillside [00:03:59]
-04. Wicked Well [00:03:44](   Читать дальше...   )Жанр: Hard Blues Rock, Southern Rock, Stoner RockПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEB96604248C3A577E6AC4123E4F4236F1B913A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520857   (629305) от 10.07.2012
-
-In Mourning - The Weight of Oceans (2012) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colossus (9:33)
-02. A Vow To Conquer The Ocean (7:24)
-03. From A Tidal Sleep (6:52)
-04. Celestial Tear (7:44)
-05. Convergence (8:35)
-06. Sirens (1:31)
-07. Isle Of Solace (4:53)
-08. The Drowning Sun (8:40)
-09. Voyage Of A Wavering Mind (5:49)Жанр: Melodic Death MetalПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519921   (629329) от 10.07.2012
-
-Myland - Light Of A New Day (2011) [APE|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In The Magic (5:30)
-02. Love Hurts So Bad (4:22)
-03. Never Care For The Future (4:59)
-04. Flying Higher (6:21)
-05. In Your Eye (5:32)
-06. Dancing In The Moonlight (4:24)
-07. Never Stop Screaming Rock (4:52)
-08. Hey You (4:57)
-09. Shattered Dreams (5:58)
-10. Fire Burns Desire (5:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 1:02:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543338   (629372) от 11.04.2022
-
-Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me
-02. Higher Power
-03. More Than A Feeling
-04. Peace Of Mind(   Читать дальше...   )Жанр: Classic Rock, AORПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4FD09CA3F9FDA34E7B309D7BED21B8F967C513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908991   (629453) от 16.06.2015
-
-Breaking Benjamin - Dark Before Dawn (2015) [MP3|320 кб/с]<Post-Grunge, Alt. Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark
-02. Failure
-03. Angels Fall
-04. Breaking The Silence(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D152B3303C7F999FC0AB02D00C95AF84689645DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144239   (629504) от 21.06.2017
-
-Rhарsоdу Оf Fire - Legеndаrу Yeаrs (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn Of Victory (4:45)
-02. Knightrider Of Doom (3:58)
-03. Flames Of Revenge (5:33)
-04. Beyond The Gates Of Infinity (7:22)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B89A9EB50C9067DA99DE7A6EBF92B5374B1BB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543335   (629520) от 11.04.2022
-
-Edguy - The Savage Poetry, 2CD (2000) Remastered, 2021, Fono [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key To My Fate (Demo Version) (4:35)
-02. Hallowed (Demo Version) (6:29)
-03. Misguiding Your Life (Demo Version) (4:12)
-04. Sands Of Time (Demo Version) (5:06)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 00:53:10 + 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F45FCEA5EB9CDC21AEB56F88E91699409193563
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543103   (629786) от 11.04.2022
-
-Crown Compass - The Drought (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Send Your Words (00:04:09)
-02 - Ecdysis (00:06:12)
-03 - Gilbert (00:05:20)
-04 - The Drought I (00:07:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE459DE5F78FA72676984E7C328596A59AC7679B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229066   (629848) от 04.06.2018
-
-Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble (3:13)
- 02. Gone Away (4:35)
- 03. Lift Me Up (4:07)
- 04. Wash It All Away (3:46)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BB04B930174F5ED5C855B90651AA56086C1397
 ```
 
 

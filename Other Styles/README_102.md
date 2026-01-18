@@ -1,3 +1,30 @@
+###  Публикация: 1035199   (628637) от 16.07.2016
+
+Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence (3:34)
+02. Lullaby (3:29)
+03. Heart Song (4:57)
+04. Pirates And Poets (3:53)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B491C9588D7248210D23B3AD2C0C17A62319CA79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520904   (629093) от 10.07.2012
 
 Wonder - Far Off the Beaten Path (2012) [MP3|192 кб/с]<New age,Enigmatic>
@@ -695,33 +722,6 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033914   (634360) от 13.07.2016
-
-Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image + .cue] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Will I Be Faithful? (radio edit)    04:06
-02.  Will I Be Faithful? (forever mix)    04:36
-03.  Will I Be Faithful? (heaven cut)    04:37
-04.  Jonas Song    05:16Жанр: New age, EnigmaticПродолжительность: 00:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531B21B12BADD057382F81A92BC70EDDF9928E6D
 ```
 
 

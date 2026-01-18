@@ -1,3 +1,57 @@
+###  Публикация: 1558696   (529905) от 21.06.2022
+
+VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529905.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 25/17 - Апрель
+2. Комсомольск - Ночь
+3. Диктофон - Печаль
+4. Стереополина - Разреши мне...(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A6BDEEF313CF6DB47A052EA6F696C701869C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927308   (529934) от 12.08.2015
+
+Legs Diamond - Legs Diamond (1977) Remastered /2007, Diamond Records/ [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529934.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Its Not The Music
+2. Stage Fright
+3. Satin Peacock
+4. Rock And Roll Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6893A464E8541D2666BAB6FF5AB3EBF86AD97AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927036   (529941) от 12.08.2015
 
 ON AN ON - And The Wave Has Two Sides (2015) [OGG| 459-517 кб/с]<Alternative, Indie, Dream Pop, Shoegaze>
@@ -636,60 +690,6 @@ Nakkiga - Belebeltzeta (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE29EB91150E8A6DFAF7AE2CDB8CD4A20CF821D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926858   (531483) от 11.08.2015
-
-America - Warner Bros Years (1971-1977) 8CD Box Set Remastered /2015, Warner Rhino Records/ [FLAC|image+.cue]<Rock, Soft Rock, Pop Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tin Man 03:37
-02. Muskrat Love 03:07
-03. I Need You 02:41
-04. Old Man Took 03:29(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop Rock, Folk RockПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072105434ECBC8BC8B832677754D144AA5DE867A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926692   (531489) от 11.08.2015
-
-Дайте Два - Особенная уличная магия (2015) EP [MP3|320 кб/с]<Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Свитер с оленями
-03. Особенная уличная магия
-04. Диванные войска(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB0814FEF23EC5E33E347409CF44C50C378E6BD
 ```
 
 

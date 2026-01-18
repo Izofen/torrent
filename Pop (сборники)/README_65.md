@@ -1,3 +1,30 @@
+###  Публикация: 1041404   (583415) от 08.08.2016
+
+VA - Billboard TOP100 Single Charts (13.08.2016) (2016) [MP3|128-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sia feat. Sean Paul - Cheap Thrills
+02. Major Lazer feat. Justin Bieber & M0 - Cold Water
+03. Drake feat. Wizkid & Kyla - One Dance
+04. Calvin Harris feat. Rihanna - This Is What You Came For(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AC71A0AEA27462CD23568072229B6EFB02BC12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358576   (583787) от 04.07.2011
 
 VA - Русский Хит Парад 90-Х (2011) [MP3|192-256 kbps]<Pop>
@@ -653,30 +680,6 @@ VA - Шальное лето (2015) [MP3|160-256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1108827B79734BC53714977CA65F9684D704DA94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358331   (584923) от 03.07.2011
-
-VA - Самые популярные песни лета (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7E554DE159DF2634B110AA7B374B22382B844E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1103580   (885945) от 12.02.2017
+
+VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DRegi - Shoul'dve Been There For You (Dj Antonio remix)
+02. De Hofnar, MOWE & Freddie Verano - Crazy Love
+03. Emeli Sande - Read All About It (Amice Remix)
+04. Mida - Believe (Extended Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F815DDA9BA132A35A52DD986518B76F17EE67BC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103566   (885966) от 12.02.2017
 
 VA - Empire Records - Dancenudisco 8 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
@@ -674,33 +701,6 @@ VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B13DD2E0F6FBD5D3E80A9885287B54F38990C827
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494611   (887743) от 08.09.2021
-
-VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Moodyfreaks - Flow Of Time
-002. Observatories - Sounds From Another Room
-003. Kaleidoscope - Miss Saigon
-004. Tears - Slipped Away(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 08:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D33E6EBC232F22D49237C7A0FEC9EA56B129191
 ```
 
 

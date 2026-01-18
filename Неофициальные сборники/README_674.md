@@ -1,3 +1,30 @@
+###  Публикация: 1451711   (1028174) от 03.03.2021
+
+Queen - We Will Rock You! (2021) 2CD Compilation [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc one:
+01. Death On Two Legs (Dedicated To...)
+02. Killer Queen
+03. We Will Rock You(   Читать дальше...   )Жанр: RockПродолжительность: 02:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A0C60E629CD9844963BD1767777304A3BE7EF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451751   (1028201) от 03.03.2021
 
 VA - Dance vol.1 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Beatport Progressive Trance: Electro Sound Pack #246 (2021) [MP3|264-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6392FEEF976014BFA9CA8518CB07B31A6007B814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450421   (1029057) от 26.02.2021
-
-VA - Mystical Waves: Future House Music (2021) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смелые эксперименты, новаторские идеи и неуёмную фантазию демонстрируют авторы треков сборника под названием "Mystical Waves". В альбоме присутствует вымысел наряду с реальными переживаниями в отношении содержания, а форма почерпнута из холодных истоков электронной музыки эпохи новой волны, но вписанной в современный контекст времени и места.001. Alavux - Underpass
-002. Sandman - Living In The Now
-003. Florida Boy - Philly Nugget
-004. Ace Ventura - Rebirth(   Читать дальше...   )Жанр: Future HouseПродолжительность: 10:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86474F5C990AC11C07BDE2B850A1AAA11A407A48
 ```
 
 

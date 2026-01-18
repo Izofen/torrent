@@ -1,3 +1,30 @@
+###  Публикация: 1014716   (776206) от 08.05.2016
+
+VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyhodelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense - Floating Beings 7:12
+02. U-Recken - Carol Of The Bells (Talamasca Remix) 7:49
+03. Gravedad cero - Above the Storm 8:29
+04. Major7 vs. Reality Test - Seduction 7:55(   Читать дальше...   )Жанр: Psy Trance, Psyhodelic, Goa TranceПродолжительность: 08:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38A84050321E277C0E466A85C233A87BCD525E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014480   (776207) от 08.05.2016
 
 VA - Trance Maniacs Party - Melody Of Heartbeat #163 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -668,33 +695,6 @@ VA - Звездная Сага (2016) [MP3|320 кб/с] <Prog Electronic, Post-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DD2AE51B810F880C236B80DD400A344BAD60E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013937   (776950) от 06.05.2016
-
-VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Area Code 51 - Hook City
-002. Lan Sub - 7 Years - Acoustic Guitar
-003. Coffee Machine - I've Got You
-004. W. Dekay - Charming Night(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 519180   (639003) от 05.07.2012
+
+V.A. - Pedro Del Mar - The Perfect Lounge Collection (3CD) (2012) [FLAC|Lossless]<Chillout, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_639003.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:19:19
+
+01. Pedro Del Mar - Playa Del Lounge (intro mix)
+02. Pedro Del Mar & Blue Tente - You Left (Alexei Zakharov Ambient mix)
+03. The Movement - Rainmaker (Chillout mix)
+04. System F - Exhale (Tim Besamusca's Lounge mix)
+05. Steve Forte Rio - Blossom (Lounge mix)
+06. Hysteria - Talking Eyes (Chillout mix)
+07. Eximinds - I Feel You (Chillout mix)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 03:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143016   (639074) от 16.06.2017
 
 Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Chillout, World>
@@ -702,38 +735,6 @@ magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518135   (643313) от 03.07.2012
-
-VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
-   Common Name   Spanish Romance, Jeux Interdits For Guitar
-   Composer   Anonymous
-   Performer   Pepe Romero (Guitar)
-
- 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
-   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
-   Composer   Isaac Albйniz (1860 - 1909)
-   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 

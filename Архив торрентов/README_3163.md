@@ -1,3 +1,84 @@
+###  Публикация: 1154924   (537134) от 01.08.2017
+
+Eimear - Artist Focus 71 (2017) [FLAC|Lossless|tracks] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time To Get Up (original mix) (07:13)
+02. Summer Memories (original mix) (05:08)
+03. Love Is Freedom (original mix) (07:52)
+04. It's Alright (original mix) (07:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F449689D533B9F79B37612EA9C62C4A4048CF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154903   (537142) от 01.08.2017
+
+VA - Goa Signature (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zyce - Stereo Space (Zyce & Flegma Remix)  7:50
+02.  The Mindstorm - Special Life (Original Mix)  7:41
+03.  Atomic Pulse - AnaTomic (Original Mix)  8:14
+04.  F-Zero - Portal (Original Mix)  7:26(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 03:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EB08C4035AC4C895EC7A58F293A290507DA223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154852   (537152) от 01.08.2017
+
+VA - Essential Guide: Progressive Trance Vol.14 (2017) [MP3|320 Kbps] <Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dalero & Zuubi vs. Aresz - Areon (Extended Mix)  6:04
+02.  OzzyXPM - Cote d'Azur (Original Mix)  7:08
+03.  PARITY - Spectre (Extended Mix)  5:54
+04.  Jon Bourne - Ride Your Pony (Original Mix)  5:30(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 02:30:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1432E054BEF215DDD702179E6253BC801EDCB75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366699   (537166) от 23.07.2011
 
 Журнал | Men's Health [Украина] №8 (2011) [PDF]
@@ -568,81 +649,6 @@ R-Wipe & Clean - программа от разработчика популяр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9142139E418A85E1A947ACB5F80455ED83AE99BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557783   (537369) от 17.06.2022
-
-CrystalDiskInfo 8.17.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537369.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7927BB7704B8DD2A848954E7C78726FB132015ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819009   (537430) от 05.09.2014
-
-VA - Crying Heavens / Melancholic Soundtrip (Compiled by Koan) (2014) [FLAC|Lossless|WEB-DL]<Ambient, Psybient, Downtempo, Psychill>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep - Let's Fly More Higher (Koan remix) (12:26)
- 02. Asura - Rain In Vains (06:56)
- 03. Aquascape - Inversions (10:26)
- 04. Lauge - Himayala (Koan remix) (07:17)(   Читать дальше...   )Жанр: Ambient, Psybient, Downtempo, PsychillПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA8080BADE8D9A183BD518EB3D8E82FD0CBB224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366890   (537431) от 23.07.2011
-
-Формула 1 Гран-При Германии 3 свободная практика (2011) HDTV
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несжатый HD со спутника, канал Спорт 1, ошибки в потоке отсутствуют (лог ниже). Рекламы нет, запись с первой до последней секунды трансляции.Жанр: СпортПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DBB63AE6767DD5F2DC2944281A6FEBADA84C7A
 ```
 
 

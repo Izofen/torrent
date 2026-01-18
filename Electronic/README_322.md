@@ -1,3 +1,57 @@
+###  Публикация: 1293201   (635669) от 04.04.2019
+
+Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Закрой глаза  (3:27)
+02 - Люби меня  (3:33)
+03 - Больше не надо  (3:51)
+04 - Запомни меня  (3:18)(   Читать дальше...   )Жанр: Dance, EDMПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07500899CBA817E9C961BE90A1DA0EF68DAA8725
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293345   (635670) от 04.04.2019
+
+VA - Beat Full Tech (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slavko Blanco - Sugar Ball (Original Mix)
+02. Angelique Leroy - Rainbow In Me (Original Mix)
+03. Markus B - Alien Technology (Original Mix)
+04. Edelrost - Pizza (Extended Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 06:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BFE0FC1D6A593CD433B3CEF1D711F11349F452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228455   (635690) от 01.06.2018
 
 Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo>
@@ -644,60 +698,6 @@ UNKLE - The Road: Part II (Lost Highway) (2019) Limited Edition 3CD [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0888D3651338C9506C9B82538D957E364F9D26E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142957   (639080) от 16.06.2017
-
-К.Маrkоv - Gоldеn Аgе (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin School>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639080.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Golden Age
-2. Space Age
-3. Digital Age
-4. Echoes(   Читать дальше...   )Жанр: Electronic, Ambient, Berlin SchoolПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ED3AA2069C7CA29854DFACF48ACF1DB7C9F531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293219   (639195) от 02.04.2019
-
-Fennesz - Agora (2019) Touch [FLAC|Lossless|tracks+.cue] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Room (12:30)
- 02. Rainfall (12:00)
- 03. Agora (12:09)
- 04. We Trigger the Sun (10:29)Жанр: Ambient, ExperimentalПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD6800EDFAC724C2B16BC3AE229B1D13068A05D
 ```
 
 

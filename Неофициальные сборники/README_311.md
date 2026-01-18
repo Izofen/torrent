@@ -1,3 +1,30 @@
+###  Публикация: 1559636   (523415) от 26.06.2022
+
+VA - В машине с музыкой Vol.278 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulava - Я Полетел Бы
+02. Semenyak  - Химия
+03. Lena Feat. & Janaga - Знаешь Как Уйти
+04. Verbee Feat. & Rompasso - Тает Дым(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C55B350278A8FB6B193D80DBA4CEA734B155AFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559631   (523421) от 26.06.2022
 
 VA - В машине с музыкой Vol.277 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
@@ -674,33 +701,6 @@ VA - Зарубежные Хиты-Июль (2018) [MP3|320 Kbps] <Pop, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73BEECDA882804BC0938C4F2B4ABABA7517BA32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240478   (524466) от 12.08.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 10.08.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat. Demi Lovato - Solo 3:41
-02. Jax Jones feat. Ina Wroldsen - Breathe 3:28
-03. Calvin Harris & Dua Lipa - One Kiss 3:35
-04. Alvaro Soler - La Cintura 3:25(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81485D679AA50A87C39D09D2735DB79D441F47D
 ```
 
 

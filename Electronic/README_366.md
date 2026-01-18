@@ -1,3 +1,57 @@
+###  Публикация: 1284517   (728956) от 21.02.2019
+
+VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeron Komila - Phoenix (Enfortro Remix)
+02. Airdream - Sequence Of Events (Matt Robertson Remix)
+03. Aleksey Gunichev - Kristian Melody (Artifi Remix)
+04. Baintermix - Wind Of Change (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E2709EBD0ADC74FF00E7C96F86DB2BD93ACAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284397   (728960) от 21.02.2019
+
+VA - Anthology of contemporary music from Africa continent (2019) Unexplained Sounds Group [FLAC|Lossless|WEB-DL|tracks] <Ambient, Tribal, Experimental, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FRKTL – Hverfa af himni heiðar stjörnur (04:54)
+02. Abdellah M. Hassak – 7 Heavens (04:42)
+03. Ahmed Saleh – Right Side (04:23)
+04. Victor Gama – A Luta Inicia (03:08)(   Читать дальше...   )Жанр: Ambient, Tribal, Experimental, AbstractПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE18B584D16EE1268D204F08EC94576DC28BDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284534   (728962) от 21.02.2019
 
 VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
@@ -639,60 +693,6 @@ VA - Abora Chillout: Best Of 2018 (Mixed by Johannes Fischer & Ori Uplift) (2019
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E66DFCE35442B90001DB70E77A2709F6AF664C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283936   (731027) от 19.02.2019
-
-VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mario Più - Let's Begin (Intro)
-02. Mario Più & Matteo Marini - The Other Side I (Original Mix)
-03. Mario Più - Intollerance (Original Mix)
-04. Mario Più & Matteo Marini - Sabres of Hell (Original Mix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E24A4E32FDC0BBF5023DE5B504D1DF1C896C90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283891   (731032) от 19.02.2019
-
-Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake (03:01)
-02. Emily (03:51)
-03. Someone Else (04:07)
-04. Love Theme (04:29)(   Читать дальше...   )Жанр: Electronic,  ChillwaveПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC80C42F8ED3D84EDD4EB33F989DA5EA50BBE95F
 ```
 
 

@@ -1,3 +1,245 @@
+###  Публикация: 1114571   (832149) от 15.03.2017
+
+Big Black Bible Blues Band - Holy Roller Woman (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом христианских блюз-рокеров из Луизианы. Если абстрагироваться от содержания, то в общем совсем не плохо. Или не совсем уж и плохо. ИМХО. Решайте сами)))01. Holy Roller Woman (3:29)
+02. Sho Shuda Stay'd (Rollin' Like A Train) (3:48)
+03. Forever You Remain (3:23)
+04. Capsized (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8EE1540DEBEEB3CC3780C6B1C6B69E4CC66E20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005549   (832546) от 09.04.2016
+
+Rodney Jones & Tommy Flanagan Quartet - My Funny Valentine (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Giant Steps [04:31]
+ 02.Oleo [03:36]
+ 03.I'll Remember April [07:20]
+ 04.Yesterday [01:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57B2273358E81DAA10EFF4E3C099C4478D290E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005596   (832561) от 09.04.2016
+
+Jane Monheit - The Songbook Sessions Ella Fitzgerald (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Too Soon
+02. Somebody Loves Me
+03. Chelsea Mood
+04. Something's Gotta Give(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D02614027612DFE82DFE4B987B4F0E52733E33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005402   (832631) от 09.04.2016
+
+Bill Wyman's Rhythm Kings - Kings of Rhythm, Vol. 2: Keep on Truckin (2016) [MP3|320 кб/с] <Blues, Rock, Rock 'n' Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tell You A Secret (3:04)
+ 02.  Groovin' (3:31)
+ 03.  Rough Cut Diamond (4:06)
+ 04.  Mood Swing (4:09)(   Читать дальше...   )Жанр: Blues, Rock, Rock 'n' RollПродолжительность: 03:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B766CB9BA78B1ECFD7B1DFBADA71F1798A57AFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005657   (832642) от 09.04.2016
+
+VA - Autour De Minuit: So Sexy (2012) [MP3|320 кб/с] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_832642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quincy Jones - Summer In the City (4:06)
+ 02. Isaac Hayes - Our Day Will Come (5:25)
+ 03. Jean-Jacques Milteau - It's a Man's Man Man's World (feat. Michelle Shocked) (3:44)
+ 04. Milt Jackson & Ray Brown - Enchanted Lady (5:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B619210A4A042BAB00441412BB08F0F18D0E8955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005681   (832705) от 09.04.2016
+
+Pee Wee Crayton - Pee Wee's Blues: The Complete Aladdin & Imperial Recordings (1996) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When It Rains It Pours (2:59)
+ 02.  Daybreak (2:41)
+ 03.  Win-O (2:15)
+ 04.  Do Unto Others (2:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27B10F3026E2F2E69D8F75A46D455152BD4E623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005551   (832708) от 09.04.2016
+
+Paolo Fresu, Richard Galliano & Jan Lundgren - Mare Nostrum II (2016) ACT Music[FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Apnea [05:04]
+ 02.Blue Silence [05:10]
+ 03.Aurore [03:58]
+ 04.Kristallen Den Fina [03:52](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2300C78785A9480462B40F2345E88A184E871B1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005406   (832714) от 09.04.2016
+
+Debbie Bond - Enjoy the Ride (2016) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enjoy the Ride (3:53)
+ 02.  Start with Love (3:32)
+ 03.  Train Song (4:11)
+ 04.  Rainbow (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D302D67CEAAA4C0FDEEF352A46125D32D70C61D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005544   (832838) от 09.04.2016
+
+Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lester Left Town [09:30]
+ 02.Lover Man [12:10]
+ 03.Times Lie [21:17]Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC387E6AE7E11FCC52F24A9AF875566E7B5750F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380603   (833312) от 03.05.2020
 
 VA - NOW Soul Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
@@ -452,249 +694,6 @@ Charlie Haden & Gonzalo Rubalcaba - Tokyo Adagio (2005) 2015, Universal[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C5A04261E0778F3C9F2937DC76D7B0520D7649
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005137   (834833) от 08.04.2016
-
-Stanley Turrentine - Always Something There (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.(There's) Always Something There [02:50]
- 02.Little Green Apples [04:22]
- 03.When I Look Into Your Eyes [02:36]
- 04.Light My Fire [03:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46FC4EE0FEC5C4FC841BB4279AAEE213F9AA71D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005132   (834839) от 08.04.2016
-
-Joachim Kuhn New Trio - Beauty & Truth (2016) ACT[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Beauty and Truth [01:25]
- 02.The End [04:05]
- 03.Because of Mouloud [03:50]
- 04.Sleep on it [04:19](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46A93700223D66FCB9F19BD6B62F61D4C033E82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005140   (834842) от 08.04.2016
-
-Nat Adderley - Autobiography (1964-1965) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sermonette [05:56]
- 02.Work Song [04:00]
- 03.The Old Country [04:29]
- 04.Junkanoo [03:05](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5020FEAC92C0E3F1A937ABAAFA63921F3A33F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113955   (834911) от 13.03.2017
-
-Caro Emerald - Emerald Island (2017) EP [MP3|320 Kbps] <Jazzy, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahitian Skies (03:45)
-02. The Ghost Of You (03:44)
-03. Never Ever (03:37)
-04. Exotic Flu (01:11)(   Читать дальше...   )Жанр: Jazzy, Electro Swing, Gypsy JazzПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DCC7F9E30B28DB66278B95D898BD67BEFBAE07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501636   (835030) от 10.10.2021
-
-Izzo Blues Coalition - Take It or Leave It (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It or Leave It (feat. Mimmo Oliveri)
-02. Don't You Cry No More (feat. Annie Major Matte)
-03. It's Been a Long Long Time (feat. Mimmo Oliveri)
-04. I'll Miss You Bad(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9737A5DC28CEE84B4CE5D930ACF135B3F41D610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114031   (835243) от 13.03.2017
-
-The Jeff Healey Band - The Very Best Of (1998) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  It Could All Get Blown Away  (04:44) 
-02|  Communication Breakdown  (03:15) 
-03|  Yer Blues  (04:31) 
-04|  Stop Breakin' Down  (04:21) (   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F43ADA7A1D3E415C3454D7733BBF01B3EA66E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501551   (835255) от 10.10.2021
-
-Chicken Shack - The Very Best Of Chicken Shack (1990) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Rather Go Blind
-02. When The Train Comes Back
-03. A Woman Is The Blues
-04. I Wanna See My Baby(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939C49CA794069762D445251B2B394E971E00CCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113939   (835286) от 13.03.2017
-
-Brad Curtis & The SOME x 6 Band - Like A Sonic Gypsy (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be Still 2017 (4:49)
-02. Forty Years 2017 (3:19)
-03. The Edge Of Darkness  2017 (3:43)
-04. Can You See Your Dreams 2017 (4:11)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0AA2B0248A36F7CB43F2D0F3A3A00C2438236B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114003   (835288) от 13.03.2017
-
-The Static Shift - Common Bliss (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Rover (06:25)
-02. I'm a Ram (03:38)
-03. Straight Jacket (03:43)
-04. My Love (03:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FEDDB7CE070797B0D593D4E7E5C27F48AD829B
 ```
 
 

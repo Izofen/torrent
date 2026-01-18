@@ -1,3 +1,30 @@
+###  Публикация: 1011095   (797706) от 26.04.2016
+
+VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ledo -  Morning Light (Eryon Stocker Rmx)  7:33
+02. Derek Aether -  Celestial  6:11
+03. Omniks And Eufonica -  Adelia (R3dub Rmx)  7:49
+04. Gateway 88 -  Dark Brotherhood (Aldo Henrycho Remix)  7:21(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C91D16BFA7AAF7A446EBE5166866F2497ADB28C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385358   (797760) от 24.05.2020
 
 VA - Beatport Trance: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Trance>
@@ -671,33 +698,6 @@ VA - A Synthwave Panorama Vol. 7 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9AC0C2DA716F75A90EE63AEF2345C70CB456D31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507507   (798474) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PYLOT - Faded Light (5:34)
-02. Maxthor - Run (4:30)
-03. AM 1984 - Euphoria (4:39)
-04. SUNSET 1986 - Out Of World (3:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9398ABA06E80F4151208F06FB7E976B5275C7B0
 ```
 
 

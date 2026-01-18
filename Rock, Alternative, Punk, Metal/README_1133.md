@@ -1,3 +1,300 @@
+###  Публикация: 1100752   (898011) от 05.02.2017
+
+Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I See Is You! (3:59)
+02. The Tell (4:42)
+03. In Caricature (3:57)
+04. Silent Music (4:16)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A02414356A2F019CE48EA082C34B00C516E279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100963   (898020) от 05.02.2017
+
+Iron Giant - Creator of Scars (2008) [MP3|320 Kbps] <Stoner Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creator Of Scars (03:15)
+02. Blind By Midnight (03:05)
+03. Fuel On The Fire (02:31)
+04. I Need To (03:35)(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1272BA1A2A7B80497D4E550D7D5E90AF870D81FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100835   (898021) от 05.02.2017
+
+HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Rock, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Julia
+02 - Drama Queen
+03 - Ghouls
+04 - Girl In A Cage(   Читать дальше...   )Жанр: Rockabilly, Punk Rock, PsychobillyПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100880   (898026) от 05.02.2017
+
+Zoebeast - 2 albums, 3 demos, 2 EP (2003-2015) [MP3|192-320 Kbps] <Death Metal, Brutal Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2003 - Incarnated Dreams (Demo)
+2006 - Full Of Life (Demo)
+2007 - Unexpected Youth Pathology (Demo)(   Читать дальше...   )Жанр: Death Metal, Brutal Death Metal, GrindcoreПродолжительность: 02:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08721E771281C01501E6C8521E9C2813BF7D687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100770   (898103) от 05.02.2017
+
+Hear N' Ade - Now Hear This (2016) [FLAC|Lossless|tracks + .cue] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bible Belt 04:06
+02. Shout 04:12
+03. Miss Demeanor 04:35
+04. High Road 03:19(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6BC5E0CB46C1A3B55D66F5BAFF82B6744FFC6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100664   (898107) от 05.02.2017
+
+Eris Pluvia - Different Earths (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance (The Door Of My Soul Reprise) (3:23)
+02. Man On A Rope (5:58)
+03. Aqua (4:11)
+04. Rain Is Falling (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8206A52001C85FE2F82BBAB0F051F3DABCB57AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492371   (898247) от 26.03.2020
+
+George Michael And Queen With Lisa Stansfield – Five Live (1993) [FLAC|Lossless|image + .cue] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody To Love (5:19)
+02. Killer (5:58)
+03. Papa Was A Rollin' Stone (5:24)
+04. These Are The Days of Our Lives (with Lisa Stansfield) (4:44)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504C64EF08EB8274DE55B17C0E42416BBC312F60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370080   (898401) от 26.03.2020
+
+Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Ever Said (05:10)
+02. Superblood Wolfmoon (03:49)
+03. Dance Of The Clairvoyants (04:25)
+04. Quick Escape (04:46)(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A43AD913AC5BCA1AB21BB335858D0EB300E7A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204513   (898433) от 01.09.2021
+
+Майк Науменко и Зоопарк - Discography (1978..1999) [MP3|256..320 kbps]<Русский Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Майк (Михаил Васильевич) Науменко [18.04.1955 - 27.08.1991] - известный советский рок-музыкант, лидер группы Зоопарк.
+Первый советский музыкант, совместивший корневую англо-американскую рок-традицию с текстами в жанре бытового реализма.
+
+если Вы до сих пор не знакомы с Майком Науменко - загляните обязательноЖанр: Русский РокПродолжительность: 21:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C1C5F6B047A297A179F7760773DBA849B590CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370209   (898463) от 26.03.2020
+
+Brazzaville - Sheila's Dream (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898463.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 7th Andy
+2. Dream Sea
+3. Oatmeal and Coffee
+4. Dasha(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB967C400809B92A70DD4EC0F17C1E5218F1FC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369966   (898542) от 26.03.2020
+
+Infected Rain - Endorphin (2019) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Earth Mantra (4:49)
+2. Black Gold (4:12)
+3. Symphony of Trust (4:23)
+4. Pendulum (3:52)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Melodic Death MetalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09E4A2B46890A141E8D9F41462A9F1AF980F429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369960   (898546) от 26.03.2020
 
 Infected Rain - 86 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Metalcore, Melodic Death Metal>
@@ -396,297 +693,6 @@ VA - Союз. Rock 3 (2017) [MP3|320 Kbps] <Rock, Punk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FB53FD5E2551EDF83F28C127B45B2C25606018E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 400467   (899156) от 04.02.2017
-
-Heart - Greatest Hits (1998) remastered, 2011, Audio Fidelity [WavPack|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strong, Strong Wind (4:31)
-02. Magic Man (5:29)
-03. Crazy On You (4:55)
-04. Dreamboat Annie (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE6ADA798DDAFD9DA42F7623257DD0996D95304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992862   (899183) от 03.03.2016
-
-Ветер Всем - Выдох (2015) [MP3|320 кб/с] <Folk Rock, Experimental Folk, Ambient Ethno>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молодка (06:28)
-02. Дороженька (04:00)
-03. Калина (02:45)
-04. По морю (06:46)(   Читать дальше...   )Жанр: Folk Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFB2EC892B6A4AAF264D06611D5ACE5913C27F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992887   (899192) от 03.03.2016
-
-Epitaph - Outside The Law (1974) Remastered, 2010, MIG [MP3|320 кб/с] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflexion
-02. Woman
-03. Big City
-04. In Your Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFF1D9BD6824DB3606FD09B9B173963BE3C2BB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100357   (899354) от 04.02.2017
-
-Violet Cold - Anomie (2017) [MP3|320 Kbps] <Atmospheric Black Metal, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899354.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anomie
-2. She Spoke Of Her Devastation
-3. Lovegaze
-4. My Journey To Your Space(   Читать дальше...   )Жанр: Atmospheric Black Metal, ShoegazeПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931D11FC6358F3A5C3F829D9BCD18D0788399372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100422   (899534) от 04.02.2017
-
-Heart - Greatest Hits (2000) Compilation, Japanese Edition [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  What About Love  (03:42) 
-02|  If Looks Could Kill  (03:41) 
-03|  Never  (04:05) 
-04|  These Dreams  (04:14) (   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Pop RockПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C274286ADDC5D9CD800B68794A452B6B85FCEC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100398   (899548) от 04.02.2017
-
-Dario Mollo's Crossbones - Rock The Cradle (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Red  (04:36) 
-02|  Take Me High  (04:09) 
-03|  Navigation  (04:09) 
-04|  Rock The Cradle  (04:30) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EABBC3AFF7D98F3D1F8F9C3BA2E2FD01BF4767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294013   (899682) от 11.02.2011
-
-Александр Иванов - Это был я (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B2D438A404C823644FBADB9143584381885EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100626   (899754) от 04.02.2017
-
-Astarte - Quod Superius Sicut Inferius (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reign Unfold
-02. Inflamed Paradox
-03. Oblivious Darkness
-04. Deep Down the Cosmos(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14864AFB22478961EA64F10D112872F5B8EE573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100501   (899787) от 04.02.2017
-
-The Don Harrison Band - The Don Harrison Band (1976) Reissue, 2006, FruitGum Corp. [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sixteen Tons
-2. Who I Really Am
-3. Rock 'N' Roll Records
-4. Fame And Fortune(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0DD0F1D20EAE0C3EEC5CD06E82B39ADC2478B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293077   (899796) от 11.02.2011
-
-Хельга Восточный Ветер и группа Ветры Времен - Не оставляй меня в темноте (2010) [MP3|192 kbps]<Rock,Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock,Folk RockПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8943FA5BA9006213A402B958DAB61107F3C273F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100477   (899846) от 04.02.2017
-
-Rachel Mother Goose - Tokiwa No Sai (2017) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May It Be Fine Tomorrow
-02. Stuck in the Past Glory
-03. Tokiwa no Sai
-04. There Is No Time Left(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBF0308AF022FD371DA6AFD02D36471F4AF73F0
 ```
 
 

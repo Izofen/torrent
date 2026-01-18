@@ -480,6 +480,30 @@ magnet:?xt=urn:btih:88417EF5E80CA0E30A0CC34F00E7428C889274B9
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 337396   (560585) от 02.08.2015
+
+Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_560585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Indie Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045056   (561005) от 22.08.2016
 
 Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
@@ -664,33 +688,6 @@ Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Корол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304653   (561840) от 27.05.2019
-
-Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabian Nights (2019) (03:13)
-02. One Jump Ahead (02:55)
-03. One Jump Ahead (Reprise) (01:00)
-04. Speechless (Part 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE81FDA6275B3682A45FF6B262A71F5AF2D44A8F
 ```
 
 

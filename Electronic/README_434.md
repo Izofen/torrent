@@ -1,3 +1,57 @@
+###  Публикация: 1007007   (823646) от 14.04.2016
+
+VA - Progressive Line (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Voices - Heart of Asia 06:15
+02. Aer0 - F Ing Jumpers 03:12
+03. Aer0 - Pump It Up! 03:41
+04. Alexandr Zavesa - Lo Squalo 03:33(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768E2E4369E44106C7A9555CBB6AA3A8CD0CD4C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196300   (823888) от 02.01.2018
+
+Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Dub House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like It Or Not (6:20)
+ 02. Talk (6:49)
+ 03. Before I Fall (3:59)
+ 04. Too Much Is Never Enough (5:25)(   Читать дальше...   )Жанр: Deep House, Downtempo, Dub HouseПродолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196070   (824013) от 02.01.2018
 
 Real Life - Send Me An Angel • '80s Synth Essentials (2009) Compilation [FLAC|Lossless|image + .cue] <Synthpop, New Wave, 80's>
@@ -640,60 +694,6 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10B75721100A3ED8F8D1895DCE8188E54D70A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381515   (826242) от 07.05.2020
-
-VA - Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <House, Club House, Electronic, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonbootica - Lean (Original Mix) 5:12
-02. Oliver Schories - Molero (Original Mix) 7:02
-03. Franky Rizardo - X Marks The Spot (Original Mix) 6:41
-04. Ben Delay - Bring Me Love (Superdope Remix) 2:30(   Читать дальше...   )Жанр: House, Club House, Electronic, DanceПродолжительность: 03:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513E3E5C610FD1760ECC3186EB9C50639712B1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115518   (826448) от 18.03.2017
-
-The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember The Future (05:37)
- 02. All Hell Is Breaking Loose (04:40)
- 03. Different Drum (06:15)
- 04. Artificial Skin (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C35F50848F5E98576A394F1E0B6B2AB168E5E42
 ```
 
 

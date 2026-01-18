@@ -1,3 +1,303 @@
+###  Публикация: 180151   (914224) от 04.03.2010
+
+Би-2 - 19 альбомов (1998-2009) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - В Чужом Краю
+02 - Jazz
+03 - Тень
+04 - Всё Что Было Потом
+05 - Сначала
+06 - Другое Место
+07 - Солдат 2Жанр: RockПродолжительность: 00:28:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368019   (914244) от 17.03.2020
+
+Kreator - London Apocalypticon - Live At The Roundhouse (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Four Horsemen / Choir of the Damned (0:44)
+02. Enemy of God (5:57)
+03. Hail to the Hordes (5:50)
+04. Awakening of the Gods (3:45)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4884F8A2707E9C275A9903084701F4C5177AD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368007   (914255) от 17.03.2020
+
+Kreator - London Apocalypticon - Live at the Roundhouse (2020) 3CD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choir of the Damned (0:42)
+02. Hordes of Chaos (5:27)
+03. Phobia (3:56)
+04. Satan Is Real (5:24)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 3 CDr 03:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0B7E3F22FB5421CE80ADDF847B362401014332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367732   (914256) от 17.03.2020
+
+Ethir Anduin - Pathway To Eternity. The Agony (2020) [MP3|320 Kbps] <Black, Doom Metal, Hardcore, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awareness Of The Frailty Of Being
+02. Pandemonium
+03. The Invisible Veil Of The Cold Silence
+04. The Agony(   Читать дальше...   )Жанр: Black, Doom Metal, Hardcore, Female VocalПродолжительность: 01:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA44CD483C3A1B27424DA7AA900AC1A395ADF248
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097522   (914290) от 27.01.2017
+
+Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu
+02. Helplessly Hoping
+03. Wooden Ships
+04. Teach Your Children(   Читать дальше...   )Жанр: Classic Rock, Soft RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9473F72CE8A871A1A8F9B3DC608DCE6F01556A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097604   (914294) от 27.01.2017
+
+The Murder of My Sweet - Echoes of the Aftermath (2017) [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Giant
+02. Personal Hell
+03. Racing Heart
+04. Cry Wolf(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C55589D4F9E1A3AEC73B6937AF0CAF795D48FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633795   (914299) от 23.03.2013
+
+Creedence Clearwater Revival - Chronicle (1976) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Susie Q [04:34]
+ 02.  I Put A Spell On You [04:32]
+ 03.  Proud Mary [03:08]
+ 04.  Bad Moon Rising [02:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3425C7FBC685E2A8A92FBE22C5D278E79C4AF24B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758402   (914316) от 18.02.2014
+
+Anathema - Judgement (1999) /2006, Music For Nations/ [FLAC|Lossless]<Progressive, Alternative, Doom Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep (4:54)
+02. Pitiless (3:11)
+03. Forgotten Hopes (3:50)
+04. Destiny Is Dead (1:46)(   Читать дальше...   )Жанр: Progressive, Alternative, Doom RockПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7D89C2313B750C1BB50F24B9A69C52F0862CE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 758081   (914327) от 18.02.2014
+
+Eldest 11 - Under a Black Flag (2014) [FLAC|Lossless|WEB-DL]<Alt. Metal | Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fluid
+02. Charm
+03. Buried
+04. Nightmare (falling in love)(   Читать дальше...   )Тип издания: АльбомЖанр: Alt. Metal | Modern RockПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A83A613154513DF0078F15AD956046A3E62ECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367918   (914352) от 17.03.2020
+
+Мастодонт / Masta Don’t - Мой личный Дудь (2020) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Арктический антициклон
+2. Заклинательница змей
+3. Собянинская плитка
+4. Мой личный ДудьЖанр: RockПродолжительность: 00:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC509C68527CCD307C8F89B509A14B4E545A62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368015   (914364) от 17.03.2020
+
+Nocturnal Depression - Tides Of Despair (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning Myself [01:58]
+02. Tides of Despair [05:27]
+03. Living in a Mass Grave [06:58]
+04. Solitude and Despair again [05:19](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8665B307DE37FA95AD068234BC9F107172CBF323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367859   (914365) от 17.03.2020
 
 Ocean Grove - Flip Phone Fantasy (2020) [MP3|320 kbps] <Nu-Metal, Alternative Metal>
@@ -399,306 +699,6 @@ In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8685F8EBB06D179CE17EDCEF7762CDA9BAE889C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367579   (915511) от 16.03.2020
-
-Pyogenesis - A Silent Soul Screams Loud (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Gothic Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Survival Of The Fittest	4:02
-02.	Mother Bohemia	3:43
-03.	I Can't Breathe (Prologue)	2:27
-04.	I Can't Breathe (Monologue)	4:28(   Читать дальше...   )Жанр: Heavy Metal, Gothic Metal, Alternative RockПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7044C53A0A311C81217D98C90DE8B38E166E43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989491   (915512) от 23.02.2016
-
-Timo Tolkki - Hymn to Life (2002) [FLAC|Lossless|image + .cue]<Symphonic, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Symphonic, Melodic Power MetalПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC3CD13ED20D31A42AD071D2A002E48725AC5CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989459   (915548) от 23.02.2016
-
-Fleshgod Apocalypse - King (2016) [FLAC|Lossless|image + .cue] <Death, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marche Royale
-02. In Aeternum
-03. Healing Through War
-04. The Fool(   Читать дальше...   )Жанр: Death, Symphonic MetalПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF7686B9C7C79FB48315C217D5E0BA3B663C411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097378   (915576) от 26.01.2017
-
-Xandria - Theater Of Dimensions (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where The Heart Is Home
-02. Death To The Holy
-03. Forsaken Love
-04. Call Of Destiny(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Gothic MetalПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F19F84A202C03208472FEC3EB7DD18CCAA75AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289073   (915607) от 02.02.2011
-
-EkoTren - The Dead of Night (2011) [FLAC|Lossless]<Metalcore / Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End of the Day (4:31)
-02. Blackened Sky (3:32)
-03. Dead Behind the Eyes (2:33)
-04. A Road to Nowhere (3:38)
-05. Mask of Lies (3:29)
-06. Light to Shine (3:41)
-07. Cant Stay (2:39)
-08. The Suffering (3:58)
-09. No Way Out (2:47)
-10. The Dead of Night (4:18)Жанр: Metalcore / Nu-MetalПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367545   (915637) от 16.03.2020
-
-VA - I Love Rock Ballads (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matchbox Twenty - Push 3:59
-02. Yes - Owner Of A Lonely Heart (2008 Remaster) 4:27
-03. Marillion - Kayleigh (1998 Remaster) 3:35
-04. White Lion - When The Children Cry 4:18(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92425B97E6A7C2FA7C36CF8418B5BCBEA177396B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490631   (915642) от 22.08.2021
-
-Brothers Of Metal - Emblas Saga (2020) [FLAC|Lossless|image + .cue] <Epic Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brood of the Trickster (01:56)
-02. Powersnake (03:43)
-03. Hel (04:40)
-04. Chain Breaker (03:53)(   Читать дальше...   )Жанр: Epic Heavy Metal, Power MetalПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF44E84E64E14CCDF63232FC2929ED95E6D099FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989558   (915648) от 23.02.2016
-
-ME - Even The Odd Ones Out (2013) [FLAC|Lossless|tracks + .cue] <Alternative, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё пример "негуглящейся" команды! Wikipedia: "The band cite numerous and wide ranging influences ranging from Led Zeppelin, Queen, The Mars Volta, Muse, Radiohead, The Beatles, Rachmaninoff, Philip Glass and American composer Danny Elfman. The band are also influenced by theatrical performance and their live shows often feature additional on stage (   Читать дальше...   )01. Hoo Ha (3:52)
-02. Trails In the Sky (3:29)
-03. Rock and Roll Dandy (3:38)
-04. Like a Fox (4:46)(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:021093EA4A62E74212BFAFA3EB0B12B7D9203822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367602   (915680) от 16.03.2020
-
-Eilera - Face Your Demons / Waves (2016-2020) [MP3|320 Kbps] <Folk & Viking Metal, Celtic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andada [00:02:20]
-02. Aquarius [00:03:06]
-03. Sea Widow [00:04:28]
-04. Soulmates [00:03:59](   Читать дальше...   )Жанр: Folk & Viking Metal, Celtic MetalПродолжительность: 01:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A032200360F22F9B7305734B66B5012DAC2B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097177   (915708) от 26.01.2017
-
-Kreator - Gods of Violence (2017) Deluxe Edition, Scene [FLAC|Lossless|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypticon (1:06)
-02. World War Now (4:28)
-03. Satan Is Real (4:38)
-04. Totalitarian Terror (4:45)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473148022B2A18A36DE95FBADCCF590719962E2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989751   (915779) от 23.02.2016
-
-Marty Friedman - Tokyo Jukebox 2 (2011) [FLAC|Lossless|tracks] <Rock, Heavy Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah! Meccha Holiday  03:08
-02. Nada Sousou  02:49
-03. Ai Takatta  04:28
-04. Ame No Bojo - Funa Uta  02:42(   Читать дальше...   )Жанр: Rock, Heavy Metal, InstrumentalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E4991BC71CB3A8A2617B47C06B50DA6021F05B7
 ```
 
 

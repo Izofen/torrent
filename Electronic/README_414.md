@@ -1,3 +1,54 @@
+###  Публикация: 1360802   (792506) от 31.05.2020
+
+VEiiLA - Discography 16 Releases (2016-2020) Wormhole World [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Trip Hop, Deep House, Dream-Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dust (Ambient Version)Тип издания: WEBЖанр: Ambient/Modern ClassicalПродолжительность: 02:34:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF5DD1F822359AE446B58BEAE7DCC58ADA55E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387018   (792513) от 31.05.2020
+
+VA - Relax Sensation Lounge & Chill Music 2020 [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matteo Vanetti - Astro Light 05:50
+02. Ambrose Wilson - Delete Space (Chill Edit) 04:37
+03. The X Team - Contesto 03:36
+04. Vibrant Boy - Olpu 03:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876070350577672BBEB1EEB7D04024272EC5A44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123075   (792534) от 07.04.2017
 
 VA - Club House Spring '17 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -641,60 +692,6 @@ VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3634EF62FC6589D93E1475881F8D011C57883D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122921   (793608) от 06.04.2017
-
-VA - Dinner and Jazz Vol.1: Finest Lounge and Smooth Jazz Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillowack — Lullaby
-02. Takt 3 — Jordan — Swing Mix
-03. Eivissarts — De la Tierra
-04. Peter Pearson — Surfing The Ether(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD594F7831CBE3E09BA36AD3FC5FE9120E3A149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122755   (793611) от 06.04.2017
-
-VA - Play Acoustic Music (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental >
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tyler Hilton - Missing You (Acoustic Version)  3:21
-02.  Saint Lu - Falling For Your Love (Acoustic Version)  2:53
-03.  Al Stewart - Soho  3:59
-04.  Kelly Joe Phelps - Dock Boggs Country Blues  6:23(   Читать дальше...   )Жанр: Downtempo, Acoustic, InstrumentalПродолжительность: 01:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770323CE324D52E233F8119CF0B5970BF644AB39
 ```
 
 

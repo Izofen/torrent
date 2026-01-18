@@ -1,3 +1,30 @@
+###  Публикация: 1040321   (587057) от 04.08.2016
+
+VA - Дискотека 80-90 х По-Новому Зарубежный выпуск 36 (2016) [MP3|192 Kbps] <Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.C. Catch -  Nothing But A Heartache (Longer UltraTraxx Retro Fox Mix) 11:14
+02. Mark Medlock -  Baby Blue (Longer UltraTraxx Summer Mix) 7:18
+03. Radiorama -  Vampires (Extended UltraTraxx Request Mix) 13:27
+04. Snap! -  Cult Of Snap! (UltraTraxx X-Tended Mix) 10:25(   Читать дальше...   )Жанр: Disco, EurodanceПродолжительность: 07:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B04C2AF16E42376E41EF3A399C125FADC00DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040203   (587058) от 04.08.2016
 
 VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dance>
@@ -665,33 +692,6 @@ Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300624   (588033) от 08.05.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хас - Дикий Кач (3:13)
-02. Alyona Alyona - Відчиняй (2:37)
-03. Freel - Спалах (3:23)
-04. Артем Лоік - Суд Лінча (3:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB38825BBB277BA9EE51F547B0266870710D0278
 ```
 
 

@@ -1,3 +1,63 @@
+###  Публикация: 905257   (651611) от 05.06.2015
+
+Flash Atkins - The Life & Times (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Levenshulme Orphanage For Boys 06:24
+02. The Wilderness (feat Sally Garozzo) 07:43
+03. Saved By The Fall 09:55
+04. A New Kind Of Superhero (feat Aggie Frost) 04:29(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A91E5F82EA737B1F08BBCEA6C688CB3955F15F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515467   (651726) от 29.06.2012
+
+VA - Ibiza 2012 (2012) [MP3|320 кб/с]<Progressive House, Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9Five — Smoke 05:20
+02. Chuckie — Together (Original Club Mix) 06:20
+03. Chuckie Feat. Gregor Salto — What Happens In Vegas (Ibiza Vip) 05:43
+04. Clmd — Black Eyes & Blue (Extended Version) 06:40
+05. Dan Castro Feat. Errol Reid — The Cove (In Your Eyes) 07:27
+06. Dannic — Pipeline 05:16
+07. Denzal Park — Nammos (Original Mix) 06:26
+08. Dj Pp & Silversix — F*Cking Amazing! (Original Mix) 08:07
+09. Etienne Ozbourne — Feeling For You 05:56
+10. Freddy See — Dreamers 06:46(   Читать дальше...   )Жанр: Progressive House, Electro House, HouseПродолжительность: 06:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CAF34DF6F836A21DB56FAECD7C78D637AAA464C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031536   (651800) от 04.07.2016
 
 VA - Chill House Ibiza 2016 (Finest Chill House Music) (2016) [FLAC|Lossless|tracks] <Deep House, Chill House>
@@ -641,60 +701,6 @@ VA - Club Hits Vol.5 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9D2FD499F40B41E089F68D48C9F6AE94C92E105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140845   (653940) от 08.06.2017
-
-Moskwa TV - 3 Albums (1985-1991) [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально Moskwa TV был задуман как полностью инструментальный немецкий проект. В начале 1980-х, Andreas Tomalla (Talla 2XLC) начал свою карьеру в качестве диджея во Франкфурте, решив поставить на творчество Kraftwerk и Depeche Mode. Далее вместе с Ralf Henrich (RaHen), основали группу Moskwa TV, с очень современным для того времени техно звучанием. Новаторский (   Читать дальше...   )Список альбомов:
-1985 - Dynamics & Discipline
-1987 - Blue Planet
-1991 - Javelin(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 02:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0071C263A85968B5F867A4EDA94D65AB129B7F27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140909   (653951) от 08.06.2017
-
-Wsahl - All Eyes On Wsahl (2017) [MP3|320 Kbps] <Breakbeat, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wsahl - Boom (original mix) (04:26)
-02. Damon Rush - Club Shakin' (Wsahl remix) (03:28)
-03. Wsahl - Eb 0727 0541 (original mix) (04:50)
-04. Wsahl - Saturday (original mix) (03:28)(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8C039F3FAC742D95E572FD225CD1C940663DF4
 ```
 
 

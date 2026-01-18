@@ -1,3 +1,30 @@
+###  Публикация: 987350   (927707) от 16.02.2016
+
+VA - Smooth Jazz Lounge (2014) [MP3|320 кб/с] <Instrumental, Smooth Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Time and Again (4:07)
+02.  Take 5 (6:04)
+03.  Summer's End (2:57)
+04.  Scarborough Fair (2:38)(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, LoungeПродолжительность: 03:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903EFA0BAEB78B55D15C90826F05DD3B2B4C085A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094105   (927714) от 19.01.2017
 
 VA - Зимний драйв. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
@@ -670,30 +697,6 @@ VA - Danza Kuduro Dedicated Parade (2017) [MP3|320 Kbps] <Reggae, Calypso, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46129D2FE5F46E87B6F1D36C6B25EA405455B01F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287048   (929372) от 25.01.2011
-
-VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A68374B30F2ED0A4777F48CB6AD85904BBCC8CA
 ```
 
 

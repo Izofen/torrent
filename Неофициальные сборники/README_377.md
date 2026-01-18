@@ -1,3 +1,30 @@
+###  Публикация: 910884   (620362) от 21.06.2015
+
+VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xoma - Haze (Original Mix) (04:49)
+02. Brookes Brothers - Anthem (Brookes Brothers Fusion Remix) (03:20)
+03. Rameses B - With You (Original Mix) (05:09)
+04. Drifta - Feel The Heat Ft Fia Leon (Original Mix) (05:19)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C658E6170D4D06073F61067CEACA94686DE06B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544664   (620468) от 16.04.2022
 
 Michelle Gurevich - Compilation (2022) [MP3|320 Kbps] <Alternative>
@@ -725,33 +752,6 @@ VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B0B8B0158A96F2035CD2D2890F63851B4F7FC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145164   (621539) от 25.06.2017
-
-Dee Snider - After T.S. (2017) Compilation [MP3|320 Kbps] <Rock, Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Core
-02. Blue For You
-03. Emaheevul
-04. Isn't It Time(   Читать дальше...   )Жанр: Rock, Metal, Heavy MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530474EDA1B5F9B18C47CEA8FC48B5BF7414B97F
 ```
 
 

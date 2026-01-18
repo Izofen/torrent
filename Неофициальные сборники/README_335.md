@@ -1,3 +1,30 @@
+###  Публикация: 1044743   (562618) от 21.08.2016
+
+VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562618.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren feat. Elles De Graaf  -  The Sound Of Goodbye (Sensetive5 Bootleg)  8:30
+002. Digital Constructive  -  Myth & Legend (Extended Mix)  5:36
+003. Heatbeat & Eric Lumiere  -  You've Got Me Now (Extended Club Mix)  6:14
+004. Fabio XB & Liuck Feat. Roxanne Emery  -  Nowhere To Be Found (Craig Connelly Remix)  6:23(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 10:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDDA346D74209A5AEEBAE0C7FF1D957A914E678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044694   (562620) от 21.08.2016
 
 VA - Танцевальный Ритм 7 (2016) [MP3|256 Kbps] <Pop>
@@ -692,33 +719,6 @@ VA - Guitar Track - Instrumental Collection by Pop-Music Vol.2 (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79A8A93E1CF7FF52BCC7FC4BB1C79C359B399669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304398   (564089) от 26.05.2019
-
-VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-2.Aaron Smith - Dancin (Krono Remix) (4:15)
-3.Billie Eilish - Bad Guy (3:14)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1748BE3BD58ED16001F90736BC3D376C0E866CE
 ```
 
 

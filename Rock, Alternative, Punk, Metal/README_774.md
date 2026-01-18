@@ -1,3 +1,36 @@
+###  Публикация: 536115   (513308) от 19.08.2012
+
+Rage - 25Albums+7EP (1984-2012) [FLAC|Lossless]<Heavy Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rage — группа в жанре хэви-метал из Германии. Группа была основана в 1983 году под именем Avenger, под которым выпустила свои первые два альбома. Музыканты вскоре вынуждены были сменить название, обнаружив, что оно совпадает с названием другой группы. Основателями группы являются Петер Вагнер, Йохан Шредер, Йорг Михаэль и Томас Грюнинг. В то время руппа играла спид-метал и пауэр-метал со значительной долей трэш-метала.01. Intro (1:16)
+02. Speak of the Dead (2:52)
+03. No fear (6:36)
+04. Sent by the devil (2:56)
+05. Soul survivor (3:46)
+06. Enough is enough (4:08)
+07. Baby, I'm your nightmare (5:07)
+08. Morituri te salutant (0:57)
+09. Prelude of souls (2:51)
+10. Innocent (5:33)(   Читать дальше...   )Жанр: Heavy Metal/Power Metal/Thrash MetalПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561531   (513452) от 06.07.2022
 
 Imagine Dragons - Mercury - Acts 1 & 2 (2021) 2CD, Deluxe Edition, 2022, Kid Ina Korner [FLAC 2.0|44/24|WEB-DL|tracks] <Pop Rock, Indie Rock, Alternative Rock>
@@ -681,33 +714,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5ED2AC853611D80AA283028FA1BA18E6956ABE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930999   (513945) от 24.08.2015
-
-Royal Hunt - Devil's Dozen (2015) Japanese Limited Edition [MP3|320 кб/с]<Melodic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Right So Wrong
-02. May You Never (Walk Alone)
-03. Heart On A Platter
-04. A Tear In The Rain(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5015D2AFEBC99464A513481FF15F3C458DF1D0F
 ```
 
 

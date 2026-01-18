@@ -1,3 +1,297 @@
+###  Публикация: 1214585   (763987) от 22.03.2018
+
+Alestorm - Captain Morgan's Revenge: 10th Anniversary Edition (Japanese Edition) 2CD (2018) [FLAC|Lossless|image + .cue] <Scottish Pirate Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal). Возникла под названием Battleheart в 2004 году. После выпуска двух EP (мини-альбомов), они, в 2007 году, присоединились к Napalm Records и переименовали себя в Alestorm. (   Читать дальше...   )Жанр: Scottish Pirate MetalПродолжительность: 01:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5948445B64EE4AD9AB000BE325BB41657380F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214610   (763992) от 22.03.2018
+
+The Crown - Cobra Speed Venom (2018) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Destroyed By Madness
+2. Iron Crown
+3. In The Name Of Death
+4. We Avenge!(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357ACA16C0257ABAC181FAD42C9E36854A342637
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214572   (764001) от 22.03.2018
+
+Millennium - Awakening (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Reality (04:39)
+02. Rise Above (03:53)
+03. Searching (05:32)
+04. The Spell (00:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FBDE5272EBD017A8C42A7E4056BE91C581F78D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279855   (764226) от 31.01.2019
+
+Within Temptation - Resist (2019) Extended Deluxe [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reckoning (feat. Jacoby Shaddix)
+02. Endless War
+03. Raise Your Banner (feat. Anders Fridén)
+04. Supernova(   Читать дальше...   )Жанр: Alternative Metal, Symphonic MetalПродолжительность: 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F6A441509D66742EAC240238AA52B1F2B635BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279946   (764305) от 31.01.2019
+
+Metallica - Helping Hands... Live & Acoustic at The Masonic (2019) [MP3|320 Kbps] <Rock, Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disposable Heroes
+02. When A Blind Man Cries
+03. The Unforgiven
+04. Please Don’t Judas Me(   Читать дальше...   )Жанр: Rock, Acoustic RockПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394ED89562C48F4BFA9805193B4C9E9AE247E44F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521635   (764432) от 03.01.2022
+
+Then Comes The Night - Chapter 1 (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opportunity (04:06)
+ 02 - Go to Hell (03:57)
+ 03 - Metal Meat (03:54)
+ 04 - Madhouse (04:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270E7563C3F2874B03113A97666F7ADFC417382E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394274   (764440) от 04.07.2020
+
+Високосный Год - Лучший концерт (2020) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764440.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новосибирск
+2. Кино
+3. Некий Никто
+4. 16-37(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F266EE31B79A777E41931240BD38D9E9837E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521708   (764495) от 03.01.2022
+
+Night Legion - Night Legion (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Light
+02. Night Legion
+03. Enter The Storm
+04. The Warrior(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DECCF3ED39CC2B4DBA1790723EC63FE72E7353
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521561   (764501) от 03.01.2022
+
+Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soundtrack to My Last Day (7:36)
+02. Pray for Fire (7:29)
+03. A Return to the Earth Below (5:40)
+04. Imperfect Divinity (3:43)(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Heavy MetalПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99929111DD6DADC18B4E8C2E5D1808BBD5AD7C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279688   (764531) от 31.01.2019
+
+Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (4:35)
+ 02. Summer (4:57)
+ 03. Utopia (4:15)
+ 04. The Signal And The Noise (5:19)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7429C366AE1C7006F20F13C98E627576F992B088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279716   (764538) от 31.01.2019
+
+Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Psychedelic rock, Prog Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Details (07:36)
+02. The Man Who Waved At Trains (05:00)
+03. Graund Lift (05:21)
+04. Heart Off Guard (02:30)(   Читать дальше...   )Жанр: Psychedelic rock, Prog Rock, Jazz RockПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE4C7D3FDCE8C83760475220E393AF96E1337CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279955   (764540) от 31.01.2019
 
 Clouds - Dor - Bonus Album (2018) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Melodic Doom, Atmospheric Doom>
@@ -398,301 +692,6 @@ Paul Weller - On Sunset (Deluxe) (2020) [MP3|320 Kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C455A95175C66DF8CAC3721D998769947354A39F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394254   (764696) от 04.07.2020
-
-Lost Conduit - Astral (2020) [MP3|320 Kbps] <Metalcore, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral (04:11)
- 02. Eternity (feat. Ben Duerr) (04:07)
- 03. Ember (04:04)
- 04. Aversion (feat. Luke Griffin, Greg Gilbert & Lucca Schmerler) (03:51)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE3F9E5B8B6D73E76B1940FAEC206BE66FB5211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214392   (764865) от 21.03.2018
-
-Хелависа - Люцифераза (2018) [APE|Lossless|tracks] WEB <Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кракатук (04:38)
-02. Поверь (04:46)
-03. Шей (04:05)
-04. Дорога в огонь (04:21)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAB57CC7E3D158176B684C099E52C406B23FC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214454   (764894) от 21.03.2018
-
-Distemper - Best of Brass Time (2018) [MP3|320 Kbps] <Ska Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мир создан для тебя
-2. Начинаем отдыхать
-3. Всё или ничего
-4. Кончились наркотики(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFF30A930AF863CB8FFA23CE8D9583501773E1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214064   (764899) от 21.03.2018
-
-Free - All Right Now: The Essential (2018) 3CD [FLAC|Lossless|tracks] <Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Free - британская рок-группа, образовавшаяся в 1968 году в Лондоне, Англия и всемирную известность получившая в 1970 благодаря хиту "All Right Now".  Free выпустили шесть студийных альбомов, которые (согласно Allmusic) способствовали подъёму и развитию хард-рока. Пол Роджерс после распада Free в 1973 вместе с Саймоном Кирком образовал "Bad Company". (   Читать дальше...   )CD1:
-01.  All Right Now  5:33
-02.  Fire And Water  3:57
-03.  Mr. Big  5:53(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC4C9A21504D5C02CFC8EB0AF4B5343869EB325
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214421   (764922) от 21.03.2018
-
-The Crown - Cobra Speed Venom (Japanese Edition) (2018) [FLAC|Lossless|image + .cue] <Melodic Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroyed By Madness (05:15)
-02. Iron Crown (03:23)
-03. In The Name Of Death (04:57)
-04. We Avenge! (05:16)(   Читать дальше...   )Жанр: Melodic Death, Thrash MetalПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F33CE2E8039F6D71EF3CE4EA0F9917D8E42C10E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215010   (765076) от 02.01.2022
-
-Raven Black - Discography 13 Releases (2016-2021) [MP3|320 Kbps] <Alternative Metal, Nu Metal, Theatrical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765076.jpg" />
-</div>
-
-
-###  Подробнее
-
-2016 - Seven Sins
-2018 - 13
-2020 - The Key
-Singles:(   Читать дальше...   )Жанр: Alternative Metal, Nu Metal, Theatrical MetalПродолжительность: 01:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1F7224355592D464DDEBEE43644A1203BE9137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 140078   (765101) от 03.07.2020
-
-Muse - The Resistance (2009) [FLAC|Lossless]<Alternative rock / Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uprising (5:05)
-02. Resistance (5:47)
-03. Undisclosed Desires (3:56)
-04. United States of Eurasia (+Collateral Damage) (5:48)(   Читать дальше...   )Жанр: Alternative rock / Progressive rockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F84EB3DF973EA8F02068D770604774417B4807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617879   (765195) от 18.04.2017
-
-Табула Раса - 5 альбомов (1999-2017) [FLAC, APE|Lossless|image + .cue] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765195.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Табула Раса» — украинская музыкальная группа, основанная в 1989 году.
-Основателем и бессменным фронтменом группы является Олег Лапоногов. Олег родился в Бродах Львовской области в 1964 году. Закончил школу в Сумах и поступил в Киевский театральный институт им. Карпенко-Карого.1999 - Бетельгейзе
-2003 - Українська колекція
-2005 - Цветочные календари
-2007 - Музыка народов ПтицЖанр: Indie-RockПродолжительность: 03:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC987EB65061D4C65BC6CBC1F52F4A56C17250BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394013   (765267) от 03.07.2020
-
-Ленинград - Фотосессия (2020) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765267.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ФотосессияЖанр: Rock, SkaПродолжительность: 00:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70E173EAABCCEB32DD516DC0DD3EA1404ADEE38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126574   (765285) от 18.04.2017
-
-While She Sleeps - You Are We (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are We
-02. Steal The Sun
-03. Feel
-04. Empire Of Silence(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F525E553FD2447141CBE8411095CC6312454A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279640   (765328) от 30.01.2019
-
-Вадим Степанцов (Бахыт-Компот) - Небесные карлики (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765328.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пионервожатая (feat. Мамульки Bend)
-2. Почему умирают бомжи
-3. Аллилуйя
-4. Бухгалтер Иванов (Remastered)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F835E0A935C8080EEE4770DDC9C6057F548D2D2B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1212311   (774299) от 14.03.2018
+
+VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sailing Away-Govi
+02. Pastel Footprints-Thierry David
+03. Cry for Love-Omar Akram
+04. Don Juan-Johannes Linstead(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37553E1FD91D672DC0C2B7F49066A7317F3A15E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 659765   (774419) от 23.05.2013
 
 VA - Лучшие песни из кинофильмов (2003 - 2004) 4 CD [APE|Lossless|image+.cue] <Soundtrack>
@@ -666,33 +693,6 @@ Jeff Grace - Cold in July (2014) [FLAC|Lossless] <Soundtrack, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA855CFCF7E72402BC0DD8A7C275699686673EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014176   (776889) от 06.05.2016
-
-Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Earth (4:18)
-02. God Made Me An Indian (5:08)
-03. The Buffalo Dance (3:24)
-04. Indian Nations (3:56)(   Читать дальше...   )Жанр: World, Native American, Enigmatic, New AgeПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859D06943656A4B1393AF79A4C159A9D11579036
 ```
 
 

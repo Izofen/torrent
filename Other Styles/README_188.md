@@ -1,3 +1,36 @@
+###  Публикация: 301513   (990753) от 28.01.2013
+
+Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990753.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:38) 01. The Spirit of Reiki
+(2:10) 02. Quality of Life
+(4:22) 03. Life Energy
+(3:16) 04. Atonement
+(3:33) 05. Karma
+(3:14) 06. Satori
+(3:15) 07. Touch
+(3:51) 08. Body and Mind
+(3:56) 09. The Gift Of Life
+(4:07) 10. Spiritual Conciousness(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 431701   (991036) от 06.01.2012
 
 Kaoru Kukita - Unplugged Ghibli (2007) [MP3|192-320 kbps]<OST, Instrumental>
@@ -780,39 +813,6 @@ magnet:?xt=urn:btih:8FB3C889AA19068FADBA11E2E2411BAB5BCA535B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C298B2FB942CEDC39D10F43D5AFE0458805920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601200   (997522) от 13.01.2013
-
-Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ande
-02. Apache
-03. Balla coi lupi
-04. Caracas
-05. Comanchy
-06. Gran Canyon
-07. Navayos
-08. Santiago del Cile
-09. Segnali di fumo
-10. Sioux(   Читать дальше...   )Жанр: Native American,New AgeПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAABE20DED09D30F03578719FFBEFB86F0C31BB
 ```
 
 

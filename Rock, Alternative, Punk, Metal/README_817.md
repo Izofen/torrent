@@ -1,3 +1,57 @@
+###  Публикация: 1556467   (559731) от 09.06.2022
+
+Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alive (00:04:19)
+02 - Let Me In (00:05:41)
+03 - Circle of Lies (00:05:24)
+04 - In Between (00:04:14)(   Читать дальше...   )Жанр: Atmospheric Gothic Rock, ShoegazeПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5670983F17E33F6B3991CEDA9EFE5964EB4679DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556472   (559732) от 09.06.2022
+
+Keys - Keys (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - When Shadows Fall (00:04:43)
+02 - Tear It Down (00:05:02)
+03 - For Your Love (00:05:19)
+04 - Feast Of Lies (00:04:59)(   Читать дальше...   )Жанр: Melodic Hard, Prog RockПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383FD49ABB420DFBF033A77B75264550216923E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045390   (559834) от 23.08.2016
 
 DGM - The Passage (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive, Power Metal>
@@ -669,60 +723,6 @@ Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556153   (561647) от 08.06.2022
-
-Stone Witch - Desert Oracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Curse (00:06:00)
-02 - Void of Form (00:04:54)
-03 - Wizard's Smoke (00:05:30)
-04 - The Ark (00:03:45)(   Читать дальше...   )Жанр: Hard, Desert, Stoner RockПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FD55401518AB9EB0946198164152E79D76EBBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556226   (561654) от 08.06.2022
-
-Crobot - Feel This (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Electrified (00:04:00)
-02 - Dizzy (00:03:32)
-03 - Set You Free (00:03:31)
-04 - Better Times (00:03:33)(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6260C3F256A61BA513C7C3FED351B58DE0299A42
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1402119   (703947) от 13.08.2020
+
+Hampton Hawes - Three Classic Albums Plus (1955 - 1956) 2013, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703947.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jordu [7:10]
+02. Groovin' High [5:48]
+03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7761F3660296ABCA29C8A9F60BAFC7CDC6823F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026448   (704156) от 15.06.2016
+
+Tom Killner - Hard Road (2015) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home    02:46
+02. Ain't No Rest for the Wicked    04:56
+03. Feeling Good    05:31
+04. Fake It    02:49(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA91D035E56C3968E107315F1EA161A747C46D40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026424   (704162) от 15.06.2016
+
+Rein de Graaff Trio - Tenor Conclave (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perdido / Wahoo [13:45]
+ 02.Old Folks [04:33]
+ 03.Out Of Nowhere [12:12]
+ 04.Loverman [04:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12998A562A5685D1CD16C0BF1063982C0982B38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026418   (704163) от 15.06.2016
+
+Tete Montoliu Trio - Secret Love (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Secret Love [10:51]
+ 02.Airegin [05:35]
+ 03.Confirmation [07:35]
+ 04.Four [08:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3002A2B64EC4035F1384419336E3429D49914C96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026402   (704165) от 15.06.2016
+
+Seby Burgio - Bounce (2015) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me [06:08]
+ 02. Coffee Time [06:10]
+ 03. Etnia [05:29]
+ 04. Polkadots and Moonbeams [06:42](   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D43EB4D793EC49BDE2AA5482C7440AB67E9F69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026421   (704166) от 15.06.2016
+
+Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lessoning [09:52]
+ 02.Nanshi [06:13]
+ 03.Changing [08:32]
+ 04.One Up [05:29](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9763B6BF7889A9954F1A4F888468FDD2A589C9B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026527   (704167) от 15.06.2016
+
+Gary Peacock - Voices (1971) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ishi [11:53]
+ 02.Bonsho [06:18]
+ 03.Hollows [07:56]
+ 04.Voice From The Past [11:22](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1C9F677E0ADFBAE1C72880EECEB95E4DE57188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220448   (704492) от 19.04.2018
+
+The Manhattan Transfer - The Junction (2018) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantaloop (Flip Out!)
+02. Swing Balboa (Down On Riverside)
+03. The Man Who Sailed Around His Soul
+04. Blues For Harry Bosch(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12A0425941259596403E7B89D11395F1897D05E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220543   (704494) от 19.04.2018
+
+Miles Davis - The Real... Miles Davis (2011) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So What
+02. Someday My Prince Will Come
+03. I Thought About You
+04. Will O' The Wisp(   Читать дальше...   )Жанр: JazzПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A85FD805C0F1E203D960BEDAD72E04F1652AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220334   (704508) от 19.04.2018
 
 Dusko Goykovich - Swinging Macedonia (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -452,249 +695,6 @@ Rolf Billberg - Rare Danish Recordings by a Swedish Jazz Legend (1957 - 1966) 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233E62498878A92C6111724BBCCC559A8737A055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287246   (705526) от 06.03.2019
-
-Jimmy Smith - Cherokee (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is This Thing Called Love [7:03]
-02. I'm in the Mood for Love [6:25]
-03. Things Ain't What They Used to Be [5:50]
-04. On the Sunny Side of the Street [5:13](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871683EC9459CAC1A990921228308F548310E048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287248   (705527) от 06.03.2019
-
-Bernt Rosengren & Claes-Goran Fagerstedt - Jazz Club 57 (1957 - 1962) 2000, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Remember April [3:56]
-02. Willow Weep for Me [2:39]
-03. Sputnik [6:07]
-04. Well, You Needn't [5:37](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469456C2F01ED6D19DCA6F841FD415FFC47D0722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287257   (705528) от 06.03.2019
-
-Fredrik Kronkvist - Altitude (2003) Sittel Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zenith [5:38]
-02. Litet grann fran ovan [4:38]
-03. Desert Night [6:17]
-04. Yemaya [4:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E89B45A52192973D34829494D9809B4EBFB257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131907   (705532) от 07.05.2017
-
-Tamba Trio - Black + Blue (1974) 2001, BMG [APE|Lossless|image + .cue] <Bossa Nova, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Se E Questao De Deus Ate Logo [02:45]
-02. Nao Tem Perdao [02:42]
-03. Reflexos [02:55]
-04. Gazera [01:50](   Читать дальше...   )Жанр: Bossa Nova, Brazilian JazzПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4100AAB3C1476C27A322A896198FAB9FE68A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131983   (705533) от 07.05.2017
-
-Anan Ryoko - Another Beginning (2010) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, Hip Hop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Garden  (01:56) 
-02. All Day, All Night, Always feat. AK  (05:28) 
-03. The Shape of Love feat. TeN from A Hundred Birds  (04:33) 
-04. Forever We Will Be feat. Kero One  (05:06) (   Читать дальше...   )Жанр: Jazz, Pop, Hip HopПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B789146F4A3882AEEBCC63C56EB83002309FAD54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402022   (705606) от 12.08.2020
-
-Norman Brown - Heart To Heart (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heading Wes
-02. Heart To Heart
-03. Unconditional
-04. Amen(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E48FDCB0D908E1FA9541C66612C727A907CA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402019   (705609) от 12.08.2020
-
-Norah Jones - Morning Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunrise
-2. Those Sweet Words
-3. Falling
-4. I'm Alive(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F408FCD455A131A9AC76A1F0FB0DEF855FB1B625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401898   (705696) от 12.08.2020
-
-Daphna Levy - Late Night Journey (2014) Self Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzland [4:45]
-02. All of Me on Lo' Flame [4:12]
-03. Day Dream [5:27]
-04. I Hear Music [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5193304DE21E619A9CE0693C8AF8BA759833FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401896   (705793) от 12.08.2020
-
-Ella Fitzgerald - The Singles (1954 - 1962) 2017, 3CD, New Continent [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705793.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Wished on the Moon [3:08]
-02. Baby [2:43]
-03. I Need [2:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3741FBE445502EFE33ADB30783699A7F07397
 ```
 
 

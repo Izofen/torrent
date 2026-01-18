@@ -1,3 +1,30 @@
+###  Публикация: 1200433   (796384) от 20.01.2018
+
+VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  EKTONIX  -  Vuono Matyn  2:30
+02.  Holl & Rush  -  Don't Know  3:49
+03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+04.  Klingande  -  Pumped Up (Denis First Remix)  3:29(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011613   (796400) от 28.04.2016
 
 VA - Top 40 Hits Music April Work (2016) [MP3|320 кб/с] <Electro, Bigroom, Bounce, Bassline, Moombahton>
@@ -668,33 +695,6 @@ VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011235   (797017) от 27.04.2016
-
-VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4Handz -  Build It Up (Original Mix)  4:38
-002. Adam B -  Alamo (Original Mix)  4:56
-003. After12 -  Mamacita (Original Mix)  4:15
-004. Ahzee & Faydee -  Burn It Down (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 13:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
 ```
 
 

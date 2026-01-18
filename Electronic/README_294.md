@@ -1,3 +1,57 @@
+###  Публикация: 1233945   (576341) от 02.07.2018
+
+VA - 32 Summer Of Trance Multibundle (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raphael Mayers - Endless Emotion (Original Mix)
+02. Edward Rohm - The Light Will Come (Original Mix)
+03. Francesco Giacomo - Lost Emotions (Original Mix)
+04. Cyclamen - Thomas Kelle, Martin Juha (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598576F29283CDA408CB8C131C6C52315890C92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150998   (576360) от 17.07.2017
+
+VA - Deep Chill Out Waves Vol.2 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kevin Place - Jazzatone (05:53)
+02. 351 Lake Shore Drive - Time (05:09)
+03. Pier-O - Air of Love (feat Marga Sol) (05:47)
+04. Marc Hartman - The Awakening (04:25)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAEB555BBC4F2699EFDC9C6CC888DE71A8E70443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303065   (576455) от 19.05.2019
 
 VA - Sweet Lounge Session, Vol. 2 (2019) [MP3|320 Kbps] <Lounge, Chill Out>
@@ -638,60 +692,6 @@ VA - Toolroom Ibiza Vol.2 (2016) [MP3|320 Kbps] <House,  Tech, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B4FD77AA725168F65F095AE1245EBFBED04115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042750   (578452) от 13.08.2016
-
-VA - Run for Fun - 20 Rhythmic Heartbeats Vol.1 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamlight - Summer Music - Original Mix
-02. Lord Emerald - Flying Skirt - Original Mix
-03. Alma Fonica - Miami Party - Original Mix
-04. Tony Roja - Bitcoin - Original Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470E7B8C731C4909E3FB1328395BB79337671D0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042624   (578466) от 13.08.2016
-
-VA - Armada visits Las Vegas (2016) [FLAC|Lossless|tracks] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Michael Feiner - Mantra (Axwell Cut) [04:57]
-02 Swanky Tunes, Going Deeper - Drownin' [03:31]
-03 Armin Van Buuren, BullySongs - Freefall (Manse Remix) [02:33]
-04 Showtek, Vassy - Satisfied [03:42](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E296577725332AA421BC2F3E3F27BDA9161A3114
 ```
 
 

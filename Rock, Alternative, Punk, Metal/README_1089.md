@@ -1,3 +1,300 @@
+###  Публикация: 1002632   (845116) от 02.04.2016
+
+PRAVADA - Мечтать (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Земля
+ 02. Миру не нужно слов
+ 03. Осталось лететь
+ 04. Посмотри на небо(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB88BFDD86550227F9A75A4B5CA836627C8E6F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648918   (845181) от 29.04.2013
+
+David Gilmour - 3 альбомa (1978-2006) Официальные альбомы [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castellorizon (3:54)
+02. On An Island (6:47)
+03. The Blue (5:26)
+04. Take A Breath (5:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003198   (845296) от 02.04.2016
+
+The Otherside - Начало (2016) [MP3|320 кб/с] <Alt. Metal, Metalcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:19)
+02. Мы = Война feat. Ray (Fail Emotions & LastWeekEnd) (03:53)
+03. Свободный Полет feat. Kabz (Rashamba) (03:24)
+04. Электрошок feat. Alextyle (DETACH) (03:54)(   Читать дальше...   )Жанр: Alt. Metal, Metalcore, Nu-MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB71468A149922FA91559DD0028BF10C4B7ED08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002944   (845394) от 02.04.2016
+
+УрбаНегатив Объект - Ахтунгбэйби (2015) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Н.А.К.М.
+3. Нет голоса
+4. Этилена(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A55405FAD32195A0F092AA9522BECFEA9122452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308408   (845737) от 13.03.2011
+
+Simon And Garfunkel - Parsley, Sage, Rosemary & Thyme (1966) remaster, 2010, Audio Fidelity [APE|Lossless|image + .cue]<Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarborough Fair/Canticle (3:11)
+02. Patterns (2:45)
+03. Cloudy (2:15)
+04. Homeward Bound (2:32)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206898   (845905) от 25.04.2020
+
+Black Sabbath - Heaven And Hell (1980) 2 SHM-CD, Japan Deluxe Edition [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sea (Live, Single B-Side) :: 6:26
+02. Heaven And Hell (Live, Single B-Side) :: 7:20
+03. Lady Evil (Mono Edit, 7' Single) :: 3:58
+04. Neon Knights (Live in Hartford, CN, U.S.A., 1980) :: 4:50(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37414A92600413D3DBA3532C35AB798D86EC5C9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239807   (845910) от 03.10.2021
+
+Tim Ripper Owens Progects - 8 albums (2006-2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тимоти Стивен Оуэнс — американский рок-музыкант, известен в первую очередь, как участник Judas Priest, Iced Earth и сольного проекта Ингви Мальмстина. Tim "Ripper" Owens не только один из лучших вокалистов на современной рок-сцене, но и талантливый композитор и поэт-песенник.--------------------------
+
+01. Incarnation (0:59)
+02. Hellfire Thunderbolt (3:50)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal |Продолжительность: 03:50:47 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E831CA1F4922754B862DDF60228AE4ABD056CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499816   (845922) от 03.10.2021
+
+Нота – Разом з тобою  (2007) [FLAC|Lossless|tracks + .cue]<Brit Pop, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я звикаю
+02. Слухай себе
+03. Мерседес
+04. Ідеальна половина(   Читать дальше...   )Жанр: Brit Pop, GrungeПродолжительность: 00:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BAE3E445FA5AEDFF4046989804A7927DDB9070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499849   (846044) от 03.10.2021
+
+Black Sabbath - Technical Ecstasy (1976) Box Set, Deluxe Edition, 4xCD, Reissue, Remastered, 2021,  Rhino Records [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Technical Ecstasy:
+ 01 - Back Street Kids (Remastered) (03:47)
+ 02 - You Won’t Change Me (Remastered) (06:36)
+ 03 - It’s Alright (Remastered) (03:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAD831C2DFBBD9F7B457775E873892C2156ADCDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499536   (846047) от 03.10.2021
+
+Asking Alexandria - See What's On The Inside (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Metalcore, Heavy Metal, Post-hardcore, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:57)
+02. Alone Again (3:49)
+03. Faded Out (3:06)
+04. Never Gonna Learn (3:18)(   Читать дальше...   )Жанр: Metalcore, Heavy Metal, Post-hardcore, Hard RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2B5252F0DEAC1586C101F62A126D1649118E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378525   (846145) от 25.04.2020
+
+Awolnation - Angel Miners & the Lightning Riders (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (03:43)
+02. Slam (Angel Miners) (04:48)
+03. Mayday!!! Fiesta Fever (feat. Alex Ebert) (03:42)
+04. Lightning Riders (03:50)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3781E57C8D0964F96B9BCE1C5996BE7410D3BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499880   (846168) от 03.10.2021
 
 Эпидемия (Андрей Лаптев, Новый Состав) - Не Ищи Меня (2021) Maxi-single [MP3|320 kbps] <Power Metal, Heavy Metal>
@@ -398,303 +695,6 @@ Strawberry Girls - Italian Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD7435E4AE2C0783998A36E80381214B39A501C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111677   (846753) от 06.03.2017
-
-Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Infinitesimal Spark
-02. One of Many…
-03. Prison Skin
-04. Spirals Within Thy Being(   Читать дальше...   )Жанр: MDM, Progressive MetalПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188E88D1E0489FF67AE27B93F7E3430EB0F50805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002510   (846765) от 01.04.2016
-
-Billion Dollar Babies - Chemical God (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to See You Burn
-02. Everyone's in Love with a Chemical God
-03. The Junkies Ball
-04. One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A031241AE1F0D9357C5A581D72D4A150E148CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111603   (846798) от 06.03.2017
-
-Boris & Merzbow - Rock Dream (2007) 2CD Limited Edition [FLAC|Lossless|tracks + .cue] <Drone Doom Metal , Noise, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feedbacker (35:06)
-02. Black Out (5:20)
-03. Evil Stack (5:05)
-04. Rainbow (4:30)Производство: Southern Lord – sunn88Жанр: Drone, Doom Metal, Noise, Punk, Psychedelic Rock, Shoegaze, ElectronicПродолжительность: 01:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF40BD4B2FC7957CE9AD457239FC6F80B595713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845968   (846841) от 01.04.2016
-
-Алевтина - Загорелось облако (2013) [MP3|320 кб/с]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не спится [03:14]
-02. Больная любовь [02:53]
-03. Холодно одной [03:07]
-04. Закрыть глаза [03:54](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D10B8D05579C2D8641183FC486FF115A9A6FFF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002747   (846849) от 01.04.2016
-
-Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk, Piano>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Pains
-02. Shadow
-03. Keeping Your Head Up
-04. Deep End(   Читать дальше...   )Жанр: Pop, Indie, Folk, PianoПродолжительность: 01:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FD8755C142A3B71372032E0B3C7AC526F8234D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002340   (847002) от 01.04.2016
-
-Rick Springfield - Rocket Science (2016) [FLAC|Lossless|image + .cue] <Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light This Party Up [02:23]
-02. Down [03:09]
-03. That One [03:26]
-04. The Best Damn Thing [04:23](   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9928EE23100FAD8F3ACBF027C47765093EA0AAF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002699   (847010) от 01.04.2016
-
-America - Hearts (1975) remaster, 2016, Audio Fidelity [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daisy Jane (3:08)
-02. Half A Man (3:37)
-03. Midnight (2:47)
-04. Bell Tree (2:34)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07968E13A9C56CBB679676EEED189024F3E8E612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877313   (847032) от 12.03.2015
-
-Mark Knopfler - Tracker (2015) [FLAC|Lossless]<Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughs And Jokes And Drinks And Smokes (06:41)
-02. Basil (05:45)
-03. River Towns (06:18)
-04. Skydiver (04:39)(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB202BD18B34A9436DD5E8C6ABFC93ACF7F6A043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002457   (847118) от 01.04.2016
-
-Last In Line - Heavy Crown (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847118.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Devil In Me (4:51)
- 2. Martyr (2:41)
- 3. Starmaker (5:03)
- 4. Burn This House Down (3:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF315699E8FA3D45C3B24DD64222F15898DB7E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499507   (847586) от 02.10.2021
-
-Сурганова и Оркестр - Завтра (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Шила осень
-2. Трюкачи
-3. Кольчуга
-4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADE952555F4BB3DAD9CFDF508B068A3FEFB3E80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499533   (847596) от 02.10.2021
-
-Сурганова и Оркестр - Завтра (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Шила осень
-2. Трюкачи (feat. Настя Полева)
-3. Кольчуга
-4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
 ```
 
 

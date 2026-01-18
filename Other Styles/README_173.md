@@ -1,3 +1,36 @@
+###  Публикация: 752682   (940036) от 03.02.2014
+
+Bruce Becvar - Time Dreams (1994) [MP3|320 кб/с]<New age, Guitar>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:42) 01. Jacarandigo
+(5:06) 02. Seventh Heaven
+(4:48) 03. Caminata Flaminco
+(3:16) 04. Time Dreams
+(4:21) 05. Spinning the Light Fantastic
+(6:13) 06. Love Knows No Bounds
+(5:56) 07. Sands of Time
+(3:21) 08. Noche Pintada
+(4:59) 09. Flamenco Highlife
+(4:43) 10. Jamaicadoo(   Читать дальше...   )Жанр: New age, GuitarПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C10630860918B8F0DF81B659CD85BC842D08F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092150   (940270) от 11.01.2017
 
 Ruaidhri - Celtic Landscapes (2013) [FLAC|Lossless|tracks] <New Age>
@@ -752,33 +785,6 @@ Enis Rotthoff - Guns Akimbo / Пушки Акимбо (Original Motion Picture S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9113F33E46582757400EFAAFEEDE1E9200173B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363476   (942549) от 28.02.2020
-
-VA - Verotika / Веротика (Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942549.jpg" />
-</div>
-
-
-###  Подробнее
-
-|04:19| 01. Eyes Ripping Fire
-|04:47| 02. Dancing Madly Backwards on a Sea of Air
-|04:39| 03. Close Your Eyes
-|04:33| 04. Crimson Lust(   Читать дальше...   )Жанр: Soundtrack, RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EDEB036A12C5000B0DC77D81826FE7D999AE04F
 ```
 
 

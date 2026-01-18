@@ -1,3 +1,300 @@
+###  Публикация: 909623   (626393) от 18.06.2015
+
+The Trousers - Mother of Illusion (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buckley Funeral Home
+02. Gunslinger
+03. Hysterical Route
+04. Break Your Mind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB97099B8B886A4BB4950F1C69AFC6A297D3A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909637   (626394) от 18.06.2015
+
+Deadly Circus Fire - The Hydra’s Tailor (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626394.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Darkness We Trust
+2. Animal
+3. Where It Lies
+4. Victim(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F76E8F421E9ACB37FCDAE7B007188AE741CF4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909753   (626397) от 18.06.2015
+
+Kali Ra - Cocoon (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy See
+02. Sleeping Angels
+03. Cocoon
+04. Break(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AEEF3822EDC1ECABB970FE059D43B7101A51061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909622   (626398) от 18.06.2015
+
+Christina - The Light (2015) [MP3|320 кб/с]<Progressive / Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Stop - 4:51
+02. Stay - 5:10
+03. Legend In The Making - 4:59
+04. Disappeared - 4:02(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADBBECB49D393D7E837CA2509D72F1D228FFB3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909620   (626400) от 18.06.2015
+
+Motochrist - Chrome (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Ride Bitch
+02. I Want Everything That's Mine
+03. Heads Are Gonna Roll
+04. She Likes the Bad Boys(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24F2E2CB0166564F3E255B36CD9F32972D87B849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909758   (626402) от 18.06.2015
+
+Eric Charles Band - Can You Feel It? (2015) [MP3|320 кб/с]<Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626402.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Can You Feel It?
+2. I Never Did You Wrong
+3. The Chameleon
+4. You Read(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778CB9C58C85A6170C8379BF445220A410AA8276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909745   (626405) от 18.06.2015
+
+Clepsydra - Tropicarium (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Witch
+02. I'm In
+03. Chocolate
+04. Jerry the Pine(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAB432DD64F66B249132746027CFA3D0EFB41C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909638   (626409) от 18.06.2015
+
+Bone Gnawer - Cannibal Crematorium (2015) [MP3|320 кб/с]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626409.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anthropophagist Inferno 02:05
+2. Modern Day Cannibal 03:31
+3. Chainsaw Carnage 03:27
+4. Horrors in the House of Human Remains 04:28(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D259750300051267D1D53160A8B89806490ADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909769   (626410) от 18.06.2015
+
+Antagoniste - The Myth of Mankind (2015) [MP3|320 кб/с]<Avant-Garde Black / Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rise of the Lightbringer
+02. The Barren Lands
+03. The Demiruge
+04. The Fall of Man(   Читать дальше...   )Жанр: Avant-Garde Black / Sludge MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890AC4AEB350C9B26A46EA774DBF80F5254A44B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909617   (626411) от 18.06.2015
+
+Sadman Institute - Revival (2015) [MP3|320 кб/с]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ash And Dust (08:05)
+2. F.T. (06:07)
+3. Rotten Home (06:30)
+4. Take It All (05:42)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993DB14179040E46A373D55B1B5A148A97449FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229522   (626458) от 06.06.2018
+
+Мёртвые скалы - Зеркальный лабиринт (2018) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гнев Хранителя (4:38)
+ 02. Дух моря (4:57)
+ 03. Небесная гладь (5:34)
+ 04. Ангел-хранитель (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1438A6204A6824C4552591CB04A8F2C15F04E927
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229469   (626459) от 06.06.2018
 
 Darryl Way - Vivaldi's Four Seasons In Rock (2018) [FLAC|Lossless|image + .cue] <Rock, Classical>
@@ -407,303 +704,6 @@ Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD0B7489D75EA22A52E4BCC438B0A4D5DE0BE4E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144461   (627229) от 22.06.2017
-
-Декабрь - Мы не оставим города свои (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Предисловие
-2. Мы не оставим города свои
-3. Севастополь
-4. Одесса-мама(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F080A634BAA486E210374073A908EF8C4D36967A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294504   (627318) от 08.04.2019
-
-Explosions in the Sky - The Wildernes (2016) Bella Union [FLAC|Lossless|tracks+.cue] <Post-Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wilderness (04:37)
-02. The Ecstatics (03:12)
-03. Tangle Formations (05:34)
-04. Logic Of A Dream (06:38)(   Читать дальше...   )Жанр: Post-Rock, AmbientПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC2A7627B1C1151B6F59B6F0FFD74D999D0E588
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294584   (627319) от 08.04.2019
-
-Michel Cloup Duo - Danser Danser Danser Sur Les Ruines (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627319.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gagnants (02:48)
-2. Amnésiques heureux (03:56)
-3. Les invisibles (04:06)
-4. Le futur dans tes yeux (04:07)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38D1AA489A596724751DFD163B939A864DDF4F7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542860   (627587) от 12.04.2022
-
-Red Hot Chili Peppers - Unlimited Love (2022) Japanese Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Black Summer [00:03:52] YouTube: OS8taasZl8k
-02 Here Ever After [00:03:50]
-03 Aquatic Mouth Dance [00:04:20]
-04 Not The One [00:04:26](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928F9D91B33FAB89E85922A571972FFCF6C0E4DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543615   (627588) от 12.04.2022
-
-Nazareth - Surviving The Law (2022) Scene [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days [00:03:22]
-02. You Gotta Pass It Around [00:03:21]
-03. Runaway [00:03:33]
-04. Better Leave It Out [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D662C5AE0409FA427435EF8F2CDF16C455A6904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543717   (627589) от 12.04.2022
-
-Nazareth - Surviving The Law (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days (03:22)
-02. You Gotta Pass It Around (03:21)
-03. Runaway (03:33)
-04. Better Leave It Out (03:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2643E037E0417703A8AB0EAE7B05B601EF0E3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144381   (627600) от 22.06.2017
-
-Brownsville Station - Air Special (1978) Remastered, 2006, Wounded Bird Records [MP3|320 Kbps] <Rock, Hard Rock, Rock & Roll, Boogie>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627600.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Taste Of Your Love
-2. Waitin' For The Weekend
-3. Who Do You Love
-4. Tears Of A Fool(   Читать дальше...   )Жанр: Rock, Hard Rock, Rock & Roll, BoogieПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C740CB57A5BD9C38FAEA22D504D20603C3A7F35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543190   (627723) от 12.04.2022
-
-Саблезубый Тигр - 4 Albums (2011-2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hope You Die [00:02:52]
-02. Биткойны [00:02:45]
-03. Наркосуицид [00:03:00]
-04. Феноменальный свитер [00:02:14](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 02:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1740EAB16302E18CF2D009C5D089D4278ACDACF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144293   (627752) от 22.06.2017
-
-Мeаn Streаk - Вlind Fаith (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Red Sky (4:23)
-02. Animal In Me (3:52)
-03. Retaliation Call (4:27)
-04. Settle The Score (4:51)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41D55E99FA8FA044F5E3FF88C93772753E66499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144481   (627757) от 22.06.2017
-
-Your Highness - Cults 'n' Cunts (2011) [FLAC|Lossless|image + .cue] <Sludge,  Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627757.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Through The Eyes Of The Beast
-2. Gut This City
-3. The Rivening
-4. Skull Goblet(   Читать дальше...   )Жанр: Sludge,  StonerПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668A3DB37AEA6C8675073B3BF48B8F1DB1728E74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543401   (627892) от 12.04.2022
-
-Beitthemeans - 5 Albums (2004-2018) [MP3|320 Kbps] <Hard Blues Rock, Southern Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blue Collar [00:04:13]
-02 - Alabama Calling [00:05:38]
-03 - The Black (2018 Version) [00:04:23]
-04 - Any Day Now [00:03:06]Жанр: Hard Blues Rock, Southern Rock, Stoner RockПродолжительность: 5 CD, 03:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36BC5CAFC2189968340F5C89AEE46B659224CCF
 ```
 
 

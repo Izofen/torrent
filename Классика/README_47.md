@@ -1,3 +1,57 @@
+###  Публикация: 1492222   (898917) от 01.09.2021
+
+The New London Chorale - The Young Mendelssohn (2003) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Italia - 3:09
+2. What I Need Tonight - 4:02
+3. Now, More Than Ever - 3:43
+4. Hear My Song - 3:45(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BCE2B06BF051F5123DE1E245A4324B28E24423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100406   (899355) от 04.02.2017
+
+De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Benedictio et claritas
+02. - Cirumdederunt me
+03. - Dulcis et rectus Dominus
+04. - Asperges me(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992403   (900289) от 02.03.2016
 
 VA - Great Pianists of the 20th Century: The Complete Edition (1998 - 1999) Box Set, 202 CD [FLAC|Lossless|tracks + .cue] <Classical, Piano>
@@ -643,60 +697,6 @@ Piano Sonata no. 2 in D minor, op. 14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D947701729F5EB845557FB14147BD9DF7629A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992341   (902362) от 01.03.2016
-
-Прокофьев - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [FLAC|Lossless|tracks] <Классическая музыка, Modern, Chamber>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прокофьев - Overture on Hebrew Themes in C minor, op. 34
-01
-Hindemith - Octet
-02 (1) Breit. Massig schnell(   Читать дальше...   )Жанр: Классическая музыка, Modern, ChamberПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE5FC57DADEFEDFA50FD7FE60555810B5D3CE8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992149   (902384) от 01.03.2016
-
-Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, Kent Nagano) (2013) [FLAC|Lossless|tracks] <Классическая музыка, Orchestral, Concerto>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grieg - Piano Concerto in A minor, op. 16
-01 (1) Allegro molto moderato
-02 (2) Adagio
-03 (3) Allegro moderato molto e marcato(   Читать дальше...   )Жанр: Классическая музыка, Orchestral, ConcertoПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD112E95373548B2D4EF8A0351C3E79A029AA665
 ```
 
 

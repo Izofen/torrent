@@ -1,3 +1,57 @@
+###  Публикация: 1106338   (873756) от 19.02.2017
+
+VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive - Freezing Cold
+02. Velvet Dreamer - Your Game My Love (feat Diana Jasilionyte & Tim Gelo)
+03. Inventors Of The Sun - Opium Lovers
+04. Weathertunes - Nothing Without You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EA1CBC94651FB6686FC179A46E24FE9709F4EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106224   (873758) от 19.02.2017
+
+VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Urban Phunk Society - Spring 2 Summer  3:03
+02.  Artur Bayramgalin - Cafe Rendez-Vouz  5:01
+03.  Greg Walker - Rio Geo (Revisited)  3:31
+04.  Charly McLion - Sunrise  4:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC6B480B3DB389347011F93E5E4BFAD907F9E5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997613   (873764) от 17.03.2016
 
 Pet Shop Boys - The Pop Kids (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Electro House>
@@ -639,60 +693,6 @@ VA - Lazy Hammock Sounds Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A65D91BA74B4E55FD8E8224415B0DF9B0B19632
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373333   (876895) от 08.04.2020
-
-Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Murray - Inception feat Veronica Moran (Extended Mix)
-02. Joe Schaeffer - There and Back (Skua Remix)
-03. LTN & Cassidy Ford - Hurt Yourself (Extended Mix)
-04. Costa & Sarah Lynn - Never Fade (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BD20256735F225271F107AFE2B3FA21273E687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373687   (876904) от 08.04.2020
-
-Amtrac - Oddyssey (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Deep House, Dancefloor>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethel (4:28)
- 02. Accountable (3:52)
- 03. Between The Lines (4:38)
- 04. Replica (5:22)(   Читать дальше...   )Жанр: EDM, Electro, Deep House, DancefloorПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C772578124CD08DC2DCB5A3F0BBA0DF654A525
 ```
 
 

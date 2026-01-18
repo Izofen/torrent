@@ -1,3 +1,301 @@
+###  Публикация: 1475824   (1012028) от 09.06.2021
+
+Caliban - Gravity (2016) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paralyzed (4:29)
+02. Mein Schwarzes Herz (3:01)
+03. Who I Am (4:12)
+04. Left For Dead (3:24)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B7FBDBE86EF89DCE1DB7F1A84540D48AD7955E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475937   (1012029) от 09.06.2021
+
+Lalle Larsson's Weaveworld - Infinity Of Worlds (2010) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Demon's Kiss 06:10
+02. Otherworldly 06:20
+03. City Of Lost Souls 11:10
+04. Beyond Shadows 08:52(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C6C013E6C210D44FFA901A314091533439EA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475763   (1012030) от 09.06.2021
+
+Rancor - Release The Rancor (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wounded Wolf
+02. Violent Dreams
+03. Soul Chamber
+04. From Warrior To God(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76DD535ECF0B363C3D5B60EE03B720EDCBBEA22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475584   (1012115) от 08.06.2021
+
+Kings Hollow - How Do We Fall (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Are You Listening [00:03:46]
+02 - Chudoku [00:05:00]
+03 - Brake [00:03:32]
+04 - Medusa [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B338EE06836C0AE1A95F0A2D17631774CC25D17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475607   (1012126) от 08.06.2021
+
+Посторонним Вход Не Воспрещен (ПВНВ) - Всем п...да! (2021) [MP3|~245 Kbps (V0)] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:39]
+02 - В огонь [00:02:54]
+03 - Рабы-приматы [00:03:18]
+04 - Кнуты и пряники [00:03:31](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677A0C642C1DF38BED7A0D1537A007F730B733C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475589   (1012136) от 08.06.2021
+
+Seize Eternity - Transit of X (2021) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Car Crash [00:05:02]
+02 - Give In [00:03:22]
+03 - Divine [00:04:01]
+04 - Conviction [00:05:23](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock
+Страна: USAПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B8066D33C995D671EC34BC13194BA5ADF71377
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475613   (1012139) от 08.06.2021
+
+Arkaza - The Seven Year Plan (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I. L X V I [00:02:21]
+02 - II. Collide [00:09:43]
+03 - III. Broken [00:08:53]
+04 - IV. V I X I [00:03:18](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFAAC4601D4297741AACF4506AC3C0F2BBD0B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475581   (1012142) от 08.06.2021
+
+David Sean Simpson - The Radical Low (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never I Say 03:59
+02. Radical Low 05:24
+03. When Will The Lights Go Out 03:45
+04. Machine 04:15(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7044523C839A2FA68C79AF3AAC103B68CE84C697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475585   (1012154) от 08.06.2021
+
+Space-Man - Charged (2021) [MP3|320 Kbps] <Progressive Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dint [00:04:44]
+02 - Saturation [00:05:31]
+03 - EINZ [00:05:30]
+04 - Octaves [00:04:24](   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DD36448F7EB9D387F0197DE01E5114EE4CBCC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475645   (1012156) от 08.06.2021
+
+S.D.I. - Sign of the Wicked (1988) Reissue, 2005, Battle Cry Records [APE|Lossless|image + .cue] <Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - coming again 05:59
+02 - sign of the wicked 03:21
+03 - megamosh 02:17
+04 - alcohol 03:33(   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24950778875B458377A38EC43092E4336F74A9AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475510   (1012159) от 08.06.2021
+
+David A. Saylor - Strength Of One (2014) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Show
+02. Now You're Leaving
+03. Flying High
+04. Don't Say Goodbye(   Читать дальше...   )Жанр: AORПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90C1F826CEA5CEDD0C3CE4E2FEFF81F22423779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475591   (1012242) от 07.06.2021
 
 ] interstice [ - Existentia (2021) Innovative Sonic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Metal,  Experimental, Dark Ambient>
@@ -397,303 +695,6 @@ Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475164   (1012436) от 06.06.2021
-
-King Buffalo - The Burden of Restlessness (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning [00:06:33]
-02. Hebetation [00:04:30]
-03. Locusts [00:06:27]
-04. Silverfish [00:03:42](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B7298544E84F9370FF6077AD64B3E6D0FAC464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475181   (1012449) от 06.06.2021
-
-Dread Engine - Parabellum (2021) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change [00:04:23]
-02. Parabellum [00:03:42]
-03. Send It [00:03:25]
-04. All I Have Left [00:03:24](   Читать дальше...   )Жанр: Deathcore, Progressive MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26988C230ECE9991BB09BE967657168A0ED146E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475169   (1012450) от 06.06.2021
-
-Shun - Shun (2021) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run [00:03:49]
-02. Sleepwalking [00:03:44]
-03. At Most [00:05:35]
-04. Machina [00:05:15](   Читать дальше...   )Жанр: Psych, Stoner, Desert RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16FDA00FF7A3457A96317BD6CDCB3099416E373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475222   (1012451) от 06.06.2021
-
-John If You're Out There - Fables (2021) [FLAC|Lossless|WEB-DL|tracks] <Prog Metal, Prog Rock, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleak Reality [00:04:20]
-02. No Stars [00:08:09]
-03. Succession [00:04:04]
-04. Unanswered [00:08:03](   Читать дальше...   )Жанр: Prog Metal, Prog Rock, DoomПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F39153F2A1164990DD14433E64EF78739D4AF15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475328   (1012452) от 06.06.2021
-
-Fear Not - Fear Not (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It Up
-02. We Have A God
-03. Mr. Compromise
-04. Till The End Of My Days(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D953E80825351F5C8F8CCB5692C4C3621DA11F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475161   (1012453) от 06.06.2021
-
-Anchors & Hearts - Guns Against Liberty (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This is Not a Test [00:00:48]
-02. What If God Was One of Them? [00:03:56]
-03. The President [00:03:22]
-04. Guns Against Liberty [00:03:27](   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DDAA5ACD0F8F50FCA17BF337265042292E427E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475215   (1012454) от 06.06.2021
-
-Anima Mundi - Septentrion (2002) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizonte 2:00
-02. Por Siempre 3:44
-03. Centinela 5:16
-04. Caleidoscopio 2:22(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F294FC431DBAD3AC19CA89ABEF0575EBBE28EAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475064   (1012457) от 06.06.2021
-
-Paul Field - Big Dreams Little Rebellions (1995) [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only A Dream
-02. Somewhere Not So Far Away From Here
-03. Matter Of Faith
-04. Big Dreams(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D87760DFA9828E878C0A4BAACEBE184DF76367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475037   (1012531) от 05.06.2021
-
-Сектор Газовой Атаки - The Best 20 лет (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012531.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Водка
-2. Дембель
-3. Серенада
-4. Кошмар(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D332E86901F4F134C58D136DAF651FB5CF224D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474966   (1012548) от 05.06.2021
-
-Вежливый отказ - 20 Альбомов, Live & Single (1987-2019) [MP3|192-320 Kbps] <Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012548.jpg" />
-</div>
-
-
-###  Подробнее
-
-1987 - Пыль на ботинках
-1992 - И-и раз!..
-1995 - Вежливый Отказ - 1985-1995
-1996 - Вежливый Oтказ (Белый альбом)(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 19:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8295B0F3D81AD75F20D8E4FECC4C17655D6F3C1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474921   (1012560) от 05.06.2021
-
-Rhapsody of Fire - I'll Be Your Hero (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Your Hero (Single Edit) [00:04:12]
-02. Where Dragons Fly [00:04:34]
-03. Rain of Fury (Live) [00:04:22]
-04. The Courage to Forgive (Live) [00:05:07](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADB2C600BD2DB86B00AB9F0C5B224E505B15459
 ```
 
 

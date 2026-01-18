@@ -1,3 +1,57 @@
+###  Публикация: 1199735   (800417) от 17.01.2018
+
+VA - Electronic Bliss (25 Beautiful Relaxed Anthems) Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  George Vougioukas  -  Koi-961 (Original Mix)  3:26
+02.  Jazzamor  -  Lullaby (Original Mix)  5:27
+03.  Peter Pearson  -  Moonlight Reflections (Original Mix)  6:08
+04.  Marcus Koch  -  Space Walk (Original Mix)  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A11C74328DE2F54FE05813458062407F459D8B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199790   (800418) от 17.01.2018
+
+Patrick Bernard - Divine Grace Divine (2017) [MP3|320 Kbps] <New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiva Shakti Mantra 07:19
+02. Moksha Dharma Mantra 06:51
+03. Namaste Gita Mantra 07:16
+04. Sita Ram Hanuman Mantra 07:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB25F0851011E207D0BD932E24691CAB9E816769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199679   (800444) от 17.01.2018
 
 VA - Morning Coffee Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -639,60 +693,6 @@ VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B19C48D010C5BBD86841E56C1820B11560243DED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506112   (801512) от 29.10.2021
-
-VA - Tranquility (2021) [MP3|320 Kbps] <Psy, Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimi Green - Dewdrops 08:01
-02. Inverze - Alien Planet 08:10
-03. Mentalist - Don't Be Afraid 06:29
-04. Siloka & Thelios - Las Couillas En Betones 07:53(   Читать дальше...   )Жанр: Psy, TranceПродолжительность: 02:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CC1E0774B7890392B64E4A8BFA4F555837D7D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384642   (801677) от 21.05.2020
-
-VA - Workout Trance & Workout Electronica - Workout 2020 Progressive House [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Workout Playlist 2020 Progressive House (90 Min Continuous Mix) (88:53)
-2. Tough Track Tech House, Pt. 1 (130 BPM Workout Playlist 2020 Mixed) (4:55)
-3. Make Me Move, Pt. 2 (130 BPM Workout Playlist 2020 Mixed) (5:02)
-4. Machine Time, Pt. 3 (130 BPM Workout Playlist 2020 Mixed) (4:10)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78D9CB58BB65FFBE33993D3E3B477C084DBE0C7
 ```
 
 

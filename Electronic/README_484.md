@@ -1,3 +1,57 @@
+###  Публикация: 1089235   (953757) от 02.01.2017
+
+VA - Intimate Chill Feelings (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diario - Ancient Stone Steps (5:48)
+02. Chillelektro - Kap Arkona (5:53)
+03. Jay Jay and the Snakes - Walk Good (5:55)
+04. Rey Salinero - Lindo Cielo (6:39)(   Читать дальше...   )Производство: StereoheavenЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889CCA6DDC661FC05E3AE3E69692E7BAAE2B3A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089021   (953774) от 02.01.2017
+
+VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Digweed - Fanfare (Darren Emerson Reprise) 04:15
+02. Quivver - Mumbo Jumbo (Reprise) 05:00
+03. Sebastian Markiewicz - Sensation 09:45
+04. Collective Machine - Hold You in the Moment 07:34(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089134   (953877) от 02.01.2017
 
 VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
@@ -636,57 +690,6 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344543   (959253) от 16.02.2020
-
-Azaleh - Discography 31 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, UK Garage, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qualia (05:29)Жанр: Future Garage/AmbientПродолжительность: 04:07:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC4D2E13D6EFB16CC6B8BF082F238FE68A5B731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315323   (959328) от 16.02.2020
-
-Air Texture - Label Pack 7 Releases (2011-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Downtempo>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959328.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Rrose Selection
- 01. Anthony Child - Forced Compliance Behavior, Decision-Making And Effort (04:45)
- 02. Robert Aiki Aubrey Lowe - 8th Continent in 5 Dimensions (08:29)
- 03. Maggi Payne - In the Night Sky (08:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental/AmbientПродолжительность: 16:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B7509A08BB67D1BE9A2054A086971869243C85
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1494611   (887743) от 08.09.2021
+
+VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Moodyfreaks - Flow Of Time
+002. Observatories - Sounds From Another Room
+003. Kaleidoscope - Miss Saigon
+004. Tears - Slipped Away(   Читать дальше...   )Жанр: Chillout, AmbientПродолжительность: 08:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D33E6EBC232F22D49237C7A0FEC9EA56B129191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494588   (887744) от 08.09.2021
 
 VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -668,33 +695,6 @@ VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102669   (889333) от 10.02.2017
-
-VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
-02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
-03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
-04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
 ```
 
 

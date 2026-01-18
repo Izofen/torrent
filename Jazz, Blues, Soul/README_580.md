@@ -1,3 +1,285 @@
+###  Публикация: 163245   (985365) от 08.01.2010
+
+Chuck Berry - Chuck Berry Is On Top - New Jukebox Hits (1959-1961) [MP3|160 kbps]<Blues, Rock-n-Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1 Almost Grown
+2 Carol
+3 Maybellene
+4 Sweet Little Rock Roller
+5 Anthony Boy
+6 Johnny B. Goode
+7 Little Queenie
+8 JoJoGunne
+9 Roll Over Beethoven
+10 Around And Around(   Читать дальше...   )Жанр: Blues, Rock-n-RollПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 163425   (985430) от 08.01.2010
+
+Tom Waits - Glitter & Doom Live (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985430.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 CD: 
+01. Lucinda / Ain’ Goin’ Down To The Well No Mo’ (Birmingham – 07/03/08) – 5:37
+02. Singapore (Edinburgh – 07/28/08) – 5:00
+03. Get Behind The Mule (Tulsa – 06/25/08) – 6:26
+04. Fannin Street (Knoxville – 06/29/08) – 4:16
+05. Dirt In The Ground (Milan – 07/19/08) – 5:18
+06. Such A Scream (Milan – 07/18/08) – 2:51
+07. Live Circus (Jacksonville – 07/01/08) – 5:04
+08. Goin’ Out West (Tulsa – 06/25/08) – 3:48
+09. Falling Down (Paris – 07/25/08) – 4:21(   Читать дальше...   )Жанр: BluesПродолжительность: 01:49:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 434960   (985692) от 11.01.2012
+
+Baptiste Trotignon - Share (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. First Song (4:38)
+02. Samsara (5:07)
+03. Mon ange (6:27)
+04. Dexter (6:16)
+05. Peace (4:58)
+06. Flow (7:05)
+07. Blue (4:40)
+08. Grey (5:50)
+09. Waiting  (4:48)
+10. Red Light District (4:27)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971387   (985865) от 03.01.2016
+
+Jonny Lang - Wander This World (1998) [FLAC|Lossless|image + .cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985865.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский исполнитель, композитор и автор текстов Джонни Ланг благодаря своей необычной манере исполнения завоевал любовь как критиков, так и многочисленных фанатов. Критики говорят, что у Ланга голос, как у сорокалетнего блюзмена. Благодаря этому он и получил престижную награду «Grammy».01. Still Rainin' 04:49
+02. Second Guessing 05:10
+03. I Am 05:04
+04. Breakin' Me 04:32(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B309B92CAB4770E6EA5A5717981A7C92FDC717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612999   (985913) от 02.02.2013
+
+VA - Chesky Records - Women of Song (1997) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Caram - Samba de Verao [03:27]
+02. Christy Baron - Get to Get You Into My life [03:10]
+03. Sara K. - If I Could Sing Your Blues [03:50]
+04. Badi Assad - Num Pagode Em Planaltina [04:44]
+05. Christy Baron - Round Midnight [05:06]
+06. Sara K. - Brick House [06:02]
+07. Ana Caram - Sonhando [04:35]
+08. Rebecca Pidgeon - Spanish Harlem [03:39]
+09. Sara K. - What You Don't Know [04:32]
+10. Badi Assad - Batucada [03:11](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612411   (986133) от 02.02.2013
+
+Various Artists - Thievery Corporation - Sounds From The Verve Hi-Fi (2002) [APE|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Getz & Luiz Bonfб  - Menina Flor
+ 02. Sergio Mendes & Brazil '66 - Chove Chuva
+ 03. Jimmy Smith & Wes Montgomery - OGD (Road Song)
+ 04. Kenyon Hopkins - Hard Latin
+ 05. Cal Tjader With Lalo Schifrin - The Fakir
+ 06. Richie Havens - Something Else Again
+ 07. Astrud Gilberto - Light My Fire
+ 08. Elis Regina - Bala Com Bala
+ 09. Walter Wanderley - Batucada
+ 10. Jackie & Roy - Samba Triste(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612679   (986136) от 02.02.2013
+
+Jill Barber - Chansons (2013) [FLAC (tracks+cue)|Lossless]<Vocal Jazz, French Chanson>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petite Fleur
+02. J'attendrai
+03. Mlancolie
+04. La Javanaise
+05. Sous Le Ciel De Paris
+06. En Septembre Sous La Pluie
+07. Je Cherche Un Homme
+08. N'oublie Jamais
+09. Quand Les Hommes Vivront D'amour
+10. Les Feuilles Mortes(   Читать дальше...   )Жанр: Vocal Jazz, French ChansonПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354826   (986161) от 24.01.2020
+
+Bohren & der Club of Gore - Patchouli Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Dark Jazz, Dark Ambient, Avantgarde>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total falsch (07:18)
+02. Verwirrung am Strand (05:14)
+03. Glaub mir kein Wort (05:10)
+04. Patchouli Blue (09:06)(   Читать дальше...   )Жанр: Dark Jazz, Dark Ambient, AvantgardeПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E045D8210D5B708DC8A89E8B2E285E9BBAEC3DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612372   (986198) от 02.02.2013
+
+Various Artists - Miles From India (2008) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986198.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Spanish Key
+02. All Blues
+03. Ife (Fast)
+04. In A Silent Way (Intro)
+05. It's About That Time
+06. Jean PierreЖанр: JazzПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612388   (986210) от 02.02.2013
 
 Various Artists - Smooth Jazz for a Rainy Day (1999) [FLAC|Lossless]<Smooth Jazz>
@@ -529,266 +811,6 @@ Little Willie Littlefield - Paris Streetlights (1996)/1980,EPM Musique/Blues Col
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434552   (986912) от 10.01.2012
-
-The Pumps - Cover to Cover (2011) [FLAC|Lossless]<Blues-Rock, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Rock This House (3:53)
-02. Moving On (3:28)
-03. Forty Days and Forty Nights (5:50)
-04. Good Time Roll Creole (3:56)
-05. Blues Makes Me Feel So Good (3:25)
-06. The One After 909 (2:52)
-07. Temptation (5:34)
-08. Walking By Myself (3:41)
-09. She's Hot (4:07)
-10. Treat Her Right (3:33)(   Читать дальше...   )Жанр: Blues-Rock, Rock'n'RollПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434132   (986914) от 10.01.2012
-
-Omar & the Howlers - Big Leg Beat (1992)/1980,Amazing AMCD-1003/ [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Caledonia 2:45
-02. Someday Baby 3:11
-03. Blues Parcel Post 3:36
-04. Diesel Don Juan 2:24
-05. St. Louis Bound 2:56
-06. Hoy Hoy Hoy 3:40
-07. I Don't Know Why 2:27
-08. Everybody Knows About My Good Thing 5:50
-09. Roadrunner 2:35
-10. Up The Line 2:28(   Читать дальше...   )1992Жанр: Blues-RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434182   (986922) от 10.01.2012
-
-Jerry 'Boogie' McCain - This Stuff Just Kills Me (1999) [APE|Lossless]<Blues, Harp>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Where You Been 03:46
-02. Super Woman 05:01
-03. This Stuff Just Kills Me 06:24
-04.  Viagra Man 06:12
-05. Slave Master 03:49
-06. My Deal At The Crossroads 05:26
-07. Jealousy 04:04
-08. Ain't No Use For Drug Abuse 05:24
-09. Mama's Gone 06:15
-10. Madison Mood 04:23(   Читать дальше...   )Жанр: Blues, HarpПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354748   (986978) от 23.01.2020
-
-Gary Moore - Parisienne Walkways: The Collection (2020) 2CD [MP3|320 Kbps] <Blues, Blues-Rock, Hard-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Parisienne Walkways (Live) [5:50]
- 02 - The Prophet [6:19]
- 03 - Rest In Peace [5:59]
- 04 - Enough Of The Blues [4:47](   Читать дальше...   )Жанр: Blues, Blues-Rock, Hard-RockПродолжительность: 02:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A382F3708344F33C4A36D126CA0B907F631661EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354647   (986983) от 23.01.2020
-
-Tommy Flanagan - Four Classic Albums 1957 - 1958 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986983.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Two Ton [4:53]
-02. It's Magic/My One and Only/They Didn't Believe Me [13:44]
-03. Soul Station [5:45](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00236CBC2662C640CAADB57B83894FE79BC6EEA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354595   (987020) от 23.01.2020
-
-Sensual Chill Saxaphone Band - Sensual Jazz - Saxophone Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Sax Relax
-02. Night Time (Saxophone Instrumentals)
-03. In a Mellow Tone
-04. Intimate Moments(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:609C9BC2420AA638755C704EAA076C5452FC7CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354649   (987075) от 23.01.2020
-
-Archie Shepp - Perfect Passions 1978 (1992) West Wind [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Rose [26:39]
-02. Lush Life [20:02]
-03. In a Sentimental Mood [8:49]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BB67CDBB8A94AE89E15EF3956903D3AF041E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354648   (987077) от 23.01.2020
-
-Archie Shepp - Montreux One 1975 (1988) Freedom [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush Life [12:38]
-02. U-Jamaa [10:22]
-03. Crucificado [11:43]
-04. Miss Toni [11:59]Жанр: Avant-Garde Jazz, Hard BopПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852F28D198F6CC56D6DBEC2D41B709DBABBBB9D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971283   (987547) от 02.01.2016
-
-Joe Farrell-Louis Hayes Quartet - Vim 'n' Vigor (1983) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Arab Arab [09:59]
- 02.Besame Mucho [07:25]
- 03.Three Little Words [07:04]
- 04.Miles Mode [07:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363D8988250CD26C3CBBF14BA3097D8FAC10023A
 ```
 
 

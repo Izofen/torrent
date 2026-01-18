@@ -1,3 +1,54 @@
+###  Публикация: 1222020   (687122) от 28.04.2018
+
+Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134722   (687346) от 16.05.2017
+
+One Arc Degree - Cosmos in Flux (2017) Synphaera Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mayda (04:58)
+02. Antecedents & Consequences (07:12)
+03. Cosmos in Flux (06:20)
+04. Reconstruction of Function (07:00)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7140F3807A861069C29E8F049861A4D5E765FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134446   (687350) от 16.05.2017
 
 Seven24 & Soty - 6 Years (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -640,60 +691,6 @@ Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE5284E37FF828907D8ECD57DC9A467547E393D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028675   (688762) от 23.06.2016
-
-GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem (07:51)
-02. Northern Lights (06:12)
-03. Earl Grey (07:06)
-04. Purple (09:20)(   Читать дальше...   )Жанр: Techno, Progressive House, Trance, Breaks, DowntempoПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543D398206F866202925DDB2F6D6E01A55E4453B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028638   (688850) от 23.06.2016
-
-Halftribe - Luxia (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neoprene (04:08)
-02. Breathing Space (02:18)
-03. Well Connected (04:46)
-04. Meanwhile (02:32)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B44D78E224EC4885AC97A8E5E3B1A695477B117
 ```
 
 

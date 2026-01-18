@@ -1,3 +1,57 @@
+###  Публикация: 1205449   (783491) от 10.02.2018
+
+Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Of The Earth (Stardelay Mix) (3:40)
+ 02. Morning Of The Earth (Cassara Mix) (6:10)
+ 03. Morning Of The Earth (2:53)
+ 04. My Island (3:26)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 00:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549240C514917D22149C80B49FDF1B74A3FEEAE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205456   (783508) от 10.02.2018
+
+VA - A New Year Of Vocal House Vol.2 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Roosters feat. Dee Dee  -  Let Go (Radio Mix)  2:59
+02.  Laurenzo Tozzi  -  Let Me Be Your Baby (Dave Gate Remix)  4:30
+03.  Soul-Ty  -  Let The Sunshine  3:04
+04.  No Panties Allowed  -  Let's Dance Tonight (Radio Version)  3:28(   Читать дальше...   )Жанр: HouseПродолжительность: 03:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8735BD6445F018E10262A1079B42F78C83ED16F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204975   (783510) от 10.02.2018
 
 VA - Nothing But... Total Trance Selections Vol.01 (2018) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204873   (783799) от 09.02.2018
-
-VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzee Rascal - Dirtee Disco (4:46)
-02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
-03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
-04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205339   (783800) от 09.02.2018
-
-VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
-02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
-03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
-04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
 ```
 
 

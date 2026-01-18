@@ -1,3 +1,57 @@
+###  Публикация: 927782   (524113) от 14.08.2015
+
+The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3|320 кб/с]<Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You're Gonna Miss Me (2:31)
+02.  Roller Coaster (5:07)
+03.  Splash 1 (Now I'm Home) (3:56)
+04.  Reverberation (Doubt) (2:51)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0387046A92E8A3FEB98D9B9D111E72085F6F28B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927788   (524115) от 14.08.2015
+
+The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 кб/с]<Post-Punk/New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Holidays In The Sun (3:32)
+02.  Problems (4:28)
+03.  No Feelings (3:23)
+04.  God Save The Queen (3:13)(   Читать дальше...   )Жанр: Post-Punk/New WaveПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144F82B5ED92FD1FA8B4A826A6FE9DC3F87DBC60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927797   (524121) от 14.08.2015
 
 The Doobie Brothers - Les Genies du Rock - First Album (1993) [MP3|320 кб/с]<Rock>
@@ -635,60 +689,6 @@ Green Day первоначально был, частью панк-рок сце
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C258A52F9644F685BA9483AE2958306CA0BCAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371292   (524987) от 03.08.2011
-
-Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassical>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kauan - проект, основанный Антоном Беловым (Helengard, inea) в феврале 2005 года. Само слово Kauan с финского переводится как «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали folk doom metal. Проект концентрирует внимание на передаче состояния и атмосферы. Каждая песня написана как результат процесса, запечатлевающего и передающего (   Читать дальше...   )01. Tahtien Hiljainen Laulu (14:58)
-02. Kauniin Kuun Savelen (08:23)
-03. Ikuinen Junan Kulku (11:14)
-04. Suora Liila Sydankayra (11:49)Жанр: Doom Metal, Post-Rock, NeoclassicalПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157482   (525179) от 12.08.2017
-
-Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Season Of The Black (4:56)
-02. Serpents In Disguise (4:13)
-03. Blackened Karma (4:40)
-04. Time Will Tell (5:05)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECDFAAC24E5303F45FCBF063327E861C07913B6
 ```
 
 

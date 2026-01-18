@@ -1,3 +1,30 @@
+###  Публикация: 1199332   (801645) от 15.01.2018
+
+VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Laura Fygi  -  Good Morning Heartache  4:10
+02.  Diana Krall  -  Let's Fall In Love  4:19
+03.  Viktoria Tolstoy  -  From Above  4:32
+04.  Tony Bennett & Billy Joel  -  New York State Of Mind  4:35(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E27A74351204CE5DE2EF71DB9BCB97B47D62D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506086   (801651) от 29.10.2021
 
 VA - Electro Lemon: Fresh House Session (2021) [MP3|320 Kbps] <Electro, Future House>
@@ -668,33 +695,6 @@ VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505337   (802843) от 28.10.2021
-
-VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Альянс - На Заре (ИИ Gertrudda Edit) (8:59)
-02. Electric Youth - Modern Fears (Pilotpriest Come True Version) (4:03)
-03. DRYVE - The Fading Light (4:01)
-04. Turbo Knight & Vosto - Celestial (5:08)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3EA705A33AE9CC00C0E350478DC16C8893E755
 ```
 
 

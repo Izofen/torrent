@@ -1,3 +1,57 @@
+###  Публикация: 1457187   (1024604) от 25.03.2021
+
+VA - A Call Too Close (2021) Brokntoys [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro, Experimental>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jauzas The Shining – Cerebral (05:52)
+02. Dez Williams – Lunchunmeet (04:08)
+03. XY0815 – Messverfahren (04:53)
+04. Rugon – 0327 (06:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C51E22013B5E75318B7556EFF1A86839E957C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457103   (1024612) от 25.03.2021
+
+VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jauzas The Shining – Cerebral (05:52)
+02. Dez Williams – Lunchunmeet (04:08)
+03. XY0815 – Messverfahren (04:53)
+04. Rugon – 0327 (06:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED56B2CD5DBD84D7D90A4B2686EE0E80B322F5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457246   (1024615) от 25.03.2021
 
 Joi Lau - 3 UR Mind (2021) Klasse Wrecks [FLAC|Lossless|tracks+.cue] <Breakbeat, House, Bass>
@@ -633,60 +687,6 @@ VA - Chillout Retreat: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B6B620AA50ECEA64186BA336C634BC03DE2CC65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455236   (1025821) от 18.03.2021
-
-Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Recondite - Petrichor (Tin Man Remix) (08:00)
- 02. Palm Trax - Houses in Motion (Tin Man Remix) (07:24)
- 03. Tin Man - Sexy (Igor Vicente Remix) (11:45)
- 04. Erol Alkan - Subconcious (Tin Man Remix) (05:57)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4FCECF543F0E9F9846BD7364731E3555F5EB839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455049   (1025827) от 18.03.2021
-
-Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Frankey & Sandrino - Xrain
-03. ID - ID
-04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
 ```
 
 

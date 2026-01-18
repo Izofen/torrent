@@ -1,3 +1,30 @@
+###  Публикация: 1350789   (1002907) от 07.01.2020
+
+VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A. Guns - Merry Xmas Everybody
+02. Ohsama - Instrumental
+03. Jimi Hendrix - Message To Love (Live at the Fillmore East, NY - 1/1/70 - 2nd Set)
+04. John Fogerty - Rock and Roll Girls (Live at Red Rocks)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 08:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4E80E40C05509609640A016F4E108D99793914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350464   (1002931) от 07.01.2020
 
 VA - Chill Cristmas Lounge (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -668,33 +695,6 @@ The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350013   (1003674) от 04.01.2020
-
-Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal Alien
-02. Many Too Many
-03. In The Cage
-04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
 ```
 
 

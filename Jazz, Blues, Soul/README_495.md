@@ -1,3 +1,253 @@
+###  Публикация: 879379   (837351) от 18.03.2015
+
+Ray Charles - Standards (1998) [APE|Lossless]<Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Had To Be You [02:45]
+02. Am I Blue [03:38]
+03. Come Rain Or Come Shine [03:42]
+04. Georgia On My Mind [03:40](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 01:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF7EE1348AA5B6202E9BA634D2039D8CFC55602
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379632   (837676) от 30.04.2020
+
+Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exactly Like You [4:24]
+02. Meditacao [6:45]
+03. I Fall in Love Too Easily [6:36]
+04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310263   (837707) от 18.03.2011
+
+The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Nevada (15:34)
+02. Where Flamingos Fly (5:12)
+03. Bilbao Song (4:13)
+04. Stratusphunk (8:05)
+05. Sunken Treasure (4:19)
+06. Sister Sadie (6:57)Жанр: Jazz, Progressive Big Band, Cool, Post-Bop, Modern Big BandПродолжительность: 00:44:19
+                
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651850   (837778) от 03.05.2013
+
+VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Volare
+02. Rosemary Clooney - Mambo Italiano
+03. Perry Como - Hot Diggity (Dog Ziggity Boom)
+04. Doris Day - Whatever Will Be, Will Be (Que Sera, Sera)(   Читать дальше...   )Жанр: Soul, rock'n'roll, funkПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310271   (837803) от 18.03.2011
+
+Buster Williams - Griot Liberte (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nomads  (08:38)
+2. Related To One  (05:45)
+3. The Triumphant Dance Of The Butterfly  (07:48)
+4. The Wind Of An Immortal Soul  (09:28)
+5. Every Time We Say Goodbye  (06:29)
+6. Joined At The Hip  (08:39)
+7. Concierto De Aranjuez  (05:15)
+8. After The Ninth Wave  (03;00)Жанр: JazzПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501115   (837862) от 08.10.2021
+
+Chris Rea - Blue Guitars XI - 60S & 70s (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby Told Me (Blues) (2:42)
+02. Got to Be Moving (3:46)
+03. My Baby Told Me (Gospel) (3:04)
+04. Heartbreaker (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C871C80F757F5CB7DF9D33C0C5C8BD64E6D524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501014   (837864) от 08.10.2021
+
+Chris Rea - Blue Guitars IX - Celtic & Irish Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celtic Blue (7:59)
+02. Too Far from Home (7:30)
+03. Til the Morning Sun Shines on My Love and Me (5:30)
+04. Lucky Day (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B7B6855543862C5C0FCE24632FF2E834097EF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501074   (837874) от 08.10.2021
+
+Chris Rea - Blue Guitars X - Latin Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Gringo (5:49)
+02. Immigration Blues (5:08)
+03. Still Trying to Clear My Name (4:09)
+04. Sun Is Hot (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A30E3CCD893A06E208AEFE5636EB9105D4523E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004450   (838060) от 06.04.2016
+
+Horace Parlan - Joe Meets The Rhythm Section (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alfie's Theme [06:29]
+ 02.God Bless The Child [05:32]
+ 03.Bluesville [07:43]
+ 04.Willow Weep For Me [06:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E8E145EE22592C72E78E3C3DFF144BDCAD7B41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501052   (838242) от 08.10.2021
 
 New York Voices - Reminiscing In Tempo (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -460,249 +710,6 @@ Izzo Blues Coalition - Take It or Leave It (2021) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03E68BEE0117294A7F01F16D5BB98A5BCADFC092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379504   (839635) от 29.04.2020
-
-Red Callender - Four Classic Albums 1942 - 1958 (2016) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Speak Low [7:30]
-02. Nice Day [4:17]
-03. In A Sentimental Mood [3:31](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8560EDF332D9F439336C37D72EC32F9F9521E1C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379553   (839637) от 29.04.2020
-
-Spike Robinson & Al Cohn - Once In A Wild (1987) AAD [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sippin' At Bells [6:17]
-02. Easy Living / These Foolish Things [10:27]
-03. Sweet's Blues [7:22]
-04. Rustic Hop [5:35](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401594EDA7CF6F680B21E5A152AE78DFB4F07E69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500940   (839826) от 07.10.2021
-
-Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Love (4:12)
-02. Break Another Piece of My Heart (4:19)
-03. Ball and Chain (4:55)
-04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500878   (839941) от 07.10.2021
-
-Tony Bennett - Jazz (1954 - 1967) 1987, Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're in Love with Me [3:11]
-02. Don't Get Around Much Anymore [2:04]
-03. Stella by Starlight [2:29]
-04. On Green Dolphin Street [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921AB09EFE50DFFE3941F8E38E469AEBAB696CDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500876   (839942) от 07.10.2021
-
-Tony Bennett - Five Classic Albums (1954 - 1959) 2CD, 2021, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839942.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Fall in Love Too Easily [2:50]
-02. My Baby Just Cares for Me [2:20]
-03. My Heart Tells Me (Should I Believe My Heart?) [4:54](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F942AEB375391927CD6B72EA5969CE58A6EF37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113144   (840104) от 10.03.2017
-
-Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down To Brownsville (Feat. Little G Weebil) (3:37)
-02. That's Alright (Feat. Marco Cinelli) (3:17)
-03. Spoonful (Feat. Fast Eddie Nelson) (3:43)
-04. Blues Before Sunrise (Feat. Big Mama Montse) (3:55)(   Читать дальше...   )Жанр: Acoustic Blues, HarmonicaПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057E64C2C16EAE4734D85D2E189C7F6F1E426802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113076   (840108) от 10.03.2017
-
-Geoff Achison - Another Mile, Another Minute (2017) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Wire (03:38)
-02. Delta Dave (03:59)
-03. Working My Way Back Home (04:34)
-04. I'm Gonna Ride (03:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64680A78FDEC7E41F9CF1657DCB0DD1CC94D60A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112871   (840124) от 10.03.2017
-
-Fats Waller - The Real... Fats Waller (2016) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Ain't Misbehavin'
-2. I'm Crazy 'Bout My Baby (And My Bab's Crazy 'Bout Me)
-3. The Jitterbug Waltz(   Читать дальше...   )Жанр: JazzПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFD55BBE152B7A4333E08165C65AFA9A1C15462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004184   (840187) от 05.04.2016
-
-Colin Pollock - Three Cherries Red (2014) [MP3|320 кб/с] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Gimme Boogie    02:31
-02. Love You Forever Tonight    03:03
-03. Long Way Down    03:22
-04. Say Goodbye To The Blues    03:04(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C01739597256DB0DBD3D0BE336000A780465FF
 ```
 
 

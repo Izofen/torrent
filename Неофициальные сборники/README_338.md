@@ -1,3 +1,30 @@
+###  Публикация: 1152165   (566978) от 22.07.2017
+
+VA - Impulse 6 - Так себе музычка для ржавых корыт (2017) [MP3|320 Kbps] <Deep House, House, Trap, Drum & Bass, DubStep, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566978.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  CMRN & Emma Sameth - Hold On (Original mix)  5:50
+002.  Deep Tone - Feelings Of Love (Original Mix)  5:24
+003.  Nari & Milani feat. Tava - I Am Alright (Extended Mix)  5:43
+004.  Oliver Heldens - Ibiza 77 (Rootkit Remix)  3:12(   Читать дальше...   )Жанр: Deep House, House, Trap, Drum & Bass, DubStep, Electro, ProgressiveПродолжительность: 09:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CA76F1A484ACAA8BED1273E84A4B9165884879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304128   (567075) от 24.05.2019
 
 VA - Rock Driving Music (2019) [MP3|320 Kbps] <Rock>
@@ -677,33 +704,6 @@ VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62555B88B739CD87166B361060853DB282F8A51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922713   (568356) от 29.07.2015
-
-VA - Relax Hotel Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gel - No Body [05:43]
-02. Nejmaoui - Beat Envolved [03:51]
-03. Nejmaoui - Karma & Bossa [03:33]
-04. Hotel Riviera - Slow [03:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1386A9AC4B08CAC621C84460A7AC9FA5FD2DA0AC
 ```
 
 

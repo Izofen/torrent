@@ -1,3 +1,298 @@
+###  Публикация: 1120503   (802090) от 31.03.2017
+
+Heart Attack - The Resilience (2017) [MP3|320 Kbps] <Modern Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nocturnal Sight
+02. Burn My Flesh
+03. Congrats to People
+04. Fight to Overcome(   Читать дальше...   )Жанр: Modern Thrash, Groove MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A525768C952E7C299C3AEA27881CFE9E79362846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120505   (802091) от 31.03.2017
+
+Lodz - Time Doesn't Heal Anything (2017) [MP3|320 Kbps] <Atmospheric Post-Hardcore, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Negligence
+2. Time Doesn't Heal Anything
+3. The Sound of Deceit
+4. Shattered Dreams(   Читать дальше...   )Жанр: Atmospheric Post-Hardcore, Post-MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165B963B5456E8D39474BF7CC0492B30F09669C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120626   (802094) от 31.03.2017
+
+Call The Mothership - 2 Альбома (2014-2017) [MP3|320 кб/с]<Progressive Metal, Earthcore, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802094.jpg" />
+</div>
+
+
+###  Подробнее
+
+2014 - Of Cold Fusion And Light Mass
+2017 - Of Dark Matter And AscensionЖанр: Progressive Metal, Earthcore, Groove MetalПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA7274B55A1AB742362B6C48E8E1CF22663289B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120685   (802096) от 31.03.2017
+
+НаmmerFаll - Вuilt То Lаst (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring It! (4:20)
+02. Hammer High (4:39)
+03. The Sacred Vow (4:13)
+04. Dethrone And Defy (5:11)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2705A6EA49DD4BFC0CE85ACAC38CE506B645C286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120516   (802097) от 31.03.2017
+
+Come To Dolly - Desire (2017) [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire
+02. If I Lead You To The Moon
+03. Zero Point
+04. I Move The Stars For No One(   Читать дальше...   )Жанр: Alternative Metal, Progressive MetalПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76572CC064D53C31F3295A5C459CEE9D9F94E297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120519   (802113) от 31.03.2017
+
+Orpheus Blade - Wolf's Cry (2015) [MP3|320 Kbps] <Progressive Metal, Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadows Still
+02. The Finest Art of Feeding
+03. The Becoming
+04. Under Dying Stars(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77CA3933274AC5C7BE7A62D0ABE39C059A203E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120467   (802117) от 31.03.2017
+
+OCN (Ocean) - Waterfall (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfall (04:45)
+Desire (03:16)
+The First Cut (03:25)
+Somehow (03:50)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833194C1F6606CBE539942908C8A9A62A3515BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120504   (802118) от 31.03.2017
+
+Frailty - Ways of the Dead (2017) [MP3|320 Kbps] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. And the Desert Calls My Name
+02. Daemon Sultan
+03. Cthulhu
+04. With the Deep Ones I Descend(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CBD392C458F549F2012930AE857891EAF398E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010594   (802119) от 25.04.2016
+
+Jimmy Page, John Paul Jones, John Bonham - Rock And Roll Highway (2007) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I Do Is Wrong
+02. Think It Over
+03. Dixie Fried
+04. Fabulous(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC247DC07A0762032DCAD4D0CB9129DAA551D060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120581   (802120) от 31.03.2017
+
+Another Messiah - Dark Dreams, My Child (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Lonely Eyes (6:11)
+02. And Now I Will (5:01)
+03. My God It's Him (6:36)
+04. I Never Noticed (6:36)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00C39A6DD4619E2A88DAA1CF6A4CD24CC7E7EBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010736   (802124) от 25.04.2016
+
+Агата Кристи - Декаданс (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Щёкотно (3:31)
+02. Мотоциклетка (3:11)
+03. Его там не было (4:52)
+04. Эпидемия (3:27)(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4FB8892F569F74F561A41C98BDB380DD23AAB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010434   (802163) от 25.04.2016
 
 Primitive Instinct - One Man's Refuge (2012) [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
@@ -398,303 +693,6 @@ Anubis - Homeless (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEA6027EB9E6A3503A263BDD176A9EC1DB3A156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384566   (802751) от 20.05.2020
-
-Wolfheart - Wolves of Karelia (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Death Metal, Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail of Steel (5:42)
-02. Horizon on Fire (5:59)
-03. Reaper (4:59)
-04. The Hammer (6:09)(   Читать дальше...   )Производство: Napalm RecordsЖанр: Melodic Death Metal, Melodic Black MetalПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F432D5746BCFCE6BB59E67822E1C4E76EA8783E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198850   (802838) от 14.01.2018
-
-Dirty Tricks - Night Man (1976) Reissue, 2004, Majestic Rock [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802838.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Night Man
-2. Weekend Raver
-3. Armageddon (Song For A Rainbow)
-4. Fun Brigade(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82D43024B155E525DB1678E4C2222CB1630EEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505695   (802848) от 28.10.2021
-
-Кипелов - Отражение (2013) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сальери и его отражение (6:54)
-02. Ария Надира (4:33)
-03. Мертвая зона (6:19)
-04. Я свободен (7:14)Жанр: Heavy MetalПродолжительность: 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A90DF98850890A4BA7B71C7BDDAC04A9E2749A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505704   (802851) от 28.10.2021
-
-Robert Fripp (ex-King Crimson) - The League Of Gentlemen-God Save The King (1985) Reissue, 1989 [FLAC|Lossless|tracks + .cue]<Electronic, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Save The King 13:13
-02. Under Heavy Manners 4:56
-03. Heptaparaparshinokh 2:07
-04. Inducrive Resonance 4:37(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CEFFAC02CF60E412459CF60FED52717F72EBD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199118   (802852) от 14.01.2018
-
-Forces United - Egorov (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Егоров, известный поклонникам рок-музыки как фронтмен power metal группы "Эпидемия" и участник мюзикла "Последнее Испытание" выпускает свой перый сольный альбом! Во многом это стало возможно, благодаря, неиссякаемой  энергии продюсера Кирилла Немоляева (Бони Нем, Слот), который в рамках своей международной музыкальной лаборатии Forces United (   Читать дальше...   )1. Beconing Heights
-2. Lie
-3. Facing The Storm
-4. Father To Son(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AE46AA4895AA22873736FB35A7177D31C3F111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505816   (802856) от 28.10.2021
-
-Mastodon - Hushed And Grim (2021) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain with an Anchor (5:02)
-02. The Crux (5:00)
-03. Sickle and Peace (6:18)
-04. More Than I Could Chew (6:52)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C771B7D2F1EDE86FCB421DD81BC52156CE6438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505703   (802863) от 28.10.2021
-
-Robert Palmer - Sneakin' Sally Through The Alley (1974) Reissue, 1990 [FLAC|Lossless|tracks + .cue]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sailing Shoes
-2. Hey Julia
-3. Sneakin' Sally Through The Alley
-4. Get Outside(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D282A1535F9BD83E29815CD73B9A0D225BEA4FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199117   (802933) от 14.01.2018
-
-Pink Fairies - What A Bunch OF Sweeties (1972) Reissue, 2002, Polydor [MP3|320 Kbps] <Psych-Prog, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802933.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prologue
-2. Right On, Fight On
-3. Portobello Shuffle
-4. Marilyn(   Читать дальше...   )Жанр: Psych-Prog, Hard RockПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5239B6CF52F50B4BCD83AD5C2F5E3786CE4F747D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505794   (802934) от 28.10.2021
-
-Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Pie - Medley (5:20)
-02. Babe Babe (2:36)
-03. Guitar Boogie (3:02)
-04. My Darling (2:52)(   Читать дальше...   )Жанр: Rock & Roll, PopПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C79BA4E346A1281EC1C8F6866E14FA7FB5B93E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199021   (802935) от 14.01.2018
-
-William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll Queen (02:37)
-02. Katherina Corinna (02:50)
-03. I've Been Fooled (02:40)
-04. Never Give Up (03:21)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398E0AF4C2CCC0EB58A8F2426FC32772F793E71F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505677   (802936) от 28.10.2021
-
-Kryst The Conqueror - Deliver Us From Evil (1990) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Thruster
-02. In God We Trust
-03. Trial Of The Soul
-04. March Of The Mega-Mites(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67037B26102066F86361AADF8ADFD008CE7FCCDF
 ```
 
 

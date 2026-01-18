@@ -1,3 +1,30 @@
+###  Публикация: 929711   (518398) от 20.08.2015
+
+P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Am I Awake
+ 02. This Goes Out To You
+ 03. Rise Of NWO
+ 04. Criminal Conversations (Feat. Maria Brink)(   Читать дальше...   )Жанр: Rap Metal, Nu MetalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929801   (518402) от 20.08.2015
 
 AC/DC - BBC Live 1976-1979 (1998) [MP3|320 кб/с]<Сlassic Rock, Hard Rock>
@@ -687,35 +714,6 @@ Syd Barrett - The Madcap Laughs (1970) [APE|Lossless]<Psychedelic Rock>
 08. Golden Hair
 09. Long Gone
 10. She Took A Long Cold Look(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533870   (519393) от 14.08.2012
-
-Landforge - Servitude To Earth (2012) [WavPack|Lossless]<Atmospheric Doom Metal/Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Watch (7:47)
-02. Enchantress (7:10)
-03. Triquetra (9:53)
-04. God-Figure (7:38)
-05. Pilgrim (5:08)
-06. Phalanx (8:05)Жанр: Atmospheric Doom Metal/Post-MetalПродолжительность: 00:45:41
 
 ## Скачать торент
 ```bash

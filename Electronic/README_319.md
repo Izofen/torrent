@@ -1,3 +1,57 @@
+###  Публикация: 1144190   (629367) от 21.06.2017
+
+VA - Powerful Mantra Meditation & Yoga: 111 The Best Tracks For Deep Concentration Sleep & Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Meditation Music Zone - Powerful Mantra (Meditation And Yoga)  4:26
+002.  Mindfulness Meditation Music Spa Maestro - World Meditation  4:04
+003.  Healing Yoga Meditation Music Consort - Rainy Yoga  3:27
+004.  Buddhist Meditation Music Set - Silence Of The Spirit  3:26(   Читать дальше...   )Жанр: Downtempo, Chillout, RelaxПродолжительность: 07:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9CB0A1A59C30AB5E12E07EC111140B1BB20DF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144236   (629654) от 21.06.2017
+
+VA - Paris Fashion Beats Vol.1 (Finest Electronic Style Beats Collection) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Project Weekend Sound - Close To You (Instrumental)  4:17
+02.  After Sunrise - Deep Blue Something (Club Mix)  5:59
+03.  Bildertal - Sunder Uul (Stefan Reh Remix)  7:11
+04.  Svendaq - Golden Patch  5:40(   Читать дальше...   )Жанр: HouseПродолжительность: 02:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69B7E496071FD857EF011E4C7E600845621381C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144226   (629656) от 21.06.2017
 
 VA - Stylish Sofa Vol.11: Chill Out Masters (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -640,60 +694,6 @@ Unkle - Rōnin I (2021) Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293985   (631861) от 06.04.2019
-
-Koan - Briar Rose Side A|B (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Briar Rose (Radio Version) (4:17)
-02. My Personal Dark Knight (The Kiss of Dark Knight Version) (7:18)
-03. Dream in Kaiser Gardens (Radio Version) (3:51)
-04. The Star of Pytheas (7:44)(   Читать дальше...   )Жанр: Electronic, Downtempo, Ambient |Продолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A5225C398E4954C0A2FB7E25D99BBFC7B27EC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034967   (632159) от 14.07.2016
-
-Moby - Music From Porcelain (2016) [MP3|320 Kbps] <Techno, Acid House, Ambient, Breaks, Downtempo>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raze - Break 4 Luv (5:24)
-02. 808 State - Pacific State (5:46)
-03. A Tribe Called Quest - Scenario (4:10)
-04. Precious - Definition of a Track (5:21)(   Читать дальше...   )Жанр: Techno, Acid House, Ambient, Breaks, DowntempoПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F455DC4155D731E28ACCE4E17CEB9C0C88916F8
 ```
 
 

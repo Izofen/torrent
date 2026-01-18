@@ -1,3 +1,30 @@
+###  Публикация: 1279996   (763689) от 01.02.2019
+
+VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Canosa - Fireworks
+002. Discotron - Mo Swagger Than Jagger
+003. Charlie - Switch The Sound
+004. Enyon - All Night Long(   Читать дальше...   )Жанр: Funky, Disco HouseПродолжительность: 11:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB370FE56BDE0B3CCFD5C83D201A499F68A3A47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394387   (763713) от 05.07.2020
 
 VA - Music for You vol.11 (2020) [MP3|320 Kbps] <Rock, Progressive Metal, Other>
@@ -668,33 +695,6 @@ VA - Club Dance Dependence vol. 6 (2017) [MP3|320 Kbps] <Club, Dance, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB465C63DB0C159ACF9C50586B3D36154027D9F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279840   (764530) от 31.01.2019
-
-VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764530.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zikim - Kоut Djеl
-002. Aldubb - Dub13
-003. Mаikеl Dеlасаllе - Rерlау
-004. Nуnо Vаrgаs - Diсеn Dе Mi(   Читать дальше...   )Жанр: Reggae, Dub, SKAПродолжительность: 08:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA8692AD31B15922C6C7C3D27B1C756F67CCF50
 ```
 
 

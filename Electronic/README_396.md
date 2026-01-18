@@ -1,3 +1,55 @@
+###  Публикация: 1206716   (781705) от 15.02.2018
+
+Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ambient Sounds NA11 20:45
+2. Ambient Sounds NA22 19:46
+3. Ambient Sounds NA33 19:46
+4. Ambient Sounds NA44 16:33(   Читать дальше...   )Жанр: Ambient, Drone, DowntempoПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DD9B6390A1645A83F1AA091D0DC976140A8E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206841   (781718) от 15.02.2018
+
+Zero Cult - Tangoa (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Psychill, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tangoa (06:46)
+02. Sweet Apathy (06:05)Жанр: Tech House, Psychill, DowntempoПродолжительность: 00:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:197ACCE79F8A0DA9B2AB3B042E512BF19F1A6790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206681   (781738) от 15.02.2018
 
 Ekke - Klangfarbenmodular (2018) Detroit Underground [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, Glitch, Ambient>
@@ -641,60 +693,6 @@ J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390864   (782299) от 17.06.2020
-
-Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Abstract, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (04:00)
- 02. General Noise I (Remastered Version) (04:59)
- 03. General Noise II (Remastered Version) (05:43)
- 04. General Noise III (Remastered Version) (06:02)(   Читать дальше...   )Жанр: Ambient, Techno, Abstract, Techno AmbientПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896C520FBC8598D1C700B35EBD70B726DB283C25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390893   (782301) от 17.06.2020
-
-Min-Y-Llan - Snagged (2020) Min-Y-LlanMusic [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Glitch, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vm12 (00:56)
- 02. Bocuma - Maybe They Are Here (Min-Y-Llan Remix) (01:28)
- 03. Just Sitting Round Here (03:04)
- 04. Baby Do It (03:39)(   Читать дальше...   )Жанр: IDM, Downtempo, Glitch, AmbientПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9935C195AD3D9A76DA3FE9D86CE4A360F2D1E60F
 ```
 
 

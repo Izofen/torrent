@@ -1,3 +1,30 @@
+###  Публикация: 1037767   (612126) от 25.07.2016
+
+VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Aoki & Boehm Feat. WALK THE MOON -  Back 2 U (Extended Mix) 6:36
+02. John Dahlback Ft. Bullysongs -  Walking With Shadows (Happy Love Remix) 3:28
+03. Pulsedriver -  I Want Your Soul (Sal De Sol 2015 Mix) 4:06
+04. Arnold Palmer -  Hey There Delilah (Luca Debonaire Edit) 3:40(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CD193A86238BDA1A84F518FC837ABFCF7F0F24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037754   (612137) от 25.07.2016
 
 VA - Amnezia Super Hits 04 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -683,33 +710,6 @@ VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037585   (613679) от 24.07.2016
-
-VA - Дорожный шансон с любимой музыкой. Часть 2 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613679.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Королев - Дай Мне Слово
-002. Андрей Адаричев - Еще Одна История
-003. Александр Курган - Сердце Прости
-004. Марина Александрова - С Глаз Долой(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0610C0D58573E4BFB2CA4AD7F08ED7DCEA134F5B
 ```
 
 

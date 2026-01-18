@@ -1,3 +1,54 @@
+###  Публикация: 1436896   (1042813) от 02.01.2021
+
+The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Duguid feat. Julie Thompson - Falling
+02. Michael Cassette - Zeppelin
+03. Cicada - Beautiful (Michael Gray Remix)
+04. Andrew Bayer - Counting The Points(   Читать дальше...   )Жанр: TranceПродолжительность: 02:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBA998E0FA597EA1FA67C9079A7BD06A5F1A74B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436931   (1042815) от 02.01.2021
+
+VA - Nine Years Of Techno Part 2: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Ishii – TwitchedЖанр: TechnoПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5648DCAB6D60900D3D7E731CE968E75F4574AE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436919   (1042818) от 02.01.2021
 
 VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -639,57 +690,6 @@ Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-p
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182191   (1044107) от 25.01.2023
-
-Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Downtempo, Trip-HopПродолжительность: 02:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0946125EFDCD860765118085DE623053D5DCBD52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607256   (1044156) от 25.01.2023
-
-VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Sail Away (Original Mix) (6:49)
-02. Living Room - Are You a Giver or Are You a Taker (Instrumental) (3:54)
-03. Chill N Chill - Glory Night (6:35)
-04. Martin Hiska - Eb (6:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0FF274D97C314330DCC36C1BA17037930A5250
 ```
 
 

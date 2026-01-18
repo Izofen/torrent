@@ -1,3 +1,54 @@
+###  Публикация: 1210866   (778242) от 05.03.2018
+
+VA - Redux Presents: The Uplifting Selection Vol.1 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  TrancEye  -  Lonesome Feelings (Extended Mix)  6:40
+02.  Kiyoi & Eky  -  Moon River (Extended Mix)  6:59
+03.  Riialto & F.G. Noise  -  Edgy (Extended Mix)  7:15
+04.  Fright Nite  -  Fifth Dimension (Extended Mix)  6:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06943A4BCEE3BC5D796B9094180CEA2CB8213055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211068   (778244) от 05.03.2018
+
+Zen - Dark Blue (2018) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Techno, Psytech>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Blue (10:43)Жанр: Techno, PsytechПродолжительность: 00:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58AA92B58D8AC69ED0751F4D27563BCC6B48DD0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211041   (778246) от 05.03.2018
 
 VA - Chilling Sounds Vol.9 (2018) [MP3|320 Kbps] <Chillout, Balearic, Downtempo>
@@ -641,60 +692,6 @@ Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAF3460584B289BF82FFE9184D0C9E5619A3F058
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210440   (778877) от 02.03.2018
-
-VA - Chilling Sounds, Vol. 8 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black-edem - Pacification (Original Mix)  04:12
-02. Dan Smooth - Sky (Original Mix) (feat. Elena T)  06:33
-03. Dantiss - I Remember (Original Mix)  05:02
-04. Den Shender - Big City Life (Original Mix)  03:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDF4D4331219930278C7187D391A4B69E20552D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209924   (778951) от 01.03.2018
-
-ScAnDroid Experiment's - Fera Venator (2018) Single, Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Trance, Dub>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fera Venator (Original Mix)
-02. Fera Venator (Dubtronic Mix)
-03. Hoc Irascibilem (Original Mix)
-04. Fera Venator (PsychoDub Mix)(   Читать дальше...   )Жанр: Experimental Electronic, Trance, DubПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05698C62CEF07D28FDA19BDF4B2892DCB8998E2D
 ```
 
 

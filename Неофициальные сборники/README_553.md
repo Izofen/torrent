@@ -1,3 +1,30 @@
+###  Публикация: 1114238   (833490) от 14.03.2017
+
+VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833490.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abriviatura IV - Never Gonna Say Goodbye (Original Mix) 5:38
+002. Adana Twins - Etah (Original Mix) 6:57
+003. Andre Gazolla - Follow The Groove (Original Mix) 6:41
+004. Aida, Berkhan Baser - All (Original Mix) 5:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6825F908C4332F6CBD76CCC5604A33D7C6706276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114255   (833493) от 14.03.2017
 
 VA - I Love Music! - Nu Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
@@ -669,33 +696,6 @@ VA - Русский суперсборник поп музыки (2016) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E84C665242650DF7C12846403CC8802E67D6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004919   (834270) от 08.04.2016
-
-VA - 100 Хитов в дорогу (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Бычков - Ясноглазая
-02. Михаил Дмитриев - Ярче только звёзды
-03. Сергей Клушин - Размышления Охранника
-04. Андрей Швидько - Пуля-Время(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AA4A6A241184221B76C987AA78D270A9BED4B9
 ```
 
 

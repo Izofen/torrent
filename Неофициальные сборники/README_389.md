@@ -1,3 +1,30 @@
+###  Публикация: 1293309   (637134) от 03.04.2019
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zucchero  -  Baila (Sexy Thing)  4:08
+02.  Raffaella Carra  -  Tanti Auguri (Com'e Bello Far L'amore)  3:53
+03.  Umberto Tozzi  -  Al Sud  5:12
+04.  Serena Rizzetto  -  E Tutto Un Attimo  3:17(   Читать дальше...   )Жанр: PopПродолжительность: 67:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE9C388CD15C91CE39E5394F6976DEEEF84DD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519129   (637204) от 06.07.2012
 
 VA - Шансон за рулем: Рейс к морю (2012) [MP3|256 кб/с]<Шансон>
@@ -699,33 +726,6 @@ VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033486   (638233) от 11.07.2016
-
-VA - Club Dance Ambience Vol.77 (2016) [MP3|320 Kbps] <House, Electro House, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sander van Doorn vs. Florence & The Machine -  Reach The Love  (Sensetive5 Mashup) 6:07
-002. Bob Sinclair -  Someone Who Needs Me (Alex Gaudino & Dyson Kellerman Remix) 4:10
-003. Calvin Harris feat. Rihanna -  This Is What You Came For (Akhmetoff Remix) 3:48
-004. Madonna -  Music (Vincent & Diaz Remix) 5:05(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 07:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E24FC112AABF245595176F0A83D94CBB04D713A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1276413   (788222) от 16.01.2019
+
+VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maite Kelly - Die Liebe Siegt Sowieso
+02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
+03. Andrea Berg - Ja Ich Will (DJ Edition)
+04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276409   (788231) от 16.01.2019
 
 VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2336BB6514BB9F1DAAAA65BE04FCF2FB2832B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275997   (789072) от 14.01.2019
-
-VA - The Sacrifice: Techno Folk Party (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sirch And William Kiss - Delhi
-002. Dimor - Dark Story (Original Mix)
-003. Headhunterz - The Sacrifice (Max Enforcer Remix)
-004. Jnxd - Fuck Shit Up (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 10:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2333B176CEB516F11DF1FF65939258C718EA64
 ```
 
 

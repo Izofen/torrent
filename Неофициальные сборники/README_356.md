@@ -1,3 +1,30 @@
+###  Публикация: 1300624   (588033) от 08.05.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хас - Дикий Кач (3:13)
+02. Alyona Alyona - Відчиняй (2:37)
+03. Freel - Спалах (3:23)
+04. Артем Лоік - Суд Лінча (3:58)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB38825BBB277BA9EE51F547B0266870710D0278
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357145   (588059) от 30.06.2011
 
 VA - Dub step from evolinte vol.17 (2011) [MP3|320 kbps]<Dubstep, Drumstep>
@@ -659,33 +686,6 @@ VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B705B1FAB7C125875A08D1CE478C50F62FB6A30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551296   (590103) от 15.05.2022
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 119 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. 71 Digits x Flo Rida - Low (Extended Mix)
-02. Akon Feat. Eminem - Smack That (Jonvs & Bagy Remix)
-03. Arash & Junona Boys & Dor Halevi - Broken Angel (Dj Baur VIP Edit)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B895A2689F2246D082B13D039E36D29BE598D5E3
 ```
 
 

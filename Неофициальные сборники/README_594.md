@@ -1,3 +1,30 @@
+###  Публикация: 993539   (895434) от 05.03.2016
+
+VA - 8 Марта. Корпоратив №1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex - Говори Со Мной
+02. Natan - Я Тебя Выберу
+03. Потап и Настя - Умамы
+04. Кристина Кос - Ты Мое Счастье(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 06:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F4F46BCFDEBC3F98C659B3679BF3A0AA37C16D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993683   (895477) от 05.03.2016
 
 VA - Best of Piano and Acoustic Guitar: Spa Music for Yoga Massage and Healing (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -667,33 +694,6 @@ VA - Лирика шансона 2 (2014) [MP3|320 кб/с]<Шансон, поп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99787C22C94B1A2BD6DABA5313AF545EAC02D1C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992678   (897582) от 04.03.2016
-
-VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radion6 & Neev Kennedy - Nothing Here But Goodbye (Ron Alperin Remix) (07:10)
-02. Kaimo K - Love Will Never Leave (Radio Edit) (02:55)
-03. Ruslan-set, Chiba & Victoria RAY - Eternal Beauty (06:36)
-04. Cathy Burton - Torn (F.G. Noise Edit) (03:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45A54777F19EE79114E48A1D8EB25DFDFC503894
 ```
 
 

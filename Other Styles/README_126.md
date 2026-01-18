@@ -1,3 +1,30 @@
+###  Публикация: 1217096   (744865) от 03.04.2018
+
+Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karmic Harmonic (3:09)
+02. Coming Home (3:29)
+03. Ambient Neon (3:39)
+04. Cool Waters (3:37)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE661458007C569EDD56E0C4BB87B0E9C48ACF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216953   (746006) от 02.04.2018
 
 VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <Blues-Rock, Reggae, World Music>
@@ -668,33 +695,6 @@ VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD7B009A6B8A15A86123EA36FCE89EA022D6B644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018615   (755677) от 20.05.2016
-
-Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Ride [5:49]
- 02. Eagle And Condor [4:52]
- 03. Cool Breeze [6:59]
- 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
 ```
 
 

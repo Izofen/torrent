@@ -1,3 +1,57 @@
+###  Публикация: 926539   (533566) от 10.08.2015
+
+Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cue]<Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Foreverland 03:54
+02. Roads To Rome 03:17
+03. Manifestations 05:46
+04. Loved By You 02:51(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011A23326CD821DFA37111E81C632DC23E7AD223
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926531   (533571) от 10.08.2015
+
+Seventh Wave - Things To Come (1974) Remastered /2005, Air Mail Archive/ [FLAC|image+.cue]<Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Scraper 02:16
+02. Metropolis 04:24
+03. Intercity Water Rat 00:30
+04. Escalator 00:17(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178B6808A9953502B515540E4A8812F4EAE7B3ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155421   (533609) от 03.08.2017
 
 Vanden Plas - The Seraphic Live Works (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -647,60 +701,6 @@ magnet:?xt=urn:btih:41B016F76EBA9989276EE1564123A9E0760E404D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB656EFC891AA010E58D6674AE9DC34A89CFD810
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926224   (534957) от 09.08.2015
-
-VA - The Many Faces Of Pink Floyd - A Journey Through The Inner World Of Pink Floyd (2013) 3CD Set [FLAC|image + .cue]<Psychedelic Rock, Art Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из трёх дисков содержащий лучшие композиции группы Пинк Флойд, в исполнении выдающихся музыкантов прогрессив, арт рока.Записан членами групп King Crimson, Yes, The Doors, Toto, Asia и др.
-
-01. Adrian Belew (King Crimson) & Alan White (Yes) - Speak to Me / Breathe (5:35)
- 02. Larry Fast (Peter Gabriel) & Alan White (Yes) - On the Run (3:17)(   Читать дальше...   )Жанр: Psychedelic Rock, Art Rock, Pop RockПродолжительность: 03:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280810C6AAB4C8F8F0752DBF01EEA036CE19BE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155327   (534984) от 02.08.2017
-
-VA - Rock 'N' Roll America (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем недавно в релизе VA - Rock 'N' Roll Britannia (2016) я написал об истоках рока. Но как же вспоминая о них не вспомнить об американском роке (и ведь если совсем строго, то именно там рок и зародился). Поэтому логическим продолжением релиза (ссылка внизу раздачи) является ретроспектива первых рок'н'рольщиков Америки.CD1
-01. Bill Haley & His Comets - Rock Around The Clock  (2:12)
-02. Chuck Berry - Roll Over Beethoven  (2:25)
-03. Danny & The Juniors - At The Hop  (2:32)(   Читать дальше...   )Тип издания: Box Set, 3CDРелиз состоялся: 30 Aug. 2016Жанр: RockПродолжительность: 03:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E5844994472A6FD852569FD5C4CB2478B38C9D
 ```
 
 

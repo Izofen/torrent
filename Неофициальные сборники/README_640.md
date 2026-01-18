@@ -1,3 +1,30 @@
+###  Публикация: 974962   (974468) от 13.01.2016
+
+VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса Кожикина - Белые Снежинки
+02. Krewella - Somewhere To Run
+03. Чи - Ли - Моя Религия
+04. Karl Wolf Feat. Classified - Grown Man(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2BCAAD51AFFDE67F77D5FD8EB3EF92FC592C49E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974902   (974535) от 13.01.2016
 
 VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -698,39 +725,6 @@ VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C06BE20BF7E59347725186FCCBC9BD6EEB488E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614551   (976615) от 09.02.2013
-
-VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Константин Беляев - Гимн холостяков
- 02.Lana Bittencourt - La Lecon de Twist
- 03.Theo Schumann Combo - Wer war gestern bei Dir
- 04.Nora Nova - Maenner Gibts Wie Sand Am Meer
- 05.Ola & The Janglers - Reelin And Rockin
- 06.Fredy Brock & Die Twist Makers - Boogie Woogie Twist
- 07.Крекерс - Субботний Твист
- 08.Жанна Агузарова - От Москвы до Ленинграда
- 09.Britta Martell & Tanzorchester Gerhard Narholz - Ich bin allein
- 10.Korda Gyorgy - Hippy, Hippy, Shake(   Читать дальше...   )Жанр: TwistПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1153930   (557024) от 28.07.2017
+
+Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557024.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (01:59)
+2. No One Of Them (06:20)
+3. Awaiting (08:43)
+4. Follow In The Loveless (08:35)(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CBA29AFED08E02CDE518412B95F7BAF8171E15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556630   (557072) от 11.06.2022
+
+Intus Mortem - Exiled From Light (2022) [FLAC|Lossless|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ex Inferi Oblatus (00:04:09)
+02 - May the Dead Rise (00:05:01)
+03 - Exiled From Light (00:03:12)
+04 - Blood and Lust (00:05:10)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98472E5E49BE5FA2C1D2F1FB9120BF98B171CB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556815   (557074) от 11.06.2022
 
 CoreLeoni - III (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -640,60 +694,6 @@ Gus G. - Brand New Revolution (2015) Japanese Edition [FLAC|image+.cue]<Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9A73BB5184834612E03426096E7D9252C09CFFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924587   (557616) от 04.08.2015
-
-Tow Truck Tom And The Roadside Wrecks - Sophomore Slump (2001) [MP3|320 кб/с]<Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legacy
-02. Dawn Breaks
-03. Middle Of Nowhere
-04. Turn Towards Tomorrow(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940E7C076F99FCA7F944F8464B39645025D656F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924563   (557673) от 04.08.2015
-
-Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pain
-02. Abyss
-03. Tightrope
-04. Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E872E650276523E349F231770ED1971FB9E25F
 ```
 
 

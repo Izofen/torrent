@@ -1,3 +1,30 @@
+###  Публикация: 1027211   (696532) от 19.06.2016
+
+VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Aznavoour - Les Deux Guitares
+02. The Bangles - Eternal Flame
+03. Tevin Campbell - Everything
+04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027464   (696542) от 19.06.2016
 
 VA - Planet Pop Vol. 04 (2016) [MP3|256-320 кб/с] <Pop>
@@ -667,33 +694,6 @@ VA - Весна. Высшая лига выпуск № 7 (2017) [MP3|256 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAFAC0A857CC5E812F0539A047524652908778A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402899   (697328) от 16.08.2020
-
-VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umami - And Stay With Me There Forever (2019) (4:02)
-02. Corazza & Steve Paradise - Pachamama (FNX Omar remix, 2018) (5:15)
-03. Damian Lazarus & The Ancient Moons - Vermillion (&Me remix, 2015) (7:12)
-04. Mike Salta - Escape From Rico Bay (Drop Out Orchestra club cut, 2012) (5:35)(   Читать дальше...   )Жанр: Deep House, Techno House, Progressive HouseПродолжительность: 09:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C926E7DA21667718DA3694D5DFC92772874E7B95
 ```
 
 

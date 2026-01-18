@@ -1,3 +1,57 @@
+###  Публикация: 1557348   (541139) от 15.06.2022
+
+Abbath - Dread Reaver (2022) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий альбом ABBATH, работа над которым заняла два года, стал кульминацией всего того, что было до него. Объединив в себе элементы "Abbath" (2016) и "Outstrider" (2019), "Dread Reaver" обнажает свои фантастические клыки и скачет вперед на раздвоенных копытах. С альбомом ABBATH не сравнится ничто. Это самый мрачный металл для эпических (   Читать дальше...   )01. Acid Haze (4:51)
+02. Scarred Core (3:29)
+03. Dream Cull (4:15)
+04. Myrmidon (4:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB070B3F1847807DCF6BE2D3A06DA2CF8DBCE137
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557392   (541140) от 15.06.2022
+
+Roki - Mother (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me 03:09
+02. Willing 03:36
+03. Let Go 04:15
+04. Sabotage 03:04(   Читать дальше...   )Жанр: Dark Folk, Ethereal, DoomПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01868937ADA71F3A68817ECB59C99271D2CBACB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 790079   (541214) от 06.08.2015
 
 Joshua - Surrender (1985) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -643,60 +697,6 @@ Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1363C4FFA1365419BBE62597B2DDF5B656D2A66F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557132   (542697) от 14.06.2022
-
-Maledictive Pigs - Bloodshed (2001) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel
-02. Merciless Killing
-03. Putrid Autopsy
-04. Horrible Creation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADECFE9A86FC13B58920124303C7F7088AF9E131
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557111   (542698) от 14.06.2022
-
-Swörn (Sworn) - Keshan (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Doom, Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tlaloc
-02. Seito Kara Kyōshi-e
-03. Stenbec
-04. Rabarama(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Doom, Desert RockПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE16971A852FDF7FA433C223FEA81047DCB6C91
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1512284   (787465) от 24.11.2021
+
+VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Divas Of Color - One More Time
+002. Quantum Divas - All Be Free
+003. Allovers & Masaki Morii - Addicted
+004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512356   (787467) от 24.11.2021
 
 VA - Techno Frozen (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -665,33 +692,6 @@ VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276413   (788222) от 16.01.2019
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maite Kelly - Die Liebe Siegt Sowieso
-02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
 ```
 
 

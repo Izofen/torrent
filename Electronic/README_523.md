@@ -1,3 +1,57 @@
+###  Публикация: 1445238   (1033780) от 05.02.2021
+
+VA - Liquid Drum & Bass Sessions 2019 Vol 6 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seba - Shades Of Me & You (Original Mix) (06:15)
+02. Kubiks, Lomax - Find A Way (Blu Mar Ten Remix) (06:05)
+03. Tali, RoyGreen & Protone, DRS - Paper Wasp (Lenzman Remix) (04:57)
+04. Komatic - Seasons Sleep (05:39)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4864602D77F56A9903C7B69202F8B395E4802173
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445369   (1033793) от 05.02.2021
+
+MAS 2008 - De-Cyphered Music (2000) Elektrolux [FLAC|Lossless|tracks] <Electro, IDM>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cypher (Introducing) (03:18)
+ 02. Cosmic (03:30)
+ 03. Optic Motions (05:24)
+ 04. Outpost Omega To Houston (05:01)(   Читать дальше...   )Жанр: Electro, IDMПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2DC4C2962683F4C234361A82B0EDE91242BB58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618226   (1033891) от 12.03.2023
 
 Водяные Эльфы - Гики на выгуле (2023) [FLAC|Lossless|WEB-DL|tracks] <Nintendo Core>
@@ -638,60 +692,6 @@ Erik Schilke - Synthesis (2021) Hymen Records [FLAC|Lossless|WEB-DL|tracks] <IDM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7469C4817761AC796DB7019AC69599F531872B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618168   (1034363) от 10.03.2023
-
-Wolfgang Flur - Magazine 1 (2022) [FLAC|Lossless|image + .cue] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольфганг Флюр — единственный оставшийся в живых участник классического состава Kraftwerk, который в настоящее время пишет и выпускает новую музыку! Полностью новый электронный альбом «Magazine 1», который был создан Вольфгангом Флюром вместе с некоторыми самых известных имен синти-попа и электронного танца прошлого и настоящего. С участием Мидж Юр (Ultravox), Питера (   Читать дальше...   )01. Magazine (feat. Ramón Amezcua)
-02. Zukunftsmusik (feat. U96)
-03. Best Buy (feat. U96)
-04. Das Beat (feat. Midge Ure)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CEEE54BC0D342F0BC1F0DCDD3C892D2E2C62C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444689   (1034428) от 02.02.2021
-
-Joachim Spieth - Ousia (2021) Affin [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sparsha (07:17)
-02. Jiwa (06:39)
-03. Mutuus (with Markus Guentner) (07:43)
-04. Akasha (07:20)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D34DDD00220AC33774E5B26A9DD6A25BA0504ED
 ```
 
 

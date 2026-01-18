@@ -1,3 +1,57 @@
+###  Публикация: 1121784   (799150) от 04.04.2017
+
+Handel - Carmelite Vespers 1707 (1989) 2CD, 1999, Virgin Veritas [APE|Lossless|image + .cue] <Classical sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799150.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Deus in adjutorium meum intende
+2 - Antiphon I: Pulchra es et decora
+
+Psalm I: Dixit Dominus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A5432C998AA35C7E7E25AB5821E015C385D9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425187   (799476) от 03.04.2017
+
+Великие композиторы. Жизнь и творчество (2009) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799476.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Маленькая ночная серенада"
+соль мажор (KV 525)
+1. Allegro
+2. Romanze - Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 83:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5A52ABF7F100CC0E94817EDD70D958D0A93B88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121732   (799617) от 03.04.2017
 
 Isao Tomita - Different Dimensions (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Modern Classical>
@@ -639,60 +693,6 @@ Joep Beving - Solipsism (2015) [MP3|320 кб/с] <Modern Classical, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8626F6EDF769E332B08409003CDAB8645924C0BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117379   (818787) от 22.03.2017
-
-Schubert, Schumann - Wanderer Fantasy, D.760;  Fantasie, Op.17 (Orlando Jopling, English Chamber Orchestra, Members of the Schubert Ensemble) (2007) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Schubert - Wanderer Fantasy in C Major, D.760
-
-[1] I. Allegro con fuoco ma non troppo (06:00)
-[2] II. Adagio (07:02)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35D78EBD1D8444A724BF5251F10DE88676A0980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007284   (819154) от 16.04.2016
-
-Kaori Muraji - Plays Bach (2008) [APE|Lossless|image + .cue] <Classical, guitar>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for Harpsichord in E major, BWV 1053 by Johann Sebastian Bach
-1) I. Allegro 09:20
-2) II. Siciliano 05:47
-3) III. Allegro 07:41Жанр: Classical, guitarПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042808C64DDB7D33CE11D614DB98E5E7766CCBBD
 ```
 
 

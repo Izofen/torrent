@@ -1,3 +1,57 @@
+###  Публикация: 1202755   (789120) от 31.01.2018
+
+VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike La Funk - Alive (Extened Mix) (feat. Lyla Bull)
+02. Reggie Steele - Higher (BPM Experience Vocal Mix)
+03. Lesamoor - All You Got To Do (Samy K Remix) (feat. Fat Groovyz Band)
+04. Disk Nation - Kandido (David Grant Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE945A5CB3CFF67D9B38BAF4EA382858FF8E5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065046   (789294) от 30.01.2018
+
+Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cubicolor - Dead End Thrills
+2. CamelPhat - Raabta
+3. Jerome Isma-Ae & Alastor - Reflection
+4. Moby - Natural Blues (Sander van Doorn remix)(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 15:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA9C1FC0065A0149AB0FA438D8FE802038B0747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275890   (789394) от 13.01.2019
 
 Spacehawk - The Last Guardian (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco>
@@ -641,60 +695,6 @@ VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2583C3576AF0551B1C8682229DEE23180FBD852C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275638   (789903) от 12.01.2019
-
-VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pierce Fulton - Noon Gun (Original Mix) 5:31
-02. Lahox & Crusy - Africa (Original Mix) 5:12
-03. Tiny Ducks & Zai - Please Don't Go (Ryoji Takahashi 2018 VIP) 3:59
-04. Miami Rockets - Storm (Nicola Fasano Re-Edit) 4:39(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991E8CC5F1FD66539B925CE24005BA2252ECE2EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202498   (789926) от 29.01.2018
-
-VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nery - Redawn (Andy Blueman Remix)
-02. Attens Feat. Martina Kay - If You Find A Way (Playme Dub Mix)
-03. Jericho Frequency Feat. Emma Chatt - Do You See Me (Original Mix)
-04. (FAVORITE OF THE WEEK) DreamLife & Laucco - Amaranth (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
 ```
 
 

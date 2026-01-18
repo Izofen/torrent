@@ -1,3 +1,303 @@
+###  Публикация: 1119500   (807339) от 28.03.2017
+
+Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive rock, Ambient, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Vapor (4:04)
+02. Gina Part A (2:34)
+03. Gina Part B (2:55)
+04. Ellen's Thoughts (2:13)(   Читать дальше...   )Жанр: Progressive rock, Ambient, ExperimentalПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA6BA93D83EF44E5EDE3AFAB5A6CA43F6E154E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119482   (807342) от 28.03.2017
+
+Billy Swan - I Can Help (1974) Reissue, 1985, Epic [FLAC|Lossless|tracks] <Soft Rock, Country, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Please
+02. I Can Help
+03. I'm Her Fool
+04. I'd Like To Work For You(   Читать дальше...   )Жанр: Soft Rock, Country, Rock'n'RollПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A50249ADC746E4531F2E6EF4AFDE4AABB77FFCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119433   (807348) от 28.03.2017
+
+Ol' 55 - Take It Greasy (1976) Reissue, 1991, Mushroom [FLAC|Lossless|tracks + .cue] <50's Classic Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Summertime, Summertime
+02. The Iridiscent Pink Sock Blues
+03. I Wonder Why?
+04. Almost Grown(   Читать дальше...   )Жанр: 50's Classic Rock, Rock'n'RollПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD958C943BC92669DE6012DD1331290B44781D7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009820   (807464) от 22.04.2016
+
+Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Айлавью (4:16)
+02. Нисхождение (4:38)
+03. Сирота (4:19)
+04. Новый год (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737D4F6AC8376D17243968BC2E655BBCCFC978A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119366   (807493) от 28.03.2017
+
+Harakiri for the Sky - III: Trauma (2016) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling the Rain
+02. Funeral Dreams
+03. Thanatos
+04. This Life as a Dagger(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6932BABEA809B6647B20053BA13726EB5414F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009792   (807594) от 22.04.2016
+
+Агата Кристи - Коварство И Любовь (1991) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Art Rock, Goth Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агата Кристи - Инспектор По... (2:30)
+02. Viva Kalman! (2:40)
+03. Африканка (3:01)
+04. Сытая свинья (4:24)(   Читать дальше...   )Жанр: Art Rock, Goth Rock, AvantgardeПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E562C8C592F39D3880E3EFCBCB0D3C4EA73300A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119330   (807602) от 28.03.2017
+
+Enbound - The Blackened Heart (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling
+02. Give Me Light
+03. Crossroad
+04. Get Ready For(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B4630D2A0D84015E9C832A66575E7AB5C3B8D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 33375   (807669) от 25.10.2021
+
+ZZ Top - 9 альбомов (1970-2003) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807669.jpg" />
+</div>
+
+
+###  Подробнее
+
+ZZ Top — американская блюз-рок-группа, основанная в 1969 году в Хьюстоне, штат Техас. Состав группы практически неизменен со дня основания: Билли Гиббонс, Дасти Хилл, Фрэнк Бирд. Продюсером вплоть до сентября 2006 года был Билл Хэм.Альбомы:
+1970-1981 - The ZZ Top Sixpack - Box
+1979 - Deguello
+1983 - Eliminator - Front.Inside(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7F472F46D6016F7F9FECD022E599F2A7DD5A00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009768   (807717) от 22.04.2016
+
+Агата Кристи - Два Кораblya (Remixed 2) (1998) [FLAC|Lossless|tracks + .cue] <House, Acid>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два Корабля (Proforvater Eclectica Mix) (5:20)
+02. Моряк (Cutthroat Island Eclectica Mix) (5:06)
+03. Грязь (I Love Frank Farrian Eclectica Mix) (4:06)
+04. Извращение (Sixth Of October Eclectica Mix) (5:34)(   Читать дальше...   )Жанр: House, AcidПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0D409C98974C9655A90AA4F136F9851B968FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658132   (807789) от 19.05.2013
+
+Geordie - Greatest Hits (2012) 2CD [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807789.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. All Because Of You
+02. Don't Do That
+03. No Good Woman(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:40
+01. House Of The Rising Sun
+02. Geordie Stomp
+03. Light In My Window(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198370   (807861) от 11.01.2018
+
+Joe Satriani - What Happens Next (2018) [MP3|320 Kbps] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy
+02. Catbot
+03. Thunder High on the Mountain
+04. Cherry Blossoms(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1F51E05A4550806DD76E3E1A966E584128DF38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198441   (807864) от 11.01.2018
 
 Пилот - Пандора (2018) [MP3|320 Kbps] <Rock>
@@ -395,304 +695,6 @@ Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198517   (808393) от 11.01.2018
-
-Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ontwaakt
-02. A Wolf in My Heart
-03. Onverzetbaar
-04. Yngwaz' Zonen(   Читать дальше...   )Жанр: Folk Metal, Viking MetalПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907D07C349CF9722DE577D7B825AB3CBE92AF0E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198479   (808395) от 11.01.2018
-
-Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Fire (03:38)
-02. With or Without You (04:08)
-03. Going to California (03:23)
-04. Baby Did a Bad Bad Thing (02:45)Жанр: Rock, Synth-Pop, ElectronicПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA0B3F863767BD2200A3A43B7894CE829C85F32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198443   (808399) от 11.01.2018
-
-Tonight Alive - Underworld (2018) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Book of Love
-02. Temple
-03. Disappear (feat. Lynn Gunn)
-04. The Other(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61441F8AF98FF2D54CF7A36B1E8A7AE7B5E27A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198221   (808400) от 11.01.2018
-
-New Politics - Lost in Translation (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CIA
-02. One of Us
-03. Tell Your Dad (feat. Rivers Cuomo)
-04. Madeleine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED53A877890B45ACCE1F7A48029A8504A4CA33A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198307   (808401) от 11.01.2018
-
-Crack The Sky - Animal Notes / Safety In Numbers (1976-1977) Reissue, 1989, Lifesong [MP3, 320 Kbps] <Prog Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808401.jpg" />
-</div>
-
-
-###  Подробнее
-
-ANIMAL NOTES (1976)
-1. We Want Mine
-2. Animal Skins
-3. Wet Teenager(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ED48B24D54362B0B867E0A9986533BBE012541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504834   (808428) от 25.10.2021
-
-We're Wolves - Evil Things (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alt.Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To Hell (feat. Bryan Kuznitz of Fame On Fire)
-02. Wasteland
-03. Life Of A Parasite
-04. Wrath(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Alt.MetalПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E747415664DF7A9F226FD5B297EAB0E3C50DB3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504840   (808431) от 25.10.2021
-
-Sepultura - Roorback (2003) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WEB-DL|tracks] <Groove metal, Nu-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back Alive (3:06)
-02. Godless (4:22)
-03. Apes of God (3:36)
-04. More of the Same (3:59)(   Читать дальше...   )Жанр: Groove metal, Nu-metalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:074971A5AA16383BCD2658BF77E31EF55B93D984
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504752   (808495) от 25.10.2021
-
-S.E. Project - Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning [00:00:48]
-02. Faith Abandoned [00:06:19]
-03. Shadows [00:05:04]
-04. House of the Dead [00:05:10](   Читать дальше...   )Жанр: Groove Metal, Death Metal, Progressive MetalПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94224C811954D7E36265D174918BA87CEDE6EEFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119085   (808886) от 27.03.2017
-
-Ольга Арефьева и Ковчег - Ангел и девочка (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808886.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Полночь
-2. Пирамида Хео
-3. Моа-моа
-4. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440BDFE2455F64A3BC0D56AFFA1D5C621D8797C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118076   (808937) от 27.03.2017
-
-Freddie Mercury and Montserrat Caballe - Barcelona (1988) Remaster, 1992, Polydor [FLAC|Lossless|image + .cue] <Modern Classical, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barcelona (5:39)
-02. La Japonaise (4:49)
-03. The Fallen Priest (5:46)
-04. Ensueno (4:21)(   Читать дальше...   )Жанр: Modern Classical, Symphonic RockПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6053DDE6F0F351C210D5CDF9BC9CC3C33B3A16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117946   (809028) от 27.03.2017
-
-Steve Hackett - The Night Siren (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых признанных гитаристов ХХ века, Стив Хэккет многим известен исключительно из-за своего яркого участия в одной из ведущих арт-роковых групп 70-х, Genesis. Однако далеко не все поклонники жанра знают, что после своего ухода из группы Стив продолжает выпускать очень интересные сольные работы.
-До прихода в 1971 году в Genesis, обладая классическим гитарным (   Читать дальше...   )01. Behind The Smoke (6:58)
-02. Martian Sea (4:41)
-03. Fifty Miles Trom The North Pole (7:08)
-04. El Nino (3:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6885887BB9B9D40DDC853AB31E3697E69472509B
 ```
 
 

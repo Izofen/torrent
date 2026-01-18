@@ -1,3 +1,30 @@
+###  Публикация: 1210785   (778520) от 04.03.2018
+
+Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria (8:20)
+ 02. Heart Of The Sun (4:55)
+ 03. Flight In Weightlessness (7:36)
+ 04. Propitiation (6:48)(   Читать дальше...   )Жанр: Enigmatic, New AgeПродолжительность: 00:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6486BDEB83926AD1728D5A7740CE2313422AF247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210624   (778546) от 04.03.2018
 
 Hennie Bekker - Spring Rain (1992) Holborne [MP3|320 Kbps] <New Age>
@@ -668,33 +695,6 @@ VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C23BB5C61E0529B0B0F13FE9EE43D94D5AB1C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208649   (779804) от 23.02.2018
-
-Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raein (2:37)
- 02. Kiss the Rain (3:59)
- 03. Le Matin (2:10)
- 04. I Giorni (7:00)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C0AC7219A9D2116F68EF74DEB0456D078A897C
 ```
 
 

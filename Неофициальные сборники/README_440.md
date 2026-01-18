@@ -1,3 +1,30 @@
+###  Публикация: 1132381   (701144) от 09.05.2017
+
+VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701144.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amun - Red Eyes 4:23
+002. Chill 2 U - Nightwalker 4:54
+003. Amure - Intim 5:40
+004. Crystal Morgan - Do It 5:58(   Читать дальше...   )Жанр: Chillout, Lounge, DountempoПродолжительность: 07:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01311BE6E758C9AF016FA0C67E36DD32F35C04F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132384   (701162) от 09.05.2017
 
 VA - Зажигай вместе с Europa Plus. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -667,33 +694,6 @@ VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DF9A0F234190462331A50AFA4CAB38AA851E64F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793589   (702564) от 06.06.2014
-
-VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spring Lounge Club - An Irish Breeze
-002. Urselle - Beautiful Life
-003. Auditive Escape - Blue Minds Boulevard
-004. Sannan - Bluetone(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843657BB6B112EE9095F882175B51092081C318A
 ```
 
 

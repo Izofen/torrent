@@ -1,3 +1,30 @@
+###  Публикация: 1559808   (522581) от 27.06.2022
+
+Matt Lomeo - When You Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More 1&1 (3:42)
+02. Unsentimental You (2:53)
+03. Accepting Applications (3:35)
+04. She Was the Best (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EB685F47E6C2BA371ADA3E998878582A874121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559795   (522582) от 27.06.2022
 
 Big Papa and the TCB - Go Big! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -669,33 +696,6 @@ Wayne Shorter - Super Nova (1969) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAF1B52B99722BBBA6E0D2D6DCC0F3EC9B53FD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927750   (524119) от 14.08.2015
-
-Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-1956) 4CD /1988, EmArcy/ [FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524119.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Rondette [02:11]
-02. Mid-Forte [03:09]
-03. Sad Walk [04:15](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 03:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF87294BD0A18F6040E3ACC55A7F9496D0D80E1C
 ```
 
 

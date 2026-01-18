@@ -1,3 +1,300 @@
+###  Публикация: 1547688   (602469) от 29.04.2022
+
+Grand Illusion - Prince Of Paupers (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates Of Fire
+02. Better Believe It
+03. Prince Of Paupers
+04. So Faraway(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E683A36C76A52B7B71907E715DE3BFDB7315DAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547582   (602471) от 29.04.2022
+
+Battle Beast - Circus Of Doom (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Metal, Modern Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus of Doom (4:57)
+02. Wings of Light (4:07)
+03. Master of Illusion (4:08)
+04. Where Angels Fear to Fly (3:56)(   Читать дальше...   )Жанр: Melodic Metal, Modern DeathПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2455DD04303D747391D43B9695C2F75F92504AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148755   (602486) от 09.07.2017
+
+Orden Ogan - Gunmen (2017) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunman
+02. Fields of Sorrow
+03. Forlorn and Forsaken
+04. Vampire in Ghost Town(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0858B930C790F2C50219FF11FA74D5F6B1CF5D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547646   (602493) от 29.04.2022
+
+Reef - Shoot Me Your Ace (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Southern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoot Me Your Ace (3:22)
+02. When Can I See You Again (4:18)
+03. Refugee (3:27)
+04. Best of Me (4:12)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D41D092400C8328E1A8C90E9F7E0563ADA0BD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547573   (602495) от 29.04.2022
+
+Ann Wilson - Fierce Bliss (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greed (3:40)
+02. Black Wing (5:00)
+03. Bridge of Sighs (5:06)
+04. Fighten for Life (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7240DEB8C41E7E6E7164C1A79D1AB84CF4FB347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547647   (602497) от 29.04.2022
+
+Kaipa - Urskog (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Frozen Dead of the Night (18:52)
+02. In a World of Pines (10:04)
+03. Urskog (7:58)
+04. Wilderness Excursion (8:58)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDED0FF8BC4AF82A8A96857E682D0986A4B202D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547689   (602499) от 29.04.2022
+
+Saffire - Taming The Hurricane (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triumph Of The Will (4:58)
+02. Mr. Justified (4:27)
+03. The Rapture (4:15)
+04. Read Between The Lies (5:39)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02329CE9850C8F89B09518E1E9861410B3F72CC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547576   (602500) от 29.04.2022
+
+Watain - The Agony & Ecstasy Of Watain (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecstasies in night infinite (4:01)
+02. The howling (4:08)
+03. Serimosa (5:26)
+04. Black cunt (5:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB849780E5265AFB74B4BD85D7359E924FC6B08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149268   (602514) от 09.07.2017
+
+Shade Empire - Poetry Of The Ill-Minded (2017) [MP3|320 Kbps] <Melodic Death Metal, Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602514.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lecter (Welcome)
+2. Wanderer
+3. Drawn To Water - The Path
+4. Thy Scent(   Читать дальше...   )Жанр: Melodic Death Metal, Sympho Black MetalПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16831F90FFED52E34385074B1E035BA1D85E5DA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148910   (602517) от 09.07.2017
+
+Haim - Something to Tell You (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock,  Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Want You Back (03:52)
+02. Nothing's Wrong (03:09)
+03. Little Of Your Love (03:33)
+04. Ready For You (03:45)(   Читать дальше...   )Жанр: Indie Rock,  Indie PopПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7040A4B85046AB19F57CC356EEB31DDDDAF15E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148863   (602542) от 09.07.2017
+
+VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Star Riders - When The Night Comes In (3:15)
+02. Rival Sons - Thundering Voices (2:51)
+03. Supersonic Blues Machine - Miracle Man (4:25)
+04. Danny Worsnop - Anyone But Me (4:10)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148992   (602597) от 09.07.2017
 
 Crypt of Kerberos - World of Myths (1993) (Reissued-2012) [FLAC|Lossless|image + .cue] <Technical Death Metal>
@@ -398,296 +695,6 @@ magnet:?xt=urn:btih:E9B342EF984AC9728DFF9946523D016516A858DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A40E73322C2906853231B81DA50CB568C48005F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232098   (602721) от 22.06.2018
-
-Panic! At The Disco - Pray For The Wicked (2018) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602721.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (Fuck A) Silver Lining
-2. Say Amen (Saturday Night)
-3. Hey Look Ma, I Made It
-4. High Hopes(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BAC17F3785267E88B6F9D2979BB7E5363E4957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232097   (602739) от 22.06.2018
-
-7Б - Ночное лето (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ночное летоЖанр: RockПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51CECC6752CA2873566A49F4355E70273F2039F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232186   (602740) от 22.06.2018
-
-Alexander Sitkovetsky - Full House (2016) 2CD [MP3|320 Kbps] <Instrumental Rock, Art-Rock, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia (5:20)
-02. Full House (5:34)
-03. Canyon Fog. in F (5:38)
-04. Numero Cuatro (4:47)(   Читать дальше...   )Жанр: Instrumental Rock, Art-Rock, ClassicalПродолжительность: 01:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47006B3EE950C70C3526BDF401C8C4EDB528EB10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547354   (602911) от 28.04.2022
-
-Psychic Sun - Psychic Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sun Refused To Shine
-02. To Think The Storm Isn't Coming
-03. Hit The Spot
-04. Pisstake(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Stoner RockПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8C84B35160CAC7FCD0A842EDC4A01A68C7C172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547415   (602912) от 28.04.2022
-
-Jagannatha - Samsara (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sooraj (00:11:19)
-02 - Chandrama (00:13:52)
-03 - Brahmaand (00:14:41)Жанр: Psychedelic Stoner Rock, Blues RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91ABA13598FEE7AE6A26E6E2393E171E16E522D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148984   (602916) от 08.07.2017
-
-Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не надо слов (03:27)
-02. Километры (03:39)
-03. Плохие девочки (03:52)
-04. Отпусти (03:51)(   Читать дальше...   )Жанр: Gothic Love Metal, Modern MetalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B49955CCA87B0D270B531B43565E53089D9044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148821   (602960) от 08.07.2017
-
-Eleсtriс Light Оrсhestrа - Live (2013) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evil Woman (4:27)
-02. Showdown (4:09)
-03. Secret Messages (4:07)
-04. Livin' Thing (4:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE48419273B75833934401B5E6F1E2FBA9420AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148336   (602961) от 08.07.2017
-
-A Hope For Home - 4 альбома (2007-2011) [MP3 266-320 Kbps  VBR|CBR]<Post-Hardcore, Hardcore, Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Post-Hardcore, Hardcore,  ProgressiveПродолжительность: 03:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9ACFF163BE76FC9F5AC533252F75BF450831DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547477   (603011) от 28.04.2022
-
-Southern Empire - Southern Empire (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Show Me The Way
-2. Forest Fire
-3. Hold
-4. How Long(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C654ED8FD701F60C70E05CEB3304FCB4E8D03011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297777   (603064) от 24.04.2019
-
-The Cranberries - In The End (2019) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Over Now
-02. Lost
-03. Wake Me When It’s Over
-04. A Place I Know(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42921FD145F4F83292EA608ED287D6F0D8C7F12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297827   (603079) от 24.04.2019
-
-Олег Гаркуша (АукцЫон) - 23 (2019) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Понимаешь (04:06)
-02. Испорченный Вид (03:14)
-03. Золотые Колесницы (03:21)
-04. Фантазия (05:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C687F8637A534E7D801B8B1C1A0AD56B7A73ABB4
 ```
 
 

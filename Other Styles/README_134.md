@@ -1,3 +1,30 @@
+###  Публикация: 1204538   (784342) от 07.02.2018
+
+Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacifica (4:20)
+02. Forever In Love (5:10)
+03. Caribbean Dreams (4:28)
+04. Heaven In Your Eyes (4:33)(   Читать дальше...   )Жанр: Nuevo FlamencoПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204613   (784350) от 07.02.2018
 
 Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
@@ -665,33 +692,6 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203643   (787600) от 03.02.2018
-
-Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подмосковные вечера
-02. Кто-то скажет, что мы влюблены
-03. Освобожденная мелодия
-04. Странник в раю(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
 ```
 
 

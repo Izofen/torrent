@@ -1,3 +1,30 @@
+###  Публикация: 1437161   (1042281) от 04.01.2021
+
+VA - Hard Fitness Dance Music (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляетесь на пробежку или в тренажерный зал? Закиньте этот плейлист в плеер, и вы сами поразитесь успехам, которые будут достигнуты на спортивном поприще!001. Exagon & The Unknown - Fight Back
+002. Hypnose - Phoenix
+003. Unifire - Generation Z
+004. N-Vitral - I'm A Rebel(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C06AE8C847D9F967D5F3E5F3B085E52448A1780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437168   (1042286) от 04.01.2021
 
 VA - December EDM Charts (2020) [MP3|320 Kbps] <Tech House, Deep House, Electro>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Sound Pack #216 (2020) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888DF930B6DAEC37D22A1E5F92863A3327A73D62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609684   (1043139) от 04.02.2023
-
-VA - Музыка для машины Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маракеш  - Молодой, Горячий (02:51)
-02. Rita Ora  - You Only Love Me (02:29)
-03. Андрей Картавцев  - Моя Любовь-Это Ты (04:02)
-04. Ольга Шультайс  - Happy End (03:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A28079DDB36B1B2A2A316A4A480E69398B9BEC5
 ```
 
 

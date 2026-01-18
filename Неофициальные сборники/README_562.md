@@ -1,3 +1,30 @@
+###  Публикация: 1378204   (846290) от 25.04.2020
+
+Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey And Gin
+02. Mysterios Ways
+03. Shylina
+04. I Came Home At Night(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F18660F9E9AFFD6D09458EB5E494F847E5EACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378276   (846457) от 25.04.2020
 
 Andru Donalds - Great Artists of My Heart Vol. 03 (2020) [MP3|320 кб/с]<Pop>
@@ -665,33 +692,6 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Сентябрь) (2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26AF6DA29A7FB5E37C2B729AD4A18BA47997DB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499035   (847454) от 02.10.2021
-
-VA - Радио Рекорд Dance 2021 Выпуск 2 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Quba, Sandra K, IDA - Silence (2:30)
-02. Scott Forshaw, Alix Robson - But I Do (2:55)
-03. Marco Dalla Villa - Baltasound (2:26)
-04. Shaun Williams - I Got This Love (3:18)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276A4272829427AF6F8B6EC4F7E97A8E86CA53F7
 ```
 
 

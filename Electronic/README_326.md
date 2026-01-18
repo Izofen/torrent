@@ -1,3 +1,57 @@
+###  Публикация: 1292523   (645195) от 30.03.2019
+
+Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Odyssey Overture (1:53)
+02. Ace of Space (5:40)
+03. Galaxy Joyride (5:17)
+04. Light Years (4:29)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C31D58105B29316BD1D49043630D3E7CD9890BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292709   (645199) от 30.03.2019
+
+Chris van Buren - New Horizons (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life on Earth (4:57)
+02. New Horizons (4:18)
+03. Constellation (4:56)
+04. Destroyer (4:22)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA86315DE77D43AD30BB122D788B344A2662281
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 344431   (645204) от 05.06.2011
 
 GusGus - Arabian Horse (2011) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Tech House>
@@ -641,60 +695,6 @@ VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A61C88858283332691C33132CE28C65EE049F123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291455   (646808) от 29.03.2019
-
-VA - Finest Luxury Spa Music (2019) [MP3|320 Kbps] <Chillout, Relax, Smooth Jazz, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - The Flow (Pearldiver Ambient Chill) 3:49
-02. Lemongrass - River Of Life 6:20
-03. Alex Cortiz - And Rising 2:49
-04. Schwarz & Funk - Caribean Sunset 5:28(   Читать дальше...   )Жанр: Chillout, Relax, Smooth Jazz, LoungeПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E30B3D1A9CB756A4AEF5DC4B05FA5A3DCE33B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292371   (646817) от 29.03.2019
-
-VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Full Fire Mix) 5:38
-02. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Club Mix) 6:01
-03. Photographer & Abstract Vision - Zero Gravity (Roman Messer Extended Remix) 6:00
-04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix) 5:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3997BE5DFC972842C9838AC6313C4418C118334
 ```
 
 

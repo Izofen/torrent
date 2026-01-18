@@ -1,3 +1,30 @@
+###  Публикация: 1557016   (556521) от 12.06.2022
+
+Gerald Wilson - The Complete Pacific Jazz Recordings Of Gerald Wilson And His Orchestra (1961 - 1968) 5CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556521.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Blues For Yna Yna [6:53]
+02. Jeri [3:45]
+03. Moody Blue [3:09](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 06:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6799D203988F296680545438F25BAC1E34E4A48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235848   (556592) от 14.07.2018
 
 Vanessa Collier - Honey Up (2018) [MP3|320 Kbps] <Blues, Funk>
@@ -642,55 +669,33 @@ magnet:?xt=urn:btih:812B777E0FCB39214EEA0F553A440173BBB2D0BB
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 924435   (559060) от 03.08.2015
+###  Публикация: 531193   (558828) от 04.08.2012
 
-Lianne La Havas - Blood (2015) [FLAC|Lossless]<Soul, Folk, Indie>
+Blodwyn Pig - Ahead Rings Out (1994) [FLAC|Lossless]<Blues-Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559060.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_558828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unstoppable
- 02. Green & Gold
- 03. What You Don't Do
- 04. Tokyo(   Читать дальше...   )Жанр: Soul, Folk, IndieПродолжительность: 00:40:37
+01. It's Only Love
+02. Dear Jill
+03. Sing Me a Song That I Know
+04. The Modern Alchemist
+05. Up and Coming
+06. Leave It With Me
+07. The Change Song
+08. Backwash
+09. Ain't Ya Coming' Home, Babe?Жанр: Blues-RockПродолжительность: 00:36:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5ED4A4AA51B1296CE7C87AB0A7FB875416CA9422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924440   (559178) от 03.08.2015
-
-Gary Burton Quintet - Whiz Kids (1987) /ECM/[FLAC|image+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Clown [08:58]
-02. Yellow Fever [06:53]
-03. Soulful Bill [08:12]
-04. La Divetta [08:35](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48D989BB8BD61FB837F66FAF644CB24CB56A234
+нет
 ```
 
 

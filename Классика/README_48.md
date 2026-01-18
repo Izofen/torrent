@@ -1,3 +1,57 @@
+###  Публикация: 992341   (902362) от 01.03.2016
+
+Прокофьев - Quintet, Overture on Hebrew Themes; Octet (Berlin Soloists, Bashkirova) (2002) [FLAC|Lossless|tracks] <Классическая музыка, Modern, Chamber>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прокофьев - Overture on Hebrew Themes in C minor, op. 34
+01
+Hindemith - Octet
+02 (1) Breit. Massig schnell(   Читать дальше...   )Жанр: Классическая музыка, Modern, ChamberПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE5FC57DADEFEDFA50FD7FE60555810B5D3CE8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992149   (902384) от 01.03.2016
+
+Grieg, Prokofiev - Piano Concerto in A; Piano Concerto no. 3 (Nikolai Lugansky, Kent Nagano) (2013) [FLAC|Lossless|tracks] <Классическая музыка, Orchestral, Concerto>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grieg - Piano Concerto in A minor, op. 16
+01 (1) Allegro molto moderato
+02 (2) Adagio
+03 (3) Allegro moderato molto e marcato(   Читать дальше...   )Жанр: Классическая музыка, Orchestral, ConcertoПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD112E95373548B2D4EF8A0351C3E79A029AA665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992342   (902391) от 01.03.2016
 
 VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks + .cue] <Classical>
@@ -650,60 +704,6 @@ Richard Wagner - Neuschwanstein (2001) [FLAC|Lossless|image + .cue] <Opera>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:330532E10EC1D30BB6A8B076F111AD8105906912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987342   (927592) от 16.02.2016
-
-Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaze no densetsu  03:33
-02. Tani he no michi  02:41
-03. Tori no hito  03:54
-04. Dream  03:02(   Читать дальше...   )Жанр: Score, ClassicalПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F792ED8535591D101D4FF176FC6FBE7983D203
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986694   (928904) от 15.02.2016
-
-Chopin - Piano Concertos nos. 1 & 2 (2005) Davidovich, Marriner - LSO [FLAC|Lossless|tracks]<Classical, Concerto, Romanticism, Классическая музыка>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto no. 1 in E minor, op. 11
-01 (1) Allegro maestoso
-02 (2) Romance: Larghetto
-03 (3) Rondo: VivaceЖанр: Classical, Concerto, Romanticism, Классическая музыкаПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5B3FA292282BA5BCB2B56BFA1FAA28C240EFD2F
 ```
 
 

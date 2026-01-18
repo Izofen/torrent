@@ -1,3 +1,117 @@
+###  Публикация: 529377   (565200) от 01.08.2012
+
+Alastair Greene Band - Walking In Circles (2009) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking In Circles
+02. Look Out Baby
+03. Drunk Again
+04. Get Out Of My Life, Woman
+05. Don't Lose Your Cool
+06. Say What You Want
+07. Pocket Full Of Change
+08. Cut You Loose
+09. Back Alley Strut
+10. Merry-Go-Round(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044615   (565356) от 20.08.2016
+
+Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz, Fusion, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smiles And Smiles To Go  05:47
+02.  Perfect Peace  04:28
+03.  Carrying You  04:00
+04.  The Lord's Prayer  05:09(   Читать дальше...   )Жанр: Jazz, Fusion, InstrumentalПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877F3FE75416E9B577A91DFAA7FFD287C7D95867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152546   (565378) от 23.07.2017
+
+VA - Evening Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Hubbard - Little Sunflower (07:58)
+02. Herbie Hancock - Jessica (04:13)
+03. Jimmy Scott - I'll Be Around (04:37)
+04. Joshua Redman Quartet - Faith (04:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABB36FB65E60072F92AF23070DFD4DF383FC07E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044474   (565499) от 20.08.2016
+
+Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz & Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Lady (5:14)
+02. Rise Above (7:03)
+03. Love Game (5:20)
+04. Love is Working Overtime (4:06)(   Читать дальше...   )Жанр: Jazz Fusion, Jazz & BluesПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC18AA64E57E8013C15C25BA57FDF8BB2C6FCB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044521   (565503) от 20.08.2016
 
 Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues Rock>
@@ -607,120 +721,6 @@ VA - Soft Jazz and Wine Drinks (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C39B921401096E1214586982A03A73EEFCADE0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152160   (567341) от 22.07.2017
-
-Warren Haynes featuring Railroad Earth - Ashes & Dust (2015) [FLAC|Lossless|image + .cue] <Blues, Folk, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Is It Me Or You  (05:14) 
-02.Coal Tattoo  (07:26) 
-03.Blue Maiden's Tale  (07:26) 
-04.Company Man  (04:48) (   Читать дальше...   )Жанр: Blues, Folk, AmericanaПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58ADFDD2AEAFCB1E0B1A59DAA949CEAD5038FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555663   (567344) от 05.06.2022
-
-Pearl Django - Live (2019) Modern Hot Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile [5:24]
-02. Saskia [6:16]
-03. Friends Like These [6:27]
-04. Under Paris Skies [2:53](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F998A030C8D4EC23937B02836E98170E63B09E1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529368   (567411) от 31.07.2012
-
-Adam Holt & The Blues Congregation - Who I Am (2002) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who I am
-02. Killer On The Loose
-03. The End
-04. Drunk On Love
-05. Holding On To Your Love
-06. Honey-Doos
-07. Going Back To Mobile
-08. Queenie Makes Me Feel
-09. How Do I Love Thee
-10. Knocking At Your Door(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304107   (567446) от 24.05.2019
-
-Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567446.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Home Cookin':
-01. See See Rider [6:36]
-02. Sugar Hill [5:20]
-03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
 ```
 
 

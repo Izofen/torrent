@@ -1,3 +1,57 @@
+###  Публикация: 1215808   (756736) от 27.03.2018
+
+VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icone – Omega (Original Mix)
+02. Para X – Sparkling Waterfalls (Original Mix)
+03. Hoof – Heart And Zeal (Original Mix)
+04. Kenidel Lopez – Heaven’s Caliber (Manuel Le Saux Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765A3FB11A85DAA1C9ED3A161FD0FDF3F5087932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215635   (756738) от 27.03.2018
+
+VA - New Prog Order Vol. 3 (Compiled by Shyisma)(2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertex - Blue Mystic
+02. Neutro and Reflex feat. Doppler - Trance Energy
+03. Shyisma - Level 7
+04. Reflex - Cosmic Tools(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD881DCC4D2C82669B55545B2C98CA64DE5D5BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522790   (756769) от 08.01.2022
 
 AM 1984 (Maurizio Avossa) - 3 Albums (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -641,60 +695,6 @@ S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 896203   (758492) от 08.07.2020
-
-Abjective - Discography 21 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks]<IDM, Experimental, Glitch, Ambient, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sages (06:10)
- 02. Xviiixvi (09:51)
- 03. Technogenic Eleegy (07:49)
- 04. Similitude (09:02)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Glitch, Ambient, Minimal •Продолжительность: 20:18:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9FAF288589FFED834063D0701BF1B99ABFAEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280828   (758634) от 04.02.2019
-
-VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren – Lifting You Higher (ASOT 900 Anthem)
-02. Estiva X Ruben de Ronde – Rainbow
-03. James Holden & Julie Thompson – Nothing (93 Returning Mix)
-04. Tritonal ft. Angel Taylor – Getaway (Gareth Emery & Ashley Wallbridge Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71494309BF10B4E9DB0CB193E4EEAFC6FDD0C51
 ```
 
 

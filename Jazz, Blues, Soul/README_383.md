@@ -1,3 +1,252 @@
+###  Публикация: 523562   (617219) от 16.07.2012
+
+VA-South Africa presents: - Women with a Voice (2007) [MP3|224 кб/с]<Ethnic, World, Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simphiwe Dana - Vukani
+02. Thandiswa - Nizalwa Ngobani
+03. Busi Mhlongo - Yehlisan'Umoya Ma-Afrika
+04. Nana - Koboyi
+05. Gloria Bosman - Natures Dances
+06. Judith Sephuma - Iya Iyo
+07. Sibongile Khumalo - Seliyana
+08. Thandi Klaasen - Sophiatown
+09. Letta Mbulu - Not Yet Uhuru
+10. Mahotella Queens - Ntyilo Ntyilo(   Читать дальше...   )Жанр: Ethnic, World, Jazz, PopПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFF967BAC44F8517CD21F711E26935976975D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036955   (617279) от 22.07.2016
+
+Jimmy Smith - Respect & Livin' It Up (1967, 1968) 2010, Verve[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mercy, Mercy, Mercy [06:40]
+ 02.Respect [02:20]
+ 03.Funky Broadway [06:41]
+ 04.T-Bone Steak [07:25](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBA946A1B8D507DDA6DDF2212B7338ACDA30C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036798   (617456) от 22.07.2016
+
+Sadao Watanabe - Swiss Air (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Masai Steppe [13:07]
+ 02.Tanzania E [09:52]
+ 03.Sway [10:26]
+ 04.Way [09:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786E8EB92E4E1E20CC7C7C9FF6FB162F6A022389
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036878   (617457) от 22.07.2016
+
+Harold Ashby - On The Sunny Side Of The Street (1992) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Out Of Nowhere [05:14]
+ 02.There Is No Greater Love [04:43]
+ 03.Honeysuckle Rose [05:09]
+ 04.Pennies From Heaven [05:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9C5AEB42A825A8E0DB489E306FD47F82FC813A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146004   (617977) от 27.06.2017
+
+Wynton Marsalis - Black Codes (From The Underground) (1985) [FLAC|Lossless|image + .cue] <Post Bop, Contemporary Jazz, Modal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Codes (9:27)
+02. For Wee Folks (9:05)
+03. Delfeayo's Dilemma (6:46)
+04. Phryzzinian Man (6:44)(   Читать дальше...   )Жанр: Post Bop, Contemporary Jazz, ModalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4D4745C98855BD2DAE01802B3F50BB69DB06E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544701   (618121) от 17.04.2022
+
+BlueTouch - The Music of Robert Johnson (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preachin' blues (3:23)
+02. Terraplane Blues (4:35)
+03. If I Had Possession over Judgement Day (3:34)
+04. 32 - 20 Blues (5:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B048D89C4D78B94C5CBD09E2EEA4674D68B2B5CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544700   (618130) от 17.04.2022
+
+Bluesbury - MMXXI (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gemini Heart (5:54)
+02. So Damn Cool (5:01)
+03. Walk In My Shadow (4:35)
+04. (I Wanna) Make Love To You (8:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA50B00FB0423BFC8A161D419A8BC251DA5372C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544703   (618133) от 17.04.2022
+
+Borderhill Bay - Harmaa (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ei Puhettakaan (2:30)
+02. Harmaa (3:26)
+03. Helpompaa (3:03)
+04. Hoo Doo (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B41D400C05555E22D3543A4633B6C4541B7D3D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145894   (618225) от 27.06.2017
+
+Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Summertime
+02. Raindrops Keep Fallin' On My Head
+03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145679   (618229) от 27.06.2017
 
 The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
@@ -452,249 +701,6 @@ Artie Shaw - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA3F5CA517DBAE34CE3CA4835C30D7D2DDD7C6EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911215   (618502) от 22.06.2015
-
-Taylor Carano - Where Hate & Ash Bury (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Where Hate & Ash Bury (6:31)
-2. You're Welcome (Feat. Mike Godward) (3:12)
-3. Drop Dead Gorgeous (3:10)
-4. Gentleman (3:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246B95888BD6055D3075BDBBEC2334BD04BD9577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911385   (618503) от 22.06.2015
-
-Bix Beiderbecke - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Royal Garden Blues (3:03)
-02.  Goose Pimbles (3:17)
-03.  Singin' The Blues (3:04)
-04.  Sorry (2:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168677FE49E528B3552A7D3D49B08A1328BB3821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911387   (618505) от 22.06.2015
-
-Sven Lundestad & The BlueZmates - Lookin´ Back (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Presence Of The Lord (feat. Anette Fossum) (4:41)
-02. Blues Grinder (6:07)
-03. Everyday I Have The Blues (4:30)
-04. Personal Manager (5:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A186C77C0B5DF7A360318101DE0A33AD092518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544713   (618578) от 17.04.2022
-
-Fran McGillivray Band - Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flood (3:05)
-02. I Play by the Rules (3:46)
-03. Come up Smiling (3:32)
-04. Havana Blues (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580BCD72D12CAD9B4899E913C78C92353060EA75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544705   (618588) от 17.04.2022
-
-Dananja Aloysius - Passover (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praying with the Enemy (5:34)
-02. With Heaven Above Us (3:19)
-03. Por Favor Senhorita (3:50)
-04. Sweet Sweet Sweet Mary Snow (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF1E6B0229A03ECEE602F9F4F7F7AFDA87DC172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295604   (618858) от 13.04.2019
-
-Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sofia [3:35]
-02. Mali m'Bule Baaba [5:58]
-03. Duo [5:46]
-04. A Espera [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A870DBF34EC8DFC38B9659CEAD819446C254AFA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230172   (618973) от 10.06.2018
-
-Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is What You Want  [05:27.64]
-02. Ragbag  [03:55.25]
-03. Tequila [04:23.26]
-04. Beyond The Window   [04:42.64](   Читать дальше...   )Жанр: Swing-JazzПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450C654BBB106C28FD66F80A21EB288F67B64F3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230067   (619076) от 10.06.2018
-
-Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight In Vermont [3:27]
-02. Thou Swell [1:43]
-03. I Could Write a Book [2:40]
-04. Gone With the Wind [4:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE6AD531EB812118A5FDC3846603105E3C9229D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036753   (619145) от 21.07.2016
-
-The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Orleans    04:43
-02. Just Stop    04:16
-03. Be My Slave    05:57
-04. Freedom Like a Woman    07:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF81A869B9D16098045600579E151BA2747BC7A3
 ```
 
 

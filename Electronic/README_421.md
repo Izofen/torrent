@@ -1,3 +1,57 @@
+###  Публикация: 1122535   (798846) от 05.04.2017
+
+VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Karizma Duo - Stay With Me  3:48
+02.  Thom Cooper - Use Somebody  3:47
+03.  Shannon & Keast - Toxic  3:36
+04.  Meg Birch - Rude (Acoustic Version)  3:46(   Читать дальше...   )Жанр: Downtempo, Acoustic, InstrumentalПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE74843A48C69C4527148EE2B691E9F20000FB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122591   (798847) от 05.04.2017
+
+Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Boy (3:28)
+02. Valley Of Kings (3:44)
+03. Midnight Rider (3:49)
+04. The Early Train (3:23)(   Читать дальше...   )Жанр: Electronic, New BeatПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DAF97D2F99C5160A13F6BFAAC60EF71C4A416F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122297   (798863) от 05.04.2017
 
 VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Deep House>
@@ -638,60 +692,6 @@ VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122111   (799259) от 04.04.2017
-
-VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vintage & Morelli ft. Arielle Maren - Awaken (Extended Mix)  7:49
-02.  Shingo Nakamura - The Four (Yuji Ono Remix)  5:53
-03.  LTN & Roni Joni - In Between (Sound Quelle Remix)  5:48
-04.  Gregory Esayan - Make a Wish (eleven.five Remix)  7:18(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B277A1D774C38BC7DE6785E70353EA0F6916E57E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121972   (799260) от 04.04.2017
-
-VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ronner T - Belfast  5:44
-02.  Rudegroove - Sinergy  5:16
-03.  Rico Bonetti - Just Chillin'  3:08
-04.  Steven Moses - Call Me Now (Fresh & Martin's Chillout Mix)  2:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
 ```
 
 

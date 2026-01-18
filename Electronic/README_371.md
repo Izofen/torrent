@@ -1,3 +1,57 @@
+###  Публикация: 1217775   (741040) от 06.04.2018
+
+VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nolans Stenemberg feat. Jennifer Lauren - The Winter
+02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
+03. PRE-RELEASE PICK: Daniel van Sand feat. Nina Sung - Slipping Within (Turn Extended Mix)
+04. Alternate High - Path Of Life (Braulio Stefield Remix) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6286FEC294731E9A2AC6FC1A3407496DAA718FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217790   (741044) от 06.04.2018
+
+VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Modul & Karina Skye - Senses (Intro mix)
+02. Ross Cairns - Here&Back (SHADOWS remix)
+03. Xpectra - Memories (Deepshader remix)
+04. Atragun & Tom Bro - Lost In Dreams (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:11:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217841   (741045) от 06.04.2018
 
 Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ Minddigger - A World For You (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F175516D012FF0C5B831540D61386C25538A52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396934   (741341) от 19.07.2020
-
-VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara Taylor & Martin Graff - Falling (Extended Mix) 06:31
-02. Orkidea - That Feeling (Extended Mix) 07:13
-03. Craig Connelly & Siskin - All For Love (Extended Mix) 07:45
-04. Gordey Tsukanov - The Clutch (Extended Mix) 07:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821EBC5652E2DC19DB9D0482DD6A80D79CCE942F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397311   (741362) от 19.07.2020
-
-VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Hush - Good Vibrations (3:25)
-02. Orlando - Singing In The Rain (4:06)
-03. Heartclub - Super Trouper (3:53)
-04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1212944   (773348) от 15.03.2018
+
+VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (3:49)
+02. MK - 17 (In The Air dub) (5:22)
+03. Marshmello & Khalid - Silence (Blonde remix) (3:45)
+04. Disciples - On My Mind (Deepend remix) (3:10)(   Читать дальше...   )Жанр: Club House |Продолжительность: 02:40:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E889E9A09A15BF4B336849DDC716831C80E59DF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213186   (773356) от 15.03.2018
+
+Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reminiscence (03:49)
+ 02. Gears (05:51)
+ 03. Lichtende (06:17)
+ 04. Scorch (05:36)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125091   (773451) от 13.04.2017
 
 Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
@@ -640,60 +694,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:302BD394B6B936D1BA1619BFD44F3DEE1E8CF030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277919   (775091) от 22.01.2019
-
-VA - Top 20 Music For Relax (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soty & Seven24 - Sotto Voce (Original Mix) 4:08
-02. Alexander Muratovsky - External World (Original Mix) 3:53
-03. Jack-O'-Lantern & Little Witch - Morning Desire (Original Mix) 4:26
-04. CJ RCM - Inception (Original Mix) 4:12(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753EDB0ECAF791D50BF7085C183B4047F6153A11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277900   (775095) от 22.01.2019
-
-John Maus - We Must Become the Pitiless Censors of Ourselves (2011) [FLAC|Lossless|tracks + .cue] <New Wave, Lo-Fi>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streetlight (2:53)
- 02. Quantum Leap (2:53)
- 03. ...And the Rain (2:47)
- 04. Hey Moon (4:09)(   Читать дальше...   )Жанр: New Wave, Lo-FiПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B079F47B2314E13605785ECE52EBBA36F5178C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1213666   (767355) от 18.03.2018
+
+VA - Record Super Chart #528 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  EDX & Jonas Blue feat. Alex Mills  -  Don t Call It Love (Denis First Remix)  4:11
+02.  Merk & Kremont  -  Sad Story (Denis First Remix)  4:01
+03.  Klaas  -  Close To You  3:10
+04.  C-BooL feat. Giang Pham  -  DJ Is Your Second Name  4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3278194A35DDDFF9D984084C15C35F6C2EA53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213802   (767361) от 18.03.2018
 
 VA - Empire Records - First Disco (2018) [MP3|320 Kbps] <Disco, Chillout>
@@ -664,33 +691,6 @@ Grivina - Я Хочу (2018) Remix [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA0289D14BF099344476A44F131A9620C07AA89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125534   (768061) от 15.04.2017
-
-VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
-02.  Davey Asprey - Fallout (Original Mix)  3:26
-03.  Emmer - Here (Extended Mix)  6:46
-04.  Matrick - We Fight For Our Survival (Make One Remix)  4:39(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871B3A9F5A73E1834596A314E3F69BD2C320F6CB
 ```
 
 

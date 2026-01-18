@@ -1,3 +1,57 @@
+###  Публикация: 972805   (980657) от 07.01.2016
+
+Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <Synth-pop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West End Girls (10" Mix) (7:04)
+ 02. Paninaro (7" Mix) (4:40)
+ 03. It's A Sin (Disco Mix) (7:41)
+ 04. What Have I Done To Deserve This? (7" Mix) (4:19)(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9437CE6342DFDA468709FAC69248D7DFC2568686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972679   (980674) от 07.01.2016
+
+Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golddiggers (3:36)
+02. Ding Dong Song (4:04)
+03. Teeny Weeny String Bikini (4:00)
+04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973056   (980680) от 07.01.2016
 
 VA - Acoustic Covers Album (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -654,66 +708,6 @@ VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CA95F3BEF81D825515DDF083D0AFE3D05C536B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613278   (984229) от 03.02.2013
-
-V.A. - Lounge Del Mar (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Chillout, Lounge, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc1
-Продолжительность: 00:55:36
-
-01. Johannes Huppertz - The Swing
-02. Line - Stay Awhile
-03. Superchrome - U'Bar
-04. Aerobium - Xerotix
-05. Five Seasons - Bridges Of Amsterdam
-06. Newton feat Twila.Too - New Beautiful Life
-07. Jane Maximova feat. Dmitry Raschepkin - Morning Bird(   Читать дальше...   )Жанр: Chillout, Lounge, Deep HouseПродолжительность: 01:55:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 730370   (984390) от 25.01.2020
-
-Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha T'annah (03:50)
-02. Siferah (04:05)
-03. Ai-Lu (04:04)
-04. Iillah (01:02)(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44502443FC9C388AA7E55651986DB4BE2B8E1C67
 ```
 
 

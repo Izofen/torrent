@@ -1,3 +1,30 @@
+###  Публикация: 1386113   (795880) от 27.05.2020
+
+VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cele - In My House (Original Mix)
+002. Danny Ramirez - Freak Drop (Original Mix)
+003. Universal Date - Music Is Gonna
+004. Dario Trapani - That Power(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930434FC9706E72885FF805A8B42BC66C4B0867E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385976   (795886) от 27.05.2020
 
 VA - Acoustic Chill (2020) [MP3|320 Kbps] <RnB, Pop, Blues>
@@ -668,33 +695,6 @@ VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200433   (796384) от 20.01.2018
-
-VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  EKTONIX  -  Vuono Matyn  2:30
-02.  Holl & Rush  -  Don't Know  3:49
-03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-04.  Klingande  -  Pumped Up (Denis First Remix)  3:29(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495A8966A0A0D9F3C1E7FC576C5D2B4E3A590A96
 ```
 
 

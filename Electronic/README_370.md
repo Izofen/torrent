@@ -1,3 +1,57 @@
+###  Публикация: 1283531   (739567) от 17.02.2019
+
+VA - Sick Music 2019 [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred V - Burning Me (Original Mix) [03:23]
+02. Degs - Poveglia (feat. De:Tune) (Whiney Remix) [04:08]
+03. London Elektricity - Funkopolis (Original Mix) [05:20]
+04. S.P.Y - Dusty Fingers (feat. Diane Charlemagne) (Metrix Remix) [04:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61CE2FBC71E2FBDF71A44AB7ED2B186D4F63057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283701   (739674) от 17.02.2019
+
+VA - Lost Dubs 2 (2018) Microfunk Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oak – Mongoose (06:13)
+02. Bop – Memories (05:19)
+03. Dissident – Release Me From Space (05:35)
+04. A.Fruit – Be Careful With The Clouds (04:20)(   Читать дальше...   )Жанр: Drum n Bass, IDM, ExperimentalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048FF61BC1348F16C3240BE11B486FE8B70E4747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283339   (739735) от 17.02.2019
 
 VA - Live @ Trancemission Heartbeat, Stadium Live Moscow, Russia 2019-02-15 [MP3|320 Kbps] <Trance, Progressive House>
@@ -633,60 +687,6 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Miami (2018) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:412B8C8F6087E27DE52837D339EB929F778403C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217775   (741040) от 06.04.2018
-
-VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nolans Stenemberg feat. Jennifer Lauren - The Winter
-02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
-03. PRE-RELEASE PICK: Daniel van Sand feat. Nina Sung - Slipping Within (Turn Extended Mix)
-04. Alternate High - Path Of Life (Braulio Stefield Remix) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6286FEC294731E9A2AC6FC1A3407496DAA718FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217790   (741044) от 06.04.2018
-
-VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Modul & Karina Skye - Senses (Intro mix)
-02. Ross Cairns - Here&Back (SHADOWS remix)
-03. Xpectra - Memories (Deepshader remix)
-04. Atragun & Tom Bro - Lost In Dreams (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1487912   (1002791) от 08.08.2021
+
+Gabriel Le Mar - Into Sonic States (2021) LSD - Liquid Sound Design [FLAC|Lossless|WEB-DL|tracks] <Dub, Psychill, Acid, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spliff Tempo (08:50)
+ 02. Caravan Of Dub (07:14)
+ 03. Cafe Oriental (05:50)
+ 04. The Sound Behind The Mask (05:15)(   Читать дальше...   )Жанр: Dub, Psychill, Acid, Downtempo, Progressive TranceПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F780E65E9F52D1E1A92C315DB0DC3717EFE2E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316010   (1002796) от 08.08.2021
+
+Steve Pickton | Stasis - Discography 19 Releases (1993-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, IDM, Ambient, Downtempo, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Words (01:37)
+ 02. Roll With Changes (Reprise) (01:31)
+ 03. What Science Doesn’t Know (01:36)Тип издания: CD, WEB, VinylЖанр: Techno, IDM, Ambient, Downtempo, Abstract •Продолжительность: 11:22:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C629831C02D21490F6E7BED060574D47049B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487917   (1002826) от 08.08.2021
 
 Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House>
@@ -633,60 +686,6 @@ Eskmo | Welder - Discography 30 Releases (1999-2019) [FLAC|Lossless|tracks+.cue,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04D3D088ED7120131025FCA07EB7F6F4B27F5CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350112   (1003756) от 04.01.2020
-
-Flume - Hi This Is Flume (2019) Mixtape [FLAC|Lossless|Web-DL|tracks] <Experimental, Bass Music, Trap>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flume – Hi This Is Flume (0:31)
-02. Flume – Ecdysis (1:44)
-03. Flume vs. HWLS – High Beams (feat. slowthai) (3:23)
-04. Flume – Jewel (3:13)(   Читать дальше...   )Производство: Future ClassicЖанр: Experimental, Hip-Hop, Trap, Bass Music, Glitch Hop, Beats, ElectronicПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8409D1BCE58AD7C35E1014C4956F6039B14EA5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349817   (1003773) от 04.01.2020
-
-The Sweet Life Society - Antique Beats (2018) [MP3|320 Kbps] <Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003773.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - The Morning After (00:02:15)
-◈ 02 - No More Lights (00:01:09)
-◈ 03 - Dreams Are Falling Leaves (00:04:17)
-◈ 04 - Mind (00:03:37)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002B9DA0B2201A65FCA79C3615B4D0E0112E80B7
 ```
 
 

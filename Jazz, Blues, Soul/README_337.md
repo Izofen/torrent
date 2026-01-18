@@ -1,3 +1,30 @@
+###  Публикация: 927750   (524119) от 14.08.2015
+
+Chet Baker - Chet In Paris: The Complete Barclay Recordings Of Chet Baker (1955-1956) 4CD /1988, EmArcy/ [FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524119.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Rondette [02:11]
+02. Mid-Forte [03:09]
+03. Sad Walk [04:15](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, CoolПродолжительность: 03:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF87294BD0A18F6040E3ACC55A7F9496D0D80E1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927731   (524128) от 14.08.2015
 
 Gene Ammons - Brasswind (1974) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Soul Jazz, Jazz-Funk>
@@ -668,33 +695,6 @@ The Rocky Athas Group featuring Larry Samford - Miracle (2003) [APE|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:168C5EBE6813A117205A3AEF5732E086F767FFEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053064   (526035) от 17.09.2016
-
-Swingrowers - (Pronounced Swing Grow'ers) (2013) [FLAC|Lossless|image + .cue] <Electronic , Jazz, Electro, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senza Ciatu (5:38)
-02. Crazy People (3:26)
-03. Craziness (3:50)
-04. Kiawami (3:53)(   Читать дальше...   )Жанр: Electronic , Jazz, Electro, SwingПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9044577B7A42CAA740DF45C96BA7ABBAEBF3A6
 ```
 
 

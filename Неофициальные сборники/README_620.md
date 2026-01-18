@@ -1,3 +1,30 @@
+###  Публикация: 1364400   (935677) от 03.03.2020
+
+VA - не Громкие новинки недели 57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anfisa Ibadova - Одна (3:14)
+2.Anthony El Mejor - Давай (2:41)
+3.Bolshevseh - Давай Покинем Этот Город (3:12)
+4.Ic3peak - Марш (2:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3E9057A07A9799909A0050BBDE1D84909A4114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861075   (935929) от 19.01.2015
 
 VA - Billboard Top 25 Hot Rock Songs (24-01-2015) [MP3|320 кб/с]<Rock, Pop, Dance, Other>
@@ -672,33 +699,6 @@ VA - EDM International Techno Dance (2020) [MP3|320 Kbps] <Techno, Dance, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87F3A03D71EEF1F3D0955913ABFCEFDBDE8CFB50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092586   (938418) от 12.01.2017
-
-Чи-Ли - Все хиты (2016) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стрижка
-02. Туда же и ты
-03. Можно всё! (DJ Kirill Clash Radio Remix)
-04. Я буду помнить (UnorthodoxX Remix) (feat. Sound Hackers)(   Читать дальше...   )Жанр: PopПродолжительность: 05:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C11EC462CF93E4B6A15449467283F643983516
 ```
 
 

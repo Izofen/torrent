@@ -1,3 +1,30 @@
+###  Публикация: 1397690   (737561) от 22.07.2020
+
+VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Ka Millo - Message In A Bottle
+002. Sunlounger - White Sand
+003. Stolas - Beck Neck
+004. Akerman - Gate Of Time(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397693   (737601) от 22.07.2020
 
 VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
@@ -667,36 +694,6 @@ Joy - Touch By Touch (2019) Remix [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DBEAAF66A192BCE9330477E4B0231FCA798684C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282973   (740145) от 16.02.2019
-
-VA - Hits of My Soul Vol. 44 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Arman Bahrami & Ailsa Villegas - Beat Of My Heart (Original Mix) (08:51)
-02. Morvan - Kiss Of A Muse (Original Mix) (07:41)
-03. Dannie Denito feat.Wenturo - Rain On The Venus (Original Mix) (06:12)
-04. Neo & Farina - Alba Rossa (Remastered Original Vocal Mix) (09:32)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F997E9213291ABC133658308C458EA31D232D74E
 ```
 
 

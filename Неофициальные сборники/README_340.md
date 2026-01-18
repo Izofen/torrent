@@ -1,3 +1,30 @@
+###  Публикация: 922260   (570043) от 28.07.2015
+
+VA - Chilly Side Up (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lumoa - Ballade de Es Vedra (03:16)
+02. Emma Luna - Casual Groove (04:42)
+03. Daki 2000 - 1000 Colors (05:54)
+04. Monroe Days - Carpathian Harebells (06:03)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDC3D380C0BBAB9C05C7C9407A3FA2F05027773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303698   (570080) от 22.05.2019
 
 Ace Of Base - All That She Wants (2019) 2 CD Compilation [MP3|320 Kbps] <Disco, Eurodance>
@@ -685,33 +712,6 @@ VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D902E8526411C2359AEA245832CD8171E73E8386
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822158   (572000) от 21.05.2019
-
-VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uriah Heep - Easy Livin
-02. Kingdom Come - Outsider
-03. Motley Crue - Kickstart My Heart
-04. UDO - Break The Rules(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
 ```
 
 

@@ -1,3 +1,28 @@
+###  Публикация: 1289272   (686472) от 16.03.2019
+
+VA - The Best Of Trap & Trapstep II [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <Trap, Trapstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrested Youth - Vans (King Kavalier Remix) [2:37]
+02. Blvk Jvck & Flosstradamus - G.O.D. (Grind Or Die)Жанр: Trap, TrapstepПродолжительность: 02:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A3D4BD522A96FD762B163984FE9249B043A6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403881   (686586) от 22.08.2020
 
 VA - German Top 100 Single Charts 21.08.2020 [MP3|320 Kbps] <Pop>
@@ -674,33 +699,6 @@ VA - Инструментальная музыка (2012) vol. № 65 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51F6F910C890F625956DE67C4EBBCE645CDAB127
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134649   (687575) от 16.05.2017
-
-VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Davu - Sociopath (Original Mix)
-002. Tommy Harmond - Stay Together Forever (Extended Mix)
-003. Archi Nova - At A Depth (Original Mix)
-004. Esra Kahraman - Ex Love (Regard Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 999189   (866375) от 21.03.2016
+
+Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Premier livre de pieces de Clavecin, (1706), Suite in A Minor, RCT 1: No 1 Prelude
+02. Pieces pour clavecin, Book 1 (1746): No 12 Allemande
+03. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 1 Les Tendres Plaintes - Rondeau
+04. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 2 Les Niais de Sologne - Doubles des Niais - Autre Double(   Читать дальше...   )Жанр: Classical / Клавесин солоПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D97D6C5312ECC90EC12466F5A8237515D6BD95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999164   (866604) от 21.03.2016
+
+Ludger Remy - Johann Jacob Froberger: Strasbourg Manuscript (2000) 2CD [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866604.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+Suite XII in a Adler: Suite 15 "ex autographo"
+01. Allemande   03:33(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 02:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB221FE2A39311C7C3C3441F36B30822C7DE4DB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998510   (867802) от 20.03.2016
 
 Richard Strauss, Alfred Lord Tennyson - Enoch Arden: A Melodrama (Mac Morgan, William Ransom) (1989) [MP3|320 кб/с] <Classical>
@@ -645,60 +699,6 @@ Symphony No.1, Op.21, C major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C1035D300123C7AB8044DCD45173204B91FE80E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997078   (873566) от 17.03.2016
-
-Marin Marais - Jordi Savall - Le Concert Des Nations – Alcione, Suite Des Airs A Jouer 1706 (2000) [FLAC|Lossless|tracks] <Classical, Baroque>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture  03:43
-02. Marche Pour Les Bergers Et Bergeres  01:33
-03. Air Pour Les Faunes Et Les Driades  01:03
-04. Menuet Pour Les Bergers Et Bergeres  01:52(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B583B3176A4959BC73C43AC0EF68D0E5F74BB812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997689   (873770) от 17.03.2016
-
-Hermitage String Trio - Mozart - Divertimento in E flat major, KV 563 - Preludes and Fugues (2011) [FLAC|Lossless|tracks] <Classical, Chamber Music>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Preludes and Fugues after Bach, KV 404a 
-1 	Largo
-Wolfgang Amadeus Mozart 	Hermitage String Trio  03:41
-2 	Fuga. Allegro(   Читать дальше...   )Жанр: Classical, Chamber MusicПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A243D2360A0E5FD04390911D6A9327849336EA0
 ```
 
 

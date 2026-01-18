@@ -1,3 +1,63 @@
+###  Публикация: 1197228   (813929) от 08.01.2018
+
+VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer  -  Cosmodrome (Original Mix)  4:46
+02.  Pierre Pienaar & Amy Kirkpatrick  -  Looking (Instrumentall Mix)  5:48
+03.  Attila Syah  -  Malang Rain (Extended Mix)  7:08
+04.  NoMosk feat. Maria Milewska  -  Black Light (Dub Mix)  5:29(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5A1DF13EA6BF28A399D118E52014694AC832BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 656336   (814331) от 16.05.2013
+
+Stanisha - The Ancient Galleries (2012) [MP3|320 кб/с]<progressive house>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 0n35ou1 (Original Mix) (08:05)
+02. Altered States (Original Mix) (07:43)
+03. Bedouin (Original Mix) (07:49)
+04. Cosmic Dancer (Original Mix) (08:57)
+05. Disappear (Original Mix) (09:21)
+06. Inner Scream (Original Mix) (08:08)
+07. Magic In Your Eyes (Original Mix) (10:57)
+08. Space Shuttle Is Burning When She Plays The Piano (Original Mix) (08:37)
+09. The Ancient Galleries (Original Mix) (07:39)
+10. Yoruba (Original Mix) (09:46)Жанр: progressive houseПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B06ED40E209DC1A28A7B26C28A996511E8EE33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008493   (814827) от 18.04.2016
 
 VA - The Ultimate Euphoric Trance Vol. 2 (2016) [MP3|320 кб/с] <Trance>
@@ -638,60 +698,6 @@ magnet:?xt=urn:btih:F57FD519235D346833CDB1CAFAADB06215DD2E8A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2676129CCA909BFB048D3C2BF5281E23B919BE6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008124   (817601) от 17.04.2016
-
-Karma Fields - New Age | Dark Age (2016) [FLAC|Lossless|tracks] <Drum n Bass, Dubstep, Electro>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Edge of the World
-02.  Stick Up (feat. Juliette Lewis)
-03.  For Me
-04.  Skyline(   Читать дальше...   )Жанр: Drum n Bass, Dubstep, ElectroПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69334D2FC982B608621AF51A405E312B688D9A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503701   (817636) от 20.10.2021
-
-VA - 35 Best Body Building Hits 2021 (Fitness Version) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Force - Born For This (Fitness Version) (05:03)
-02. DJ Kee - Get Busy (Fitness Version) (04:21)
-03. D'Housemasters - House Arrest (Fitness Version) (04:37)
-04. DJ Kee - Blood Is Pumpin' (Fitness Version) (04:04)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A43AE9D507BF50CFAB88267EE29A7591EA99FBC
 ```
 
 

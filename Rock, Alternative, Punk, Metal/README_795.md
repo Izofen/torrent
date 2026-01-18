@@ -1,3 +1,57 @@
+###  Публикация: 1557843   (535828) от 18.06.2022
+
+Collective Soul - Disciplined Breakdown (1997) Remaster, 2022, Craft Recordings [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious Declaration (3:42)
+02. Listen (4:13)
+03. Maybe (4:10)
+04. Full Circle (4:09)(   Читать дальше...   )Жанр: Alternative rock, Post-grungeПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1D7A3E984031BC78591A282989B5A3240F52AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557851   (535832) от 18.06.2022
+
+Oni - Loathing Light (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive Metalcore, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lie (3:17)
+02. Against My Sins (3:28)
+03. Secrets (feat. Iggy Pop and Randy Blythe) (4:47)
+04. Awaken (3:25)(   Читать дальше...   )Жанр: Progressive Metalcore, DjentПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16B65A5A8766CBDDA84E05B51375E7CBF1B07DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557786   (535834) от 18.06.2022
 
 Drive At Night - Echoes Of An Era (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock>
@@ -636,60 +690,6 @@ magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925888   (536927) от 08.08.2015
-
-Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Ga Ga
-02. A Kind Of Magiс
-03. We Are The Champions
-04. Under Pressure(   Читать дальше...   )Жанр: RockПродолжительность: 02:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3131CC0AC270A10BC51F2A487CF9528B0E4FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925891   (536936) от 08.08.2015
-
-Queen - MTV Music History: The Greatest Hits III-IV (1999) 2CD [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Show Must Go On
-02. Mr. Bad Gay
-03. The Invisible Man
-04. The Miracle(   Читать дальше...   )Жанр: RockПродолжительность: 02:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3931668BDC290BC7CDE35F4C2A8B0B9B8AA6C717
 ```
 
 

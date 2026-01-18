@@ -1,3 +1,30 @@
+###  Публикация: 1314258   (519277) от 14.07.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+02. Billie Eilish - Bad Guy 3:14
+03. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+04. Drenchill feat. Indiiana - Freed From Desire 3:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216C3725EEB3D32FDF8A650476328ED0AD532363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241613   (519282) от 18.08.2018
 
 VA - The Official UK Top 40 Singles Chart 17.08.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -686,33 +713,6 @@ VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D3BFB0501A874A8AE34580CCFC58496CBED3CB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314112   (521212) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hardkiss - PiBiP (4:15)
-02. Mozgi - Digitalization (2:41)
-03. MARUV - Focus On Me (2:56)
-04. Tvorchi - Trip (Orchestral Version) (2:49)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8020E859B884474785C71AB48E942783313B02
 ```
 
 

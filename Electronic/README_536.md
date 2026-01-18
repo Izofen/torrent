@@ -1,3 +1,57 @@
+###  Публикация: 1839330   (1046522) от 28.11.2025
+
+АИГЕЛ - Человек (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <IDM, Electronic>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Успокоить
+2. Портрет
+3. Воин света
+4. Порт(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6634B2B52809E6485C6BBA5E6C1F6038F4ABED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839327   (1046523) от 28.11.2025
+
+АИГЕЛ - Человек (2025) [MP3|320 Kbps] <IDM, Electronic>
+
+>>Electronic
+>>IDM
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046523.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Успокоить
+2. Портрет
+3. Воин света
+4. Порт(   Читать дальше...   )Жанр: IDM, ElectronicПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84121986D0D8D82E68AE62E9441081E01A20E09E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839454   (1046667) от 29.11.2025
 
 VA - Trance Fusion, Vol. 15 (2025) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ VA - Winter Chillout Lounge 2025 - Smooth Lounge Sounds for the Cold Season (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD4D8EA74BEE614706FA40D0140D30B1DCEAEAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840862   (1047570) от 07.12.2025
-
-VA - The Orient Collective: Echoes of the Pyramids (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Suvorov - Cleopatra (4:53)
-02. Tibetania - Desert Moon (7:02)
-03. Tibetania - The Road to Egypt (6:36)
-04. Tibetania - Pyramid of Light (8:02)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A5855244B1D3F8266D4F94C6DC8341C9563DFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840655   (1047583) от 08.12.2025
-
-Andrew Rayel - Find Your Harmony Radioshow (2015-2025) [AAC 128/260 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Andrew Rayel – Find Your Harmony 474 (GUEST MIX: Nifra & Tensteps)
-01. Beatsole – Velvet Fall | NOMADS MUSIC
-02. GENESI & Rivo & Aya Anne – Karma | DISORDER
-03. Phillip Castle & Tea Petrovic – New Sensation | RISING HRMNY (FIND YOUR HARMONY)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 28 дн., 08:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F87B9C1C13DFE1D0BC8A608B076F9626B832F7
 ```
 
 

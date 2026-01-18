@@ -1,3 +1,55 @@
+###  Публикация: 1145527   (1004811) от 30.07.2021
+
+Solar Quest (SolarQuest, Entropica) - Discography 19 Releases (1994-2020) [FLAC|Lossless|tracks+.cue, image+.cue, tracks] <Ambient, Downtempo, Acid, Psychill, Goa Trance, Dub>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Crumble Part 1 (21:48)
+ 02. Acid Crumble Part 2 (15:01)
+ 03. Acid Crumble Part 3 (08:26)Тип издания: CD, Web, VinylЖанр: Ambient, Downtempo, Acid, Psychill, Goa Trance, Dub •Продолжительность: 21:24:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B14FB12DBD9A27116662BB344FF173345A109C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486098   (1005002) от 29.07.2021
+
+Wagon Christ - Lovely (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM, Electro>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovely (04:10)
+ 02. Pretty Crap (08:03)
+ 03. Suspension Breakdown (03:56)Жанр: Breakbeat, IDM, ElectroПродолжительность: 00:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9D8E94C69DE9C496EC830783A14021AD9B4646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485836   (1005100) от 28.07.2021
 
 Tentura - Theme Patcher (Remixes) (2014) Uxmal Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Progressive Trance, Psychill>
@@ -637,60 +689,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7210B9DA7E0224AC07BCBBBAD75E2DB5B7627352
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460488   (1006260) от 18.07.2021
-
-Dr. Atmo - Discography 18 Releases (1992-2021) Fax +49-69/450464, Logic Records, ...txt [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Atmo - Qui (03:38)
- 02. Atmo.Feos - Sunset (05:12)
- 03. Belotone - On The Neon (06:54)
- 04. Belotone - Bamboo Neon (05:28)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Leftfield, Dub, Tribal, Experimental •Продолжительность: 22:58:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148082A90A22375666B322E9E1507C83F5743C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484170   (1006284) от 18.07.2021
-
-Jon Hassell - Seeing Through Sound (Pentimento Volume Two) (2020) Ndeya [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Contemporary Jazz, Tribal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fearless (08:02)
- 02. Moons of Titan (04:19)
- 03. Unknown Wish (02:57)
- 04. Delicado (04:02)(   Читать дальше...   )Жанр: Ambient, Experimental, Contemporary Jazz, TribalПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EF7CBC1116D599ECAAD48314E1519770B65B75
 ```
 
 

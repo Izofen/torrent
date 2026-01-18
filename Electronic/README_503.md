@@ -1,3 +1,57 @@
+###  Публикация: 1285895   (1011259) от 13.06.2021
+
+Umwelt - Discography 45 Releases (1998-2021) Shelter, New Flesh, Rave Or Die, Fundata [FLAC|Lossless|tracks+.cue, tracks] <Electro, Acid, Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear On The Dark Planet (05:20)
+ 02. Accelerating Universe (05:20)
+ 03. Ravenous Horde (04:49)
+ 04. Raiders Of The Final Frontier (04:10)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Electro, Acid, Techno, Industrial, Experimental •Продолжительность: 17:45:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0866C48B3B347BEC78216BD1BBBA1335AFCC8F1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476993   (1011316) от 13.06.2021
+
+Calibre - Feeling Normal (2021) Signature Records [FLAC|Lossless|tracks+.cue] <UK Garage, Breaks, Drum & Bass>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barren (06:03)
+ 02. Change With Me (06:20)
+ 03. Time To Breathe (feat. Cimone) (05:50)
+ 04. Has To Happen (06:26)(   Читать дальше...   )Жанр: UK Garage, Breaks, Drum & BassПродолжительность: 01:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1524D5527643D85E6E8B58D67340FFC3E2031651
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477142   (1011320) от 13.06.2021
 
 Shingo Nakamura - Glow (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -640,60 +694,6 @@ Saphileaum - Collection 16 Releases (2016-2021) Controlled Violence, Norite, Sil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C9E344634DE391266AA9C311D3B2829C176BA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374968   (1012889) от 03.06.2021
-
-Fugenn & The White Elephants - Discography 22 Releases (2011-2021) Progressive Form [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Downtempo, Ambient, Breaks>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pattern_1 (04:00)
- 02. Pattern_2 (05:26)
- 03. Pattern_3 (03:36)
- 04. Pattern_4 (04:03)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Glitch, Downtempo, Ambient, Breaks •Продолжительность: 10:53:58 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B2B94F08FA84461DD8385580E2E8806597DF70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474530   (1013061) от 02.06.2021
-
-Dani Corbalan - Best of Dani Corbalan (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterfall (Radio Edit) (3:09)
-02. Let It Go (Radio Edit) (2:42)
-03. Burning In Ice (Radio Edit) (2:42)
-04. Fire In Me (Radio Edit) (2:42)(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19140CD29968A714B45078C22646BDA9736FF362
 ```
 
 

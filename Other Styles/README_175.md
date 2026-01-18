@@ -1,3 +1,30 @@
+###  Публикация: 1090517   (945857) от 07.01.2017
+
+Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
+02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
+03. Штурм Полоцка (01:26)
+04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090555   (945975) от 07.01.2017
 
 Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -680,33 +707,6 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362272   (949555) от 23.02.2020
-
-John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949555.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:37| 01. Wake the Girls
-|04:02| 02. Train North
-|02:31| 03. Skagway, Alaska
-|01:25| 04. Snowy Climb(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 609373   (990509) от 29.01.2013
+
+VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SuddenDef & Wickaman - Destruct
+02. Komatic & Technicolour - Dickinson's Rocket (Original Mix)
+03. Teddy Killerz - New Drums
+04. dRamatic & dbAudio - Flex Through The Solar System
+05. The Upbeats - Undertaker
+06. Prolix - Over You
+07. Mos - Blue Moon (Original Mix)
+08. B4sstee - My Way
+09. Mob Tactics - Prang
+10. S.P.Y - Hammer In My Heart (Feat Diane Charlemagne)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67115FD23A61DDADCFB8FA81837D775E0E7F8356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353773   (990547) от 19.01.2020
 
 VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
@@ -724,39 +757,6 @@ VA - The Official UK Top 40 Singles Chart 17.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FBCF7FAC098F837CD34A65040E3DB986D2897AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608543   (992212) от 27.01.2013
-
-VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lenka - Everything At Once
-02. Lana Del Rey - Summertime Sadness
-03. Chris Brown - Don't Judge Me
-04. Loreen - Euphoria
-05. Kesha - Die Young
-06. Andreas Gabalier - I Sing A Liad Für Di
-07. Labrinth - Express Yourself
-08. David Bowie - Where Are We Now!
-09. Otto Knows - Million Voices
-10. Flo Rida - I Cry(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
 ```
 
 

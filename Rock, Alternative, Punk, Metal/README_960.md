@@ -1,3 +1,299 @@
+###  Публикация: 1025051   (712207) от 11.06.2016
+
+Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding The Flame (03:54)
+02. Do You Want Me Now (04:03)
+03. Supersonic Girl (03:07)
+04. Mr. Hangman (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2360BCF51CE453995E7F81A9490FD7F8FCA05918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130981   (712279) от 03.05.2017
+
+Paul McCartney - Flowers In The Dirt (1989) Remastered 2017 (3CD) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712279.jpg" />
+</div>
+
+
+###  Подробнее
+
+СэрCD1 - Remastered Album
+CD2 - Original Demos (Paul McCartney & Elvis Costello)
+CD3 - Demos (1988)Жанр: RockПродолжительность: 02:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F2E4D9025BA17162A4CB0ACE64C7936E0B3DEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025318   (712285) от 11.06.2016
+
+Romuvos - Infront Of Destiny (2016) [MP3|320 кб/с] <Epic Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infront Of Destiny We Shall Face Our Death
+02. We Travel South
+03. Winds Blow Over Seas
+04. Our Spirits Pass Through The Underworld(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171FDA8E7560B8DBBAC4E68135B1CFBEC44C1028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025037   (712289) от 11.06.2016
+
+Revolt - Torture To Exist (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S:O:S
+02. Torture To Exist
+03. Secrets Of Death
+04. Stalked...Catch...Bondage(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD47BA83966516D5BD54F4DCD171D331D78D799D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025326   (712291) от 11.06.2016
+
+Nowen - Peace With Death (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712291.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro III
+2. When Death Arrives
+3. In Death We Shine
+4. The Lost Fire(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CBF65D064A2C2D035CD30466409ED4F5A43FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025311   (712294) от 11.06.2016
+
+Defiatory - Extinct (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712294.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Final Conflict
+2. Reaper
+3. Aeons End
+4. Dogs Of War(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B08266F6B18D68038F9988AC5625ED70687A86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130965   (712354) от 03.05.2017
+
+Noumena - Myrrys (2017) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712354.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kohtu
+2. Metsän Viha
+3. Kirouksen Kantaja
+4. Sanat Pimeydestä(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5542686D31481483C2158C342E51972B63273EFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130697   (712438) от 03.05.2017
+
+Hatfield And The North - 6 albums (1973-2006) 6 CD, Discography [WavPack|Lossless|image + .cue] <Canterbury Scene, Prog Rock, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grosso Lavoro (2:41)
+02. Drowning In The Bathroom (5:59)
+03. K Licks (Long) (2:39)
+04. The Crest (3:37)(   Читать дальше...   )Жанр: Canterbury Scene, Progressive Rock, Jazz RockПродолжительность: 05:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BF6E4158EDB787FB18D64373235BCC0E37B0588
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130868   (712539) от 03.05.2017
+
+Cait Brennan - Third (2017) [MP3|320 Kbps] <Indie Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad At Apologies
+02. Stack Overflow
+03. He Knows Too Much
+04. At The End Of The World(   Читать дальше...   )Жанр: Indie Rock, Glam RockПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE62AC5D5564172CA0A06843F560347B83753A81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130646   (712551) от 03.05.2017
+
+John Mellencamp Featuring Carlene Carter - Sad Clowns & Hillbillies (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobile Blue (3:04)
+02. Battle Of Angels (3:58)
+03. Grandview (3:52)
+04. Indigo Sunset (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F491141970E9DFC956A3BF28CE060B34559D9EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532661   (712585) от 20.02.2022
+
+Nightwish - Decades (An Archive Of Song 1996-2015) (2018) 2CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost Love Score [10:02]
+ 02. Slaying the Dreamer [4:35]
+ 03. End of All Hope [4:23]
+ 04. 10th Man Down [5:29](   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 02:21:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1AE51CFBE371231D55347953FDB5A98F92B2DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532277   (712684) от 20.02.2022
 
 Chicago - Japanese Singles Collection (2021) 2xCD, Japanese Edition, Compilation, Remastered, Rhino Records [FLAC|Lossless|tracks + .cue] <Classic Rock, Jazz Rock>
@@ -399,300 +695,6 @@ Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15C7239FDBE8954D2296D19665DCBAE4DAA32307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893349   (713300) от 29.04.2015
-
-СЛОТ (The Slot) - Сила притяжения (2015) Single [MP3|320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сила притяженияЖанр: AlternativeПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706A2D348A430EC1D0D0FCC2FE3CD6A9E591DDB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401077   (713308) от 08.08.2020
-
-LAMPOCHKA & Abazur - Девочка, которая хотела перепробовать всё (2020) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713308.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Никогда
-2. Девочка, которая хотела перепробовать всё
-3. Фанатка
-4. Пустою головой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542FBE800826635F5DE53C13562B3942688EE1C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401015   (713459) от 08.08.2020
-
-Таліта Кум (Талита Кум) - 2 Альбома (2005 - 2007) [FLAC|Lossless|tracks + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Упс!
-02. Джек - пот
-03. Шоу бізнес!
-04. Просто бути людьми(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A117470CFEBAE63C80EC332E53B454F183CAF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401056   (713497) от 08.08.2020
-
-In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crisis 01:19
-02. Worldwide Suicide 01:56
-03. Hellbringer (feat. Jamie Hails) 03:22
-04. Moving On 02:51(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5549081A4E9C854C42141D59660EC49435E61F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401053   (713506) от 08.08.2020
-
-Kiljin - Master Of Illusion (2020) [MP3|320 Kbps] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Path of the Warlock (06:22)
-02. I'm Sitll Alive (07:37)
-03. Personality Treason (08:00)
-04. New Disease (05:58)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 01:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692C191754ABDE5A0B98BF3C7258CD7C78FB2F4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401025   (713514) от 08.08.2020
-
-DVSR (Devastator) - West Technique (2020) [MP3|320 Kbps] <Rap Metal, Progressive Metal, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Sugar
-02. Bloodlust (feat. CJ McMahon)
-03. Off Tap
-04. TN Tax(   Читать дальше...   )Жанр: Rap Metal, Progressive Metal, DjentПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82194AB02966CF6A72798BC4BC4B7DD8B1142AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024920   (713541) от 10.06.2016
-
-Paul McCartney - Pure McCartney (2CD) (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713541.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. Maybe I'm Amazed (3:52)
-02. Heart Of The Country (2:25)
-03. Jet (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3821C0452C3649A30C30811C81B7998BE108433D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024918   (713581) от 10.06.2016
-
-Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Band On The Run 05:14
-02. Arrow Through Me 03:38
-03. My Love 04:10
-04. Live And Let Die 03:13(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401066   (713608) от 08.08.2020
-
-Good Tiger - Raised In A Doomsday Cult (2020) [MP3|320 Kbps] <Progressive Metal, Math Rock, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kimbal (2:39)
-02. Ghost Vomit (3:35)
-03. Whatever Happened to Man's Best Friend (4:16)
-04. 1252 (4:09)(   Читать дальше...   )Жанр: Progressive Metal, Math Rock, DjentПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E979DA5069600B3295898007E1D649EF8AD38EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401041   (713609) от 08.08.2020
-
-Zero Mindset - 4 EP (2015-2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intersect [00:03:49]
-02. Evil Corp [00:03:03]
-03. Theory [00:02:46]
-04. Mastermind [00:01:40](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 4 CD, 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0C2D14CE7B00FED75FA2D69533B3EB08D14C02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219453   (713781) от 14.04.2018
-
-Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Temple Of Lies
-03. On The Wings Of An Angel
-04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1117331   (819376) от 22.03.2017
+
+VA - Chill Vibes On Air (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda - Festa Do Sol  5:05
+02.  Enrico Donner - Something New (Feat. Theresa Thomason)  4:37
+03.  Cane Garden Quartet - 2 Steps To The Sun  5:42
+04.  Solanos - Estranha (Feat. Adriana Macedo)  5:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304EF21F34111FB9599848AA0F71F9C3E5CE05BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117353   (819378) от 22.03.2017
+
+VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sendoo - Drinks At The Bar  3:42
+02.  Breeze - Spectral Sonic (Extended Mix)  4:06
+03.  Jay Benson - Touch  5:31
+04.  Premeson - Save Me (The Ironix Remix)  5:49(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15226BDAC63AA02C6B72AB226548D33629B4ABEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007525   (819453) от 16.04.2016
 
 VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
@@ -636,56 +690,6 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz And Chillout Tunes) (2018) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AB5C33DEC46A896BCAA3B7938A2986CFE5AFA34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232709   (822360) от 09.05.2020
-
-Single Cell Orchestra - Discography 10 Releases (1995-2020) Asphodel, Cyberset, Astralwerks [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Electro, Downtempo, IDM, Techno>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Waves (07:42)
- 02. The Storm Inside (07:12)
- 03. Strictly (08:57)Тип издания: CD, WebЖанр: Ambient/IDM/DowntempoПродолжительность: 09:22:31 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4578FFFA20ECBEB9A61D13B93943E595DA58A73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147885   (822375) от 09.05.2020
-
-Glanko - Discography 10 Releases (2012-2020) Halbsicht Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Industrial, Downtempo, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orvot (06:42)Тип издания: WEBЖанр: IDMПродолжительность: 05:11:48 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6936BAF670AAA4768ABC4DF93576C7B422C8C66B
 ```
 
 

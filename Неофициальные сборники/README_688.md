@@ -1,3 +1,30 @@
+###  Публикация: 1603120   (1045726) от 09.01.2023
+
+VA - Suflower Reggae (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045726.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Winston Wright - Eccles Skank [02:08]
+002. Megumi Mesaku - Sun Shines For Me [03:57]
+003. Susan Cadogan Feat. The Magnetics - Happy Birthday [02:14]
+004. Stranger Cole - Stranger At The Door [02:41](   Читать дальше...   )Жанр: Reggae, Dub, RiddimПродолжительность: 10:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C58E61586408C9DE4E616F6F778E505D2759E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603468   (1045740) от 09.01.2023
 
 VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Techno, Afrobeat, Reggaeton>
@@ -668,33 +695,6 @@ VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02253DBE2E522CBA885C0F17FCD832B8D1EC09BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840975   (1047659) от 08.12.2025
-
-VA - Christmas Blues for the Evening (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Christmas Blues,Blues Christmas Music,Blues Christmas Instrumentals - Back Door Santa [01:37]
-002. Christmas 2020,Instrumental Christmas,Blues Christmas - Christmas Blues Coffee Shop [04:37]
-003. Blues Christmas - North Pole Midnight Blues [03:44]
-004. Blues Christmas - Sweet Cookies [04:58](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 05:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F2E8A427C2649B0BE04D1CD2F8D33AA0F0D069
 ```
 
 

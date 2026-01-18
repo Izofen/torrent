@@ -1,3 +1,30 @@
+###  Публикация: 1126565   (765371) от 18.04.2017
+
+VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13Tries - Burned Down 4:22
+002. Al Atkins - Heavy Thoughts 6:12
+003. Almah - Capital Punishment 4:01
+004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126467   (765375) от 18.04.2017
 
 VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
@@ -668,33 +695,6 @@ VA - Самые скачиваемые треки ВКонтакте Зима (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4EEDA041CECF832904683D6300AB3CB86D9A4C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278985   (766032) от 29.01.2019
-
-VA - Cryptic House I-XX [Compiled by Zebyte] (2016-2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luc Angenehm - Glow (Feat. Matthias Propach) [07:23]
-02. Soukie & Windish - Flatemate Ghost (Kellerkind Remix) [06:26]
-03. Finnebassen Feat. Nathalie Conway - Show Me How [09:23]
-04. DJ Tennis Feat Pillowtalk - The Outcast (Life & Death Dark Mix) [08:49](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Oriental Deep, Tech House, Tribal HouseПродолжительность: 70:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A7568EF5B529C80D30AC0C57A1B4A64500FD71
 ```
 
 

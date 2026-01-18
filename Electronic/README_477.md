@@ -1,3 +1,57 @@
+###  Публикация: 1093312   (933954) от 15.01.2017
+
+Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Frequency (original Intro) (4:34)
+ 02. Alphard (original mix) (7:04)
+ 03. Spaceship (original mix) (8:33)
+ 04. Bamboo Forest (original mix) (7:32)(   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093454   (933961) от 15.01.2017
+
+VA - Neon Electronic Chillout Lounge (Shades Of Erotic Ibiza Moments & Cafe Relaxation Love Selection) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Automatic Sound Pilot - Walking Into Silence (German Turbo Mix)  3:55
+02.  Brian Rosso - Fake Love (RNB Hot & Sweaty Mix)  4:24
+03.  Luna del Torro - Shape You (No Singer Songwriter Mix)  5:17
+04.  Pattern Mixer - Sex At The Beach (ONS Relaxation Mix)  4:06(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA7893709580349C1846CB1D94BCFDBA4BB4B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093521   (934019) от 15.01.2017
 
 VA - S.L.O.W. Collection Vol.2-Chill Out Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -636,60 +690,6 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092876   (937421) от 13.01.2017
-
-VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix)  7:45
-02.  Solid Stone - Heart Call (Jerome Isma-Ae Remix)  6:45
-03.  Lostly - Galaxy Of Blue (Original Mix)  3:32
-04.  Fisherman & Hawkins - Never The Same (Radion6 Remix)  5:24(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C34226569DCAB56F8243D2BEDBD45B9B306687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092873   (937424) от 13.01.2017
-
-VA - Mountain Spa Collection Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Bossa And Jazz 05:44
-02. Enrico Donner - Smooth Inspiration 06:05
-03. Cane Garden Quartet - Arotisme 05:36
-04. Baghira - Way Too Long 05:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB60594E637EBFAC8432DE90D62D004CE709D18
 ```
 
 

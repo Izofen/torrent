@@ -1,3 +1,57 @@
+###  Публикация: 1089468   (950700) от 04.01.2017
+
+VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arent & Raxell - Damborola  [6:28]
+02. TimeMoment - Cosmo  [5:51]
+03. SHaRk - Summer Feelings  [5:46]
+04. Grim Mass - In Blizzard  [4:30](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01F819F9C15F5D497EF8989F5AC20320F6213C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089685   (950701) от 04.01.2017
+
+VA - Romantic Lounge Music Winter Session (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Kap Arkona
+02. Diario - Ancient Stone Steps
+03. The Sura Quintet - No Inhibitions
+04. Rey Salinero - Conexiones(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB10761D91A8EE786BE7A631A74A89D89E5C6C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089433   (950704) от 04.01.2017
 
 VA - Acoustic Songs: 14 Classic Songs Reimagined Acoustically (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -638,60 +692,6 @@ Pete Shelley - 3 Albums (1981-1986) CD, Reissue [MP3|320 Kbps] <Electronic,  New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FEEA6984CC4F1C8871D900594DE8A44F6BD6968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089235   (953757) от 02.01.2017
-
-VA - Intimate Chill Feelings (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diario - Ancient Stone Steps (5:48)
-02. Chillelektro - Kap Arkona (5:53)
-03. Jay Jay and the Snakes - Walk Good (5:55)
-04. Rey Salinero - Lindo Cielo (6:39)(   Читать дальше...   )Производство: StereoheavenЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889CCA6DDC661FC05E3AE3E69692E7BAAE2B3A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089021   (953774) от 02.01.2017
-
-VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed - Fanfare (Darren Emerson Reprise) 04:15
-02. Quivver - Mumbo Jumbo (Reprise) 05:00
-03. Sebastian Markiewicz - Sensation 09:45
-04. Collective Machine - Hold You in the Moment 07:34(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
 ```
 
 

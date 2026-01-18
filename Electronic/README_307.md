@@ -1,3 +1,57 @@
+###  Публикация: 1297807   (603142) от 24.04.2019
+
+Monodisc - Discography 2 Releases (2015-2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Eternal Gaze (05:48)
+ 02. Thoughtless Sleep (07:06)
+ 03. Confined Spaces (06:28)
+ 04. The Longest Drive Home (09:42)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno/AmbientПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD9D7AB1403C5CF4DCC78904AFABA58F2D3BA8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942135   (603183) от 21.06.2018
+
+Edgey - Discography 8 Releases (2002-2016) Hands Productions [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, Breakcore, Drum n Bass, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total Annihilation (VIP Remix) (05:37)
+ 02. Entombed In Glass (05:33)
+ 03. Thick In The Neck (05:24)
+ 04. No Games (06:51)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Breakcore, Drum n Bass, Experimental •Продолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40056885C3E6D0BB974A66C6ADB87403DFEC903
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231975   (603275) от 21.06.2018
 
 Fieldtriqp - Eidolon EP (2005) Experimedia [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
@@ -641,60 +695,6 @@ VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297190   (604829) от 21.04.2019
-
-Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|tracks] <Techno, Deep Techno, Dub Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled 1 (06:06)
- 02. Untitled 2 (07:10)
- 03. Untitled 3 (06:04)
- 04. Untitled 4 (08:10)(   Читать дальше...   )Жанр: Techno, Deep Techno, Dub Techno, Tech HouseПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297281   (604830) от 21.04.2019
-
-VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz & Karl Frierson - Say A Little Prayer (Unplugged Edit) 3:00
-02. Schwarz & Funk - Sheela & Luna (Original Mix) 4:59
-03. Key Of Dreams - You Don't Know (Original Mix) 5:04
-04. Peter Pearson - Message In A Dream (Original Mix) 5:22(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
 ```
 
 

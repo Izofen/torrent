@@ -1,3 +1,28 @@
+###  Публикация: 1028435   (688743) от 23.06.2016
+
+Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The River Mermaid    32:33
+02.  The Old Woman of the Sea    16:07Жанр: New age, Relax, Meditative |Продолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9409050F962C4D88283ECB1B48022195A66813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133869   (688965) от 15.05.2017
 
 Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -689,30 +714,6 @@ L'avventura
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 210689   (690827) от 22.06.2010
-
-VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge / Chill-Out / Relax / Smooth-JazzПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 

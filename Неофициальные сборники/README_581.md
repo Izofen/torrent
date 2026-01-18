@@ -1,3 +1,30 @@
+###  Публикация: 1374095   (876489) от 08.04.2020
+
+Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton - Cocaine
+02. Cream - Sunshine of Your Love
+03. Eric Clapton - After Midnight
+04. Derek & The Dominos - I Looked Away (40th Anniversary Version / 2010 Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105347   (876554) от 17.02.2017
 
 VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garage, Funk, Trap, Future Bass>
@@ -665,33 +692,6 @@ VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104443   (878215) от 16.02.2017
-
-VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878215.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алена Скок - Лед На Реке 4:35
-002. Александр Корецкий - Осколки Счастья 4:08
-003. Александр Бычков - Ясноглазая 3:27
-004. Александр Дадали - Я Здесь Один Я Против Всех 4:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531F23DB5869C866F4E03040633FD6C2F19105F5
 ```
 
 

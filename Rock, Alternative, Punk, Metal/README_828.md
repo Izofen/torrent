@@ -1,3 +1,144 @@
+###  Публикация: 1303117   (573033) от 21.05.2019
+
+The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way In (02:41)
+02. Put Some Miles On (04:00)
+03. Black Light (04:40)
+04. Bullet Holes (04:02)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D99C599E5059BEF1CD32461DD803FAE3D2D587D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303110   (573097) от 21.05.2019
+
+Root Cellar Xtract - Lonesome Miles (2019) [FLAC|Lossless|tracks + .cue] <Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Dakota Sky (04:51)
+02. Mystery Lady (05:07)
+03. Everytime (05:15)
+04. Kentucky Heartbreak (03:17)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EB05560691893D46F53119BAEAF352F33DD458
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528053   (573190) от 28.07.2012
+
+Testament - Dark Roots Of Earth (2012) Deluxe Edition [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Up (4:18)
+02. Native Blood (5:21)
+03. Dark Roots Of Earth (5:45)
+04. True American Hate (5:27)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0055484BA7D577A1BD4A6F54CA9602C24D7692E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921953   (573244) от 26.07.2015
+
+Manowar - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Steel
+02. Warriors Of The World United
+03. Return Of The Warlord
+04. Fighting The World(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FA36CD4A9CC52A801D42D1566D9004E8704C68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528323   (573396) от 28.07.2012
+
+Panic Room - Skin (2012) [FLAC|Lossless]<Progressive Rock, Crossover Prog, Female Vocalists>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_573396.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Song For Tomorrow (06:16)
+2. Chameleon (06:52)
+3. Screens (04:43)
+4. Chances (05:54)
+5. Tightrope Walking (07:09)
+6. Promises (05:24)
+7. Velvet & Stars (03:15)
+8. Freefalling (06:12)
+9. Skin (05:19)
+10.Hiding The World (05:19)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921951   (573428) от 26.07.2015
 
 Manowar - Greatest Hits (2012) 2CD [FLAC|image+.cue]<Heavy Metal>
@@ -561,159 +702,6 @@ Satisfied Drive - Live (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EECFBEC1E6C59DD1CF88A60C22BE4433AC02A961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361805   (574849) от 11.07.2011
-
-VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:49:11
---------
-1. James Brown - I Got You (I Feel Good)           3:18
-2. Santana - Soul Sacrifice                        4:55
-3. Martha Reeves & The Vandellas - Dancing In The Street 2:33
-4. Jimmy Ruffin - What Becomes Of The Broken Hearted     3:03
-5. The Edwin Hawkins Singers - Oh Happy Day        5:04
-6. The Box Tops - The Letter                       1:54
-7. Cupid's Inspiration - Yesterday Has Gone        2:37
-8. The Temptations - Run Away Chils, Running Wild  4:55(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9181F0AE606251A88817A97ED35E72BB42551F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527885   (574885) от 27.07.2012
-
-ГРАЙ - О земле родной (2011) [MP3|320 кб/с]<Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песнь о земле родной
-02. Пшеничная
-03. Зимняя сказка
-04. Весна
-05. Средь лесов
-06. Лешак
-07. Уходи далёко, горе
-08. Плач о долюшке
-09. Воин храбрый, ясный сокол
-10. Вставай с коленЖанр: Folk MetalПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8EF6530988731436EB63A8B3A680895D79A3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043127   (574923) от 15.08.2016
-
-Jake Chisholm - No More Sorrow (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Sorrow - 3:29
-02. I'm On Fire - 3:28
-03. Weigh You Down - 3:34
-04. Is There Another Man - 3:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E333588D7BA39126E4F0BC2119F48FD64302F6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527910   (575176) от 27.07.2012
-
-Tankard - A Girl Called Cerveza (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 	Rapid Fire (A Tyrant's Elegy) 	05:12
-2. 	A Girl Called Cerveza 	04:14
-3. 	Witchhunt 2.0 	05:42
-4. 	Masters of Farces 	04:08
-5. 	The Metal Lady Boy 	04:59
-6. 	Not One Day Dead (But One Day Mad) 	04:01
-7. 	Son of a Fridge 	05:53
-8. 	Fandom at Random 	05:28
-9. 	Metal Magnolia 	05:07
-10. 	Running on Fumes 	05:30Жанр: Thrash MetalПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17DE97D5E48D00287089873FAD182088E7C5CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921396   (575193) от 25.07.2015
-
-Roger Waters - Amused To Death (1992) /Remastered 2015/ [FLAC|tracks+.cue]<Progressive Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Bill Hubbard
-02. What God Wants, Part I
-03. Perfect Sense, Part I
-04. Perfect Sense, Part II(   Читать дальше...   )Жанр: Progressive Art RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87002C32A3568AC3F63950133A670129B2DC8220
 ```
 
 

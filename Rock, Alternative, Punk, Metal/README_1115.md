@@ -1,3 +1,300 @@
+###  Публикация: 1495955   (876071) от 15.09.2021
+
+Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finnegans Wake (Intro)
+02. Scorpion Charmers (In The Village Of...)
+03. Battle Of The Thaumaturge And The Fire Priests
+04. Sagittarius A*(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C1986A4C47AAF4A4079FCCDBEF7034DBF41123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495960   (876078) от 15.09.2021
+
+Cronopolis - Cronopolis (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vision
+02. Fallen Kingdom
+03. Shadows Of The Dark Past
+04. Survive(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0625AF3267BD8B6EE9D48101C4169326F0D96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765328   (876390) от 11.03.2014
+
+Firkin - Finger in the Pie (2014) [MP3|320 кб/с]<Folk-Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donegal Danny
+02. If I Could Be The Pope
+03. Kind And Fine
+04. Molly Malone(   Читать дальше...   )Жанр: Folk-Rock, Punk RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A09AD3D9796D244C1220BF1D2AF455520A069A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105302   (876460) от 17.02.2017
+
+Once Human - Evolution (2017) [MP3|320 Kbps] <Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876460.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flock Of Flesh
+2. Eye Of Chaos
+3. Mass Murder Frenzy
+4. Gravity(   Читать дальше...   )Жанр: Melodic Death Metal, Groove MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D92637E704ADD50696ABC7877A3926C30193BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105261   (876461) от 17.02.2017
+
+Witchery - In His Infernal Majesty's Service (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Blackened Thrash/Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lavey-Athan 03:20
+02. Zoroast 02:34
+03. Netherworld Emperor 03:03
+04. Nosferatu 03:41(   Читать дальше...   )Жанр: Blackened Thrash, Speed MetalПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48B718513607770C63947766CCACBB1A2B6C074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105207   (876471) от 17.02.2017
+
+Рада и Терновник - Сёстры (2016) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Dark Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я расскажу тебе о том... (3:54)
+02. Дороженька (4:08)
+03. Когда будет тепло (3:50)
+04. Ладная (4:42)(   Читать дальше...   )Жанр: Folk-Rock, Dark FolkПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C254B7A9BD5B27E1161A5EAE41B4461FCF20BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105133   (876474) от 17.02.2017
+
+Cliff Richard - Always Guaranteed (1987) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Night (04:30)
+02. Once Upon A Time (04:32)
+03. Some People (03:51)
+04. Forever (04:02)(   Читать дальше...   )Жанр: Pop/Rock, VocalПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3B2D79A9201116E5D6D82A548D13A7F057512E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105334   (876542) от 17.02.2017
+
+Gribanal - Рефлексия для чайников (2017) Авторская раздача [MP3|160-320 Kbps] <Electropunk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:30)320 Kbps
+02. Хипстер (01:32) 160 Kbps
+03. Хиккан (03:08)320 Kbps
+04. На завтрак (02:35)320 Kbps(   Читать дальше...   )Жанр: ElectropunkПродолжительность: 40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51342A94708AA44F0E5FD8CD69B8C1E090970F1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105279   (876642) от 17.02.2017
+
+Planet Alliance - Planet Alliance (2006) Japanese Edition, 2007 [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Real You 06:06
+02. Remember Me 04:03
+03. Ain't No Pleasin' You 03:52
+04. Calling My Name 05:01(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42964A0775DE62556687A823B1714E62087747FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105293   (876646) от 17.02.2017
+
+Hevidence - Nobody's Fault (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dig In The Night 04:41
+02. Nobody's Fault 04:45
+03. Miracle 05:49
+04. So Unkind 04:00(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9148AED73B13104A2D23A55967B7DD2EA30032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374055   (876701) от 08.04.2020
+
+Дикий Океан - Рождённые Для Виселицы (2020) [MP3|320 Kbps] <Pirate Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Море По Колено [00:03:32]
+02 Регенерация [00:02:34]
+03 Рождённый Для Виселицы [00:02:00]
+04 Пой И Пей [00:01:50](   Читать дальше...   )Жанр: Pirate RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F5C261486BB4B6B9CCBBAD8211A761B4EB5D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374133   (876725) от 08.04.2020
 
 Дикий Океан - Дети капитана Флинта (2018) [MP3|320 Kbps] <Pirate Rock>
@@ -395,303 +692,6 @@ magnet:?xt=urn:btih:780E1EA1660992F375A9A370352CDB8F028542BF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104855   (878126) от 16.02.2017
-
-Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Who Can It Be Now?  3:26
-02.  I Can See It In Your Eyes  3:33
-03.  Down Under  3:46
-04.  Underground  3:08(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ECBAF4CE8A03FD93D95F0A55A6CADE174EEE19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104705   (878224) от 16.02.2017
-
-Young Flowers - 1968-1969 (1997) [APE|Lossless|image + .cue] <Blues Rock, Heavy Psych, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture - Take Warning (4:15)
-02. The Moment Life Appeared (2:16)
-03. 25 øre (8:00)
-04. Oppe i træet (3:18)(   Читать дальше...   )Жанр: Blues Rock, Heavy Psych, Psychedelic RockПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DE1ABF9ECF71809A4A087A412859887082BDF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373836   (878262) от 07.04.2020
-
-Conception - State of Deception (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878262.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. in: Deception [1:46]
- 2. Of Raven and Pigs [4:46]
- 3. Waywardly Broken [4:38]
- 4. No Rewind [3:12](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D7924B96AC18B8A6F78C4DEC5280073D958C11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104801   (878288) от 16.02.2017
-
-Solution .45 - Nightmares in the Waking State- Pt.I (2015) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanderer from the Fold 05:18
-02. Perfecting the Void 05:31
-03. Bleed Heavens Dry 05:09
-04. Winning Where Losing Is All 05:58(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A57848E1903031BA0F9F2F1016CA93E70FEB68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104930   (878297) от 16.02.2017
-
-Pantaculo Mistico - Hermetico (Hermético) (2016) [FLAC|Lossless|image + .cue] <Pagan, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onde os Extremos se Tocam (3:51)
-02. Viagem Astral (11:33)
-03. Vagando por Caminhos Desconhecidos (9:25)
-04. 666 + 777 - A Uniao do Treze (6:05)(   Читать дальше...   )Жанр: Pagan, Doom MetalПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A2AB6052625ADB4B714047E47ABE16B99F7173
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373704   (878440) от 07.04.2020
-
-Чичерина - #Войнаимир (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878440.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жара
-2. Рвать
-3. Пожарные
-4. На передовой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9FA67C8EDAC0E125FE6B1F06F664671C68845B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373401   (878504) от 07.04.2020
-
-Wild Horses (featuring Brian Robertson) - 4 albums (1980-2014) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878504.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Wild Horses" - британская рок-группа, состоявшая из некоторых известных музыкантов и игравшая в стиле хард-рок. Просуществовал коллектив всего около трёх лет и записал за это время два альбома и сделал одну концертную запись, которая вышла только в 2014-м году. Группу основали гитарист Брайан Робертсон (ex.Thin Lizzy, Motörhead) и басист Джимми Бэйн (   Читать дальше...   )--------------------------
-
-01. Diamonds And Dirt (4:21)
-02. Passion (4:31)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 04:02:14 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6CF337594C388EABB5912B7EA65E113DE0F629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373724   (878514) от 07.04.2020
-
-Escape - Чертова Дюжина (2020) [MP3|320 Kbps] <Heavy Metal, Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Рейс 13 [00:03:47]
-02 Грех (feat. Павел Шапкин) [00:04:30]
-03 Wasted [00:04:09]
-04 Сага (feat. Роман Никонов) [00:05:49](   Читать дальше...   )Жанр: Heavy Metal, Thrash, Groove MetalПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23248C091C88D10DE23F8D7018467E4EA1F5FCB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373764   (878516) от 07.04.2020
-
-Шифр - Пророчество (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Книга жизни [00:02:46]
-02 - Свобода [00:03:31]
-03 - Темница [00:04:24]
-04 - Мечта [00:04:13](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B92FA51262F3C0E9092747B30A5BBEE03BD7C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373433   (878519) от 07.04.2020
-
-Astra - Oathkeeper, Pt. I (2020) [MP3|320 Kbps] <Melodic Death Metal, Modern Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northbound (feat. Kim Roger Nyeggen) [3:09]
- 2. Valkyrian Crusader [4:18]
- 3. Return to Vinterhelm [6:03]
- 4. Hammerdown [4:20](   Читать дальше...   )Жанр: Melodic Death Metal, Modern Metal, Symphonic MetalПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C79492619B3FD4F276962747AC0A8872CFB31E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373455   (878543) от 07.04.2020
-
-Lazy Riot - Каждый Момент (2020) [MP3|320 Kbps] <Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Начало [00:01:14]
-02 Время [00:03:20]
-03 Капкан [00:02:41]
-04 Закон природы [00:02:49](   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6051CECA8F42A68A94966AA0277713399D7FE12
 ```
 
 

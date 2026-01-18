@@ -1,3 +1,30 @@
+###  Публикация: 1011235   (797017) от 27.04.2016
+
+VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4Handz -  Build It Up (Original Mix)  4:38
+002. Adam B -  Alamo (Original Mix)  4:56
+003. After12 -  Mamacita (Original Mix)  4:15
+004. Ahzee & Faydee -  Burn It Down (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 13:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011289   (797020) от 27.04.2016
 
 VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge, Relax>
@@ -668,33 +695,6 @@ VA - Future Trance Energy 002 April TOP (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDDD839AF866B320A17D323308BB4D14E64694A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011095   (797706) от 26.04.2016
-
-VA - Future Trance Energy 003 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ledo -  Morning Light (Eryon Stocker Rmx)  7:33
-02. Derek Aether -  Celestial  6:11
-03. Omniks And Eufonica -  Adelia (R3dub Rmx)  7:49
-04. Gateway 88 -  Dark Brotherhood (Aldo Henrycho Remix)  7:21(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C91D16BFA7AAF7A446EBE5166866F2497ADB28C
 ```
 
 

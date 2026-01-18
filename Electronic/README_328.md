@@ -1,3 +1,57 @@
+###  Публикация: 1291954   (648636) от 28.03.2019
+
+Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostromosis - Challenging Evil (09:57)
+02. Nostromosis - Liel (09:28)
+03. Nostromosis - Through The Thorns To The Stars (09:00)
+04. Nostromosis - Space Shuttle Nostromo (08:04)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DD0D1FAF07286B8B7199F95E26ACBF5B427891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292176   (648640) от 28.03.2019
+
+Bella Technika - Section (2019) PDV Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Dub, Psychedelic Rock>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Control (5:17)
+ 02. Perhaps (3:58)
+ 03. Flowers (3:43)
+ 04. Rocking Chair (4:08)(   Читать дальше...   )Жанр: Electronic, Synthwave, Dub, Psychedelic RockПродолжительность: 00:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED91AE044E3D3BFA27388AECCCB1E84D088EAB00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540984   (648645) от 01.04.2022
 
 VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -643,59 +697,6 @@ VA - Tresor - Lounge Chillout (2015) [MP3|320 кб/с]<Lounge, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D85343EA80CE97223814EA42F0AF19E5A9176D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031892   (649549) от 05.07.2016
-
-Mahamudra - ScreenSaver (2015) [MP3|320 Kbps] <Morning, Progressive>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Energy
-02 - Momento
-03 - The IndianЖанр: Morning, ProgressiveПродолжительность: 00:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13994C020737AFDC681DC1A633DDA5EF1E94AA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031990   (649683) от 05.07.2016
-
-Marga Sol - Colours (2016) [MP3|320 Kbps] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colours (6:23)
-02. Ibiza Blue (5:04)
-03. The Ocean (5:13)
-04. Amoralea (5:58)(   Читать дальше...   )Производство: M-Sol RecordsЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7414D4AAF712F8DFE240E15EE87A8109B1C8BDCA
 ```
 
 

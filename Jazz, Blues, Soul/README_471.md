@@ -1,3 +1,246 @@
+###  Публикация: 1201918   (790983) от 27.01.2018
+
+Trish Kerr - Clover (2018) [MP3|320 Kbps] <Blues Rock, Jazz Rock, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clover
+02. Three
+03. Never Gonna Get It
+04. Insideline(   Читать дальше...   )Жанр: Blues Rock, Jazz Rock, Jazz, Female VocalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43841F495DE8B5ECAE5909FAE6AB6FDD959AFC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202015   (791021) от 27.01.2018
+
+John Hammond - Southern Fried (1969) Reissue, 2002, Water [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shake For Me
+2. Cryin' For My Baby
+3. I'm Tore Down
+4. Don't Go No Further(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6999DC28D9330295E801636AB45F5E1237FAF8B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201990   (791056) от 27.01.2018
+
+Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tangerine [05:24]
+02. La Rosita [05:06]
+03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201791   (791059) от 27.01.2018
+
+Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conception [04:09]
+02. Ray's Idea [05:56]
+03. That Old Black Magic [02:18]
+04. Max Is Making Wax [04:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201994   (791063) от 27.01.2018
+
+Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone [05:20]
+02. Kalimankou Denkou [04:07]
+03. Piano Groove [05:11]
+04. Oostduinkerke [08:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:202C7A3AFF44C5A9A51DD4D826F03D63DEC7686F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275126   (791094) от 10.01.2019
+
+Nathan Beretta - Where I Belong (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telephone Blues (05:00)
+02. Where I Belong (03:46)
+03. Feel So Good (04:16)
+04. If The Washing Don't Get You (04:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D699B71F758E676DC87C0CD4BEEC46406CF9A5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275259   (791152) от 10.01.2019
+
+Baptiste Herbin - Dreams and Connections (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Bop, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Julian (5:02)
+02. Dreams and Connections (7:24)
+03. Mia Sorella (7:41)
+04. For JC (5:04)(   Читать дальше...   )Жанр: Jazz, Bop, Bossa NovaПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D70A425ABD911F91BC07C57FA6BBB9D462CEBF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275182   (791155) от 10.01.2019
+
+Count Basie - Chairman Of The Board (1958) 2003, Roulette [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues In Hoss' Flat [3:13]
+02. H.R.H. (Her Royal Highness) [2:40]
+03. Segue In C [6:15]
+04. Kansas City Shout [3:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE09571DD78BFE286EAF8DF2FCDDCECE6E8ADC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275264   (791159) от 10.01.2019
+
+Barabas Lorinc Quartet - Other Than Unusual (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus
+02. Wurli
+03. Five
+04. Easygo(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1A5C9BB8C8B3B07F4D700D1A9E1C46BA222580
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275274   (791163) от 10.01.2019
 
 Bruut! - V (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
@@ -452,249 +695,6 @@ Art Farmer - Silk Road (1997) Arabesque Jazz [FLAC|Lossless|tracks + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EE6C64982C03F0705F35A007B8DC8AE53E2A4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510091   (792209) от 15.11.2021
-
-Steve Tyrell - This Time Of The Year (2002) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [2:10]
-02. Winter Wonderland [2:44]
-03. Rudolph the Red-Nosed Reindeer (feat. Clark Terry) [3:16]
-04. The Christmas Song [4:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185A7907A4C083773FCB99B91F1842906043C474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201550   (792230) от 25.01.2018
-
-Caterina Valente In London (1963) 2004, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly with Me [02:48]
-02. My Funny Valentine [02:58]
-03. I've Got You Under My Skin [02:54]
-04. Never Will I Marry [02:37](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3E50C2AE1AABFC9E67E2DFE864F15CC019342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201560   (792231) от 25.01.2018
-
-Elsie Bianchi - Fly Me To The Moon (1960 - 1962) 2011, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Remember Clifford [05:00]
-02. Hot Dig a Dee [04:38]
-03. No Moon at All [02:51]
-04. Paradise [03:10](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4F7C9A46FBBC98E379D0DD0188211F3BD8BDEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274693   (792248) от 08.01.2019
-
-Moondog Howlers - Misbehavin' (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Laugh At Love (03:48)
-02. Good Ol' Days (04:08)
-03. Can't Get Ya Outta My Head (04:12)
-04. Over My Shoulder (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A22DC6DC32382AA241034C87B85CF63ADB34669
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201554   (792260) от 25.01.2018
-
-Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [03:10]
-02. I Ain't Gonna Tell You [02:25]
-03. They Can't Take That Away from Me [02:34]
-04. Pennies from Heaven [02:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A3B1263AF99DF48458C2918F79D1EF2C16CB35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201558   (792264) от 25.01.2018
-
-Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teach Me Tonight [03:13]
-02. Fallin' in Love with Love [04:03]
-03. Little Bird [03:07]
-04. A Sleepin' Bee [03:52](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DF4DC26DECC7E1435E5078E09446B404BEB714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201543   (792265) от 25.01.2018
-
-David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (1980, 1982) 1997, 32 Jazz [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Must Change [04:36]
-02. Mama Lou [05:55]
-03. Davey Blue [09:16]
-04. Carnegie Blues [08:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB19EA1269130A8449B4C326E1A51BEB92861A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274614   (792267) от 08.01.2019
-
-Kenne Cramer - All Day Long (2017) [MP3|320 Kbps] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792267.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:10] 1. The Itch
-[3:17] 2. 442
-[5:15] 3. All Day Long
-[4:23] 4. Someday A Change Is Gonna Come(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5535F943CC160C944FC820234D9FCA3D572703
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274616   (792275) от 08.01.2019
-
-Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792275.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dead End (04:58)
-2. Gotta Lotta Shakalada (03:54)
-3. New Moves (04:16)
-4. Zalal'e Mini (Take It Easy) (06:12)(   Читать дальше...   )Жанр: Funk-jazzПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AE2665AEF9BD770AABA897BD507900456550D3
 ```
 
 

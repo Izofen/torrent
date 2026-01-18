@@ -1,3 +1,57 @@
+###  Публикация: 1278429   (766798) от 28.01.2019
+
+Mira Calix - Discography 21 Releases (1996-2019) Warp Records [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Experimental, Modern Classical, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rightclick (02:55)
+ 02. Just Go Along (03:35)
+ 03. Upper Ups (03:14)
+ 04. Bite Me (03:05)Тип издания: CD, Web, VinylЖанр: Abstract/IDM/ExperimentalПродолжительность: 00:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48877E7C66BB7EACCEC662A97836067699704EDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393648   (766835) от 01.07.2020
+
+Depeche Mode - Live Spirits Soundtrack (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Intro (00:02:31)
+02. Going Backwards
+03. It's No Good(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop |Продолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4777D99243CA0C14D61973229812F11AF0E33A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393154   (766852) от 01.07.2020
 
 Depeche Mode - LiVE SPiRiTS SOUNDTRACK (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Alternative Rock, Pop>
@@ -641,60 +695,6 @@ VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73313D3DF786E9F8BB1C4777CD74CAA61C589219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125264   (767928) от 15.04.2017
-
-VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Parker Feat. Chris Burke - Only You (Calenzo Remix) 04:28
-02. Nick Austin - I.O.U. (Radio Version) 03:33
-03. Man 2 Man - Male Stripper (David Strong & Sanfrandisko Remix Edit) 03:31
-04. Winman - Fade To Grey (Radio Version) 03:34(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EBA0E4685FA468155354017F2BC5B9F30C937D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125299   (768063) от 15.04.2017
-
-Afterlife - Reimagine (2017) [MP3|320 Kbps] <Electronic, Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Es Palmador (Coyote Remix)
-02. How Does It Feel (FSQ Remix)
-03. Makes Me Feel (Max Essa Remix)
-04. 5th & Avenida (Joy Circuit Remix)(   Читать дальше...   )Жанр: Electronic, Ambient, ChilloutПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B3D0F3F4C9A1AD730CB9BE4E587F62FC84F2019
 ```
 
 

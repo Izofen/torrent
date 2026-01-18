@@ -1,3 +1,30 @@
+###  Публикация: 757071   (839206) от 29.04.2020
+
+Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jewel in the Sun (6:35)
+02. Adrift (5:20)
+03. Under the Blue Sky (5:06)
+04. Beyond Borders (6:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003472   (840196) от 05.04.2016
 
 Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
@@ -662,33 +689,6 @@ VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378593   (846599) от 25.04.2020
-
-Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked [02:35]
-02. The Freak [02:05]
-03. Megaprimatus [03:16]
-04. Creature [02:22](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
 ```
 
 

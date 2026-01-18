@@ -1,3 +1,57 @@
+###  Публикация: 1126564   (765548) от 18.04.2017
+
+VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coxswain & Jane Fox - Everybody's Free (Jane Fox vocal mix)
+02. Tall, Handsome & Bubble Jack - See U
+03. Terry Lex - House Is My Passion
+04. Esteban De Urbina - Caminando Por Las Nubes(   Читать дальше...   )Жанр: HouseПродолжительность: 04:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D80A9D725C4E2A8AD3635E52823BEBBED32C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126157   (765549) от 18.04.2017
+
+VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Attila Syah & LTN - Bromo (Original Mix)  6:30
+02.  Bogdan Vix & Lucid Blue - I Am Now (Original Mix)  6:24
+03.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
+04.  Eranga & Mino Safy - Up To You (feat. Maria Milewska) (CubeTonic Remix)  5:19(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3354D83F5CD73B375AC48B508F4A71DDB4FB1859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126562   (765552) от 18.04.2017
 
 Wolfgang Gsell - Memories & Photographs (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
@@ -641,60 +695,6 @@ VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D82FDF044C04DFE5227B394404B49ECA486DBB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278429   (766798) от 28.01.2019
-
-Mira Calix - Discography 21 Releases (1996-2019) Warp Records [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Experimental, Modern Classical, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rightclick (02:55)
- 02. Just Go Along (03:35)
- 03. Upper Ups (03:14)
- 04. Bite Me (03:05)Тип издания: CD, Web, VinylЖанр: Abstract/IDM/ExperimentalПродолжительность: 00:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48877E7C66BB7EACCEC662A97836067699704EDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393648   (766835) от 01.07.2020
-
-Depeche Mode - Live Spirits Soundtrack (2020) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Intro (00:02:31)
-02. Going Backwards
-03. It's No Good(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop |Продолжительность: 01:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4777D99243CA0C14D61973229812F11AF0E33A7
 ```
 
 

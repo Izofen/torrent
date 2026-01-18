@@ -1,3 +1,57 @@
+###  Публикация: 904233   (655386) от 02.06.2015
+
+VA - Future Sound Of Egypt Vol. 3 (Mixed By Aly & Fila) (2015) [FLAC|Lossless]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Light Painting (Intro Mix) (2:57)
+02. Hazem Beltagui - Unbroken (4:23)
+03. Tomac - Gabrielle (4:06)
+04. Venom One feat. Sarah Howells - Rush (2:37)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865C05F372A4BC90C8885FE6A04D5B1C608523C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904059   (655569) от 02.06.2015
+
+She Said Disco - Lady Airplane EP (2012) [MP3|128 кб/с]<Disco, House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lady Airplane [4:34]
+02 Seduction Lesson [5:37]
+03 Ocean Love [4:51]
+04 Lady Airplane (Jean Tonique Remix) [4:47](   Читать дальше...   )Жанр: Disco, House, ElectroПродолжительность: 00:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52726B044E7C11A87AF17D1919AB5E4A2942AC58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903710   (655688) от 02.06.2015
 
 VA - Evening Lounge Absolute Chill Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -648,58 +702,6 @@ VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226222   (657072) от 19.05.2018
-
-VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
-02. Darin Epsilon - Niflheim (Original Mix)
-03. Matter - Star. Rock. (Lanvary Remix)
-04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226198   (657073) от 19.05.2018
-
-VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
 ```
 
 

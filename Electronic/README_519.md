@@ -1,3 +1,57 @@
+###  Публикация: 1620876   (1031077) от 24.03.2023
+
+Depeche Mode - Memento Mori (2023) [MP3|277-296 kbps VBR (V0)] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Cosmos Is Mine [00:05:11]
+02 Wagging Tongue [00:03:20]
+03 Ghosts Again [00:04:00]
+04 Don't Say You Love Me [00:03:47](   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8B730FB8CEC506B5A44D067DF6DD22B1005729F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448027   (1031160) от 16.02.2021
+
+VA - The Unknown Collection Vol 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle (04:54)
+02. The Other Side (05:44)
+03. Feels Like Summer (05:14)
+04. Lovely (05:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55ED3A526E9D5E1C6D6A35CC90F0A775E354E9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620883   (1031193) от 24.03.2023
 
 Технология - Мне Не Нужна Информация (1992) Reissue, Remastered, 2003, JAM Group International [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
@@ -639,60 +693,6 @@ Markus Schulz - Escape to Narva
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446932   (1032258) от 11.02.2021
-
-VA - Black Hole Recordings Presents Best Of Vocal Trance 2021 Vol 1 (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HALIENE - Walk Through Walls (MaRLo Extended Remix)
-02. Christina Novelli - Numb (Extended Mix)
-03. Dennis Sheperd x EKE - Playing With Fire (Extended Mix)
-04. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FF7D8D2A11C32B9B847A76562B09882722327A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620154   (1032326) от 19.03.2023
-
-Eguana - Resurrected (2023) [MP3|320 Kbps] <Electronic, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation [01:55]
-02. Nuclear Pulsation [05:23]
-03. Great Filter [05:37]
-04. Immanence [06:02](   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68084D747F75DA5CEF12F299844551F68F15BDAA
 ```
 
 

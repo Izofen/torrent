@@ -1,3 +1,57 @@
+###  Публикация: 1109292   (858776) от 27.02.2017
+
+Sarah Alainn - Anima (2017) [FLAC|Lossless|tracks] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nella Fantasia
+02. Sky's Calling
+03. Little Doll
+04. Fantasy On Ice(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13420320A409595857318A8980F30E2EF810C6CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000325   (858864) от 25.03.2016
+
+Александр Скрябин/Alexander Scriabin - Vers la Flamme (Владимир Ашкенази/Vladimir Ashkenazy) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alexander Scriabin (1872-1915)
+3 Pieces for piano, Op.2
+01. Etude No.1 in C sharp minor - Andante (2:46)
+10 Mazurkas, Op.3 (1889)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875D1C738493E833655BB31D8B18CF5B7F635925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999699   (858983) от 25.03.2016
 
 The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [FLAC|Lossless|tracks + .cue] <Classical, Crossover, Orchestral>
@@ -641,60 +695,6 @@ Ivan Moravec - Chopin: Nocturnes (1991) 2 CD [FLAC|Lossless|tracks] <Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C7F1E22DB10506E8B3B85D0A9EA7E2E25F80758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999189   (866375) от 21.03.2016
-
-Jean Rondeau - Vertigo (2016) [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premier livre de pieces de Clavecin, (1706), Suite in A Minor, RCT 1: No 1 Prelude
-02. Pieces pour clavecin, Book 1 (1746): No 12 Allemande
-03. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 1 Les Tendres Plaintes - Rondeau
-04. Pieces de clavecin (1724), Suite in D Major, RCT 3: No 2 Les Niais de Sologne - Doubles des Niais - Autre Double(   Читать дальше...   )Жанр: Classical / Клавесин солоПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D97D6C5312ECC90EC12466F5A8237515D6BD95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999164   (866604) от 21.03.2016
-
-Ludger Remy - Johann Jacob Froberger: Strasbourg Manuscript (2000) 2CD [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866604.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-
-Suite XII in a Adler: Suite 15 "ex autographo"
-01. Allemande   03:33(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 02:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB221FE2A39311C7C3C3441F36B30822C7DE4DB8
 ```
 
 

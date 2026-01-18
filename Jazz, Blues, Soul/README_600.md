@@ -1,3 +1,246 @@
+###  Публикация: 1454625   (1025964) от 17.03.2021
+
+VA - Blues Rock 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brownsville Station - Smokin' In the Boy's Room - [2:58]
+ 02. Blackfoot - Highway Song - [7:30]
+ 03. Foghat - Slow Ride - [3:58]
+ 04. Gov't Mule - Gonna Send You Back to Georgia - [3:59](   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886576DC95597AC204C9FC6595D85A476610DF74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454621   (1025965) от 17.03.2021
+
+VA - A Woman's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aretha Franklin - Today I Sing the Blues - [4:24]
+ 02. Bonnie Raitt - Everybody's Cryin' Mercy - [3:28]
+ 03. Nina Simone - Gin House Blues - [3:06]
+ 04. Big Mama Thornton - Rolling Stone - [4:42](   Читать дальше...   )Жанр: BluesПродолжительность: 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834F19365F4C4079677EA21EEC72E39103F563B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454619   (1025969) от 17.03.2021
+
+VA - 50 Rockin' Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Beer Drinkers & Hell Raisers - [3:26]
+ 02. Little Feat - Forty-Four Blues - [3:18]
+ 03. Kenny Wayne Shepherd - King's Highway (Tom Lord-Alge Remix) - [4:18]
+ 04. Brownsville Station - Mama Don't Allow No Parkin' - [3:07](   Читать дальше...   )Жанр: BluesПродолжительность: 03:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEC22AF70D0DBEF5C619DA50B72F1B0C7BCEAB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454895   (1025985) от 17.03.2021
+
+Dena DeRose - Travelin' Light: Live in Antwerp, Belgium (2010) 2012, MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n Easy [4:27]
+02. 'S Wonderful [4:24]
+03. Two Different Worlds [4:11]
+04. East of the Sun (And West of the Moon) [5:29](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F688FB8413641AAA13F9D87FCD520241796914
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454760   (1025993) от 17.03.2021
+
+Dena DeRose - I Can See Clearly Now (2000) Sharp Nine Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Should Lose You [4:44]
+02. Detour Ahead [6:37]
+03. I've Never Been in Love Before [4:23]
+04. I Can See Clearly Now [4:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB31B53B60D2C53572A729DA3E15545CD413353E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455026   (1026001) от 17.03.2021
+
+Chris Shaw - The Blue Lights (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Train to the City (5:20)
+02. Ain’t About the Money (3:37)
+03. Blue Lights (3:42)
+04. Flying Monkeys (6:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947DA3D0FB768392D56B0CE405B6350EF6D08DD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455031   (1026007) от 17.03.2021
+
+Jason Lane Band - Wildcard (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let the Blues Win (4:31)
+02. Do You Know What It's Like (3:52)
+03. Love Is a Wildcard (3:16)
+04. Woman (3:44)Жанр: Blues RockПродолжительность: 00:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D526770BC4AAAE39E4EE3D35FD5F56B6BD2BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454892   (1026009) от 17.03.2021
+
+Steve Davis Quartet with Larry Willis - Alone Together (2007) Mapleshade Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milestones [6:32]
+02. My Foolish Heart [4:13]
+03. Surrey with the Fringe on Top [9:51]
+04. Alone Together [8:55](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DC624E71A260814B490EFEAC3E65BB5DF9B720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455029   (1026010) от 17.03.2021
+
+Jason Lane Band - Speed of Sound - Speed of Sound (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Magic Woman (3:45)
+02. Speed of Sound (3:51)
+03. Keep Me Guessing (4:41)
+04. Foot in the Middle (3:26)Жанр: Blues RockПродолжительность: 00:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B22F2C3F472D34D2F2741B77F901E1C2D01A1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455022   (1026012) от 17.03.2021
 
 Big Joe Stolle - BIG JOE STOLLE in Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -452,249 +695,6 @@ VA - St. Louis Blues Society Presents 19 in 19 (2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFD733D873D0EF71F49E25755CA7E28B5EA9EE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453351   (1026911) от 11.03.2021
-
-VA - Swamp Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Hooper - City Blues - [3:53]
- 02. Patrick Mcmanus, Essey Smith - Too Good - [2:16]
- 03. Robert Styles - Swampy - [2:22]
- 04. Sergey Kolosov, Ross Gidney - Soul Sister - [2:10](   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A9306D749F907A9F12071652D812B7410F565C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453553   (1026977) от 11.03.2021
-
-Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between the Devil and the Deep Blue Sea [2:47]
-02. I Can't Give You Anything But Love [2:42]
-03. Just One of Those Things [2:51]
-04. Madelon [2:51](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E602183CF02C4E54D5ADE0D35913C8D39CDA85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453177   (1027043) от 10.03.2021
-
-Harvey Mandel (Snake) - Best of the Janus Years (2020) [MP3|320 Kbps] <Blues Rock, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Batter (03:41)
- 02. Shangrenade (04:15)
- 03. Feel the Sound (06:01)
- 04. What the Funk (03:05)(   Читать дальше...   )Жанр: Blues Rock, Jazz RockПродолжительность: 01:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125DFBE5101A60DD159EBF524B59CBBD36575C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453251   (1027114) от 10.03.2021
-
-Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon [3:58]
-02. Body and Soul [6:07]
-03. Satin Doll [4:46]
-04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453089   (1027115) от 10.03.2021
-
-Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woodland Fantasy [2:53]
-02. Let's Mop It [2:53]
-03. Muskrat Ramble [2:46]
-04. Bugle Call Rag [2:52](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452882   (1027233) от 09.03.2021
-
-Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock,  Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027233.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nessuno sa cosa c'è in tutte le case del mondo. 5:11
-2. Le dinamiche dei sentimenti. 3:51
-3. Profondità marine. 3:11
-4. Deformazioni razionali. 3:02(   Читать дальше...   )Жанр: Fusion, Jazz-Rock,  Nu JazzПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9C74B97A1A69FC543E4DFF748490AA71CA382A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452688   (1027343) от 08.03.2021
-
-Mojo Mafia - Looking for Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking for Redemption (3:35)
-02. You Better Be Gone (3:43)
-03. Don't Leave Me This Way (4:59)
-04. Ten Miles (3:45)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F920C8D85C8EA3CE4A66955B36F8A4FAC93983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452687   (1027347) от 08.03.2021
-
-Georgia Van Etten - Deep Black Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - Take Me Down (1:20)
-02. Deep Black Water (4:31)
-03. Emma Lee (4:08)
-04. Oh Mother (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3F29CC755DCFB1CA603E9A2839264535CDD098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452692   (1027355) от 08.03.2021
-
-Sea Mouse - Tropical Fish (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rutherfords (3:13)
-02. Vogons (3:50)
-03. Kickin' (5:06)
-04. Car Smasher (2:56)(   Читать дальше...   )Жанр: Modern Blues RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A7A8206EF8587AEA41DD0804B0BC36CDD997C4
 ```
 
 

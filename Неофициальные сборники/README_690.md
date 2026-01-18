@@ -1,3 +1,30 @@
+###  Публикация: 1842753   (1048892) от 16.12.2025
+
+VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dova Music - Stay Close
+02 - Umideep - Ra-Ta-Ta Love
+03 - Kasimoff - Je Tombe Sans Bruit
+04 - Delih - Dreamlover(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E4AEFF5567F5FFBC95733DE7B139323F211D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842755   (1048893) от 16.12.2025
 
 VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -668,33 +695,6 @@ VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844843   (1050416) от 28.12.2025
-
-VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
-02-Dua Lipa - Dance The Night (De Soffer Mix)
-03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
-04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
 ```
 
 

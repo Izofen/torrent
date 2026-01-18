@@ -1,3 +1,30 @@
+###  Публикация: 1021043   (742195) от 28.05.2016
+
+VA - Come Down: Relaxing Lounge (2016) [MP3|320 кб/с] <Relaxing, Lounge, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cesar Martinez Ensemble - Que Mas? 06:06
+2. Kusuma Orchestra - Vento Dos Acontecimentos 05:09
+3. Blue Wave - Closet 05:48
+4. Arrojas - Occidente 06:19(   Читать дальше...   )Жанр: Relaxing, Lounge, InstrumentalПродолжительность: 02:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B05D17740CCED1E3B2CF4F293AEAEB67A85330
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524804   (742245) от 17.01.2022
 
 L.A. Guns - Kiss Of Death (2022) 2xCD, Japanese Edition, Compilation [MP3|320 Kbps] <Hard Rock, Glam Rock>
@@ -670,33 +697,6 @@ VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBEB94CCB75DE5737647CC1E13B327083A19E2AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020691   (743583) от 27.05.2016
-
-VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gente de Zona - La Gozadera (feat. Marc Anthony)
-002. Romantico Latino - Loco Corazon (Extended Version)
-003. Estilo Libre - Hace Calor 2015 (feat. Rasel)
-004. Daddy Yankee - Sigueme y Te Sigo(   Читать дальше...   )Жанр: Latin Pop, Dance, BachataПродолжительность: 05:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
 ```
 
 

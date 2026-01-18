@@ -1,3 +1,57 @@
+###  Публикация: 1358836   (967417) от 09.02.2020
+
+P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rephrasing Dub (06:07)
+ 02. I Don't Care (Federsen Remix) (07:53)
+ 03. I Don't Care (06:40)
+ 04. Never Thought (07:11)Тип издания: CD, Web, VinylЖанр: Techno/Dub Techno/Deep House/Tech HouseПродолжительность: 03:42:03 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF8AB3544C49BD1936DC943B2D517D8CF14F6AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358787   (967423) от 09.02.2020
+
+VA - House Chill Hop for Lovers (The Best Erotic Sound For Dance Floors) (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967423.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lo Greco Bros, Flow Bop - And Feel Is Good
+2. Blue Tusk - Voices Love
+3. Modus - Saturday (The Good Maurice In The Deep)
+4. Soulstance, The Modern African Spirit - Lovers In The Dark feat. The Modern African Spirit(   Читать дальше...   )Жанр: HouseПродолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5EA42A845003DED8EE57B0B2FE13365EE9C1471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358808   (967433) от 09.02.2020
 
 VA - Live @ Transcend 7th Birthday, Club Reina London, United Kingdom 2020-02-01 [MP3|320 Kbps] <Trance>
@@ -659,60 +713,6 @@ VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975901   (970191) от 16.01.2016
-
-VA - Goa 2016 Vol. 1 (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psytrance, GOA Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi Profile - Archangel (09:22)
-02. Rocky - Among Us (08:28)
-03. Osher & Krunch - Silky Smooth (07:37)
-04. Ellinio & Orisma - Elements (08:21)(   Читать дальше...   )Жанр: Psychedelic, Progressive Psytrance, GOA TranceПродолжительность: 02:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE1C158763089F99076FDDB776F88DCB41BFD35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357990   (970649) от 06.02.2020
-
-VA - Deep House Hits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, DeepHouse, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autograf feat. Jared Lee - Ain't Deep Enough 3:16
-02. Lost Frequencies & Mokita - Black & Blue (Lost Frequencies Sunrise Club Mix) 4:31
-03. Zack Martino feat. Lenii - Crave U 3:32
-04. Joe Smooth - Promised Land (Groove Armada Remix) 3:50(   Читать дальше...   )Жанр: House, DeepHouse, ProgressiveПродолжительность: 01:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D848946AB39ECC6BFB7684F1312A29A0A1061F
 ```
 
 

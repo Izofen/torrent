@@ -1,3 +1,30 @@
+###  Публикация: 1203643   (787600) от 03.02.2018
+
+Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подмосковные вечера
+02. Кто-то скажет, что мы влюблены
+03. Освобожденная мелодия
+04. Странник в раю(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276736   (787614) от 17.01.2019
 
 VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
@@ -669,31 +696,6 @@ Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108C08B93B0B9E6B50CD5A4068485E057AEF71CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510460   (790799) от 17.11.2021
-
-Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insight
-02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
 ```
 
 

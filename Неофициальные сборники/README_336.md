@@ -1,3 +1,30 @@
+###  Публикация: 1304398   (564089) от 26.05.2019
+
+VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+2.Aaron Smith - Dancin (Krono Remix) (4:15)
+3.Billie Eilish - Bad Guy (3:14)
+4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1748BE3BD58ED16001F90736BC3D376C0E866CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923456   (564432) от 31.07.2015
 
 VA - Летний популярный музыкайф. Зарубежный сборник (2015) [MP3|256 кб/с]<Pop>
@@ -698,33 +725,6 @@ VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0019E4699BBDA190E3956F94DFB3D1BED303857B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152639   (565400) от 23.07.2017
-
-VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liu - Don't Be Scared
-02. Sick Individuals - Never Say Never
-03. KREAM feat. Clara Mae - Drowning
-04. PSY - Love (feat. Taeyang)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 05:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
 ```
 
 

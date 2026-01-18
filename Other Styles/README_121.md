@@ -1,3 +1,30 @@
+###  Публикация: 1024000   (720182) от 07.06.2016
+
+John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse (03:43)
+02. The Transference (03:50)
+03. Pyramid Collapse / Main Titles (02:25)
+04. Eric's New Life (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2370E39435FE3334772DE0FDEAFA786C1DE2C1F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023997   (720303) от 07.06.2016
 
 John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -659,33 +686,6 @@ Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129209   (724371) от 27.04.2017
-
-VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healing Oriental Spa Collection - Mindful Sessions: Turkish Massage Treatment
-02. Tranquility Spa Universe - Zone of Zen Deepth
-03. Relaxing Spa Music Zone - Relaxing Nature Sounds
-04. Unforgettable Paradise SPA Music Academy - Healing Touch(   Читать дальше...   )Жанр: New Age, Meditative, RelaxПродолжительность: 03:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 973569   (979058) от 09.01.2016
+
+VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Профилактика Feat. Ser Twister - Будет Жарко 03:31
+002. Little Mix - Black Magic 03:33
+003. Олег Винник - Я Не Устану 03:30
+004. Rudimental - Never Let You Go 03:56(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973710   (979138) от 09.01.2016
 
 VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|320 кб/с] <Club, Dance>
@@ -674,33 +701,6 @@ VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972766   (980653) от 07.01.2016
-
-VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies ft. Janieck Devy - Reality 02:39
-02. Джанет Джексон - BURNITUP! (feat. Missy Elliott) 03:28
-03. Anna Naklab ft. Alle Farben - Supergirl 03:33
-04. Нюша - Где Ты, Там Я (DJ Nejtrino & DJ Baur Remix) 03:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
 ```
 
 

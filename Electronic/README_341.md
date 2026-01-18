@@ -1,3 +1,57 @@
+###  Публикация: 1136569   (673234) от 23.05.2017
+
+Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1:09 (5:12)
+02. 1:13 (3:48)
+03. 1:30 (3:40)
+04. 1:42 (4:53)Жанр: Electronic, HouseПродолжительность: 00:17:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F8F34C3E16174E6E6D023FB90710C4E9B91F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136485   (673236) от 23.05.2017
+
+VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Butler – Avit (Kamil Crush Remix) 06:26
+02. Aaren San – Garuda (Original Mix) 06:50
+03. Elan Myles – Wonderland (Original Mix) 07:11
+04. Javi Garcia – Hot Night In The Beach (Tony Flex Remix) 07:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FE8F8D56CAC79FC4A66B205AAD4890280A9EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136468   (673246) от 23.05.2017
 
 VA - Scarpa Mykonos 2017  [MP3|320 Kbps] <Funky, Club House>
@@ -641,60 +695,6 @@ VA - Female Vocal Trance (2022) [MP3|320 Kbps] <Trance, VocalTrance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417FCA7F0614EB4275ACC2F147B258116940A9AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136280   (675065) от 22.05.2017
-
-VA - Chillout Music Mix. Wonderful Journey 2017 Vol.02: Mixed By Deep Dreamer  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giriu Dvasios - Zemaicio Zodis
-02. Ko-Dan - Township Hope
-03. Denis Rusnak - Sonnenwind
-04. Fresh Moods - Apricot - Radio-Edit(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5023FFED554787B8BFC6AEE68CDA5079B6EE905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136260   (675077) от 22.05.2017
-
-VA - Selfhealing Sounds (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Robert Scharnke - Echoes 4:10
-02.  Sertax - You Play Me So Well 7:07
-03.  Marty Bobgarner - Atome At Home 4:24
-04.  Vune - Gralm 7:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72180B32F3B447BEFA16425FC7CB95D4B6635DF
 ```
 
 

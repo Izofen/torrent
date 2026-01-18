@@ -1,3 +1,57 @@
+###  Публикация: 1214921   (761688) от 24.03.2018
+
+VA - Chill Out/La Noche (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Mushroom Recordings  -  For Bill (Original Mix)  9:49
+02.  Sabretooth  -  Sea Grass (Original Mix)  4:45
+03.  DJ Cattail  -  Chill Forest (Original Mix)  2:14
+04.  Bobby Deep  -  We're All In This Alone (Original Mix)  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32D611FC451EE96354D2866C6D05D7719BB7762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214848   (761807) от 24.03.2018
+
+VA - Ferry Corsten Presents Corsten's Countdown March (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten & Paul Oakenfold  -  A Slice Of Heaven (Extended Mix)  7:00
+02.  Above & Beyond feat. Richard Bedford  -  Northern Soul (Ben Bohmer Remix)  6:23
+03.  Libra presents Taylor  -  Anomaly (Calling Your Name) (DIM3NSION Remix)  5:55
+04.  Raz Nitzan feat. Moya Brennan  -  Find The Sun (Rafael Frost Remix)  3:54(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC684EB14268E0A08D18C0EE49EEFBC8C49DAC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214884   (761811) от 24.03.2018
 
 VA - Infrasonic Miami (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
@@ -641,60 +695,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A64D19E61B6585194697DE71A7934BD37BBE724
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280122   (763693) от 01.02.2019
-
-VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anske & Victoriya - Love Won’t End (Original Mix)
-02. Saad Ayub - Singularity (Original Mix)
-03. Madwave - Follow Your Path (Radio Mix)
-04. Misja Helsloot - We All Should Know (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749E6E60C733B257D540DA00A446167F5C80063B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280024   (763702) от 01.02.2019
-
-Eduardo Briganty - Microgramas (2018) El Muelle Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duermevela (04:29)
- 02. De Vuelta Al Vacio (02:56)
- 03. La Vida De Las Estatuas (04:56)
- 04. Enjambre (03:18)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E92325C0ADEFAAB968E34382710289ADD93D89
 ```
 
 

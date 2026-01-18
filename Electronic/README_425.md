@@ -1,3 +1,57 @@
+###  Публикация: 1198824   (802858) от 14.01.2018
+
+VA - I Love Chill Vol 3 (Finest Ambient Lounge And Chillout Music) (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Project - Code 47 (Mystic Voice Chillout Remix) 04:48
+02. Alexel - Brilliant Disguise 04:25
+03. Artenovum - Beauty Capture 04:01
+04. Richard Bonnee - Chillin Minds 06:35(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 01:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCEE7673970677086679B44F2A4A050B032F916E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505717   (802940) от 28.10.2021
+
+Brandy Kills - The Silent And The Blocked (2018) [FLAC|Lossless|image + .cue] <Synth-pop, Post-punk>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Of Death And The Holy Rose (4:05)
+02. Sin In Me (7:09)
+03. Jetpack (6:27)
+04. Icy Helly (4:31)(   Читать дальше...   )Жанр: Synth-pop, Post-punkПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EA4975568F32EBD5AECD1B64BE82ECB53BDF6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198897   (802945) от 14.01.2018
 
 VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
@@ -641,60 +695,6 @@ VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198402   (804504) от 13.01.2018
-
-VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Side  -  Final Word  3:15
-02.  Momylove  -  Bedroom Nine  2:39
-03.  Vintage Bullet  -  Club 80  2:40
-04.  Roben Bucks  -  Shallow  2:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9652C668B7B411B1A5F870DCBB042894EEE74089
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198408   (804505) от 13.01.2018
-
-VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Lounge Pearls) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  James Butler  -  The Good Old Times (Original Mix)  3:39
-02.  Casablanca Project  -  Mystic Vibraphone (Original Mix)  2:15
-03.  Artur Bayramgalin  -  Just Say Goodbye (Original Mix)  4:20
-04.  Breezz Studio  -  Mantra (feat. Alina Aminova) (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1B14AFB2D944456BB4EF8814914C5CED1F62BA
 ```
 
 

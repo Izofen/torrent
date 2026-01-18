@@ -1,3 +1,36 @@
+###  Публикация: 361002   (578748) от 09.07.2011
+
+VA - Love: I Land  Listening 27: On walks the Night (2010) [MP3|320 kbps]<Erotic Downtempo, Easy Listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapsody ft. Angelique Kidjo & David Whitley - A child is born
+02. 4 To The Bar - Ain't No Sunshine, When She's Gone
+03. Alan De Laniere ft. Gladys Tacita - Hey Listen
+04. Connie Price & The Keystones - Sucker Punch
+05. General Levy - Indian Pearl
+06. Prince Alec - Fade Away
+07. The Peter Malick Group Ft. Norah Jones - Strange Trasmissions (DJ Strobe Bossanova Remix)
+08. Infusion - Daylight Hours
+09. Tape Five - ...Quero Te A Sambar
+10. Jesse Cook - On Walks The Night(   Читать дальше...   )Жанр: Erotic Downtempo, Easy ListeningПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D5F92F023715E8E018684A739A5162C86CB568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360643   (578749) от 09.07.2011
 
 VA - Superchart Радио Record Часть 4 (2011) [MP3|256 kbps]<Pop, Dance, Club>
@@ -671,39 +704,6 @@ VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360448   (579912) от 08.07.2011
-
-VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland feat. Yana Kay - Tears In The Rain (Alex M.O.R.P.H B2b Woody Van Eyden Remix) (8:17)
-02. Ava Mea - In The End (Original Mix) (9:25)
-03. Jarah Damial - Incognata (Original Mix) (9:06)
-04. Rihanna - S & M (Dave Aude Club) (7:28)
-05. Calvin West - Children (5:32)
-06. Bassmonkeys Feat. Natasha Anderson - I 'll Show You Love (Bassmonkeys Club Mix) (6:56)
-07. Daniel Kandi & Phillip Alpha - If It Ain't Broke (Original Mix) (7:26)
-08. J Latif- I Wanna Go There (Stonebridge Club Mix) (6:21)
-09. DJ Danila ft Gosha - Let The Music (Belocca Remix) (7:02)
-10. Filo & Peri vs Ronski Speed - Propane (Original Mix) (6:33)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA82A305CF55C9FFF1687C7BEA097C74E1027E4
 ```
 
 

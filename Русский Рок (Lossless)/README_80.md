@@ -1,3 +1,57 @@
+###  Публикация: 1437398   (1042045) от 05.01.2021
+
+Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthcult (14:58)
+02. Everywhere And Nowhere (17:58)
+03. The Heart Of Time (16:06)
+04. Thaw (16:50)Производство: Not On Label (Trna Self-released)Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Ambient Black Metal, Post RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437374   (1042301) от 04.01.2021
+
+Skogmark - Aera Av Ensomhet (2020) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Delusion
+02. Buried In Snow
+03. In November Forest
+04. Along The Dark Sodden Trails(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E724183BA649C77A4F9DD342395D0076CEA1A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610332   (1042444) от 07.02.2023
 
 Гнилой Район - Тёмный Рыцарь (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:04581642F615EF642E719AC10FAF40216F933366
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82209D014250C78EBD3E9A39ABE90A986C26F58A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841151   (1047788) от 09.12.2025
-
-Воскресение - Концерт В Театре На Таганке (2022) 2 x CD, Album, Limited Edition, 2025 [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047788.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Делай своё дело
-02. Посмотри как я живу
-03. Научи меня жить(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFD9DFA679169EBAA54F8BC513755C0E5A9A420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841647   (1048215) от 12.12.2025
-
-Курара - Эстеты (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слишком [00:04:29]
-02. Будда (album mix) [00:04:55]
-03. Эстеты [00:07:01]
-04. Мразь [00:06:44](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6BA1942B2C7552DC8C3EC5C8EA712E8992FF0F
 ```
 
 

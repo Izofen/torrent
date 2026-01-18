@@ -1,3 +1,302 @@
+###  Публикация: 1403642   (688449) от 21.08.2020
+
+The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Soul’s Warning (04:34)
+02. Blowback (03:59)
+03. Dying Breed (04:06)
+04. Caution (04:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028745   (688524) от 23.06.2016
+
+In Extremo - Quid Pro Quo (2016) [MP3|320 кб/с] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Störtebeker
+02. Roter Stern
+03. Quid Pro Quo
+04. Pikse Palve(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D22DC507D9525DE721069F5E224AC52C014F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403621   (688554) от 21.08.2020
+
+KMFDM - In Dub (2020) [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Light
+02. Superhero Dub
+03. Dub Uranus
+04. Bumaye Dub(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E799BA499079A9BDF3CA0729F365A9985C19B2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403723   (688561) от 21.08.2020
+
+The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday's Gone
+02. Beekeeper's Daughter
+03. Fast And Slow
+04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403601   (688562) от 21.08.2020
+
+(hed) Planet Earth - Class of 2020 (2020) [MP3|320 Kbps] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Blood (2:20)
+02. Watch It Burn (2:56)
+03. No Days Off (2:29)
+04. Death Awaits (2:26)(   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Alternative Metal
+deezer
+discogsПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AAFADE74DAB22847B233CF1F5005535F00834E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028579   (688571) от 23.06.2016
+
+Guns N' Roses - In The Empire Of The Sun (2016) Live [MP3|320 кб/с] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'Re Crazy
+02. It'S So Easy
+03. Move To The City
+04. Mr. Brownstone(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483BBA678EC9409CF8FE96EC29B7F27CDD8A1600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028727   (688586) от 23.06.2016
+
+Dorothy - Rockisdead (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss It (02:34)
+02. Dark Nights (03:10)
+03. Raise Hell (03:02)
+04. Wicked Ones (02:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293487CD753A368A736CADD627DBE72C2E9D03E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028499   (688589) от 23.06.2016
+
+The Browning - Isolation (2016) [MP3|~245 кб/с (V0)] <Deathcore, Electronic, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cynica (3:10)
+02. Pure Evil (4:11)
+03. Isolation (3:37)
+04. Dragon (4:04)(   Читать дальше...   )Жанр: Deathcore, Electronic, MetalcoreПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0D7A8B0B7F986DC468F008C7CA179216C8F5F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534962   (688608) от 05.03.2022
+
+Saxon - Carpe Diem (2022) Japanese Edition [WavPack|Lossless|image + .cue] <Heavy Metal, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpe Diem (Seize The Day)
+02. Age Of Steam
+03. The Pilgrimage
+04. Dambusters(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96B09CF191E63147753B8BAA93224A341721A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403649   (688631) от 21.08.2020
+
+Graham Gouldman - Modesty Forbids (2020) [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing Next To Me (04:00)
+02. That's Love Right There (02:38)
+03. All Around The World (03:16)
+04. It's Not You It's Me (03:23)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C321BE44FCB9AE599B683EEFE7DCD46E0EB14A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028571   (688673) от 23.06.2016
+
+VA - Greatest Ever! Dad Rock (2016) 3CD [MP3|320 кб/с] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Colour Scene - The Day We Caught The Train (3:06)
+ 02. The La's - There She Goes (2:42)
+ 03. Stereophonics - Dakota (4:56)
+ 04. The Charlatans - Blackened Blue Eyes (4:19)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAFA9ADDB1DB651313F0D065EFE541F9CE7FA0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535026   (688689) от 05.03.2022
 
 Out Of This World - Out Of This World (2022) 2xCD [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -397,303 +696,6 @@ VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C95D1E7A20052BE603EC5FD8087F9A54D733494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403595   (690150) от 20.08.2020
-
-Мумий Тролль - Best 20-20 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690150.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Карнавала.нет
-2. Пиратские копии
-3. Лето без Интернета
-4. Скорость(   Читать дальше...   )Жанр: RockПродолжительность: 02:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0614331017C8E7E1B8FDAA53D5F259B7DBFCCA47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403523   (690331) от 20.08.2020
-
-Whitney - Light Upon the Lake (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	No Woman	[04:00]
-02.	The Falls	[02:22]
-03.	Golden Days	[04:07]
-04.	Dave's Song	[03:04](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3FA737DFAC837102492ED3ED959AB273CA9A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288690   (690380) от 14.03.2019
-
-Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Silent World
-02. This Is Love
-03. This Weight On Me
-04. Here Is Your Paradise(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289188   (690384) от 14.03.2019
-
-Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадская хард-рок группа, образованная Brian MacLeod и Ab Bryant в 1980 году, как сайд-проект из Chilliwack.Список альбомов:
-1982 - Turn It Loud
-1983 - Line Of Fire
-1985 - Head Over Heels(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918E1F376AF734CC865D4FB3EC3265492BF8CCF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289023   (690389) от 14.03.2019
-
-Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	The Campfire Song (feat. Alan Pigram) 	3:33
-2 	Go On Your Way 	2:02
-3 	Orphan Heart 	3:13
-4 	Goliath Is Dead 	2:29(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403592   (690491) от 20.08.2020
-
-Napalm Death - Throes Of Joy In The Jaws Of Defeatism (2020) [MP3|320 Kbps] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690491.jpg" />
-</div>
-
-
-###  Подробнее
-
-(01) Fuck The Factoid [00:02:27]
-(02) Backlash Just Because [00:02:56]
-(03) That Curse Of Being In Thrall [00:03:36]
-(04) Contagion [00:04:05](   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30033F4197C0CB2ABF1F819AB5C100B1DCC47752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288997   (690512) от 14.03.2019
-
-Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stay With Me
-2. Radio Player
-3. Runaway
-4. Somewhere On Fullerton(   Читать дальше...   )Жанр: Rock, Pop-PunkПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534764   (690527) от 04.03.2022
-
-Sabaton - The War to End All Wars (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormtroopers (3:56)
-02. Dreadnought (4:58)
-03. The Unkillable Soldier (4:11)
-04. Soldier of Heaven (3:38)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B0CB3EE464D0C59CC3018C73F5E75A9687E22B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403536   (690605) от 20.08.2020
-
-Enuff Z'Nuff - Brainwashed Generation (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gospel (00:39)
-02. Fatal Distraction (03:50)
-03. I Got My Money Where My Mouth Is (04:21)
-04. Help I'm In Hell (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E0894B3549F1CD60017372228DECEA4E47CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403599   (690606) от 20.08.2020
-
-Bright Eyes - Down in the Weeds, Where the World Once Was (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pageturners Rag (03:57)
-02. Dance and Sing (04:30)
-03. Just Once in the World (03:28)
-04. Mariana Trench (03:41)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BAE7D8F97187EAAAEC44BF0E98EDB496421DD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534819   (690630) от 04.03.2022
-
-Lacrimosa - Leidenschaft (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liebe über Leben (06:11)
-02. Führ mich nochmal in den Sturm (05:59)
-03. Kulturasche (04:22)
-04. The Daughter Of Coldness (04:31)(   Читать дальше...   )Жанр: Gothic Metal, DarkwaveПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7514CA554624F53DE0FE375CEC23F6E66A9C6A1
 ```
 
 

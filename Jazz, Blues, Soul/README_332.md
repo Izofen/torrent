@@ -1,3 +1,30 @@
+###  Публикация: 1242817   (513169) от 24.08.2018
+
+Maynard Ferguson - Maynard '61 + "Straightaway" Jazz Themes (1961) 2013, American Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ole [6:30]
+02. New Blue [5:44]
+03. Blues For Kapp [5:12]
+04. Ultimate Rejection [6:18](   Читать дальше...   )Жанр: Hard Bop, Modern Big BandПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A04E26AD5A6A8E6842B6180FB066473708ACD21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561617   (513522) от 06.07.2022
 
 Eric Clapton - Live in Los Angeles 1994 (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Blues Rock>
@@ -666,33 +693,6 @@ Bonnie and the groove Cats - The Last Gap (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889D7A3EB997B814CD6733B790C98781918ECAF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561456   (514680) от 05.07.2022
-
-Williboy Taxi - Down the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (C.C. Rider) (0:33)
-02. Revolution Chair (feat. Vittorio Pitzalis, Andrea Locci & Giorgio Del Rio) (2:36)
-03. Baby Don't Cry (feat. Vittorio Pitzalis & Anna Maria Viani) (3:11)
-04. Learnin' to Lie (feat. Vittorio Pitzalis) (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88F44C8727819919A5500DCB30DF28B082C7DD66
 ```
 
 

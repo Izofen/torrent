@@ -1,3 +1,57 @@
+###  Публикация: 924587   (557616) от 04.08.2015
+
+Tow Truck Tom And The Roadside Wrecks - Sophomore Slump (2001) [MP3|320 кб/с]<Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy
+02. Dawn Breaks
+03. Middle Of Nowhere
+04. Turn Towards Tomorrow(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940E7C076F99FCA7F944F8464B39645025D656F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924563   (557673) от 04.08.2015
+
+Hibria - Hibria (2015) Japanese Edition [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pain
+02. Abyss
+03. Tightrope
+04. Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E872E650276523E349F231770ED1971FB9E25F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924646   (557677) от 04.08.2015
 
 Hibria - Hibria (2015) Japanese Edition [FLAC|image+.cue]<Power/Speed Metal>
@@ -653,60 +707,6 @@ God Damn Evil 4:06(   Читать дальше...   )Жанр: Heavy MetalПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D4EC40216EADCB0651622DFB16736555AE6F0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235474   (558747) от 12.07.2018
-
-Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhumane
-02. A Waste of Life
-03. Fate
-04. Lethal Legacy(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A0719224BE1A359B55C350F42F5E7E351FBB03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235471   (558749) от 12.07.2018
-
-Angelus Apatrida - Cabaret de la guillotine (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sharpen the Guillotine
-02. Betrayed
-03. Ministry of God
-04. The Hum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D3AB4D9F27AB9374BC7F1BFA1360C0C6310115
 ```
 
 

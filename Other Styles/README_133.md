@@ -1,3 +1,30 @@
+###  Публикация: 1208649   (779804) от 23.02.2018
+
+Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raein (2:37)
+ 02. Kiss the Rain (3:59)
+ 03. Le Matin (2:10)
+ 04. I Giorni (7:00)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C0AC7219A9D2116F68EF74DEB0456D078A897C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201235   (780042) от 21.02.2018
 
 Поль Мориа - Музыка хорошего настроения (2005) [APE|Lossless|image + .cue] <Instrumental>
@@ -662,33 +689,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E23374548CBE37C1D133E17F3E46CE3AB3DAB809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204538   (784342) от 07.02.2018
-
-Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacifica (4:20)
-02. Forever In Love (5:10)
-03. Caribbean Dreams (4:28)
-04. Heaven In Your Eyes (4:33)(   Читать дальше...   )Жанр: Nuevo FlamencoПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
 ```
 
 

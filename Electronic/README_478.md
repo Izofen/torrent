@@ -1,3 +1,57 @@
+###  Публикация: 1092876   (937421) от 13.01.2017
+
+VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Schulz - The Lost Oracle (Transmission 2016 Theme) (Extended Mix)  7:45
+02.  Solid Stone - Heart Call (Jerome Isma-Ae Remix)  6:45
+03.  Lostly - Galaxy Of Blue (Original Mix)  3:32
+04.  Fisherman & Hawkins - Never The Same (Radion6 Remix)  5:24(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C34226569DCAB56F8243D2BEDBD45B9B306687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092873   (937424) от 13.01.2017
+
+VA - Mountain Spa Collection Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Bossa And Jazz 05:44
+02. Enrico Donner - Smooth Inspiration 06:05
+03. Cane Garden Quartet - Arotisme 05:36
+04. Baghira - Way Too Long 05:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB60594E637EBFAC8432DE90D62D004CE709D18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092731   (937425) от 13.01.2017
 
 VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
@@ -643,60 +697,6 @@ Boris Brejcha - Space Diver (2020) [MP3|~245 Kbps (V0)] <Tech House, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D611F4F3E6A5876D9B05E684FD4FE75B774F3DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363742   (940733) от 29.02.2020
-
-ScAnDroid Experiment's - Ortus et Occasus (2020) авторская раздача [MP3|320 Kbps] <Experimental, Ambient, Relax>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janua (Intro)
-02. Insolitum Geometria (Original Mix)
-03. Fabulam Ruina Meae (Original Mix)
-04. Eodem Tempore, in Antecessum Ver (Original Mix)(   Читать дальше...   )Жанр: Experimental, Ambient, RelaxПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA05A262658E5EC7DCCF8E19D5C8DE4501C9AE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363778   (940843) от 29.02.2020
-
-VA - Trance Euphoria Vol.7 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brisby & Jingles - It's My Life (Andestro Edit) 3:30
-02. The Enlightment - I Believe (Radio Edit) 3:48
-03. DJ T.H. feat. Miss Cortex - Meeting In The Orchestra (Radio Edit) 3:54
-04. Cosmic & Nilson - See The Light (Radio Edit) 3:21(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Electronic, DanceПродолжительность: 02:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD2598F336273B141D492AD05E1AB1EAB80D6CA
 ```
 
 

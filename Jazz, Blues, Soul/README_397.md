@@ -1,3 +1,246 @@
+###  Публикация: 906315   (645535) от 08.06.2015
+
+Samantha Fish, Dana Fuchs and Joanne Shaw Taylor - Ladies Sing The Blues (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joanne Shaw Taylor - Who Do You Love (03:06)
+02. Joanne Shaw Taylor - Going Home (04:48)
+03. Joanne Shaw Taylor - Bones (05:22)
+04. Joanne Shaw Taylor - Piece Of The Sky (03:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E14D3AD0965FE3849027F46FD6E3470D3762C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906143   (645644) от 08.06.2015
+
+Dana Fuchs - Songs From The Road (2014) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bliss Avenue (3:04)
+02. Handful Too Many (5:46)
+03. Livin' on Sunday (4:04)
+04. How Did Things Get This Way (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A4591768E88B7E1106D6218C864A972E5217EF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032332   (645700) от 07.07.2016
+
+VA - Alligator Records 45th Anniversary Collection (2CD) (2016) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645700.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Пpодолжительность: 01:19:50
+
+01. Lil' Ed And The Imperials - Hold That Train(   Читать дальше...   )Жанр: BluesПродолжительность: 02:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37AA6859DBB09BECEB53534FC0119973822A4616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906274   (645768) от 08.06.2015
+
+The Mule Newman Band - Somethin' On My Mind (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rod Honey (03:30)
+02. Kingdom Of Heaven (04:15)
+03. Wicked Son (03:33)
+04. Crooked Palm (02:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983D66AB74DB79D6C5B902FD73AEEE08E1E63D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906304   (645791) от 08.06.2015
+
+A.C. Myles - Rush To Red (2015) [MP3|320 кб/с]<Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road (3:10)
+02. One Of These Days (3:30)
+03. Over Before It Started (3:18)
+04. Closin' 'em Down Every Night (4:58)(   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF3E3E843A2681B3E773DFFB846B33E9CC62875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906353   (645803) от 08.06.2015
+
+Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction - Movement 1 [02:31]
+02. Introduction - Movement 2 [03:14]
+03. Introduction - Movement 3 [02:52]
+04. Nostaglic Journey [10:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E632AA0614B0D58FA44D092622CCF834561C48D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032477   (646061) от 07.07.2016
+
+Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet (5:49)
+02. Still in Love (4:34)
+03. Love in the Afternoon (4:27)
+04. I've Got Love on My Mind (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ECDB92DC5554B2AE088637E40DB1C8A23FCDA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032466   (646168) от 07.07.2016
+
+Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646168.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Whistle Stop:
+01.Philly Twist [05:40]
+02.Buffalo [07:40]
+03.Sunset [06:20](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C8632A0FB2970EA2F69F6BB1DC36D1939F3A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032364   (646171) от 07.07.2016
+
+Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Darji's Groove [03:54]
+ 02.Sugmad's Lullaby [07:39]
+ 03.Soul Speaks [10:08]
+ 04.Happy Blue [04:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372EBC68CD01F1770F539859BA5F9C43460F8AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032357   (646177) от 07.07.2016
 
 Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -452,249 +695,6 @@ Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Fut
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905809   (647830) от 07.06.2015
-
-The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betcha I'll Getcha (02:42)
-02. Conviction (05:31)
-03. Make It Up (04:38)
-04. Back In Black (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D6F8776C4DAA407ED01562AD04D72A773007DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905807   (647835) от 07.06.2015
-
-Monsteras Bluesband - 40 Years: Live (2015) [MP3|320 кб/с]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baten (Feat. Calle Engstrom) (5:43)
-02. Darfor Star Jag Har Och Glor (Feat. Calle Engstrom) (4:30)
-03. You Ought To Be Ashamed (Feat. Eric Engstrom) (5:55)
-04. The Crawl (Feat. Eric Engstrom) (4:40)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9801123FDEFA941C823755EC7108D6878232A25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032255   (647904) от 06.07.2016
-
-Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647904.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Cooker:
-01.A Night In Tunisia [09:25]
-02.Heavy Dipper [07:07]
-03.Just One Of Those Things [07:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56F9CD0B9F641251A66FE81959E7ED07EDE1F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032125   (647908) от 06.07.2016
-
-Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan Edition [FLAC|Lossless|image + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afterdark    07:08
-02.  Dolphine Dance    07:16
-03.  Eleanor Rigby    03:58
-04.  Peacocks    06:16(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906064   (647956) от 07.06.2015
-
-Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy (5:50)
-02. City Livin' People (3:52)
-03. Stillness Of A Kiss (3:23)
-04. Two Steps Closer (4:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF18D7C8141E1873B0C5AB0AD1B9EA41ADA721D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905733   (647959) от 07.06.2015
-
-Scott LaFaro - Pieces Of Jade (2009) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear A Rhapsody [06:17]
-02. Sacre Bleu [06:11]
-03. Green Dolphin St [06:36]
-04. Sacre Bleu [06:18](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADF020BC1395F747C97921EBC83566AE3C202ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031840   (648017) от 06.07.2016
-
-Yusef Lateef - Yusef's Mood, Complete 1957 Sessions with Hugh Lawson (2008) 4CD, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648017.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Beauregard [03:36]
-02.O'Blues [09:12]
-03.Happyology [11:16](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4BD5DD94A4333CCA9780AD3034E415A8B01593
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032103   (648020) от 06.07.2016
-
-Brother Jack McDuff - Live! (1963) 1994, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rock Candy [06:41]
- 02.It Ain't Necessarily So [06:38]
- 03.Sanctified Samba [04:50]
- 04.Whistle While You Work [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F422B46D53360C17D639675E82EBF628A40767
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227203   (648477) от 25.05.2018
-
-Dana Fuchs - Love Lives On (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648477.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Backstreet Baby (4:00)
- 2. Nobody's Fault But Mine (3:34)
- 3. Callin' Angels (3:47)
- 4. Sittin' On (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664E6F7241B7DD3D19C3383F5F2F21353C715873
 ```
 
 

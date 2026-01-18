@@ -1,3 +1,30 @@
+###  Публикация: 908663   (574145) от 20.05.2019
+
+VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brian Eno - Under Stars [04:21]
+002. London Philharmonic Orchestra, Karl Jenkins, Adiemus - Adiemus [04:01]
+003. Michael Nyman - The Heart Asks Pleasure First The Promise (Edit) [03:13]
+004. Roxy Music - Avalon [04:15](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 07:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997606   (574154) от 20.05.2019
 
 VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, Balearic, Chillout>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302919   (575637) от 19.05.2019
-
-VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575637.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billie Eilish - Bad Guy 3:14
-002. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17
-003. Ilkay Sencan - Do It 3:51
-004. Havana feat. Yaar - I Lost You 3:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06715D10546FCB93CDEA02439C029BBC176BD35D
 ```
 
 

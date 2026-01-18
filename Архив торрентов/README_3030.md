@@ -1,3 +1,36 @@
+###  Публикация: 538248   (507598) от 25.08.2012
+
+Frontal - Alles Anders (2012) [FLAC|Lossless]<Electronic (EBM)>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles Anders
+02. Wir Sind Wir
+03. Komm Her Zu Mir
+04. Meine Kleine Welt
+05. Kann Sein
+06. Alptraum
+07. Falsches Spiel
+08. Ein Teil Von Dir
+09. Lass Mich
+10. Steh Auf(   Читать дальше...   )Жанр: Electronic (EBM)Продолжительность: 00:55:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538790   (507602) от 25.08.2012
 
 Threshold - March of Progress (2012) [FLAC|Lossless]<Progressive Metal>
@@ -642,31 +675,6 @@ magnet:?xt=urn:btih:0D082A3D7AB55D3780E9E3C83A3955BF5E08E080
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77E2CFA32810F13DBCD5F68CB7284161B5B6F38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924237   (507830) от 30.08.2015
-
-ESET NOD32 4.x/3.x (x32 x64) Offline Update 12172 (август 2015) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежие базы для обновления вашего антивируса марки ESET в оффлайн-режиме (без входа в интернет). В состав входит обновление компонентов для русскоязычных версий программы (x32 и x64).
-Поддерживаемые версии антивирусной программы: 4.x и 3.x .
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4879151735C181C6CD361DE79E2C038AD2F7E0E
 ```
 
 

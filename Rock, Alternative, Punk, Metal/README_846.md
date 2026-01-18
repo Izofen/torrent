@@ -1,3 +1,297 @@
+###  Публикация: 1550925   (591235) от 13.05.2022
+
+Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March of the Troglodytes
+02. Elusive Mojo
+03. Times Up
+04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551021   (591240) от 13.05.2022
+
+Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cum Rag (00:01:38)
+02 - When You Lie (00:01:59)
+03 - kitchen blues (00:02:04)
+04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550783   (591241) от 13.05.2022
+
+Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Mongolo Bill [00:03:59]
+02 Arch-Vile [00:04:25]
+03 Turks Fruit [00:06:09]
+04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539227   (591358) от 07.07.2015
+
+Alanis Morissette - Havoc and Bright Lights (2012) [MP3|320 кб/с]<Pop/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652A36A878B72132F33DEEE8F65944BFE1AC4A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916107   (591434) от 07.07.2015
+
+Astro Zombies - Frogs Legs (2015) [MP3|320 кб/с]<Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frogs Legs (02:20)
+02. Alligator Man (04:05)
+03. Use My Axe (03:01)
+04. Zombie Now (03:27)(   Читать дальше...   )Жанр: PsychobillyПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28013D370D13A43ACAFDF38972F049586D501DAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915993   (591441) от 07.07.2015
+
+Edenshade - The Lesson Betrayed (2006) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tmesis
+02. Thatblind
+03. They
+04. The Drop(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B125A1A4F3BB32FB55B81AF62E81B08F86CC238C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915987   (591442) от 07.07.2015
+
+Accuser - Double Talk (1991) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Double Talk" (02:53)
+02. "The Freeze" (05:29)
+03. "Money" (06:59)
+04. "Flag Waver" (08:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9489CB36F6EEE9C3CBC56F71904E1C1BEB30B856
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915991   (591444) от 07.07.2015
+
+Before Eden - The Legacy of Gaia (2005) [FLAC|Lossless]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomad Soul
+02. Wizard of the South
+03. Essence
+04. I. Earth Cry(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E21D006753B48539015B1D1E1A41B0EBB3C444A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916136   (591446) от 07.07.2015
+
+Hellshot - Sickening Society (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now Fear This
+ 02. Noose For The Naive
+ 03. Martyr
+ 04. Defiled(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6D01989100CB3FDB37E5BA99AB9A711FB1ED39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451884   (591557) от 12.05.2022
+
+Poets of the Fall - 41 Release (2004-2022) [MP3|320 Kbps] <Alternative rock, Soft rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591557.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Signs of Life
+2006 - Carnival of Rust
+2008 - Revolution Roulette
+2010 - Twilight TheaterЖанр: Alternative rock, Soft rockПродолжительность: 16:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:853A9378805400EE54ED6CFFA3A45EF0B6CABC60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550595   (591597) от 12.05.2022
+
+Evergrey - A Heartless Portrait (The Orphean Testament) (2022) [MP3|320 kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Us (04:45)
+02. Midwinter Calls (05:06)
+03. Ominous (06:10)
+04. Call Out The Dark (04:23)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7E059811262C04EAC315EA69C840C6B78B8516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550775   (591630) от 12.05.2022
 
 Visions Of Atlantis - Pirates (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
@@ -398,303 +692,6 @@ Thessa - The Other Side MMXV (2015) [MP3|320 кб/с]<Instrumental Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65B34EC7E9C53FB3C37A1EE090D80C794EA0B068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550584   (592107) от 11.05.2022
-
-Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and Reissued [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Talks - A Tribute To Cozy Powell [00:01:14]
-02. The Business (Rock On Cozy Mix) [00:04:40]
-03. Hot Patootie [00:03:21]
-04. F.B.I. (Original Ruff Mix With Real Bass And Drums) [00:03:19](   Читать дальше...   )Жанр: RockПродолжительность: 4 CD, 03:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999A2FE0E8C3C27C39AA9FDA2FCA29605AB23464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550343   (592111) от 11.05.2022
-
-Steel Trident - Los siete de Iscariote (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kerioth
-02. Ves que puedo?
-03. Si supieras
-04. Griselda y Anastasia. Pt.1(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FB548B361CF2CBF04B3E5FF50B773E8380EE4BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550365   (592115) от 11.05.2022
-
-Lilitu - The Delores Lesion (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only the End of the World Again
-02. Even the Vultures Have Moved On (A Tragic Love Story)
-03. The Delores Lesion
-04. Ether(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B3ABA6531626BC6635E2F6057564313BE4425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550302   (592139) от 11.05.2022
-
-Ufomammut - 8 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babel [00:08:22]
-02. Warsheep [00:05:05]
-03. Zodiac [00:09:26]
-04. Fatum [00:03:59](   Читать дальше...   )Жанр: Psychedelic Sludge, Stoner, Doom MetalПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1834D1D056791766C54A82D8C90CC035757B91B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550608   (592164) от 11.05.2022
-
-Fátima (Fatima) - Fossil (2022) [MP3|320 Kbps] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mongolo Bill [00:03:59]
-02 Arch-Vile [00:04:25]
-03 Turks Fruit [00:06:09]
-04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA8F139D865FA7C0E03F905BF622115F68582A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550214   (592166) от 11.05.2022
-
-Ufomammut - Fenice (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Psychedelic Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duat (10:34)
-02. Kepherer (2:59)
-03. Psychostasia (7:13)
-04. Metamorphoenix (7:42)(   Читать дальше...   )Жанр: Psychedelic Sludge, Stoner, Doom MetalПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA854D67D824226520910872FF5EC8BD9C23E745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915441   (592341) от 05.07.2015
-
-Leprous - The Congregation (2015) [FLAC|Lossless]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Price (5:14)
-02. Third Law (6:19)
-03. Rewind (7:07)
-04. The Flood (7:51)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7678EB2C9BD7940630FE42CE9E98C180A1E55FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915391   (592380) от 05.07.2015
-
-Iron Savior - Live at the Final Frontier (2015) (2CD) [FLAC|Lossless]<Speed / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascendence (Intro)
-02. Last Hero
-03. Starlight
-04. The Savior(   Читать дальше...   )Жанр: Speed / Power MetalПродолжительность: 01:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70E9C5D7E41CED215D06ECEC65AE6AFE16BCF21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549991   (592450) от 10.05.2022
-
-Edgar Winter - 20 Albums, 33 CD (1969-2022) [FLAC|Lossless|image + .cue | tracks + .cue] <Classic & Hard Rock, Blues Rock, Jazz Rock, Funk & Soul, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родом из исторического города Бомонт, штат Техас, Эдгар Холланд Винтер - американский музыкант, автор песен и продюсер, более известен как высококвалифицированный мультиинструменталист, клавишник, саксофонист, перкуссионист и вокалист. Его успех пришелся на 1970-е годы с его группой The Edgar Winter Group и их популярными песнями "Frankenstein" и "Free (   Читать дальше...   )--------------------------
-
-01. Mean Town Blues (Featuring Joe Bonamassa) (5:05)
-02. Still Alive And Well (Featuring Kenny Wayne Shepherd) (3:43)(   Читать дальше...   )Жанр: Classic & Hard Rock, Blues Rock, Jazz Rock, Funk & Soul, Rock |Продолжительность: 23:55:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555387B53D12DAA90A3E9418E09CFCB6CB1E3A08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550045   (592515) от 10.05.2022
-
-Motorhead (Motörhead) - The Löst Tapes Vol. 3 (Live in Malmö 2000) (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Motörhead (3:09)
-02. Bomber (3:11)
-03. No Class (2:59)
-04. I'm So Bad (Baby I Don't Care) (3:33)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49243345059083C6DA97056BE3B52B1537F7E73C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550258   (592521) от 10.05.2022
-
-Cain's Dinasty - Eva (2018) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испанская Power Metal группа Cain s Dinasty появилась летом 2006 года усилиями вокалиста и автора текстов Рубена Пикасо. Изначально группа ориентировалась на вампирический образ и мрачную тематику в своих песнях, которые постепенно развились и стали визитной карточкой группы. Крупнейшими достижениями коллектива можно считать сотрудничество с такими группами, как (   Читать дальше...   )01. Darkness Call
-02. While Sleeping
-03. Cain's Dynasty
-04. Fire And Faith(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F47BC861C079187E1C8FC87396BA2DF338C56F5
 ```
 
 

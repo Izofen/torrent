@@ -1,3 +1,30 @@
+###  Публикация: 925934   (537115) от 08.08.2015
+
+VA - Native American Blues (2015) [MP3|~206 кб/с (V0)]<Native american, Ethnic, Folk, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron White & John Densmore - Heart Beat
+02. Asani - Rez Sister
+03. Murray Porter - Heart Of The Eagle
+04. Jim Boyd - Rebel Moon(   Читать дальше...   )Жанр: Native american, Ethnic, Folk, BluesПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA1492534C29E940F91E7277847C5DD94B47662
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154908   (537125) от 01.08.2017
 
 VA - Progressive Euphoria DJ Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -714,39 +741,6 @@ VA - 100 хитов в дорогу (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1248B6E21B1F9C68D34C1E937B085173279022BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531917   (539938) от 06.08.2012
-
-VA - The Best World Ballads-12 (2012) [MP3|96-320 кб/с]<Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Adriano Celentano-Uomo 4:29
-002 Carrie Underwood-Who Are You 3:56
-003 Alyssa Reid-Alone Again 3:47
-004 Lene Marlin-It's True 4:02
-005 Blue-U Make Me Wanna 3:49
-006 Keane-Strangeland 4:36
-007 Eros Ramazzotti-Nomadi D'Amore 4:01
-008 Patricia Kaas-Hotel Normandy 5:29
-009 Morten Harket-Quiet 4:22
-010 Westlife-Why Do I Love You 3:40(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 17:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627E51790F58A86E9DBA7ABAC3C609B0C7B749E1
 ```
 
 

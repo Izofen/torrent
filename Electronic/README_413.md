@@ -1,3 +1,56 @@
+###  Публикация: 1387283   (791838) от 01.06.2020
+
+VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speed Master DJ - Indian (Radio Edit)
+02. M4RO and J'N'D - Sleepless
+03. Djschluetex - Hype the EDM
+04. Ras Martin - Stay with You(   Читать дальше...   )Жанр: House, Dance & ElectronicПродолжительность: 02:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4153AD1139D5D6538B95CB15191B9AD178396DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387259   (791846) от 01.06.2020
+
+Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larm (07:06)
+ 02. Larm (Joey Anderson Remix) (05:40)
+ 03. Low Identity (08:48)Тип издания: CD, WebЖанр: Dub Techno/TechnoПродолжительность: 06:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387468   (791848) от 01.06.2020
 
 Aura Minimum - Mysterious Segments (2020) Modern Nature [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -635,57 +688,6 @@ VA - Goa Culture Vol.24 (2017) [MP3|320 Kbps] <Trance, Psy-Trance, GOA>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93519AD6ECF47CE1E7023C096863CBED12E24BD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360802   (792506) от 31.05.2020
-
-VEiiLA - Discography 16 Releases (2016-2020) Wormhole World [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Trip Hop, Deep House, Dream-Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust (Ambient Version)Тип издания: WEBЖанр: Ambient/Modern ClassicalПродолжительность: 02:34:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF5DD1F822359AE446B58BEAE7DCC58ADA55E2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387018   (792513) от 31.05.2020
-
-VA - Relax Sensation Lounge & Chill Music 2020 [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Vanetti - Astro Light 05:50
-02. Ambrose Wilson - Delete Space (Chill Edit) 04:37
-03. The X Team - Contesto 03:36
-04. Vibrant Boy - Olpu 03:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876070350577672BBEB1EEB7D04024272EC5A44D
 ```
 
 

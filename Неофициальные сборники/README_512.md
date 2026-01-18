@@ -1,3 +1,30 @@
+###  Публикация: 1388488   (786585) от 07.06.2020
+
+VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AK Ausserkontrolle x Bonez MC - In meinem Benz
+02. Pashanim - Airwaves
+03. Apache 207 - Fame
+04. KC Rebell & Summer Cem - FLY(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF22E7EC3798B16083E0A415767127332FB81549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388547   (786635) от 06.06.2020
 
 VA - Авторадио: Золото дискотек Vol. 1 (2020) [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Dance>
@@ -665,33 +692,6 @@ VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512284   (787465) от 24.11.2021
-
-VA - Beatport Deep House: Sound Pack #371 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Divas Of Color - One More Time
-002. Quantum Divas - All Be Free
-003. Allovers & Masaki Morii - Addicted
-004. Nto X Monolink - Beyond Control(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B28BDBDF477348CB571D715709FFBB187E046D0B
 ```
 
 

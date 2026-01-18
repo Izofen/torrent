@@ -1,3 +1,30 @@
+###  Публикация: 1137361   (667886) от 26.05.2017
+
+VA - Золотая вечеринка. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nelson - Не Лечи Меня 3:21
+002. Света - Два Взгляда 3:45
+003. Saro - Улыбнись 3:12
+004. Ирина Билык - Греческая 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC9ACF43C915AC6116FBC175928E3C539B4B373
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137373   (667887) от 26.05.2017
 
 VA - Зажигай в темпе ритма. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -662,33 +689,6 @@ VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031295   (668776) от 03.07.2016
-
-VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps] <House, Funky, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uberjak'd - Portland (Original Mix) 04:39
-02. Vicetone - United We Dance (Club Mix) 04:37
-03. Passenger 10 - Give Me Joy (Original Mix) 03:26
-04. Nicole Kollmann - L'amour Toujours (Instrumental Version) 02:44(   Читать дальше...   )Жанр: House, Funky, ProgressiveПродолжительность: 07:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B86E120BB39064D716219C300516EF7D2C46C4
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 734337   (884128) от 10.09.2021
+
+Ocoeur | Franck Zaragoza - Discography 13 Releases (2010-2021) Música Vermella, n5MD, Bonne Pioche [FLAC|Lossless|tracks+.cue, tracks]<IDM, Ambient, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pixys (02:26)
+ 02. Majya (07:11)
+ 03. Altair (04:00)
+ 04. Polaris (07:04)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Ambient, Glitch •Продолжительность: 07:25:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF3B02D9C8A4F6E3EFFE1BAA3CCE42514CD40C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204956   (884132) от 10.09.2021
+
+Dan Abrams (Shuttle358, Fenton, Dabrams) - Discography 12 Releases (1999-2021) 12k [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, Abstract, Minimal, Glitch>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rubai (08:32)
+ 02. Failures (A Fire Of Pleasure) (04:57)
+ 03. Forces And Beliefs (05:55)
+ 04. Osos (05:28)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Experimental, Abstract, Minimal, Glitch •Продолжительность: 10:22:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1D15F5C87BC9B8EE976814BC8BFB2B553F31CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373946   (884292) от 10.09.2021
 
 Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) Fauxpas Musik, Mojuba [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Downtempo, IDM, UK Garage, Deep House, Ambi ...
@@ -639,60 +693,6 @@ VA - The Dark Side Of The Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8780758E998CA3A0B3A72CBAD66F9159AB187F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103415   (886026) от 12.02.2017
-
-VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opal - Loving You
-02. Pimpi Arroyo - Voulez-vous coucher avec moi
-03. Purple Avenue - American Boy
-04. Wayra - Broken Wings(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CA66EFB35E3CA9B189F3A033304C57F8E0C89A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103172   (886042) от 12.02.2017
-
-VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soda Lounge - The Love We Share (Radio Edit)  3:37
-02.  Mykel Mars - Good Time (Daft Lounge Mix)  5:42
-03.  Eddy Chrome - In Love (Double Deep Chillhouse Edit)  6:12
-04.  DJ Absinth - Morning Sun (Eddy Chrome Instrumental Edit)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0294F31AEDCEB4CAE4A14469C1583301542004
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1003162   (843571) от 03.04.2016
+
+VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thomas Feijk - Hi (Original Mix) 08:30
+02 Hazem Beltagui - She Came (Terry Da Libra Remix) 08:26
+03 Atlantis Ocean - Fuji (Original Mix) 07:15
+04 Labtracks - Robotic Love (Lenno Remix) 04:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE4668A1C63600DB04A288FE51860C216E6108D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183593   (843920) от 04.10.2021
+
+Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Third Party - Release Radio 001:
+1. Third Party X Sentinel - Real Sound w/ Chemical Brothers - Galavanize
+2. Axwell Ingrosso vs Third Party - Dream Everyday Of My Life
+3. Corey James & Joakim Molitor – Morning Sun(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 52:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFBC161CDAD54D03A061C92E2AEE354680FD5D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499918   (844156) от 04.10.2021
 
 Yello - Yello 40 Years (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Synth-Pop, Techno, Electronic>
@@ -638,60 +692,6 @@ VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186372   (846521) от 25.04.2020
-
-0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 111 (14:40)
- 02. Feda (03:44)
- 03. Gluten Tag (10:23)
- 04. Serendip 25 (06:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno/IDM/ExperimentalПродолжительность: 06:22:18 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9BA1A1E4C6F078A838CE01886B1525801C42CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378330   (846691) от 25.04.2020
-
-Lemongrass - Temptations (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tropical Garden (04:40)
-02. Straight Ahead (04:49)
-03. Come Over (03:56)
-04. Go In (04:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5CA7A1E6EA0DF1397BE4C0DC9874C09419576B
 ```
 
 

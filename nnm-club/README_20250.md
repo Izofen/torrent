@@ -1,664 +1,677 @@
-###  Публикация: 1506073   (801154) от 30.10.2021
+###  Публикация: 1011917   (795687) от 29.04.2016
 
-Electric Light Orchestra - Ballads (2021) [AAC|~338 Kbps] <Rock>
+George Adams & Don Pullen Quartet - Life Line (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801154.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mr. Radio (5:04)
-02. Eldorado (5:18)
-03. Can't Get It Out of My Head (2012 Version) (4:35)
-04. Mister Kingdom (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:03
+01.The Great Escape, or Run John Henry Run [04:43]
+ 02.Seriously Speaking [08:03]
+ 03.Soft Seas [07:21]
+ 04.Nature's Children [09:49](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:41:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:865C74834423401EAB98AF8644124F83B92358A9
+magnet:?xt=urn:btih:0803FD4C1344A4C8F9E4ED76F3FB3E9CC5442DC7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506212   (801155) от 30.10.2021
+###  Публикация: 1011932   (795688) от 29.04.2016
 
-Rotting Christ - Non Serviam (1994) Remastered, 2020, Kattran Records [FLAC|Lossless|image + .cue] <Black Metal>
+VA - Future Trance Energy 004 April TOP (2016) [MP3|320 кб/с] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Fifth Illusion 05:32
-02. Wolfera the Chacal 07:12
-03. Non Serviam 05:11
-04. Morality of a Dark Age 04:59(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:04:07
+01. NoMosk & Lucid Blue -  Inside The Fire (Mhammed El Alami Remix)  6:39
+02. Toshuk -  Valley Of Nature (Aicos Rmx)  7:33
+03. Tarmo Tammel -  Playa d'en Bossa (Ferry Tayle Remix)  7:25
+04. Suncatcher -  Origin (Extended Mix)  7:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFF3D0BA05D51A012659D39D23BD869606A2DDA7
+magnet:?xt=urn:btih:8F39B739981390EBCFCEE5D5E33C7BB6716FE68B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506205   (801156) от 30.10.2021
+###  Публикация: 1011887   (795689) от 29.04.2016
 
-Exposure Software Blow Up 3 v3.1.4.391 fix [En]
+Футбол. Лига Европы 2015-2016. 1/2 финала. Первый матч. Шахтёр (Украина) - Севилья (Испания). (28.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
-Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+28 апреля 2016, четверг. 22:05 МСК
+1/2 финала. 1-й матч
+
+Стадион: Арена Львов (Львов, Украина) , вместимость: 34915(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Батурин, Журавель) / ИнтершумПродолжительность: 01:45:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C7A26D0F4B1A16109644A2677AB275A9F947342
+magnet:?xt=urn:btih:F67C7DF1F291AA2B8CC38688FEB1D273A47CB0C9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506340   (801157) от 30.10.2021
+###  Публикация: 1011854   (795690) от 29.04.2016
 
-VA - Vanlife Chill, Vol. 8 (2021) [AAC|~312 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodean - The Poolside Chill (5:17)
-02. Roberto Bronco - Hang Loose (7:38)
-03. Tapelapse - Daydreaming (2:10)
-04. Twentyeight - By My Side (4:39)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FB9EA35C658D4389B3AD1EC1F71629F38955E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506218   (801158) от 30.10.2021
-
-Things 3 v3.15.4 [Multi/Ru]
+Футбол. Чемпионат России 2015-2016. 26 тур. Зенит - Кубань (28.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801158.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+28 апреля 2016, четверг. 19:30 МСК
+26-й тур
+
+Стадион: Петровский (Санкт-Петербург, Россия) , 15 301 зритель (70 % при вместимости 21 750)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Орлов, Дерябкин)Продолжительность: 01:57:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9BE7416DB3C15A93E4218749E8F3BE1DB1C4002
+magnet:?xt=urn:btih:04F1311C8B83DCC5DE002EA3CAEED70FA63D194C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506083   (801159) от 30.10.2021
+###  Публикация: 1011974   (795691) от 29.04.2016
 
-VA - Chill out Mood, Vol. 2 (2021) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madhukar - The Garden of Love (Original Mix) (5:41)
-02. Jazzamor - Fearless Migrants (Original Mix) (3:24)
-03. Roberto Bronco - Lighthouse (Original Mix) (6:19)
-04. Steen Thottrup - El Alba (Original Mix) (5:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B0F4CC136759F25419E8434D80AEBF0BED130C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506162   (801160) от 30.10.2021
-
-VA - Living Lounge (Music For Your Soul) (2021) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzamor - Fly (3:56)
-02. UFO - Purple Sun Down (3:50)
-03. Living Room - Underground Jazz (Maybe It's Love) (4:05)
-04. Polimeno, Vigano - Tramonto Di Un Giorno D'estate (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768E536985B6268865EE69C548C52C2073EF3F5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506159   (801161) от 30.10.2021
-
-VA - Sunrise Tempel (Healing Body & Soul Tunes), Vol. 2 (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prana Tones - Mystical Relaxation (4:34)
-02. Harrison & Daicz - 07:00H Andalucia (6:03)
-03. Stuce The Sketch - Empathy (3:36)
-04. Peter Pearson - Quiet Contemplation (6:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8C773D3C2298C5BD1B5A9DF11CE01EF560A8B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506289   (801162) от 30.10.2021
-
-Music Tag Editor 5.9.1 [Multi]
+Футбол. Лига Европы 2015-2016. 1/2 финала. Обзор первых матчей. (28.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801162.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 12.08.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+Обзор матчей за 28 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Илья Казаков) / ИнтершумПродолжительность: 00:25:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B4FCF4BA0D265AB45B6AB822F97A7139B751E5A
+magnet:?xt=urn:btih:D5A570A88A41D4A27D8552E4826C1AB20EF3427D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506199   (801163) от 30.10.2021
+###  Публикация: 1011973   (795692) от 29.04.2016
 
-Lungo 2.0.1 [En]
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Обзор первых матчей. (27.04.2016) HDTVRip [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801163.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 10.11.5 +Язык интерфейса: Английский
+Обзор матчей за 26 и 27 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин) / ИнтершумПродолжительность: 00:21:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF7E78A0963BB9D847ABECD9C2846A95E72B80FE
+magnet:?xt=urn:btih:24ACC4BB402565417DDA30422A3A8DCBC0E02284
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506334   (801164) от 30.10.2021
+###  Публикация: 1011981   (795693) от 29.04.2016
 
-Крис Ридделл | Оттолина идёт в школу (2016) [PDF]
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795693.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 апреля 2016, пятница. 03:00 МСК
+1/2 финала - Восток. 1-й матч
+
+Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79902D5681BF9B90C8C29184AA242ADF854F5138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012055   (795694) от 29.04.2016
+
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795694.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 апреля 2016, пятница. 03:00 МСК
+1/2 финала - Восток. 1-й матч
+
+Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Казанский, Бадюков) / ИнтершумПродолжительность: 02:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DE579E8D91648139FEAED954ED9B2B30591407
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200439   (795695) от 21.01.2018
+
+VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
+02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
+03. Apexape - Joy & Pain 3:01
+04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200618   (795696) от 21.01.2018
+
+VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arthur D'Amour - Chaos in My House (Original Mix)
+02. Sion - I'm Sorry (Original Mix)
+03. Lazy Bear & Future Class - Do You Like (Original Mix)
+04. Luigi Peretti - Cocaine (Original Mix)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C46C1CC9D2DC6286D7619C41CD49F671740ED73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200552   (795697) от 21.01.2018
+
+Василий Жуковский | Война мышей и лягушек (1910) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801164.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795697.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Оттолина и её верный друг, волосатое существо по имени мистер Манро, отправляются в школу Алисы Б. Смит для всяко одарённых. В ней учатся только самые талантливые ребята. Но Оттолину очень беспокоит одна мысль — вдруг у неё не получится найти свой дар? Ко всему прочему в школе творятся разные мистические странности, которые могут разгадать только наши герои!Жанр: Детская литература/Фантастика/ПриключенияПеревод: М. ФетисоваФормат: PDF
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E128AFFE0CB0004BFD076E459C43F4F11C07F01
+magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506216   (801165) от 30.10.2021
+###  Публикация: 1200588   (795698) от 21.01.2018
 
-Artstudio Pro 3.2.11 [En]
+The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] <Progressive rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801165.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795698.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+01. Isolation
+02. Memorial
+03. Ashes To Ashes
+04. Under A Black Sky(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E265A1ED5F55174E04C2E77C05CD817A9F77C26
+magnet:?xt=urn:btih:CB9EC63641DFF5B5A7A17A4ACD1E6A8CBFDBD62A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506143   (801166) от 30.10.2021
+###  Публикация: 1200630   (795699) от 21.01.2018
 
-Affinity Designer 1.10.4 [Multi/Ru]
+VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Lounge>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801166.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795699.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+01.  DJ Maretimo feat. Cafe Americaine  -  Rainy Season (Full Sunset Cut)  4:25
+02.  Frank Borell  -  Wind In The Desert (Abu Dhabi Mix)  4:50
+03.  Le Voyage  -  Poison (The Red Button Mix)  5:14
+04.  Sofa Sweeper  -  Rebeat Seventeen (Future City Mix)  4:47(   Читать дальше...   )Жанр: Chillout, Chillhouse, LoungeПродолжительность: 04:14:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:005AE2ADD627C0CDF930B6B2E00FB56AD33BCA35
+magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505867   (801167) от 30.10.2021
+###  Публикация: 1200548   (795700) от 21.01.2018
 
-Блаженный Феодорит Кирский | Толкование на псалом 118 [PDF, DJVU]
+Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801167.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795700.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Божественный Давидъ много различныхъ перемѣнъ имѣлъ въ жизни, и бѣгствомъ спасался отъ враговъ, и въ бѣгство обращалъ враговъ, впадалъ въ горести, и потомъ вёлъ жизнь радостную; проходилъ путь божественный, и претыкался въ шествiи, и снова слѣдовалъ Божественнымъ законамъ. По этому всё cie собралъ во едино въ настоящемъ псалмѣ, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F56EEE87102E8DA90DA9C7ECF724EEE371566CB3
+magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120409   (801168) от 01.04.2017
+###  Публикация: 1200507   (795701) от 21.01.2018
 
-Koukaku no Pandora: Ghost Urn | Pandora in the Crimson Shell: Ghost Urn | Дух в теле Пандоры | Пандора в багровой броне [2016, TV, 12 эп.] BDrip 1080p raw
+Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801168.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795701.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нене Нанакороби, самая обычная девушка-киборг, переезжает в город-остров Кенанкл к своей тёте. Там она случайно знакомится с миллионершей-изобретательницей Делайлой Узал и её очаровательной, но сварливой напарницей Клэрион, которая тоже киборг, как и Нене. Сама Нене в восторге от того, что ей удалось завести друзей, однако Узал и Клэрион не так просты, да и остров (   Читать дальше...   )Производство: студия Studio GokumiЖанр: приключения, комедия, фантастикаРежиссер: Нава МунэнориПеревод: The Tide (T_T)Язык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 12 эп. по 25 мин.
+01. Serenade For The Night Sky (12:28)
+ 02. Serenade For The Heart (Two Voices) (10:26)
+ 03. Dreaming The Night Sky (35:16)
+ 04. Serenade For The Heart (in D-minor) (09:44)Жанр: AmbientПродолжительность: 01:07:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5EF961288B887255D8A5D0E4E71AF2B09EDD1D4
+magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120896   (801169) от 01.04.2017
+###  Публикация: 1200425   (795702) от 21.01.2018
 
-T-Bone Walker - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+Известия. Главное (21.01.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационные выпуски "Известий" - это оперативное информирование о самых важных событиях в России и мире, это прямые включения, собственные съемки, непредвзятый подход к выбору тем и сюжетов, компетентность и неангажированность ведущих, яркая и современная подача информации.В этом выпуске: 900 дней трагедии, которая не должна повториться, и великого подвига, который надо помнить. Блокада Ленинграда — в реальных историях и  подлинных фактах. Что знаем мы сейчас, как это сохранить и кому нужны исторические провокации?
+Большое будущее малых городов. Как изменить жизнь провинции, чтобы где родился, там и пригодился? Почему за качеством жизни теперь не надо (   Читать дальше...   )Телекомпания: Пятый каналЖанр: Телепередача, Информационно-аналитическая программаПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200471   (795703) от 21.01.2018
+
+VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 
 >>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801169.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795703.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues Is A Woman
-02. Glamour Girl
-03. No Worry Blues
-04. I Got The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:00:47
+01.  Ki-Theory  -  Enjoy The Silence  4:18
+02.  Ryan Weber  -  Magic Fly (Chillectro Remix)  5:06
+03.  Dreamweavers  -  Inner Spirit (Original Mix)  9:59
+04.  Aliki Westwood  -  Everybody Loves The Sunshine (Nikki Beach Mix)  4:18(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:59:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA6B65303CE9CB26B43027A0FF9050459B268ED9
+magnet:?xt=urn:btih:ABCE9F16C630B38494E0B3E9C38286F134459328
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121156   (801170) от 01.04.2017
+###  Публикация: 1200541   (795704) от 21.01.2018
 
-UltraUXThemePatcher 3.2.0 [En]
+Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200221   (795705) от 21.01.2018
+
+Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Steel
+02. Carvenstone
+03. Witching Hour
+04. Beyond the Doors of the Night(   Читать дальше...   )Жанр: Symphonic Black Power MetalПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200533   (795706) от 21.01.2018
+
+Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200520   (795707) от 21.01.2018
+
+World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801170.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие знают из опыта, что дизайн Windows рано или поздно надоедает и вам хочется его как то изменить. И это проблема, потому что для использования сторонних тем вам придется изменять системные файлы, или покупать дорогое программное обеспечение. Теперь этому конец, потому что UltraUXThemePatcher может делать это автоматически. Быстро и бесплатно, потому что если (   Читать дальше...   )Язык интерфейса: Английский
+01. Listening You (07:00)
+ 02. Magical Romantic Freestyle (04:52)
+ 03. Heartbreak Wonderland (06:13)
+ 04. Cruel Girl's Beauty (09:43)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:12:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF4AF3B5A7E8419D8112470068311465D7311FD5
+magnet:?xt=urn:btih:D64AE7DE44433FED89443E773E682040DE4DD0C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120966   (801172) от 01.04.2017
+###  Публикация: 1200670   (795708) от 21.01.2018
 
-In Memory Of George Michael - Tribute Album (2017) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801172.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. George Michael (1963-2016)
-2. Wham Interview (1984)
-3. Careless Whisper (Acoustic Tribute)
-4. Last Christmas (Guitar Tribute)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:37:02
+01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
+02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
+03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
+04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:368FB9CB5379A7EFAB0C60992AC1948F64BCF68D
+magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120772   (801173) от 01.04.2017
+###  Публикация: 1200539   (795709) от 21.01.2018
 
-Скрытые фигуры / Hidden Figures (2016) HDRip [H.264] [MP4|1024x428]
+Мария Федоровна Ростовская | Детские забавы (1909) [PDF]
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801173.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда афро-американок проводит для НАСА ряд математических вычислений, необходимых для запуска первой космической миссии.Производство: США, Levantine Films, Chernin Entertainment, Fox 2000 PicturesЖанр: Драма, биография, историяРежиссер: Тед МелфиАктеры: Тараджи П. Хенсон, Октавия Спенсер, Жанель Моне, Кевин Костнер, Кирстен Данст, Джим Парсонс, Махершала Али, Элдис Ходж, Глен Пауэлл, Кимберли КуиннПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 02:08:13Реклама: Присутствуют аудио и видео вставки рекламы.
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:660482980B231B90D0C13D5EEDB56B6D748FF956
+magnet:?xt=urn:btih:F259252C256E9F2F127AE1C39F0131013323432E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120890   (801174) от 01.04.2017
+###  Публикация: 1200147   (795710) от 21.01.2018
 
-Ю.С. Николаев и др. | Голодание ради здоровья (1988) [MP3]
+VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801174.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О голоде написано много книг, и, как правило, он — враг человека, доставляющий ему страдания. В этой книге рассказывается о голоде — друге, целителе. Ученые разгадали тайну голода, открыли его способность будить важнейшие защитные силы организма и тем помогать ему бороться с болезнями.
-В книге речь пойдет о лечении голоданием различных заболеваний, о том, как и почему (   Читать дальше...   )Жанр: Здоровье, медицинаПродолжительность: 11:25:48
+01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
+02.Groove Coverage - Innocent (Club Mix) (3:33)
+03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
+04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:458D6529201A556671888E47EEC623CCEF183859
+magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121128   (801175) от 01.04.2017
+###  Публикация: 1200222   (795711) от 21.01.2018
 
-Eruption - Eruption (1977) Remastered, 2016, Big Break Records [FLAC|Lossless|image + .cue] <Disco>
+Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801175.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Can't Stand The Rain 06:33
-02. Movin' 04:22
-03. I'll Take You There 02:50
-04. Computer Love 04:35(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:01:38
+01 - Selfmutilate
+02 - Insestance Devastation
+03 - Vision Of The Altar
+04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B8E011B204192686015508FA99E8FA59751C8A2
+magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120599   (801176) от 01.04.2017
+###  Публикация: 1200490   (795712) от 21.01.2018
 
-Олег Матвейчев | Уши машут ослом. Сумма политтехнологий (2015) [MP3]
+Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
 
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801176.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уши машут ослом. Современное социальное программирование.
-«Экономика вторична, современный меч – это меч информационный» - утверждают авторы этой книги. Ее первое издание появилось 10 лет назад. Книга наделала шума и стала по-настоящему «культовой». Сегодня не только пиарщикам и политтехнологам необходимо знать, почему же все-таки уши машут ослом, а не наоборот. (   Читать дальше...   )Жанр: ПолитикаПродолжительность: 43:28:20
+01. Beat Of The Drum (4:54)
+ 02. Electric (5:15)
+ 03. Never (Glaccklich) (5:23)
+ 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73B858C10A24330EA7FD205D0BDFC03908DB0D74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121180   (801177) от 01.04.2017
-
-Rufus 2.13 (Build 1077) Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11BA54D6327E689F0A20181F9325697F3CE975C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120859   (801178) от 01.04.2017
-
-Geekbench 4.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 4 –  бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 4 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2017Разработчик: Primate Labs Inc.Поддерживаемая ОС: OS X 10.10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED8E988AE5F6FA2C3218A28B291997AB728D581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120882   (801179) от 01.04.2017
-
-VA - 90s Festivals Soundtrack 2017 (Special Eurodance Edition) (2017) [MP3|320 Kbps] <Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free 2 Night - Under The Sun (Remastered Eurodance Remix)  4:30
-02.  Real 2 Day - Change Our Life (Radio Mix)  3:11
-03.  E-Bomber - Drunk Natashka (Radio Mix)  3:50
-04.  X-Tension - Stay The Night (Back To The 90's Mix)  4:04(   Читать дальше...   )Жанр: EurodanceПродолжительность: 03:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36647AB49A760FA16E053AEBAEFAF0B5ED846A64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121202   (801180) от 01.04.2017
-
-Luminar 1.1.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
-
-Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31 марта 2017Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA882B43576B4F9E3BC40692362846E926A1221
+magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
 ```
 
 

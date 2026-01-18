@@ -1,3 +1,30 @@
+###  Публикация: 1399700   (725159) от 02.08.2020
+
+VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Unterwegs
+02. Capital Bra x Clueso x KC Rebell - Andere Welt
+03. UFO361 & Sonus030 - Shit Changed
+04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218167   (725204) от 08.04.2018
 
 VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDE0AD65191035BF58AF24E60E4B08802BB382A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127747   (731145) от 22.04.2017
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Диана Громова - Не Хочется 2:58
-002. Mike Perry Feat. Casso - Inside The Lines 3:25
-003. Катерина Sky - Мне Тебя Не Хватает 3:21
-004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
 ```
 
 

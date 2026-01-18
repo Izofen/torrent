@@ -1,3 +1,57 @@
+###  Публикация: 1001328   (853712) от 28.03.2016
+
+Murray Perahia -  Mozart • The Complete Piano Concertos (2006) 12CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853712.jpg" />
+</div>
+
+
+###  Подробнее
+
+* Konzert Nr. 1 F-Dur, KV 37 - 15:51
+* I. Allegro - 5:24
+* II. Andante - 5:21
+* III. Allegro - 5:07(   Читать дальше...   )Жанр: ClassicalПродолжительность: 11:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD9F89912B24D583C5D90CE79D5FAE5F62370D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001419   (853758) от 28.03.2016
+
+VA - J S Bach: Complete Harpsichord Concertos on Antique Instruments (2009) 3CD [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 1. Allegro  4:09
+02.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 2. Largo  1:45
+03.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 3. Allegro  3:39
+04.  Concerto In A Major, BWV 1055. 1. Allegro  4:39(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 03:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31974B6EC213ACD2472C8D5004903FB3B0BC90AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001276   (853791) от 28.03.2016
 
 Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
@@ -641,60 +695,6 @@ Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5EECDDCAF9B83DE1FAB4EAF24EE4B2C6DB4957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109292   (858776) от 27.02.2017
-
-Sarah Alainn - Anima (2017) [FLAC|Lossless|tracks] <Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nella Fantasia
-02. Sky's Calling
-03. Little Doll
-04. Fantasy On Ice(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13420320A409595857318A8980F30E2EF810C6CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000325   (858864) от 25.03.2016
-
-Александр Скрябин/Alexander Scriabin - Vers la Flamme (Владимир Ашкенази/Vladimir Ashkenazy) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alexander Scriabin (1872-1915)
-3 Pieces for piano, Op.2
-01. Etude No.1 in C sharp minor - Andante (2:46)
-10 Mazurkas, Op.3 (1889)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:875D1C738493E833655BB31D8B18CF5B7F635925
 ```
 
 

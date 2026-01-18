@@ -1,3 +1,56 @@
+###  Публикация: 1299438   (600035) от 01.05.2019
+
+VA - Music for Brainwaves (2019) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Price - Focus In 12-18Hz (20:48)
+ 02. Hogni - Ascend In 8-13.9Hz (18:45)
+ 03. Ben Lukas Boysen - Dream In 0.1-3.9Hz (16:54)Жанр: Ambient, DroneПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D249276CDF65671D4A0318B1E97A6FFD49E80A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232423   (600047) от 24.06.2018
+
+Stardance - Stars Challenge (2017) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Stop To Dance (06:06)
+02. Empire's Attack (05:50)
+03. Space Battle (07:03)
+04. Supreme Powers (06:04)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8744A9CFF40D5BC72C6AE1C4B50D2D9911ADAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232513   (600053) от 24.06.2018
 
 VA - Ibiza Opening Party 2018 (Deluxe Version) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -633,60 +686,6 @@ José Luis Colque (Structural Fault, Traces Of Ghosts, †Я▲СΣS ❍F GΗ❍
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F220B786554351C665FAA07AEFED0A114D477318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913349   (601144) от 30.06.2015
-
-Kid Loco - A Grand Love Story (1998) [FLAC|tracks +.cue]<Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601144.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Grand Love Theme (4:03)
-02. Relaxin' With Cherry (5:39)
-03. Love Me Sweet (4:50)(   Читать дальше...   )Жанр: Trip-Hop, DowntempoПродолжительность: 00:55:17 + 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97EF7CC0DFF25E4D9E4B67F2F32B9A68207592
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149247   (601150) от 10.07.2017
-
-Oil 10 - Discography 9 Releases (1998-2014) Divine Comedy Records, Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Abstract, Ambient, Techno, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Sunshine (05:49)
- 02. Moonstone (04:41)
- 03. Missing Future (06:53)
- 04. Human Decision Required (05:24)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: IDM, Electro, Abstract, Ambient, Techno, Industrial •Продолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF5E4B50E6D648A9089C52C26A7856E3BCEA7D7
 ```
 
 

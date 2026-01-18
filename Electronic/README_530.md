@@ -1,3 +1,57 @@
+###  Публикация: 1613367   (1039577) от 18.02.2023
+
+Orbital - Optical Delusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Breakbeat, Trance>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039577.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ringa Ringa (The Old Pandemic Folk Song) (feat. Mediæval Bæbes) (04:14)
+2. Day One (feat. Dina Rizvić) (05:16)
+3. Are You Alive? (feat. Penelope Isles) (07:37)
+4. You Are The Frequency (feat. The Little Pest) (04:37)(   Читать дальше...   )Жанр: Techno, Breakbeat, TranceПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C183844D08B88172343019C31ED45DEBB04E9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439696   (1039609) от 14.01.2021
+
+Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura & Kazusa - Move On (Original Mix) (8:43)
+02. Shingo Nakamura & Stendahl - Tribute (Original Mix) (7:37)
+03. Shingo Nakamura & RNX - Oregon (Shingo Nakamura Mix) (6:26)
+04. Shingo Nakamura - Thousands Of Sounds (Original Mix) (8:39)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613462   (1039652) от 18.02.2023
 
 VA - The Sound of 2023 Mix 3: Tokyo (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Trance>
@@ -641,60 +695,6 @@ Orax - Crash (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F20F2D94E8DA739DC4643EC0F9682A3A2B4EE152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438777   (1040369) от 11.01.2021
-
-Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Deep-House, Synthpop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (Vintage Culture & Kiko Franco Remix) [00:05:45]
-02. Desire (Vintage Culture & Kiko Franco Remix Edit) [00:03:45]
-03. Desire (Charlotte de Witte Remix) [00:07:52]
-04. Desire (Solomun Remix) [00:06:17](   Читать дальше...   )Жанр: Electronic, Deep-House, SynthpopПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612184   (1040513) от 14.02.2023
-
-AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Modern Breakbeat (06:37)
-02-Bass Pressure (03:56)
-03-Rockin' Beats (04:09)
-04-Shredding Bass (04:28)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B43F585ABEC5BBA7462A7D280B9B715DBD9471
 ```
 
 

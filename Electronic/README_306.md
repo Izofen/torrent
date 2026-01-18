@@ -1,3 +1,57 @@
+###  Публикация: 1232295   (602387) от 23.06.2018
+
+VA - Ferry Corsten Presents Corsten's Countdown June (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIM3NSION - Write Your Story (A Summer Story Anthem 2018)
+02. Solarstone - Thank You (Original Mix)
+03. Sied Van Riel - Atomic Blonde (Original Mix)
+04. Andy Moor & Somna & Diana Leah - There Is Light (Matt Fax Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CDC7662A2A262668FFDD1FF4F2A40ED652FAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232272   (602390) от 23.06.2018
+
+VA - Uplifting Summer (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unix SL - Long Dark Days (Original Mix)
+02. Andrey Gaydukov - An Ocean Call (Original Mix)
+03. Stas-Dsi - Remember DI FM (Iz-Rem-Records Hipnozis Remix)
+04. Stas-Dsi - Internet Natura (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA9B7AD2C07EF0AAA93EA577003D8C25BB180E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547716   (602422) от 29.04.2022
 
 VA - Beautiful Vocal Trance - Chapter 8 (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -639,60 +693,6 @@ VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297807   (603142) от 24.04.2019
-
-Monodisc - Discography 2 Releases (2015-2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Eternal Gaze (05:48)
- 02. Thoughtless Sleep (07:06)
- 03. Confined Spaces (06:28)
- 04. The Longest Drive Home (09:42)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno/AmbientПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD9D7AB1403C5CF4DCC78904AFABA58F2D3BA8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942135   (603183) от 21.06.2018
-
-Edgey - Discography 8 Releases (2002-2016) Hands Productions [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, Breakcore, Drum n Bass, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Total Annihilation (VIP Remix) (05:37)
- 02. Entombed In Glass (05:33)
- 03. Thick In The Neck (05:24)
- 04. No Games (06:51)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Breakcore, Drum n Bass, Experimental •Продолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40056885C3E6D0BB974A66C6ADB87403DFEC903
 ```
 
 

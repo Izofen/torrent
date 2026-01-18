@@ -1,3 +1,30 @@
+###  Публикация: 922713   (568356) от 29.07.2015
+
+VA - Relax Hotel Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gel - No Body [05:43]
+02. Nejmaoui - Beat Envolved [03:51]
+03. Nejmaoui - Karma & Bossa [03:33]
+04. Hotel Riviera - Slow [03:54](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1386A9AC4B08CAC621C84460A7AC9FA5FD2DA0AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922723   (568358) от 29.07.2015
 
 VA - After Work Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -704,33 +731,6 @@ VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3ABF5EE6509BC7906662409F6B5866B4533ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922260   (570043) от 28.07.2015
-
-VA - Chilly Side Up (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lumoa - Ballade de Es Vedra (03:16)
-02. Emma Luna - Casual Groove (04:42)
-03. Daki 2000 - 1000 Colors (05:54)
-04. Monroe Days - Carpathian Harebells (06:03)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDC3D380C0BBAB9C05C7C9407A3FA2F05027773
 ```
 
 

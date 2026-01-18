@@ -1,3 +1,57 @@
+###  Публикация: 1466589   (1018372) от 30.04.2021
+
+Yello - Yello 40 Years (2021) 4CD, Remastered [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It (Marky P. & Teri B. Dub) [00:07:47]
+02. Limbo (Circle Sky Remix) [00:07:12]
+03. Electrified II (Carl Craig Headphone Hookup) [00:06:53]
+04. How How (Papa-Who-Ma-Mix) [00:05:50](   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 4 CD, 04:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A4AC1F82FF1816D4F373C1894EC2FB475AA318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466633   (1018391) от 30.04.2021
+
+Beta Consciousness - Synesthesia (2021) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, IDM, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scope (13:14)
+ 02. Use All Your Senses (08:39)
+ 03. Synesthesia (05:25)
+ 04. Audionom (07:50)(   Читать дальше...   )Жанр: Ambient, IDM, DowntempoПродолжительность: 01:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590B82ADE2B753702764CE3BF16E13C834C63AED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336245   (1018425) от 30.04.2021
 
 Zoon van snooK - Discography 10 Releases (2008-2020) Lo Recordings, Mush, Alter K [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <IDM, Abstract, Modern Classical, Downtempo, Ambient>
@@ -634,60 +688,6 @@ VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464265   (1019966) от 21.04.2021
-
-Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neon Light (4:11)
-02. Heroes (4:18)
-03. Cyberpunk (4:41)
-04. Another Day (4:18)(   Читать дальше...   )Жанр: Cyberpunk, Retrowave, ElectropopПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FAA6D4389873C646D409458A53E6F2C59130A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464257   (1019992) от 21.04.2021
-
-Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Line (5:53)
-02. SOS from Planet 0712 (5:34)
-03. Zero Gravity (Pt.1) (0:59)
-04. Space Rangers (4:48)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ElectropopПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B84BE2214B910A64B2C9DC46BBEDBBAE91F2C2
 ```
 
 

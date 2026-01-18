@@ -1,3 +1,57 @@
+###  Публикация: 1301641   (584092) от 12.05.2019
+
+Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pulsar Station (08:18)
+02. Pluckton (08:11)
+03. Planet Earth (09:00)
+04. A Taste of Love (09:00)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774A6C151F37778B8F78CC18E007C6AADFE2C913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919355   (584117) от 18.07.2015
+
+VA - Sal Mar E Pura Relajacion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaxamalka - Desimaginar [05:50]
+02. Enrico Donner - I Need a Love [06:12]
+03. El Nicoya - Minutos de Oro [05:38]
+04. Cesar Martinez Ensemble - Little Drops of Love [06:08](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37E8BFECB822F6B6ABFC7B353E670F9B29FF92A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301775   (584174) от 12.05.2019
 
 Mystic Crock - Seduced Senses (2019) Nomad Records / iM Mystic Crock [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, Psychill, Ambient>
@@ -655,60 +709,6 @@ VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040254   (586540) от 05.08.2016
-
-Bedtime Baby - Bedtime Baby Music (2016) [MP3|320 Kbps] <New Age, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culmination [00:04:07]
-02. Mountain Walk [00:03:59]
-03. Breathing Through [00:03:24]
-04. Silent Waters [00:06:54](   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 02:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FACA29967F0B604F0AA450652A2C569E7422093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918510   (586768) от 15.07.2015
-
-The Chemical Brothers - Born In The Echoes (2015) [MP3|320 кб/с]<Breakbeat, Electro, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I Feel So Deserted (05:12)
-02. Go feat. Q-Tip (04:21)
-03. Under Neon Lights feat. St. Vincent (04:27)
-04. EML Ritual feat. Ali Love (05:21)(   Читать дальше...   )Жанр: Breakbeat, Electro, Big BeatПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D8371B56287345FF7E767FDEB0369C697D2823
 ```
 
 

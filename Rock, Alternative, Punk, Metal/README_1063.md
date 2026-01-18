@@ -1,3 +1,294 @@
+###  Публикация: 1009178   (811641) от 20.04.2016
+
+Леонид Фёдоров и Владимир Волков - Гроза (2016) [MP3|320 кб/с] <Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баллада
+02. Душа не ведает судьбы
+03. Кончина гуся
+04. Казак(   Читать дальше...   )Жанр: Rock, AvantgardeПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44781891D4CEC03146B9ED1F5E6EFA40FDC3B6A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118778   (811651) от 26.03.2017
+
+Кузьма и ВиртУОзы - На мягких лапах (2016) [FLAC|lossless|image + .cue] <Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Движение вселенское сие (08:18)
+02. Совокупности для (01:07)
+03. Это не я (02:26)
+04. Животная болесть (04:01)(   Читать дальше...   )Жанр: AvantgardeПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759EB822CED8DECECF2FB07906AA4A1AD40DB250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118789   (811664) от 26.03.2017
+
+Кузьма и ВиртУОзы - На мягких лапах (2016) [MP3|320 kbps] <Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Движение вселенское сие (08:18)
+02. Совокупности для (01:07)
+03. Это не я (02:26)
+04. Животная болесть (04:01)(   Читать дальше...   )Жанр: AvantgardeПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BB7213E42B5909980B2ED46FEB133898FA10C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118404   (811677) от 26.03.2017
+
+Stryper - Against The Law (1990) Japan [FLAC|Lossless|image + .cue] <Hair Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Against the Law 3:49
+02 Two Time Woman 3:40
+03 Rock the People 3:34
+04 Two Bodies (One Mind One Soul) 5:17(   Читать дальше...   )Жанр: Hair Heavy MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC922EE07AA04F06C122881161993838B277BE2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118439   (811680) от 26.03.2017
+
+Different Light - The Burden Of Paradise (2016) [FLAC|Lossless|image + .cue] <Crossover, Neo Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий за 20 лет полновесный студийник (и второй "чешской сборки") проекта мальтийского музыканта Тревора Табоне.In The Grand Scheme Of Things
+01. The Schemer Wakes (2:14)
+02. Letters For Alice (3:01)
+03. Happiness (5:17)(   Читать дальше...   )Жанр: Crossover, Neo ProgПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFF5CA3A8E600FAB9704834E1BC6001EEA3A622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118411   (811682) от 26.03.2017
+
+Sanctuary - Inception (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of the Incubus
+02. Die for My Sins
+03. Soldiers of Steel
+04. Death Rider / Third War(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D367D8B9981143DCC0C281280E6755B10CFCCAEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383446   (811730) от 15.05.2020
+
+Ночные Снайперы - камень (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811730.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. каменьЖанр: RockПродолжительность: 00:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A2D5230285B6F2D730BFAABDC708B871167F7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383448   (811732) от 15.05.2020
+
+Тараканы! - Жёлтая звезда (2020) Single [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жёлтая звездаЖанр: Punk RockПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E084D0BB51DE32C96DDFAF54CC62D2BC6F5687
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118401   (811809) от 26.03.2017
+
+Stryper - Soldiers Under Command (1985) Japan [FLAC|Lossless|image + .cue] <Hair Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Soldiers Under Command 5:03
+02 Makes Me Wanna Sing 2:53
+03 Together Forever 4:04
+04 First Love 5:51(   Читать дальше...   )Жанр: Hair Heavy MetalПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A8527A809DBBB1564C7154A8AB9124B13EEF167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118700   (811813) от 26.03.2017
+
+Kaprekar's Constant - Fate Outsmarts Desire (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hors D'oeuvre (3:29)
+02. Bluebird (17:54)
+03. Pearl Of The Lake (5:11)
+04. Hallsands (14:18)(   Читать дальше...   )Жанр: Prog Rock, FolkПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03D53AB6E93F010431F299BF1DFDADE2E12E3E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118692   (811816) от 26.03.2017
+
+Molybaron - Molybaron (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Prog, Prog-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Is Better Business Than Love (3:09)
+02. Moly (4:23)
+03. Let's Die Together (3:28)
+04. Dance (Addicted To The Disco) (4:49)(   Читать дальше...   )Жанр: Heavy Prog, Prog-metalПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFF95614AA9BA299A36EFD93CCB2EBB666348A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118378   (811817) от 26.03.2017
 
 Stuart Smith - Heaven & Earth (1999) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
@@ -397,305 +688,6 @@ Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A972BEFAA2802699D437F47E98C9AFB7C226B4C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197958   (812018) от 09.01.2018
-
-Snapped Ankles - Come Play the Trees (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Play The Trees 04:30
-02.Hanging With The Moon 03:40
-03.I Want My Minutes Back 04:07
-04.Jonny Guitar Calling Gosta Berlin 08:16(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982FC64B474490E7E3B273D8DBB722338DF4F3AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197668   (812020) от 09.01.2018
-
-Prefab Sprout - Jordan: The Comeback (1990) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking For Atlantis 04:03
-02. Wild Horses 03:44
-03. Machine Gun Ibiza 03:43
-04. We Let The Stars Go 03:39(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83718061825BADE8F3CE26F6AA1EAA59BCD982CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197961   (812028) от 09.01.2018
-
-Once and Future Band - Once and Future Band (2017) [FLAC|Lossless|tracks + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Does It Make You Feel? (05:57)
-02. I'll Be Fine (06:28)
-03. Hide & Seek (06:18)
-04. Rolando (04:39)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194F6CDB798C42984C69C4F47FE7290C66A42295
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008638   (812058) от 20.04.2016
-
-DeWolff - Roux-Ga-Roux (2016) [FLAC|Lossless|image + .cue] <Psychedelic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roux-Ga-Roux (0:51)
-02. Black Cat Woman (5:02)
-03. Sugar Moon (4:18)
-04. Baby's Got A Temper (4:54)(   Читать дальше...   )Жанр: Psychedelic Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB322E7F8EE1523BF61B0FCFF374EB9957D5BA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008675   (812063) от 20.04.2016
-
-Wasted Heroes - Wasted Heroes (2016) [FLAC|Lossless|tracks] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Time Has Come - 04:25
-02. In Our Hearts - 04:10
-03. Calling For You - 04:44
-04. Unbreakable - 03:21(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D1A547F02F979E0D76BD08A0AC462C0B900CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504467   (812102) от 23.10.2021
-
-Elton John - The Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Heart (PNAU Remix) (Feat. Dua Lipa) (3:23)
-02. Always Love You (Feat. Young Thug & Nicki Minaj) (4:17)
-03. Learn To Fly (Feat. Surfaces) (3:30)
-04. After All (Feat. Charlie Puth) (3:29)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA5ADAA79816C6B2EDEE20FCD1BD90C9706DEC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197848   (812138) от 09.01.2018
-
-Guerra Total - Mas Alla De La Tumba (2011) [FLAC|Lossless|image + .cue] <Black Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Black Goat Of The Woods (Shub-Niggurath)
-03 - Exterminio Ritual (Har Megiddo)
-04 - Metal Holocaust (Nuklear Revenge)(   Читать дальше...   )Жанр: Black Metal, Speed MetalПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1FC9EAF12A55800388733821DB972266718CC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657051   (812159) от 17.05.2013
-
-MorozMatik - On the way to the Bucketland (2013) [MP3|320 кб/с]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the way to the chicken farm (05:16)
-02. Chicken Rock Air (05:15)
-03. In Search Of The Jam (03:21)
-04. Headed Guardian (05:00)
-05. Escape from Bucketland (04:44)Жанр: AlternativeПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0F13E607358486E7CA1C87DE43A7162FDF4B6DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504368   (812205) от 23.10.2021
-
-Элизиум - Пятница, 13 Live (2012) [MP3|320 Kbps] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	«Слёзы-зеркала»	3:42
-02.	«Альпинист»	2:53
-03.	«Disco `80 Set» (попурри)	8:40
-04.	«Круглый год»	3:30(   Читать дальше...   )Жанр: РокПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EF5C81EEF992970A44AE3A5A95E7BCD28464AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504091   (812206) от 23.10.2021
-
-U.D.O. - Game Over (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семнадцатый по счёту полноформатник, получивший название "Game Over", увидел свет 21 октября этого 2021 года на лейбле AFM Records.
-Название работы "Game Over" отражает размышления о возможном фатальном будущем человечества, если оно не переосмыслит некоторые аспекты своего существования. Например, в песне группа "Kids And Guns" критикует (   Читать дальше...   )01. Fear Detector (4:21)
-02. Holy Invadors (3:27)
-03. Prophecy (4:42)
-04. Empty Eyes (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F365F918806B9D92D610E820F6E58182CD261AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504497   (812210) от 23.10.2021
-
-The Rolling Stones - Tattoo You (1981) 40th Anniversary, Super Deluxe Edition, Remastered, 2021, Promotone B.V. [MP3|320 Kbps] <Hard-Rock, Rock-n-Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under My Thumb [00:03:53]
-02. When The Whip Comes Down [00:04:33]
-03. Let's Spend The Night Together [00:04:22]
-04. Shattered [00:04:41](   Читать дальше...   )Жанр: Hard-Rock, Rock-n-RollПродолжительность: 3CD, 03:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C59573B8E3FBF314B53532DD9D58F4A1E58130A
 ```
 
 

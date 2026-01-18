@@ -1,3 +1,298 @@
+###  Публикация: 879356   (834710) от 19.03.2015
+
+Green Day - 25 Albums (1989-2014) [MP3|320 кб/с]<Punk Rock, Altenative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Green Day (первод на русский “Зелёный день” – на американском сленге означает день “дуракаваляния”, проведенный за курением марихуаны) — это американская рок-группа. Она состоит из трёх участников: Билли Джо Армстронга (вокал, гитара), Майка Дёрнта (бас гитара, бэк вокал), Тре Кула (ударные).
+Green Day изначально были частью панк-рок среды, сформировавшейся вокруг (   Читать дальше...   )Производство: Lookout, RepriseЖанр: Punk Rock, Altenative Rock, Pop PunkПродолжительность: 18:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB5E3AAE5913BB9851CBA382608D2EBC0E8F060
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461526   (834867) от 10.10.2021
+
+Marillion + Fish - 17 Albums, 18 CD (1983 - 2003) [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Field
+02. Moving Targets
+03. The Rookie
+04. Zoo Class(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 15:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F787984C96C178A9D6CE678AC9F87ED1051D0C46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501307   (834954) от 10.10.2021
+
+Queensryche - Operation Mindcrime (2021) Deluxe Edition, 4CD [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Remember Now [00:01:19]
+02. Anarchy-X [00:01:27]
+03. Revolution Calling [00:04:58]
+04. Operation: Mindcrime [00:04:26](   Читать дальше...   )Жанр: Heavy Metal, Progressive Metal, Hard RockПродолжительность: 4 CD, 03:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D580793428D6F07296104F1A93B21E70ABE6E478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113603   (834976) от 13.03.2017
+
+Deep Purple - Limitless (2017) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam (4:34)
+ 02. All I Got Is You (4:41)
+ 03. All The Time In The World (Radio Mix Version) (3:49)
+ 04. First Sign Of Madness (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5326E3A3062B906487F5B00B9C826243EAB8078
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501599   (835037) от 10.10.2021
+
+Бони'НЕМ - День Победы (2003) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Признаюсь, что этот альбом Бони Нем не оставил меня равнодушным, т.к. поставив свеженький диск в чейнджер на меня сразу же, подобно снежной лавине, обрушилась известная с детства композиция "Увезу тебя я в тундру". При этом композиция исполнялась в силе brutal death-black metal и более напоминала не знакомое с детства безобидное пение незадачливого и веселого (   Читать дальше...   )01. Увезу Тебя Я В Тундру
+02. Нас Не Догонят
+03. Сука-Любовь
+04. Ты Скажи(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Funk MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D418B98C1E0E57867DFB992F7FADD100E115A5C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113726   (835082) от 13.03.2017
+
+Bonnie Tyler - The Collection (2013) 2CD [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Total Eclipse Of The Heart (7:00)
+02. Holding Out For A Hero (4:23)
+03. Faster Than The Speed Of Night (4:42)
+04. Take Me Back (5:24)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0834612F555F64776B1D11F3DFB43F76230CD705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501355   (835120) от 10.10.2021
+
+Doro - Warlock - Triumph and Agony Live (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy (Intro) + Touch Of Evil (04:28)
+02. I Rule The Ruins (04:48)
+03. East Meets West (04:07)
+04. Three Minute Warning (02:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290098B8853F4C013176E31BC77C6E55779D9996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501345   (835123) от 10.10.2021
+
+Till Lindemann - Ich Hasse Kinder (2021) Single [FLAC|Lossless|image + .cue] <NDH, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ich hasse Kinder (3:53)
+02. Ich hasse Kinder (Alterboyz Remix) (3:26)Жанр: NDH, Industrial MetalПродолжительность: 00:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000B7D3D7391A8F0F125DF044E8CF354AA05E48D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113697   (835169) от 13.03.2017
+
+Temples - Volcano (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Psychedelic Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Certainty
+02. All Join In
+03. I Wanna Be Your Mirror
+04. Oh! The Saviour(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Psychedelic Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3959512127B3AC86897DD1313DFE3339763C81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501314   (835193) от 10.10.2021
+
+Yes - The Quest (2021) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835193.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Ice Bridge:
+a. Eyes East
+b. Race Against Time(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967442D8E478EFBABD47799E93468CDB18EFA712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501457   (835194) от 10.10.2021
+
+Grinder Blues - El Dos (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа GRINDER BLUES, в состав которой входит легенда Doug Pinnick (KINGS'X), Jabo Bihlman на гитаре и вокале и Scot "Little" Bihlman на ударных, перкуссии и вокале, выпустили вторую работу, получившую название "El Dos", 24 сентября 2021 года на Metalville Records.
+
+«Grinder Blues» - это выброс адреналина в самое сердце. Их оригинальные высоковольтные (   Читать дальше...   )01. Another Way Round (04:54)
+02. Everybody (02:47)
+03. Gotta Get Me Some of That (04:21)
+04. Who Wants a Spankin (03:26)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C78908291214BDC022681BFFC31E6E5B3B08C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501528   (835196) от 10.10.2021
 
 Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered, 2021, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
@@ -399,303 +694,6 @@ Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF4887FFC919578D7E19135DE6D9F753EBBF303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113738   (835299) от 13.03.2017
-
-Ten Jinn - Alone (2003) [FLAC|Lossless|image + .cue] <Crossover prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who You Are (5:43)
-02. Alone (5:02)
-03. Never Ending Love (5:19)
-04. Felis Feminalis (4:23)(   Читать дальше...   )Жанр: Crossover progПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724B8659A24750BC175C793C3ABFA1DE7C076F97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113943   (835300) от 13.03.2017
-
-The Sweet Lord Animals - Rise (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 14 Dollars (3:09)
-02. Away (2:16)
-03. Flood (4:45)
-04. Crazy Faces (4:29)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666A7C1512D4D239F322DD3B3930F56BFDCF1104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501446   (835307) от 10.10.2021
-
-Impiety - Vengeance Hell Immemorial (2013) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Cuntblasphemy - Paganistic Bitchgoddess Deiimpalation 	03:30
-02. 	Magick-Consecration Goatsodomy 				05:18
------------------------------------------------------------------------
-Ceremonial Necrochrist Redesecration Demo 1992(   Читать дальше...   )Жанр: Death Metal, Black Metal, Thrash MetalПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097851836F24C9CFC3B6E4AC06F3B94C9F9C1B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501432   (835308) от 10.10.2021
-
-Kimmo Porsti - Past And Present (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (2:10)
-02. At Lombardy Convent (8:40)
-03. Changewinds (5:40)
-04. Fused (5:04)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3864F31A55A0934376D0F9474B6D99122A737902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501410   (835310) от 10.10.2021
-
-Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:21)
-02. Puppet Show (03:14)
-03. Backlash (03:05)
-04. Cat Calling (02:46)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9CFD9FC15A05D79A5FF03626AAFD4F592C9FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501286   (835312) от 10.10.2021
-
-Infrared - From the Black Swamp (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tribal Junction
-02. No Master, No Gods
-03. Lockdown
-04. Left Lane Fuck!(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F9E1443E86123499728CD2689A42185AAC4AC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501388   (835313) от 10.10.2021
-
-Nuclear Bird - Tyrannical Megalomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835313.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exposition Of Fools (6:54)
-2. Tyrannical Megalomaniac (4:11)
-3. Addicted To The Water (4:18)
-4. Fascination With The Afterlife (4:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275AB5529190CE0440F10E3D42E2951DB868B5B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113802   (835336) от 13.03.2017
-
-Urma - Nomad Rhymes (2004) [FLAC|Lossless|image + .cue] <Art Rock, Acoustic, Prog rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835336.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 This Time 6:29
-2 Perfect Spot 3:56
-3 Comfort 3:38
-4 After All 4:19(   Читать дальше...   )Жанр: Art Rock, Acoustic, Prog rockПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF322BCA4C12320E9D815DB9AAB22C733658BEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113993   (835337) от 13.03.2017
-
-Lethe - The First Corpse on the Moon (2017) [MP3|320 Kbps] <Avant-Garde Metal, Experimental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night
-02. Inexorbitant Future
-03. Down into the Sun
-04. My Doom(   Читать дальше...   )Жанр: Avant-Garde Metal, Experimental MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97242FA1BBAA0CDBE00B3E29BAF01E1355419590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113582   (835343) от 13.03.2017
-
-Heaven's Gate - Menergy (1999) Japan[APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Teleshoot 0:49
-02 Worldmachine 3:39
-03 Teleshoot 0:12
-04 Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0537536CA722A48D8168D6FEF132DA2DAEA29C3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113586   (836066) от 12.03.2017
-
-Deep Purple - Limitless (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time For Bedlam (4:34)
-02.  All I Got Is You (4:40)
-03.  All The Time In The World ( Radio Mix Version ) (3:49)
-04.  First Sign Of Madness (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4DA7C6AF6FD1B6388013EDB0EFCED0E6E480005
 ```
 
 

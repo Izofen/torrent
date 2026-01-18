@@ -1,3 +1,300 @@
+###  Публикация: 1457532   (1024421) от 26.03.2021
+
+Distemper - Чистые души (2021) [MP3|320 Kbps] <Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024421.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чистые души
+2. Сорняки с поля битвы
+3. Цифровое кладбище
+4. Сделай что-нибудь больше, чем просто хайп(   Читать дальше...   )Жанр: Ska Punk, RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90D40D492F5606B2D9252726D5FC36436A77DAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457563   (1024430) от 26.03.2021
+
+Silent Winter - Empire of Sins (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates of Fire
+02. Wings of Destiny
+03. Shout
+04. Mirror(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE12C9998723C33426E6C4754C8889E593C4279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457531   (1024431) от 26.03.2021
+
+dArtagnan - Feuer & Flamme (2021) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. C'est la vie
+2. Feuer & Flamme
+3. Farewell
+4. Feste feiern(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBD95A321264A0E4E91EA48CB271F593D10D33A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457299   (1024435) от 26.03.2021
+
+Manntra - Monster Mind Consuming (2021) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Invocation [00:01:41]
+02 Heathens [00:03:45]
+03 Ori Ori [00:03:12]
+04 Slave [00:02:55](   Читать дальше...   )Жанр: Folk Metal, Industrial MetalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD7DEFD8E6C06B68FF06219E074F175368B781B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457723   (1024440) от 26.03.2021
+
+VA - Doomed & Stoned in Russia (Volume 1) (2021) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Object – Time (4:26)
+02. Asphyxia Perception – Invalid Shape (8:13)
+03. Autumn Woods – Funeral (4:14)
+04. Black Eel – Ultraviolence (4:27)(   Читать дальше...   )Производство: Doomed & StonedЖанр: Doom Metal, Stoner Metal, Stoner Rock, Psychedelic RockПродолжительность: 07:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648E0B56689F4E2047E5BC9AA3344CEC5916F1E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457643   (1024441) от 26.03.2021
+
+Банда четырех - Смерть в июне (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Резервация здесь [00:03:27]
+02. Ночью через лес [00:03:43]
+03. Дисциплина [00:04:39]
+04. Плохая репутация [00:04:46](   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26EDB52ABA29EF4E41D13E3FD1115C92F604A25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457642   (1024457) от 26.03.2021
+
+Slabber - Apocryphal Diary (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Time of Boredom (00:04:35)
+02. Insane Attack (00:04:05)
+03. Bell Does Ring (00:04:18)
+04. Evil to Pay (00:04:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C952570D06B87FBBCC6BAA443BF2AE475F3FB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421901   (1024492) от 25.03.2021
+
+Машина времени - В метре (2020) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024492.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В метре (Комментарий)
+2. Просыпается ветер (Комментарий)
+3. Просыпается ветер
+4. Пой песню, пой, дульсимер (Комментарий)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA8BC1BD7176099DB2817C280D619F13471899D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457292   (1024511) от 25.03.2021
+
+Ногу свело! - Парфюмерия (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лохотрон
+2. Деньги
+3. Крылья
+4. Парфюмерия(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58873EB91CE77B29EEBE555FF37B7A56EF3EA101
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457296   (1024567) от 25.03.2021
+
+Ногу свело! - Парфюмерия (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лохотрон
+2. Деньги
+3. Крылья
+4. Парфюмерия(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD198816F71E4B76FACC4D9A70971438EBAE9B00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457348   (1024609) от 25.03.2021
+
+Suzi Quatro - The Devil In Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil In Me
+02. Hey Queenie
+03. Betty Who
+04. You Can't Dream It(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D080DB05D9158EE05B8FC8A0178D4A151A87709
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457129   (1024610) от 25.03.2021
 
 VA - Rock on! Rock it! Rock Out! (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -401,304 +698,6 @@ Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4066A6F87517850D766A3FD39A2F910B7D7FE46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456733   (1024915) от 23.03.2021
-
-Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted (Live At The New Theatre Oxford, UK / 1979) 04:53
-02. Rock Brigade (Live At The New Theatre Oxford, UK / 1979) 02:58
-03. Let It Go 04:43
-04. Mirror Mirror (Look Into My Eyes) 04:07(   Читать дальше...   )Жанр: Hard Rock
-Страна: UKПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEDA23DBAE45EA808E237D56F9738AB9FFAADE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456534   (1024930) от 23.03.2021
-
-Alae Noctis - Eternal Rest For The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Target: Renegade 05:05
-02. Battle Beyond The Stars 05:36
-03. Lords Of The Wasteland 04:44
-04. Falcon Spirit 04:04(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F896986B2ECEFF0069E7641CCC91C68F1527A0E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456473   (1024939) от 23.03.2021
-
-Ghost Brigade - IV - One With the Storm (2014) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wretched Blues (6:19)
-02. Departures (4:58)
-03. Aurora (6:57)
-04. Disembodied Voices (5:36)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom Metal, Progressive MetalПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1BCC787FD02F40CC17D7C68B9FD643AD3764B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456616   (1024947) от 23.03.2021
-
-Forcefield - Saucer Separation (2021) [MP3|320 Kbps] <Progressive Metal, Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saucer Separation (05:44)
- 02. Diluted to the Point of Evil (09:31)
- 03. Scarifice (10:20)
- 04. My Garambah (04:37)(   Читать дальше...   )Жанр: Progressive Metal, Power Metal, Thrash MetalПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C38EC798E8B25F9A0C29EC612CCB1B1C206A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456740   (1024949) от 23.03.2021
-
-Zarpa - El Loco (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fahrenhait (00:04:31)
-02 - El Heavy es Mi Destino (00:03:42)
-03 - Hermano del Rock (00:05:51)
-04 - El Loco (00:03:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0883B770694759464FF1D6C336F1F18E45C5B38C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456737   (1024950) от 23.03.2021
-
-Reylobo - El Octavo Pecado (2021) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Final (00:01:23)
-02 - Los Olvidados (00:03:43)
-03 - La Jauria Humana (00:03:59)
-04 - Rebelion (00:03:47)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1561D3008C1023E2C13BEB7E9E001669C32C50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456746   (1024951) от 23.03.2021
-
-The Settlement - Departures (2021) [MP3|320 Kbps] <Psychedelic, Progressive Rock, Jam Band>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [00:06:13]
-02. Stars [00:10:44]
-03. Recognize [00:10:05]
-04. Enter Mission [00:04:33](   Читать дальше...   )Жанр: Psychedelic, Progressive Rock, Jam BandПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F982D7CDC86350CDE28A509C373386C473F79132
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456566   (1024952) от 23.03.2021
-
-Nodo Gordiano - Sonnar (2020) [FLAC|Lossless|image + .cue] <RPI, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Fool! Only Poet! (9:06)
-02. Limbic Rendez-vous (6:59)
-03. Charun (3:53)
-04. After Dusk (20:48) :(   Читать дальше...   )Жанр: RPI, Prog RockПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165F35C59780F8F8602E3D80982B651B7C553595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456667   (1024955) от 23.03.2021
-
-Noumena - Anatomy of Life (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misanthropolis (4:18)
-02. Burden of Solacement (5:19)
-03. Retrospection (5:20)
-04. The Burning (3:57)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F4CB05B981AC2D5B98197862D80FBB8A3A4E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456671   (1024956) от 23.03.2021
-
-Noumena - Myrrys (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kohtu (0:52)
-02. Metsan Viha (4:26)
-03. Kirouksen Kantaja (5:39)
-04. Sanat Pimeydesta (4:11)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1EA9FA7CCA26B1E2AF3AEA6686AA1DA9A83059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456680   (1024959) от 23.03.2021
-
-Boulevard - IV Luminescence (2017) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Blue
-02. Life Is A Beautiful Thing
-03. Laugh Or Cry
-04. What I'd Give(   Читать дальше...   )Жанр: AORПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2881ACE53DECB84E44BC9FA82E3B99C419589332
 ```
 
 

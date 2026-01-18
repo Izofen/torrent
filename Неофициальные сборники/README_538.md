@@ -1,3 +1,30 @@
+###  Публикация: 1504187   (809480) от 24.10.2021
+
+VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Panoptic, Paul Anthonee - Surface
+002. Wang Inc. - Approdo
+003. Betonkust - Because I Want To Fit In
+004. Lord Of Loud - Starlight(   Читать дальше...   )Жанр: Synthwave, Synthpop, ElectronicПродолжительность: 08:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12BC073E33922C513164E0929D718CE08219F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009249   (809546) от 21.04.2016
 
 VA - Need For Speed (2016) [MP3|256-320 кб/с] <Dance, Club>
@@ -668,33 +695,6 @@ VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504695   (810204) от 24.10.2021
-
-VA - 30(9) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jah Khalib - Летний Снег (Winstep Radio Remix) (2:40)
-02. JONY The Limba - Босс (DJ Ramirez DMC Mansur Radio Edit) (2:32)
-03. RASA - Косички-вертолет (Temoff Remix) (2:39)
-04. Tamerlan Alena - Детка (Malevich Radio Remix) (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904B560A3825D8DFE2BEF2B0083F9F8160469889
 ```
 
 

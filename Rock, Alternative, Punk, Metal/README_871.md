@@ -1,3 +1,300 @@
+###  Публикация: 911361   (616315) от 23.06.2015
+
+ZamTrip - King's Game (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's Game
+02. Back Seat Love Song
+03. Break Me
+04. Dead Man's Story(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880AF48298B8D9BD648BB22875714E2E9460B4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911357   (616319) от 23.06.2015
+
+Estrella - We Will Go On (2015) [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Am
+02. Wheels Keep Turning
+03. We Will Go On
+04. This Heaven(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CBAFD8A3154AD4BDA9DD612565D95B75A0CDD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911351   (616324) от 23.06.2015
+
+Tikahiri - Son of Sun (2015) [MP3|320 кб/с]<Hard Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars
+02. I Will
+03. V8 Car
+04. Chalala to Me(   Читать дальше...   )Жанр: Hard Rock, Rock-n-RollПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997E606EA495CEF6A1D1E6D779C2A01D975CC322
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911217   (616326) от 23.06.2015
+
+Chabtan - The Kiss Of Coatlicue (2015) [MP3|320 кб/с]<Melodic Death Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Nahual's Omen
+02. Ixtab
+03. Born From Vucub Caquix
+04. Astral Monsters(   Читать дальше...   )Жанр: Melodic Death Metal, DeathcoreПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7E10F5923B95F238F0B7A93502A059C94E60ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911358   (616328) от 23.06.2015
+
+Gasoline Outlaws - No Rules, No Laws, No Regrets (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing On Me
+02. Lie
+03. The Shrouded Wolves
+04. Stand As One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561D2CBC06C2B91C552FD9F11D77A623D424D931
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911352   (616330) от 23.06.2015
+
+Syrym - Syrym (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foul Mouth Blues
+02. Warpath
+03. Torn in Two
+04. Ugly on the Inside(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EDE4AE35CF2B88CEE43F94160434168EE9BD96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544996   (616393) от 18.04.2022
+
+Billy Joel - 50 Years of the Piano Man (1973) Remaster, 2022, Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Piano Man (00:05:38)
+02 - Uptown Girl (00:03:16)
+03 - We Didn't Start the Fire (00:04:49)
+04 - Vienna (00:03:34)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6941C495FAB55D289197CB34EB207B1EE6ED1186
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911403   (616426) от 23.06.2015
+
+Fogg - High Testament (2015) [MP3|320 кб/с]<Psychedelic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy of Home
+02. You Are Welcome
+03. The Garden
+04. Seasons(   Читать дальше...   )Жанр: Psychedelic Hard RockПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F77CED2C75E9AAE6404F5758C7BD29D6EB3CEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911398   (616430) от 23.06.2015
+
+Ducktails - St. Catherine (2015) [MP3|320 кб/с]<Indie, Surf, Chillwave, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616430.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Disney Afternoon
+2. Headbanging In The Mirror
+3. Into The Sky
+4. Heaven's Room(   Читать дальше...   )Жанр: Indie, Surf, Chillwave, PsychedelicПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEDEEF908958D6258767D6B137293DB90BCB741
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911347   (616431) от 23.06.2015
+
+Sorrowfield - The Great Abduction (2015) [MP3|320 кб/с]<Heavy / Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Man
+02. The Other Side
+03. Differences
+04. Guardian Spirits(   Читать дальше...   )Жанр: Heavy / Gothic MetalПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BD971A96EBF1A4708DEF7DD8C23B3E329A0C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911356   (616433) от 23.06.2015
+
+Old Drake - Old Drake (2015) [MP3|320 кб/с]<Heavy Metal, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616433.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Han Valen
+2.Onions
+3.Spaceship Janitor
+4.Emperor(   Читать дальше...   )Жанр: Heavy Metal, Guitar InstrumentalПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5CD686674C84326F5AF3570D98C7C81CFA7221F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911390   (616437) от 23.06.2015
 
 Alkenion - Time Machine II (2015) [MP3|320 кб/с]<Progressive / Symphonic Metal, Instrumental>
@@ -398,318 +695,6 @@ Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911225   (616581) от 23.06.2015
-
-Pleuel - Durch die Wand (2015) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verfolgung Zu Unrecht
-02. Komplettkontrollverlust
-03. Hoffnung
-04. Durch Die Wand(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B324A51B6D8779C09930A33EEBC662749C2174E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911369   (616582) от 23.06.2015
-
-My Refuge - A Matter Of Supremacy (2015) [MP3|320 кб/с]<Progressive / Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Storm Is Coming
-02. The Cage (Oh Demon in My Eyes)
-03. Calling of the Wind
-04. Endless Night(   Читать дальше...   )Жанр: Progressive / Heavy / Power MetalПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC705A74C943BC5F46A531AF010B0A6DE6C4F5AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911378   (616583) от 23.06.2015
-
-Vangough - Living Madness (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths of Blighttown (Live)
-02. Afterfall (Live)
-03. Separation (Live)
-04. Infestation (Live)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8534AD1B7848C97133AE5149BA6172DF6488F12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523505   (616612) от 16.07.2012
-
-Nine Inch Nails - Greatest Hits (2 CD) /Russian Release/ (2008) [MP3|320 кб/с]<Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616612.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1| Продолжительность: 01:19:31
-01. Down In It
-02. Head Like a Hole
-03. Sin
-04. Terrible Lie
-05. Something I Can Never Have
-06. Pinion
-07. Wish
-08. Gave Up
-09. Happines In Slavery(   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:18:49
-01. The Perfect Drug
-02. The Day The World Went Away
-03. We're In This Together
-04. Into The Void
-05. Starfuckers, Inc
-06. Where Is Everybody
-07. The Fragile
-08. Deep
-09. And All That Could Have Been(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DAB44689CBC826D04BA58C10BE7B1F2176FE8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545008   (616660) от 18.04.2022
-
-Golgotha Opera Metal - Los Enigmas de un Hombre en Su Muerte (2022) 2CD, Acto 1-2 [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - El Sueño de Claudia (00:03:44)
-02 - No Conozco a Ese Hombre (00:03:35)
-03 - Ante Pilato (00:05:41)
-04 - Antipas (00:04:19)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 2CD, 01:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D73255DC1C83063E720F32D5F1EABEB424041AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545098   (616661) от 18.04.2022
-
-Skymera - Skymera (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Won't Fly By (04:51)
- 02 - Easy Disease (04:17)
- 03 - Forgotten Tears (04:46)
- 04 - Pillow Of Sickness (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD37E77BD065056A61C7735E79BDCFA97732E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544911   (616664) от 18.04.2022
-
-Colosseum - Restoration (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - First in Line
-02 - Hesitation
-03 - Need Somebody
-04 - Tonight(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E107E89272FA46183CEF156D6ABBCA598B7B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545237   (616665) от 18.04.2022
-
-Tears of Heaven - 2 Albums (2015, 2022) [MP3|320 Kbps] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Wedding [00:08:20]
-02. The Crow [00:07:27]
-03. Hunter and Prey [00:04:28]
-04. Lullaby for Wolves [00:06:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62913532BEAFB3EA163B49733002692C598FB1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545039   (616671) от 18.04.2022
-
-Змей И Радуга - Молекулярное воскрешение (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Нейрохирургический солипсизм (00:03:13)
-02 - Аутопсихическая деперсонализация (00:05:09)
-03 - Согра (00:03:58)
-04 - Шизофрения (00:03:22)(   Читать дальше...   )Жанр: Symphonic Death, Black MetalПродолжительность: 00:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261E920CCBD45EDC29065F560D06D2E5762914F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545222   (616672) от 18.04.2022
-
-Стрела Морфея - 3 Albums (2018-2021) [MP3|320 Kbps] <Russian Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юбилей [00:02:04]
-02. Лепрекон [00:02:59]
-03. Неформат [00:02:18]
-04. Обида повара [00:02:31](   Читать дальше...   )Жанр: Russian Punk Rock, Horror PunkПродолжительность: 3 CD, 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24672B33C777712930E38A9E034C7F9DD77E3A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545007   (616673) от 18.04.2022
-
-Darkher - The Buried Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Occult Rock, Dark Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sirens Nocturne (00:04:29)
-02 - Lowly Weep (00:07:59)
-03 - Unbound (00:02:16)
-04 - Where The Devil Waits (00:03:29)(   Читать дальше...   )Жанр: Gothic Rock, Occult Rock, Dark FolkПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B51AB34AA6F168D7BA2AC88F9C4C9C197D89D35
 ```
 
 

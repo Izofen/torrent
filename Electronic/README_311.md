@@ -1,3 +1,57 @@
+###  Публикация: 1037522   (612136) от 25.07.2016
+
+Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scarlet (Original Mix) (7:37)
+02. Green Leaf (Extended Vocal Mix) (6:50)
+03. Elements (6:34)
+04. Some People Will Never Learn (7:40)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB16269E3628A297751807A99AEEA9F778B6EBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230843   (612332) от 14.06.2018
+
+VA - Techno Club Vol.54 - (Mixed By Talla 2XLC & Neelix) (2018) [MP3|~ 247-252] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aly & Fila With Emma Hewitt - You & I
+02 Talla 2XLC - Innuendo
+03 Darren Porter - Colours
+04 Dash Berlin Feat. Bo Bruce - Coming Home (STANDERWICK Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADED5EB714A1BEC0B2894A8FE9B0A47C420A73DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230833   (612340) от 14.06.2018
 
 Yarn - Undiscovered Places (2018) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
@@ -647,60 +701,6 @@ Crywolf - Dysphoria (2015) [MP3|320 кб/с]<Chillstep, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C8FDE806E5BC836066FB56A5BEDC26EF61863A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146604   (614554) от 29.06.2017
-
-VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Kurt – Sumatra Rain (Club Mix) 06:32
-02. Township Rebellion – Pelikan (Matchy & Bott Remix) 06:10
-03. Animal Trainer & Reto Ardour – Zora 08:02
-04. Hanne & Lore – Hushle (Bebetta Remix) 06:23(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A6C115027E94779095C9EF373E51FF18A0DB87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146633   (614656) от 29.06.2017
-
-Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Filtered Senses (7:11)
- 2. Circuit Bent (7:31)
- 3. Invisible Chatter (5:29)
- 4. Dub Smoke (6:51)(   Читать дальше...   )Жанр: Techno, Dub, DowntempoПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
 ```
 
 

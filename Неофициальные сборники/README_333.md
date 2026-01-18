@@ -1,3 +1,30 @@
+###  Публикация: 1045343   (559833) от 23.08.2016
+
+VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3HAB & Quintino  -  Freak (VIP Remix)  4:13
+02. D.O.D  -  Night Cap  3:50
+03. Diskord  -  Out There  3:13
+04. Rochelle  -  All Night Long (Niam Blake Remix)  4:22(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153256   (559841) от 26.07.2017
 
 VA - Italo Disco Retro Mix: New Generation (2017) [MP3|320 Kbps] <Disco, Italo Disco>
@@ -698,33 +725,6 @@ VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304711   (561268) от 27.05.2019
-
-VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stan Kolev - Forethought
-002. Die Haustiere - L'isla Delle Conchiglie (Original Mix)
-003. Gar Feat. Lorraine Gray - Havana (Original Mix)
-004. Matt Dwellers - Ankaraz (Stoertebeker Remix)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD049CF52BF7657487E3AE605208546ED4A0488F
 ```
 
 

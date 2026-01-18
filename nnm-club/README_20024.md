@@ -1,668 +1,688 @@
-###  Публикация: 1274120   (794982) от 05.01.2019
+###  Публикация: 1202552   (789521) от 30.01.2018
 
-Mystery Case Files 17: Rewind / За семью печатями 17: Вспять (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странные сообщения поступают из заброшенного отеля Victory. Прибыв на место, Вы обнаруживаете знакомых Вам по предыдущим делам людей, пойманных во временную ловушку! Узнайте, где они находятся, а также кто, и зачем вмешался в их прошлое. Успеете ли Вы исправить линию времени в каждом из случаев? Узнайте ответы прямо сейчас!Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE28AAAF8F66C4CEA98BE594FE7F5C830E61EE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274104   (794983) от 05.01.2019
-
-Hidden Expedition 16: The Golden Secrets / Секретная экспедиция 16: Золотой секрет (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штаб-квартира H.E.L.P. прерывает ваш горнолыжный отпуск с важным заданием: отправиться в Женеву, чтобы приобрести древний артефакт, который возможно содержит информацию о происхождении H.E.L.P. Но это будет нелегко. Вы должны стать победителем торгов на аукционе с высокими ставками. У H.E.L.P. конечно есть деньги! К сожалению, Вы не единственные, кто заинтересовался (   Читать дальше...   )Тип издания: UnofficialРазработчик: Eipix EntertainmentЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480304905AE810AAB5DF67E0EC6D0F001796CBA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274075   (794984) от 05.01.2019
-
-VA - Anthology Of Blues (Vol. 01) (2019) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steve Fister - Deeper Than The Blues
-002. Southern Gentlemen - Exotic Dancer Blues
-003. Pat Travers - Look Me Up
-004. Tony Joe White - Gumbo John(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 10:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A9F90AAA19E6384992176E29F814161C9971C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274069   (794985) от 05.01.2019
-
-Sweet - The Rainbow - Live In The UK 1973 (2018) [MP3|320 Kbps] <Glam Rock, Rock>
+Jerry Goodman - Violin Fantasy (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Symphonic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794985.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Stripper (Intro)
-02. Hell Raiser
-03. Burning / Someone Else Will
-04. Rock’n Roll Disgrace(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 01:12:56
+01. Enter Sandman (4:23)
+ 02. In The Realm On The Netherworld (3:27)
+ 03. Dream Weaver (Altermate Mix) with Nektar (3:36)
+ 04. Baba O'Riley (Alternative Mix) (4:22)(   Читать дальше...   )Жанр: Instrumental Rock, Symphonic RockПродолжительность: 00:57:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895A628A98B9656383DABA9F0A24B25AD06664B5
+magnet:?xt=urn:btih:DCCAF63F9BE556012CC785077C1DFC5EEE000CB8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274032   (794986) от 05.01.2019
+###  Публикация: 1202723   (789522) от 30.01.2018
 
-Пираньи 2: Нерест / Piranha Part Two: The Spawning (1981) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794986.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одном из островов Карибского моря внутри затонувшего судна найдена пара мертвецов. Инструктор по подводному плаванью местного курорта Энн Кимбруг вместе с одним из отдыхающих Тайлером Шерманом проникают в морг с целью выяснить причину смерти одного из аквалангистов, который был другом её сына. Там они обнаруживают, что тела объедены в нескольких местах.
-Тогда (   Читать дальше...   )Производство: США, Италия, Нидерланды / Brouwersgracht Investments, Chako Film CompanyЖанр: Ужасы, ТриллерРежиссер: Джеймс Кэмерон, Овидио Г. Ассонитис, Миллер ДрэйкАктеры: Тришиа О`Нил, Стиви Марачек, Лэнс Хенриксен, Рики Полл Голдин, Тед Рикерт, Лесли Грейвз, Кэрол Дэвис, Конни Лунн Хедден, Арни Росс, Трэйси БергПеревод: Авторский (одноголосый закадровый) Андрей ГавриловСубтитры: английскиеПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B51929024E341AE03EE1F04B285D473E717C2C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274006   (794987) от 05.01.2019
-
-Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/Ru]
+VA - Game Of Tones (Compiled By Megapixel) (2018) [MP3|320 Kbps] <Psy-Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794987.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789522.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wise Registry Cleaner - утилита для безопасной чистки реестра Windows. Программа сканирует реестр и ищет в нём некорректную и устаревшую информацию, после удаления которой операционная система работает значительно быстрее. После того, как программа проанализирует проблемы Вашей системы, Вы можете сами просмотреть каждую найденную неполадку и посмотреть её детальное (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
+01. Materia & Mirok - True Level (Original Mix)
+02. K.I.M & Frump - Bakersfield (Original Mix)
+03. Intelligence & Brainiac - Silencio (Original Mix)
+04. Algorika - Breaking News (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:09:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DB4E7ADA44949F000D3F97A6495CA0C2A818064
+magnet:?xt=urn:btih:FCB8ED9D686283E1E288361C8E61027DB0637255
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274171   (794988) от 05.01.2019
+###  Публикация: 1202753   (789523) от 30.01.2018
 
-К.К. Ким (ред.) | Средства электрических измерений и их поверка (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое учебное пособие предназначено по своему содержанию для всех, кто желает познакомиться с принципами действия средств электрических измерений и их поверкой. Авторы имели при этом в виду обучающихся в высших учебных заведениях, но и практических работников электротехники, занятых в лабораториях, на электрических подстанциях, электрическом транспорте и т. (   Читать дальше...   )Жанр: МетрологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B32ADF88FC871E6BCE621B458DBDFCAF6959AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274126   (794989) от 05.01.2019
-
-Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский, Украинский, Белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE28D0940B1DE88528EE7D5049A3228D1A81C7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274065   (794990) от 05.01.2019
-
-ВИА «Волга-Волга» - Суши за репост (2018) [MP3|320 Kbps] <Rock, SKA>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра (01:34)
-02. Волжский рок-н-ролл (03:01)
-03. Гваделупа (03:20)
-04. Ой, лю-ли (03:24)(   Читать дальше...   )Жанр: Rock, SKAПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077FA7B228E91FD30B8645555D8E1FDDA1306579
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273864   (794991) от 05.01.2019
-
-Галина Гончарова | Азъ есмь Софья. Крылья Руси (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало выиграть войну, надо не проиграть мир. А враги не унимаются. Поднимает голову старый противник – Швеция, плетет интриги французский король, бунтует Польша… И разыгрываются многоходовые комбинации, и в ход идут запрещенные приемы, и на кон ставится память о себе и историческая правда. Но у царевны Софьи нет выбора. А есть знания и желание идти вперед. И еще ей (   Читать дальше...   )Жанр: Историческое фэнтези, ПопаданцыПродолжительность: 17:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4A923209CF16B08AD8948DA807C36FD5D38B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274074   (794992) от 05.01.2019
-
-Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCFCA3A6FBED546FE545168716EE08C28D029540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274175   (794993) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Канада — Финляндия (02.01.2019) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794993.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 02:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Канада — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410BE55C46D88030ED3581B1BF021E870E93B983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274181   (794994) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. США — Чехия (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794994.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-США — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAA5CA1F63178871522FC739E03E6F2D541ABE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274170   (794995) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. 1/4 Финала. Швеция — Швейцария (02.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794995.jpg" />
-</div>
-
-
-###  Подробнее
-
-03 января 2019, четверг. 00:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-1/4 Финала.
-Швеция — Швейцария(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BA0427258E1DAA8A668FBB71CAF297D0E078A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274122   (794996) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа B. США — Финляндия (2018) HDTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 06:30 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа B.
-США — Финляндия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11F129D94B86D27A291498A686886538A2D7BB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274134   (794997) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/2 финала. Россия — США (05.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794997.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/2 финала. Россия — СШАТелекомпания: Матч! ИграЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C648E25832F99FB991B143917E0662CB2CC09C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274105   (794998) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019. Предварительный раунд. Группа A. Россия — Канада (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 января 2019, вторник. 04:00 МСК
-43-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2019 года
-Предварительный раунд. Группа A.
-Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86360B274784FF29E34EF3201197AA6B1B290443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273929   (794999) от 05.01.2019
-
-Хоккей. Молодёжный Чемпионат мира 2019 (U-20). 1/4 финала. Россия — Словакия (03.01.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794999.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 января 2018 г., стадион «Роджерс-арена» (Ванкувер, Канада)
-1/4 финала. Россия — СловакияТелекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D384877487EFF4C1676FAF644EBBD5C0834E6FAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509376   (795000) от 12.11.2021
-
-Recompress 21.11 [Multi/Ru]
+PDF Expert 2.2.19 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795000.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Re/compress - это мощная утилита сжатия PDF, которая позволяет изменять размеры существующих PDF-файлов для архивирования или распространения в Интернете или по электронной почте.
-Многие производители PDF, например. Например, многофункциональные принтеры или другие простые приложения используют самые современные формы сжатия при создании ваших PDF-документов (или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0B63D68ECA6D7A3F4F4A786872CD3774523B8EC
+magnet:?xt=urn:btih:B520DA0A7ED11FD9EAC2252066D8E46BEDB970EB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509381   (795001) от 12.11.2021
+###  Публикация: 1202669   (789524) от 30.01.2018
 
-OCRKit Pro 21.11 [Multi/Ru]
+VA - Deep Disco (2018) [MP3|320 Kbps] <Deep House, Nu Disco, Electro>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795001.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Профессиональное распознавание текста для «безбумажного» офиса. Архивирование, поиск, редактирование и перевод, для Mac
-Конвертирование любых файлов формата PDF и графических файлов в файлы формата PDF с возможностью поиска по тексту или в файлы форматов RTF, HTML и TXT.
-OCRKit представляет собой простое и рациональное приложение для конвертирования файлов формата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2012Разработчик: © 2021 ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+01.  N.A.G  -  Dream Girl (Original Mix)  5:29
+02.  Electro Beat Orchestra  -  Make Me Fly (Extended Mix)  6:41
+03.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Original Mix)  6:53
+04.  Michael Grand & Disko Disko  -  Set Set Set (Julian Thomas Remix)  6:40(   Читать дальше...   )Жанр: Deep House, Nu Disco, ElectroПродолжительность: 03:54:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89EB433125BFF5B6955DB6621EA45C1BFF743B0D
+magnet:?xt=urn:btih:DBF0BA06A03F7B7218AE495BAC3B91AFA7D22E9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509367   (795002) от 12.11.2021
+###  Публикация: 1202679   (789525) от 30.01.2018
 
-Indecent Noise - Everything Is Connected (Expanded & Extended) (2021) [MP3|320 Kbps] <Trance, Tech Trance>
+VA - Chillout Therapy Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bernd Filz  -  Welcome On Earth (Original Mix)  4:25
+02.  Aaron The Baron feat. Clifford Borg  -  Simplicity In A Kiss (Original Mix)  4:41
+03.  Maurizio Piacente feat. Dalise  -  Wings (Original Mix)  4:32
+04.  Massivan feat. Bea Luna  -  That Day (Olson Dreamer Remix)  2:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D341BD308B67CC22F7518F28CC1F395385C6A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202361   (789526) от 30.01.2018
+
+Robert Logan - Sculptor Galaxy (2017) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo, Experimental, Tribal, Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sovereign (07:36)
+02. Climber (04:23)
+03. Be Tall (03:16)
+04. Binary Star (05:59)(   Читать дальше...   )Жанр: Ambient, Downtempo, Experimental, Tribal, TechnoПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934528DA782AB79A1E638A83B5B1DDE93C79E7CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202815   (789527) от 30.01.2018
+
+Spacecraft - Spacecraft (1997) Lektronic Soundscapes [FLAC|Lossless|tracks+.cue] <Ambient, Space, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetary Orbit (05:40)
+02. Zero, One (22:07)
+03. Topo Scan (07:14)
+04. Transmission (06:42)(   Читать дальше...   )Жанр: Ambient, Space, DroneПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5E8F33E31C8B135CE08DFA665796DBD68BA532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202787   (789528) от 30.01.2018
+
+Robert Rich - Inner Landscapes (1999) Hypnos / Soundscape [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (13:23)
+02. Part 2 (11:20)
+03. Part 3 (08:14)
+04. Part 4 (13:25)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E5E1EF18E97E77F5FD324C28AB70B098430E75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202522   (789529) от 30.01.2018
+
+Альва Бесси | Антиамериканцы (1961) [DJVU]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор романа, писатель-коммунист Альва Бесси, — ветеран батальона имени Линкольна, сражавшегося против фашистов в Испании. За прогрессивные взгляды он подвергся преследованиям со стороны комиссии по расследованию антиамериканской деятельности и был брошен в тюрьму. Судьба главного героя романа, коммуниста Бена Блау, во многом напоминает судьбу автора книги.
+
+Роман (   Читать дальше...   )Жанр: История, политология, прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838B614FB7E0547E7B3B95176A1C0137C18FB00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202713   (789530) от 30.01.2018
+
+VA - Deep House Winter Essentials (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Midnight  -  Synthetic (Mango vs. We Are All Astronauts Dub Remix)  7:40
+02.  Gregory Esayan  -  Healer (Elypsis Remix)  6:54
+03.  Marsh  -  Me & You (Extended Mix)  7:36
+04.  LTN  -  Serene Land (Original Mix)  6:16(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A05128323A8EBAB826573F091A3A1E896D15573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202827   (789531) от 30.01.2018
+
+Faru - Through Darkness Comes Light (2017) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Dark Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through Darkness Comes Light (10:32)
+02. Gunung Bromo (08:19)
+03. Sunrise At Bratan (06:24)
+04. Mountain Adventures (09:30)(   Читать дальше...   )Жанр: Ambient, Drone, Dark AmbientПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5F7634D562F17CA93A73DCCAE9A65B978A3DF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202694   (789532) от 30.01.2018
+
+Endurance Antivirus 4.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Endurance Antivirus - Adware & Malware антивирус.
+" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
+
+Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F07017AEFCE636BBF9B2ECBB8FF1E31715966B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202853   (789533) от 30.01.2018
+
+Karsten Pflum - Sleep Concert (2017) Hymen Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 Prolouge (A Tale About Gnomes) (28:34)
+02. Part 2 Has Been (34:31)
+03. Part 3 Disconnection (46:26)
+04. Part 4 Osiris Touching Me (50:24)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 08:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F33AB86397906008D1708493DDA45978015DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202866   (789534) от 30.01.2018
+
+omrr - Devils For My Darling (2017) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Modern Classical, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksands (05:42)
+02. Ink We Spill (03:54)
+03. Linatics (05:14)
+04. Illicit (04:11)(   Читать дальше...   )Жанр: Ambient, Acoustic, Modern Classical, ExperimentalПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E476ED5B5930EDA65612F1F8BD410F3CC1B06B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202832   (789535) от 30.01.2018
+
+Illuvia - Illuvia (2017) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura (03:52)
+ 02. Isla Nocturnal (07:46)
+ 03. Illuvia (14:55)
+ 04. Autumn Light (04:00)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D52568ABDCD48EFB10D58B003332B446D2F632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202628   (789536) от 30.01.2018
+
+VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indecent Noise - Brightest Day (Original Mix) (02:13)
-02. Indecent Noise - White Lotus (Original Mix) (04:32)
-03. Indecent Noise & Noire Lee - Sunglasses At Night (Extended Original Vision) (07:17)
-04. Indecent Noise & OnTune - Visions Of The Dreamer (Extended Mix) (08:12)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:57:19
+01.  Roman Messer & Betsie Larkin  -  Unite (Original Mix)  4:04
+02.  Bigtopo & Omar Diaz  -  Gallow (Original Mix)  3:45
+03.  Ruslan Radriges presents Mantra & Lucid Blue  -  Take Me Higher (Club Mix)  3:51
+04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:10:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C108B7FDB2C1419983F1CA432CFB7E3662CED40C
+magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509383   (795003) от 12.11.2021
+###  Публикация: 1202644   (789537) от 30.01.2018
 
-Keyboard Maestro 10 v10.0 [En]
+VA - Klubb Classics Chapter 1 (2018) [MP3|320 Kbps] <House, Club, Dance>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795003.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Keyboard Maestro - мультифункциональная утилита, которая может создавать макросы, для автоматизации каких-либо повторяющихся действий, вызываемых с помощью клавиатурных сочетаний, для приложений, окон, документов, буфера обмена и т.д.
-А что если вам нужно отправить картинку в определенную папку Dropbox или залить на хостинг изображений? В этих случаях цепочка действий (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: Stairways Software Pty Ltd.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+01.  DJ Boozywoozy  -  Live Is Music (Original Mix)  6:37
+02.  DJ Disco  -  Get Up (Original Mix)  6:51
+03.  Da Techno Bohemian  -  Bangin' Bass (Bangin' Bass Mix)  7:01
+04.  Klubbheads  -  Turn Up The Bass (Original Mix)  6:50(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:02:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:839CE4FAE0F99AC220ABED7DC69B56FC7D6B5918
+magnet:?xt=urn:btih:AC3F8643FB1C1FE746EDECD5F117D7F69EC97886
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509366   (795004) от 12.11.2021
+###  Публикация: 1202813   (789538) от 30.01.2018
 
-Wonders - The Fragments Of Wonder (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good & Bad
-02. Pretender
-03. Losing The Dream
-04. Beyond Redemption(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:44:07
+01. Orphyd - Human Empire (Original Mix)
+02. Max Freegrant - Inside Your Eyes (extended mix)
+03. Envytone - Tonight (feat Scolario - extended mix)
+04. Kojun - You're Here (extended mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC141F58EFB7B85B7C2DB1868E93B059C42FED6
+magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509400   (795005) от 12.11.2021
+###  Публикация: 1202544   (789539) от 30.01.2018
 
-David Reece - Blacklist Utopia (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
+AeTopus - TotemTotum (2018) [MP3|320 Kbps] <Ambient, New Age>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795005.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Utopia
-02. Red Blooded Hell Raiser
-03. Down To The Core
-04. Civil War(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:01
+01 Mosswood
+02 Others
+03 Transhumance
+04 Prime(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:03:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18522BDD643AC1C90961FE8A144E4FF87A0A201B
+magnet:?xt=urn:btih:1FB15E37ED6CB3485FE2D7F40D3367587C802C26
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509520   (795006) от 12.11.2021
+###  Публикация: 1202564   (789540) от 30.01.2018
 
-Rock's Finest - Planet Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Male Female Vocal>
+Клиентам российской компании "Финам" стали доступны операции с криптовалютными фьючерсами.
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Поговорим
+>>Новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795006.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_789540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rock'n'Roll 04:12
-02. A Brand New Start 05:13
-03. Run 04:35
-04. Will You Be There For Me 05:16(   Читать дальше...   )Жанр: Melodic Hard Rock, Male Female VocalПродолжительность: 00:54:23
+Организатором торгов выступает биржа CBOE – Чикагская биржа опционов, дочерняя организация Чикагской торговой палаты.АО "ФИНАМ" запустило новую услугу – проведение операций с криптовалютными фьючерсами. На сегодняшний день проводятся операции фьючерсами на биткоин. "ФИНАМ" стал первой российской брокерской компанией, предлагающей эту услугу клиентам.Востребованность (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62B9E08D32424E1597E77A17877896EAAEEDE1AA
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509307   (795007) от 12.11.2021
+###  Публикация: 1202745   (789541) от 30.01.2018
 
-VA - Deep House Relief, Vol. 1: Best of Chill & Deep Atmospheric House Music (2018) [AAC|~298 Kbps] <Chill House, Deep House>
+VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sean Hayman - Deep Believe (On da Way Mix) (5:36)
-02. Charlie North - Lost and Found (Original Mix) (5:20)
-03. Cinematic - Memories (Red Carpet Mix) (6:00)
-04. Phil Kinley - Summer Breeze (7 Miles Beach Cut) (7:52)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 01:36:18
+01. Wanya Bruch - September Meer (Original Mix)
+02. Voger - The Base Camp (Original Mix)
+03. Intoxic Joker - Mello Sunset (Original Mix)
+04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01D1650A7DBB4AB750EFAD6AE061BE8FF74C7E71
+magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202547   (789542) от 30.01.2018
+
+VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miguel Alcobia  -  Who Am I (Radio Edit)  3:31
+02.  Markii  -  100 (Radio Edit)  3:36
+03.  Dr. Beat  -  Much More Than That! (Radio Edit)  3:28
+04.  The Boogeyman  -  All Music To Me (Radio Edit)  2:50(   Читать дальше...   )Жанр: House, Progressive House, VocalПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210083E6A6C6F84DA51E2233239B3806A9622CE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202619   (789543) от 30.01.2018
+
+VA - Soundport Recordings. The Best Of 2016 (Mixed by Dr Riddle) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NX-Trance  -  Isn't It (Original Mix)  8:10
+02.  Cj Stereogun  -  The Story Of A Dolphin (Unix SL Remix)  7:20
+03.  Jedmar  -  Two Natures (Original Mix)  7:11
+04.  Max Ivanovsky  -  Igigi (Original Mix)  7:46(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169247   (789544) от 19.11.2021
+
+SeasonHit v2.4.0.6 Prеmium [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789544.jpg" />
+</div>
+
+
+###  Подробнее
+
+SeasonHit содержит огромную базу сериалов SD качества и различных переводов. Предусмотрена возможность добавления в избранное и отметки просмотренных серий. Все сделано для максимального удобства. Для просмотра можно использовать как встроенный в программу плеер, так и любой другой. Преимущества встроенного плеера: запоминает там где вы остановились, запоминает последний (   Читать дальше...   )Тип издания: Пиратка (удалена реклама)Релиз состоялся: 23.10.2021Разработчик: XakerDПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F872661F6BCAA0698163B0F846A2D3C99438C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184498   (789545) от 19.11.2021
+
+Europa Universalis IV / Europa Universalis 4 (2013) [Multi] (1.32/dlc) License CODEX
+
+>>След.
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Europa Universalis 4 - стратегия, разрабатываемая студией Paradox Interactive. В Europa Universalis игроки встают во главе одной из цивилизаций, которую они должны привести к мировому господству. Игра охватывает временные промежутки с 1492 по 1792 года, акцентируя внимание на Европе в эпоху открытий.Тип издания: LicenseРазработчик: Paradox Development StudioЖанр: Strategy (Real-time, Grand strategy), 3DЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EB9765044B9BFAFBDF7FC2B45B2C3E64434BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502526   (789546) от 19.11.2021
+
+Училки в законе 2 (2021) WEBRip [H.264/1080p] (сезон 2, серии 1-20 из 20)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя год после событий первого сезона химичка, русичка, математичка и англичанка вновь оказываются вовлечены в передряги. Однако за это время между подругами-училками пробежала кошка и они рассорились.
+Девушкам предстоит забыть об обидах и объединиться перед лицом новых врагов. Вот только лидер «банды» англичанка Катерина вынуждена в это время решать проблемы на (   Читать дальше...   )Производство: Россия / ПятницаЖанр: комедияРежиссер: Андрей Нужный, Андрей АгеевАктеры: Мария Шалаева, Антонина Комиссарова, Анна Гуляренко, Марина Дианова, Сергей Гурьев, Галина Сазонова, Алексей Ильин, Кирилл Каганович, Шамиль Мухамедов, Арсений ГусевПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F398D17D570F5E61D91BCAC13013EC9665274AE
 ```
 
 

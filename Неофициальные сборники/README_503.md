@@ -1,3 +1,30 @@
+###  Публикация: 1209161   (779416) от 25.02.2018
+
+VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka)
+
+01. Sharapov - Story (Original Mix) (4:49)
+02. Dropgun - Krishna (Original Mix) (3:12)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 23:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F6BB46BBADAEAA89507FC53D6BC8DAC966C034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209098   (779484) от 25.02.2018
 
 VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Rock, Heavy Metal>
@@ -668,33 +695,6 @@ VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207704   (780431) от 19.02.2018
-
-VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hess Is More - Yes Boss (Mr. Gun X Isabelle Remix)
-02. Bo & Serhat Durmus feat. Ecem Telli - Elimi Tut
-03. Nando Fortunato feat. Sephora - You're Not Alone (Radio Edit)
-04. Katodik & Maria Estrella - Million Miles (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
 ```
 
 

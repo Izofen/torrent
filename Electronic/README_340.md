@@ -1,3 +1,57 @@
+###  Публикация: 1291429   (670702) от 24.03.2019
+
+VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Cooper feat. Natasha Burnett - Eyes Shut (O.B.M Notion Remix) 6:56
+02. Milosh K feat. Paula P'cay & Victor Special - Your Choice (NyTiGen Remix) 6:40
+03. Ward Palmen & Adam Cooper - Flames (Adam Cooper WMC Miami Club Mix) 6:12
+04. Em Appelgren - Game Over (Adam Cooper Remix) 6:17(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Progressive House, DanceПродолжительность: 03:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC90689ED493DEE813EE2D78A0CD0D576DE2C4C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291360   (670704) от 24.03.2019
+
+Ercos Blanka - Classic Trick Remixes (2019) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 36h (Agatha Pher Remix) (9:12)
+ 02. Brigante (Nhar Remix) (6:00)
+ 03. Strade (Pablo Bolivar Remake) (7:03)
+ 04. Sun Street (Gadi Mitrani Remix) (8:22)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD33BD82ED4F33CCCE1F825C20CCF35E0C5EDF2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537036   (670744) от 14.03.2022
 
 The Future Sound Of London - Music For 3 Books (2021) Compilation [FLAC|Lossless|image + .cue] <Ambient, Experimental, Modern Classical>
@@ -639,60 +693,6 @@ VA - Best Of Chillout Vol.03 (2017) [MP3|320 Kbps] <Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A97D115A76DD5BFBA47DD562D73BE783A72319B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136569   (673234) от 23.05.2017
-
-Danger - July 2013 (2014) EP [MP3|320 Kbps] <Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1:09 (5:12)
-02. 1:13 (3:48)
-03. 1:30 (3:40)
-04. 1:42 (4:53)Жанр: Electronic, HouseПродолжительность: 00:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F8F34C3E16174E6E6D023FB90710C4E9B91F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136485   (673236) от 23.05.2017
-
-VA - Ibiza Opening 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Butler – Avit (Kamil Crush Remix) 06:26
-02. Aaren San – Garuda (Original Mix) 06:50
-03. Elan Myles – Wonderland (Original Mix) 07:11
-04. Javi Garcia – Hot Night In The Beach (Tony Flex Remix) 07:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FE8F8D56CAC79FC4A66B205AAD4890280A9EE4
 ```
 
 

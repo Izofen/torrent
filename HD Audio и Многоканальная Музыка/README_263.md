@@ -534,3 +534,160 @@ magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847124   (1051979) от 
+
+For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051979.jpg" />
+</div>
+
+
+###  Подробнее
+
+For My Pain… — финская готик-метал супергруппа из города Оулу. В состав группы входят участники из различных финских групп, в частности Eternal Tears of Sorrow и Nightwish2009 - Fallen
+2026 - Buried BlueЖанр: Gothic Metal/RockПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847467   (1052234) от 
+
+Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Velozza - трэш-метал группа из Рурмонда, Нидерланды, основана в 2016 году.2017 - Excluded Human Being (EP)
+2021 - Apocaholic
+2023 - Bankrupt the Republic (EP)
+2026 - HumanityЖанр: Thrash MetalПродолжительность: 01:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847451   (1052244) от 
+
+Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Destroy Them - немецкая трэш-метал группа из Эссена; образована в 2016 году.2018 - Use Hate (EP)
+2026 - Threshold Of ApocalypseЖанр: Thrash MetalПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847782   (1052312) от 
+
+Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vermocracy - австрийская дэт-метал группа из Вены, основана в 2017 году.2020 - Vermocracy
+2022 - Age of Dysphoria
+2026 - Of Failing and FadingЖанр: Melodic Death MetalПродолжительность: 01:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847962   (1052388) от 
+
+Dust In Mind - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial, Melodic Death Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dust In Mind - французская рок-группа из Страсбурга, основана в 2013 году2013 - Dust in Mind (EP)
+2015 - Never Look Back
+2017 - Oblivion
+2018 - From Ashes to FlamesЖанр: Industrial, Melodic Death Metal, Nu MetalПродолжительность: 03:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848192   (1052524) от 
+
+Frank Sinatra - Sunday And Every Day With Frank Sinatra (1969) Music For Pleasure Series [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052524.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunday
+A2 I'll Never BeThe Same
+A3 Tell Her You Love Her
+A4 Close To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

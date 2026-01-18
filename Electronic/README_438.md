@@ -1,3 +1,57 @@
+###  Публикация: 1380323   (835060) от 02.05.2020
+
+CJ Burnett - Heartracer (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velocity (4:15)
+02. Streets of Desire (3:38)
+03. Rendezvous (5:26)
+04. Stargaze (4:07)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Outrun, DreamwaveПродолжительность: 00:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D480242D2332605C4DF578996C400B19C86E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380343   (835065) от 02.05.2020
+
+daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835065.jpg" />
+</div>
+
+
+###  Подробнее
+
+daveepa - Festival Anthem Music Mix 2020 2020-04-10 (00:00:00-00:52:44)
+N/A
+
+Fuerte - Festival Anthem Music Mix 2020 2020-04-10 (00:52:44-02:08:43):(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 03:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCB818D53ED3005F33552CD7AFE6BD7DC5DD3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501614   (835126) от 10.10.2021
 
 NTO - Apnea (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
@@ -639,61 +693,6 @@ VA - Spacedance, Vol. 1-3 (2021) [MP3|320 Kbps] <Spacedance, Synthwave, Retrowav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D63DABC8EF1F718B9698511A624F8717EC2547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501031   (838124) от 08.10.2021
-
-Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microsha 89 - Intro
-02. Microsha 89 - ID
-03. Microsha 89 - Play!
-04. Microsha 89 - 2021(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5147B596C441F8414FCFB182F3F6ADC067504746
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004553   (838177) от 06.04.2016
-
-Munich Syndrome - 4 Albums (2006-2012) [MP3|320 кб/с] <Electronic, Synth-pop, Electro>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Munich Syndrome - электронная поп-группа, основанная David B. Roundsley. Истоки и корни уходят к электронной новой волне конца 70-х и начале 80-х годов. Под большим влиянием: электро, новой волны, дэнса, техно, индустриал и синти-попа, были созданы эти альбомы.
-Аналоговые синтезаторы, драм-машины, секвенсоры, сэмплеры и вокодеры составляют основной звуковой арсенал.Список альбомов:
-2006. Sensual Ambience
-2008. Electro Pop
-2010. Electronic Ecstasy(   Читать дальше...   )Жанр: Electronic, Synth-pop, ElectroПродолжительность: 04:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A835850B1D8959F3697B33EBDF8F67921D101CF
 ```
 
 

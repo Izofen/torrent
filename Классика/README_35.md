@@ -1,3 +1,57 @@
+###  Публикация: 1523017   (755158) от 09.01.2022
+
+Chopin, Beatrice Rana - Etudes Op.25 - 4 Scherzi (2021) [FLAC|Lossless|image + .cue] <Romantic>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755158.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1]-[12] 12 Études, Op.25
+[13] Scherzo No.1 in B minor, Op.20
+[14] Scherzo No.2 in B flat minor, Op.31
+[15] Scherzo No.3 in C sharp minor, Op.39(   Читать дальше...   )Жанр: RomanticПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76869695577F0E0CD97C1B79CAC9C05780CE160E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017510   (757086) от 19.05.2016
+
+Чайковский / Tchaikovsky - Violin Concerto (Heifetz, Reiner, Chicago Symphony) (1957/2014) [DST64 5.0, DSD 2.0|64(2,8 MHz/1 Bit|ISO|SASD-R] <Orchestra, Violin, Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto For Violin In D Major
+01-Allegro Moderato: Cadenza
+02-Canzonetta: Andante
+03-Finale: Allegro VivacissimoЖанр: Orchestra, Violin, ClassicalФормат: DST64 (mch), DSD (stereo)Продолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1EF33BA767027297787F12E661453A1480E5D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018013   (757367) от 19.05.2016
 
 Camille Saint-Saens - Samson et Dalila (1990) [APE|Lossless|image + .cue] <Opera>
@@ -634,59 +688,6 @@ VA - 100 Violin Masterworks (2018) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7164DEA7AD82CF48C537C3B186DB3FE18A78F3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210354   (778671) от 03.03.2018
-
-Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, New Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almach 5:00
-02. Selene (with I Muvrini) 6:22
-03. Alhena 3:33
-04. Nodus 4:10(   Читать дальше...   )Жанр: Classical Crossover, New AgeПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208125   (779749) от 23.02.2018
-
-Paul Van Nevel & Huelgas Ensemble - Дискография (1990-2017) 53 альбома [APE\FLAC|Lossless|image+.cue] <A Cappella, Choral, Sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Huelgas Ensemble — основал Поль Ван Невель в 1970 г. в Высшей школе старинной музыки в Базеле (Schola Cantorum Basiliensis, Basel).
-Название ансамбля взято по названию цистерцианского монастыря 12-го века близ Бургоса (Испания).
-Mузыкальный коллектив концентрируется на аутентичном исполнении музыки эпох Средневековья и Возрождения, представляя неожиданные проекты (   Читать дальше...   )Жанр: A Cappella, Choral, SacredПродолжительность: 60:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA83CA9366DE1B06BF86848B136040592D0E92D
 ```
 
 

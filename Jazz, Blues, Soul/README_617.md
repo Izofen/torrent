@@ -1,3 +1,246 @@
+###  Публикация: 1611081   (1041650) от 10.02.2023
+
+VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Ladies in Love:
+01. June Christy - Make Love to Me (4:01)
+02. Sarah Vaughan - Corner to Corner (2:59)
+03. Mildred Bailey - Tears in My Heart (3:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611149   (1041674) от 10.02.2023
+
+The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Random Acts Of Science  07:54
+02. Stone Cold Infusion  07:32
+03. Molecular Breakdown  07:20
+04. Particle Accelerations  07:39(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA61B35389FED9C595AA283917A544EDB224096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611086   (1041680) от 10.02.2023
+
+Art Blakey & The Jazz Messengers - Buhaina's Delight (1961) 2004, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backstage Sally [5:58]
+02. Contemplation [6:16]
+03. Bu's Delight [9:22]
+04. Reincarnation Blues [6:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFF109A7A9232BF91BDD8260A5D78D74160A8D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437823   (1041689) от 06.01.2021
+
+Bad Mileage - A Bridge Too Far (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checking up on my baby (04:44)
+ 02. Got my eyes on you (03:46)
+ 03. Cry for me (04:38)
+ 04. Got home last night (04:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2395BEEFC79CF80F95854168E8B50D2BB8AD7C16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437938   (1041693) от 06.01.2021
+
+Mick Clarke - Relentless Boogie Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Settle on It (4:32)
+02. Break It Down (4:34)
+03. Little by Little (5:25)
+04. Rollin' on (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7098CA41886775B775C4784CCD6CD32AABB2D124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437934   (1041700) от 06.01.2021
+
+Andy Seagrave - The Jungle (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle Intro (1:31)
+02. The Jungle (4:06)
+03. Bad Bad Man (4:46)
+04. My Name is Human (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD83B58793D87C0122A1EEC502669355EA63F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437282   (1041723) от 06.01.2021
+
+Peggy Lee - Sings The Great American Songbook (1949 - 1962) 2CD, 2019, Not Now Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041723.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Fever [3:16]
+02. I Can't Give You Anything But Love [2:34]
+03. I've Got You Under My Skin [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB95E996BDED8DD08C10F102989751A6B6E0503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437842   (1041751) от 06.01.2021
+
+Luigi Martinale Trio feat. Reuben Rogers - Strange Days (2013) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Days (Martinale) - 5:38
+02. Bewhitched, Bothered and Bewildered (Rodgers) - 8:37
+03. The Electric Blue Flight Case (Martinale) - 5:27
+04. Christmas Eve (Martinale) - 6:10(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD29A1CEBC8A46057F8B2367F173AE57442FC84A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437798   (1041754) от 06.01.2021
+
+Woody Herman - The Complete Decca, Mars and MGM Sessions (1943 - 1954) 7CD, 2019, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041754.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Music Stopped [3:03]
+02. Do Nothin' Till You Hear from Me [3:21]
+03. I Couldn't Sleep a Wink Last Night [2:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599597B49BAEA40B7EB8E18A761A56074D73F761
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437788   (1041755) от 06.01.2021
 
 Prism - Live Alive (Absolutely) (1982) 1991, Warner Bros. Records [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Fusion>
@@ -452,249 +695,6 @@ CD1 - The Big Band Canari:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E765B8456C8E06EF2256E6C68536AA9A76A55B09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437011   (1042506) от 03.01.2021
-
-David Clayton-Thomas - Say Somethin' (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Jazzy>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burwash
-02. The System
-03. Dear Mr. Obama
-04. King Midas(   Читать дальше...   )Жанр: Blues, Rock, JazzyПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1670AEE78E0C4949506C89C0E059CA13E0658F65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437050   (1042517) от 03.01.2021
-
-Enrico Pieranunzi - Live In Paris (2001) 2CD, 2005, Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042517.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction [0:35]
-02. Ouverthree [9:07]
-03. Body and Soul [7:43](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68AE8B130EEF0F4EFF52ACB936455DEBF4A82B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609983   (1042600) от 06.02.2023
-
-Lex Grey and The Urban Pioneers - How Many Roads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In It Together (5:02)
-02. How Many Roads? (3:50)
-03. Ain't from Mississippi (3:58)
-04. Old Crookedy Broom (4:27)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E44B8FF1BA4FC21D6C417A8651AFE024B4467D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609982   (1042608) от 06.02.2023
-
-Graywolf Blues Band - Best of Graywolf Blues Band (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Line (feat. Ellen Todleben) (3:29)
-02. Dancing in the Rain (feat. Angel Moore) (4:24)
-03. Stormy Monday (feat. Ellen Todleben & Angel Moore) (4:31)
-04. Women Across the River (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FB170558464970790E1204C89AA2CAE36E4694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609967   (1042611) от 06.02.2023
-
-Brother Kerry & the Hoptones - Into the Pocket (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them Changes (3:56)
-02. Going Down (4:07)
-03. 32-20 Blues (4:53)
-04. Dimples (feat. James Montgomery) (2:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:4029
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1B3083A0CAAA7384D4B121802E7CF9E792BFBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609974   (1042616) от 06.02.2023
-
-Doggy Blue - First Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Your Fool (2:50)
-02. Call Me the Breeze (3:06)
-03. I´M a King Bee (2:43)
-04. Cat in the Heat (4:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9030B128B69898A9CDBF0C12DE0F21941845C0A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609978   (1042618) от 06.02.2023
-
-GeminiiDragon - Equinox - Equinox (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Switchblade (3:30)
-02. Time (3:07)
-03. The Fighter (3:29)
-04. Ballad of Willie Mae & George (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6568E535F8DA2B357685EA1FD5264BE678341D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436840   (1042720) от 02.01.2021
-
-Brandon Miller - Virtue And Vice (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone (4:53)
-02. Fire (5:21)
-03. Virtue And Vice (5:31)
-04. Dirt To Stone (7:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC056BE305E52ADF217AA4DDBF2D5ED29BC3D383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436846   (1042754) от 02.01.2021
-
-Geoff Carne & The Raw Rox Band - Big Town (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready? (2:31)
-02. Hold On (3:04)
-03. She's On Fire (3:59)
-04. Big Town (3:01)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B928AFD6C29B15E5A923A44A1B70A39364B7CBEB
 ```
 
 

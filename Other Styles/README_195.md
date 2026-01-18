@@ -1,3 +1,30 @@
+###  Публикация: 332726   (1030361) от 19.02.2021
+
+Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1998 - Shadows in Latin
+01. Dance on 			  	(02:57)
+02. Atlantis 			  	(02:57)
+03. Foot Tapper 		  	(02:35)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF62CDB926F75D8BD70D111631983EE78741EA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327066   (1030362) от 19.02.2021
 
 Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumental, Pan Flute>
@@ -666,33 +693,6 @@ VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446749   (1032507) от 10.02.2021
-
-Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юлия Монастыренко - профессиональная пианистка и талантливый композитор из России. Автор и продюсер инструментальной музыки.01. Meetings and Partings (4:22)
-02. Gothic Venus (5:12)
-03. Christmas Lullaby (3:46)
-04. Dive in September (4:01)(   Читать дальше...   )Жанр: New Age, Piano, InstrumentalПродолжительность: 00:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
 ```
 
 

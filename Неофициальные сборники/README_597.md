@@ -1,3 +1,30 @@
+###  Публикация: 1100287   (900643) от 03.02.2017
+
+VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900643.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A R I Z O N A - Oceans Away (Sam Feldt Remix)
+002. Adrian Lux - All Aloud
+003. Afrojack feat. Jay Karama - Diamonds
+004. Aidenn & AR5 feat. Max Landry - Far Away (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, House, Electro House, TranceПродолжительность: 05:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:189FFD6E70112A5F94A2CEDF249C02B76A9F015D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992568   (900701) от 02.03.2016
 
 VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
@@ -671,33 +698,6 @@ VA - Mystic Adventures (2020) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B8229CBD2C078DFB3E6A4E6E2E49E2A29A6A7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099962   (901857) от 03.02.2017
-
-VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillout, Lo-Fi>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. St Project - Smooth Operator (feat. Ely Bruna) 3:58
-2. Dolce Vita - And I Love Her 3:13
-3. Martini - One Call Away 3:15
-4. Hollywood Blvd - All Of Me 4:36(   Читать дальше...   )Жанр: Lounge, Jazz, Chillout, Lo-FiПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF769499EE002BF40CADF0A6FE8BCE94B342BEE
 ```
 
 

@@ -1,3 +1,122 @@
+###  Публикация: 1043969   (568933) от 18.08.2016
+
+Naomi & Goro - Bossa Nova Songbook 1 & 2 (2008,2009) [FLAC|Lossless|image + .cue] <Bossa Nova, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568933.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - Bossa Nova Songbook 1:
+01. Aguas De Marco
+02. So Tinha De Ser Com Voce
+03. Samba De Uma Nota So (One Note Samba)Жанр: Bossa Nova, Vocal JazzПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED0EE6095BB9556810839C06BBF3EBF480C8DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528154   (568954) от 30.07.2012
+
+VA - Something Swingin' (2002) [FLAC|Lossless]<Blues, Funk/Soul, Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nancy Sinatra & Lee Hazelwood - Summer Wine [03:42]
+02. Shirley Basses - Goldfinger [02:50]
+03. Dione Warwick - Walk On By [02:57]
+04. Ella Fitzgerald - Night And Day [03:05]
+05. Julie London - Fly Me To The Moon [02:33]
+06. Dinah Washington - What A Difference A Day Makes [02:30]
+07. Paul Mauriat An His Orchestra - Love Is Blue [02:36]
+08. Tona Bennet - The Good Life [02:17]
+09. Nat King Cole - Let There Be Love [02:46]
+10. Lou Rawls - Summertime [03:32](   Читать дальше...   )Жанр: Blues, Funk/Soul, Jazz, PopФормат: 2CDПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527719   (568987) от 30.07.2012
+
+Boston Horns - East Coast Funk (2003) [FLAC|Lossless]<Funk, Soul, Nu-Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Charles
+02. Soundcheck Jam
+03. kdoggd7
+04. Jackie's Song
+05. Speedball
+06. Ain't Nothin' 2it
+07. Crosstown Traffic
+08. Buttered Popcorn
+09. SkilletЖанр: Funk, Soul, Nu-JazzПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152141   (569019) от 21.07.2017
+
+Philly Joe Jones - Six Classic Albums (1956 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569019.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Blues For Dracula & Drums Around The World:
+01. Blues For Dracula [08:19]
+02. Trick Street [03:54]
+03. Fiesta [10:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6EB4F6014830D8940CBEF756FB4070C7BC8604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555465   (569069) от 04.06.2022
 
 Phil Ranelin - Collected Works (2003 - 2019) 2CD, 2019, Wide Hive Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -611,114 +730,6 @@ Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A612A1337AB5337B46583D22D96A45C3970F802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151762   (570751) от 20.07.2017
-
-Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [04:21]
-02. How About You? [05:21]
-03. Darn That Dream [05:00]
-04. Anthropology [04:04](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE86B081B30CD93F8E101654355EA5B3924CAEF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303644   (570829) от 22.05.2019
-
-Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570829.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dancin' on My Own (03:35)
-2. Someday My Prince Will Come (03:30)
-3. Cara Valente (04:13)
-4. Like That (04:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67256B931BECBC9ECDE1974D1106962D6FAC4342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151760   (570832) от 20.07.2017
-
-The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Is There To Say [04:08]
-02. Just In Time [04:15]
-03. News From Blueport [05:08]
-04. Festive Minor [06:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B152453A894C4641B1C251F13025185030D6DAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151773   (570834) от 20.07.2017
-
-Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promises [03:35]
-02. Parting Is Such [07:26]
-03. I've Got Rhythm [03:35]
-04. A Thing of Beauty [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE6D08F25A87CD1649E2644A3CB403F40EF4B98
 ```
 
 

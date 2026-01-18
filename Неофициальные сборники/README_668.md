@@ -1,3 +1,30 @@
+###  Публикация: 1461220   (1021882) от 09.04.2021
+
+VA - Slow Blues Songs (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mamas & The Papas - Dream A Little Dream Of Me (Album Version With Introduction)
+02. Magic Slim / Nick Holt / The Teardrops - How Unlucky Can One Man Be
+03. ZZ Top - Blue Jean Blues
+04. Gary Moore - Story Of The Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 10:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6D88B7EEE34585D80759D38080767BDDF84571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461094   (1021911) от 09.04.2021
 
 Gary Eisenbraun - Kings Of Modern Rock (2003-2020) (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -668,33 +695,6 @@ Alamесоs Dе La Siеrra - Las Pacas (2021) [MP3|320 Kbps] <Latin, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7A4FE2AED1B8465E986093BC244DC41EA3F7F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460148   (1022707) от 04.04.2021
-
-VA - Tik Tok Треки выстрелили весной 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. creamy, Solace - Can't Take My Eyes Off You (3:14)
-002. Beach Bunny - Cloud 9 (2:27)
-003. nowifi, LissA - High (3:02)
-004. Henri Purnell, Gia Koka, Karma Child - In My Feelings (3:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA4E1E8D9D7ABC68D1963B1BF6ACA84FA2BBC3D2
 ```
 
 

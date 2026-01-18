@@ -1,3 +1,30 @@
+###  Публикация: 1051585   (532797) от 11.09.2016
+
+VA - 100 Workout Energy Hits Stars (2016) [MP3|209~320 Kbps] <House, Future House, Bigroom, Reggaeton, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532797.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. STAS  -  You (DJ Mix)  3:48
+002. Quintino  -  Get Low (Extended Mix)  3:40
+003. Kyle Kennedy Ft Tenzinette  -  Black Hole (Radio Edit)  2:43
+004. The Him feat. Son Mieux  -  Feels Like Home (Club Edit)  3:48(   Читать дальше...   )Жанр: House, Future House, Bigroom, Reggaeton, Progressive, ClubПродолжительность: 08:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96B3040DA68C10073CD5B813F2E27F1E7B9C11F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051452   (532921) от 11.09.2016
 
 VA - 100 Drum & Bass Workout Music (2014) [MP3|320 Kbps] <Drum & Bass, Electronic>
@@ -680,33 +707,6 @@ VA - Звездный Хит - Парад. Русский Выпуск (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155145   (534732) от 02.08.2017
-
-VA - DEEP'КАЧ 90-х Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)  5:30
-002.  Ennio Morricone - Chi Mai (Micheletto Remix) (Deep Immersion)  6:26
-003.  Lika Morgan - Hit Me (Original Mix)  6:08
-004.  Sash! - Ecuador (DJ Sharapoff & Dmitriy RS Remix Radio Mix)  3:31(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B48BFB880DEC05B6A4C2DC242E20545CE08FA6C
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1095802   (920947) от 23.01.2017
+
+Z O L B E R T - Inside Out (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Cool
+02. Step by Step
+03. Trust
+04. Say Something(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAA4DE66ABECABFCE0FC7BCDECF10DD9810B8C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095874   (920949) от 23.01.2017
+
+The George Lewis Band Of New Orleans - Jazz At Preservation Hall IV (1962) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Salutation March [03:01]
+ 02.Salty Dog [02:52]
+ 03.Winin' Boy Blues [02:50]
+ 04.Pork Chops [03:24](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B041CCCC287D347CA73B862FA2C17EAEFB6BFACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096141   (920951) от 23.01.2017
+
+Aaron Keylock - Cut Against The Grain (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  All The Right Moves  (03:32) 
+02|  Down  (04:33) 
+03|  Medicine Man  (03:09) 
+04|  Falling Again  (03:25) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE31BB229101093788AFAC29BBAA3BFF79AA71E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095876   (920983) от 23.01.2017
+
+The Modern Jazz Quartet - Together Again: Echoes (1984) 2005, Pablo Records[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Slavic Smile [08:05]
+ 02.Echoes [07:10]
+ 03.The Watergate Blues [06:09]
+ 04.The Hornpipe [08:20](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9D30F308C006BD37B5209B723327992D2D5C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096220   (920984) от 23.01.2017
+
+VA - Louis Armstrong & Friends: What A Wonderful Christmas (1997) Hip-O Records[FLAC|Lossless|image + .cue] <Vocal Jazz, Christmas Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong With Benny Carter's Orchestra - Christmas In New Orleans [2:54]
+02. Louis Armstrong With Gordon Jenkins & His Orchestra - White Christmas [2:39]
+03. Dinah Washington - Silent Night [2:22]
+04. Mel Torme - The Christmas Song [3:06](   Читать дальше...   )Жанр: Vocal Jazz, Christmas JazzПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538C42350EB81067996B170D8044B9242FE39E0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096327   (920988) от 23.01.2017
+
+Roberto Fonseca - Abuc (2016) Impulse![FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cubano Chant [04:28]
+ 02.Afro Mambo [03:46]
+ 03.Tumbao de la Unidad [03:53]
+ 04.Contradanza del Espiritu [05:41](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA98EC467A8C84EFE858B9F9C90A627B1DBADDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096265   (920989) от 23.01.2017
+
+Phantom Blues Band - Inside Out (2011) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920989.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Can't Stand It (2:49)
+2. Good Time For the Blues (3:16)
+3. Boogah Man (3:27)
+4. So Far From Heaven (6:00)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F50D4A9ED0F739815C6F0B6CE3D9B281797EA557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095795   (920994) от 23.01.2017
+
+Demetria Taylor - Bad Girl (2011) [MP3|320 Kbps] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm A Woman / Hoochie Coochie Woman (05:51)
+02. All Your Love (07:50)
+03. Voodoo Woman (05:11)
+04. Bad Girl (04:12)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD9FCC05555510FAB99486B98375EA25139AB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096102   (920998) от 23.01.2017
+
+The Lachy Doley Group - Lovelight (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 We're Free (04:20)
+02 Love Come Around (04:02)
+03 Lovelight (03:46)
+04 Ain't No Love In The Heart Of The City (04:51)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E865247C4CCBC5831925F9CBB272E7AF88A24202
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096110   (921035) от 23.01.2017
 
 Karen Lovely - Live in Los Angeles (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Female Blues>
@@ -449,252 +692,6 @@ Sena Ehrhardt - All In (2013) [FLAC|Lossless]<Blues-Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366635   (921881) от 12.03.2020
-
-Al Di Meola - Across The Universe (2020) [FLAC|24/96|Lossless|WEB-DL|tracks] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Sun
-02. Golden Slumber's Medley
-03. Dear Prudence
-04. Norwegian Wood(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: Кодек: FLAC|24/96
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA80A1FF52FBFF672C41A7527E1D3983E40E79C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366660   (922367) от 12.03.2020
-
-Benny Carter & Dizzy Gillespie - Sweet And Lovely 1976 (2000) ADA Sound Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [10:44]
-02. Broadway [7:52]
-03. The Courtship [6:35]
-04. Constantinople [9:01](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08941104E85C1EC9EAFDB2EF0C288912E4CA814F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288517   (922419) от 29.01.2011
-
-Dave Brubeck - Legacy Of A Legend 2CD (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922419.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Jeepers Creepers (4:58)
-02. Taking A Chance On Love (4:15)
-03. The Duke (2:55)
-04. Someday My Prince Will Come (8:19)
-05. Ode To A Cowboy (5:03)
-06. Thank You (Dziekuje) (3:34)
-07. Camptown Races (2:09)
-08. Gone With The Wind (6:24)
-09. Blue Rondo A La Turk (6:46)(   Читать дальше...)Жанр: JazzПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288126   (922466) от 29.01.2011
-
-VA - Jazz Break (The Best Of Contemporary Smooth Jazz) (2007) [FLAC|Lossless]<Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Smooth JazzПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988308   (922758) от 19.02.2016
-
-VA - Мастера Джаза (2000) S&V #07/2000 [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wes Montgomery - California Dreaming (3:09)
-02. Ella Fitzgerald - Mack The Knife (5:09)
-03. Toots Thielemans - Bluesette (4:47)
-04. Gerry Mooligan - Makin' Woopee (4:06)(   Читать дальше...   )Жанр: Bop, Soul-Jazz, Latin Jazz, Contemporary Jazz, Cool JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5C153C4BD3AE2E8D08A47B1F73158AD54A534C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988106   (922782) от 19.02.2016
-
-Boyz II Men - Collide (2014) Target Deluxe Edition [MP3|320 кб/с] <Soul, Rhythm & Blues, Ballad>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Myself And I
-02. What Happens In Vegas
-03. Diamond Eyes
-04. Better Half(   Читать дальше...   )Жанр: Soul, Rhythm & Blues, BalladПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D457745965E66E0AF819B2917AC7258A91891704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096003   (922814) от 22.01.2017
-
-Mark Cook - Stop The Madness!! (2007) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  The Loaded Goat  (03:27) 
-02|  Your Bad Reputation  (03:13) 
-03|  Without Cause  (03:15) 
-04|  Nylon Prelude to Not Forgotten  (01:07) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B648E47926C9E3B8B5FAE3DF9005D802A70CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095935   (922821) от 22.01.2017
-
-8 Ball Aitken - 8 Ball Aitken (2016) [MP3|320 Kbps] <Blues Rock, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Going To Mexico, I'm Going To Jail (03:18)
-02. Seven Bucks An Hour In A Chicken Suit (04:03)
-03. Shut The Front Door (02:39)
-04. Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CF1F05D7CA68B545675912CBFB38322AEF43C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095941   (922868) от 22.01.2017
-
-Scott Wilkie - Home Again The Solo Piano Sessions (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One [5:15]
-02. Home Again [5:05]
-03. Pier 39 [5:08]
-04. Claire's Lullaby [3:29](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03EC4C10B6904D11319F2B58867BB3B08160589
 ```
 
 

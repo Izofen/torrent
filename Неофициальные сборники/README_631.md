@@ -1,3 +1,30 @@
+###  Публикация: 1088880   (953705) от 02.01.2017
+
+VA - Зимние мега хиты. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953705.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jessie J - Can't Take My Eyes Off You 2:51
+002. Jones & Brock Feat. Anica - Join Me 3:10
+003. Mowe Feat. Junge - My Direction 3:37
+004. Kat Deluna - Make Me Sweat 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A511C556F283F8199A9C3E597FBB0C861C63639A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088908   (953739) от 02.01.2017
 
 VA - On The Wave Of My Memory: Hit 70-80s (2016) [MP3|320 Kbps] <Pop Rock, Electronic>
@@ -671,33 +698,6 @@ VA - Absolute Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43B38B485FE84A2F694D41FA8C2AE97F510A161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361552   (954194) от 20.02.2020
-
-VA - Caola: Rythm And Blues Mix (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954194.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doc 9 - Dirty Bird
-002. Rotimi - All Night
-003. Elujay - Tings Come N Go
-004. Rahwa - Midnight(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 05:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47DD745234014D3BF6D97265C9DEA6A5D8D40F9
 ```
 
 

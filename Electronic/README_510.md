@@ -1,3 +1,57 @@
+###  Публикация: 1459553   (1023165) от 02.04.2021
+
+Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landscape (08:22)
+ 02. Landscape (R.Hz Remix) (09:05)
+ 03. Landscape (Andrey P. Remix) (08:16)
+ 04. Landscape (Kirill Torno Remix) (08:57)(   Читать дальше...   )Жанр: Techno, Dub Techno, Minimal, AmbientПродолжительность: 01:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F039BFCCC45FE217FFB4564A88E89D15E5D9DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459368   (1023326) от 01.04.2021
+
+VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Electro, Acid, Techno, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auberg1ne – Terk (04:00)
+02. Humanoid – Oeeeoou (07:59)
+03. CRC – EP6 (05:42)
+04. Karsten Pflum – School (04:15)(   Читать дальше...   )Жанр: IDM, Downtempo, Electro, Acid, Techno, AmbientПродолжительность: 03:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A541FDB755B03A0F4E74980E7C5E2506F1E3A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459006   (1023495) от 31.03.2021
 
 VA - Cafe Del Amor: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -631,60 +685,6 @@ John Lemke - Discography 6 Releases (2012-2018) Denovali Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CE8F7604EB203C820D2ECB56BC4EAB675EA1D67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457187   (1024604) от 25.03.2021
-
-VA - A Call Too Close (2021) Brokntoys [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro, Experimental>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jauzas The Shining – Cerebral (05:52)
-02. Dez Williams – Lunchunmeet (04:08)
-03. XY0815 – Messverfahren (04:53)
-04. Rugon – 0327 (06:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C51E22013B5E75318B7556EFF1A86839E957C34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457103   (1024612) от 25.03.2021
-
-VA - A Call Too Close (2021) Brokntoys [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jauzas The Shining – Cerebral (05:52)
-02. Dez Williams – Lunchunmeet (04:08)
-03. XY0815 – Messverfahren (04:53)
-04. Rugon – 0327 (06:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED56B2CD5DBD84D7D90A4B2686EE0E80B322F5A3
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 541930   (500606) от 01.09.2012
+
+VA - Радио Record представляет. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500606.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ika - Дорогой Мой
+ 002. Женя Тополь - Угадай
+ 003. Jandro - С Тобой
+ 004. Vlada Crystal - Бешеное Лето
+ 005. Ёлка - Около Тебя
+ 006. Reflex - Я Буду Небом Твоим
+ 007. Пропаганда & Mc Джимми - Хабиби
+ 008. Виктор Рыбин И Наталья Сенчукова - Для Тебя
+ 009. Fedora - До Утра
+ 010. Серебро - Мама Люба(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAEADF2372EE638C68309B7E2710BA1BA9B20B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540379   (500609) от 01.09.2012
 
 2expensive - Bittersweet Dreams (vol. 1) (2012) [MP3|320 кб/с]<Drum & Bass, Chillout>
@@ -760,33 +793,6 @@ VA - For All Lovers vol. 4 (2014) [MP3|320 кб/с]<Pop, Electronic, Pop-Rock, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E524DF2B205F6CBDF1BB7D9BF1DBDD919D198C43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934488   (502523) от 05.09.2015
-
-VA - Resident Advisor Top 50 Charted Tracks August 2015 (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damian Lazarus & The Ancient Moons - Vermillion (&Me Remix) 07:48
-02. &ME - Woods (Original Mix) 07:58
-03. Wallflower - Manifest (Rampa Remix) 08:58
-04. Peter Makto, Gregory S - HomeBase (Original Mix) 07:24(   Читать дальше...   )Жанр: Techno, Minimal, Electronica, Tech House, Deep HouseПродолжительность: 06:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E2D3C48270D7ADC7BCEA6084E662A9713C7724
 ```
 
 

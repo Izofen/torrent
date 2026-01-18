@@ -1,3 +1,30 @@
+###  Публикация: 1027666   (694708) от 20.06.2016
+
+Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday Slow Rotations [00:04:10]
+02. Monday Midwinter [00:04:19]
+03. Tuesday The Compass [00:06:46]
+04. Wednesday In Stillness [00:05:19](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 211771   (694820) от 20.06.2010
 
 Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
@@ -680,33 +707,6 @@ Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Medit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E92AA3597C7B0956E89D4A4893789769B3282C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026819   (700205) от 17.06.2016
-
-Yanni - Dare to Dream (1992) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time    03:54
-02. A Love for Life    05:10
-03. Nice to Meet You    05:38
-04. So Long My Friend    03:50(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9E62AD7D8CE3DEF50B7CB06B38F56CCFA548BF
 ```
 
 

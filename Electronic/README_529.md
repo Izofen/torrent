@@ -1,3 +1,57 @@
+###  Публикация: 1614785   (1038274) от 23.02.2023
+
+Yello - Yell40 Years — Non-Album Songs & Remixes (2022) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Synth-pop, Progressive House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038274.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. XS (First Ever Version) 5:22
+02. L.T. Splash 2:47
+03 There Is No Reason 3:57(   Читать дальше...   )Жанр: Synth-pop, Progressive HouseПродолжительность: 02:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04C370DDC0B458743869BC3FBA03DE581F54B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440870   (1038277) от 19.01.2021
+
+VA - Inspectrum Recordings Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nakhiya - Nathea (Original Mix)
+02. Muhamed Sherief - Night Watcher (Original Mix)
+03. Henry Caster - Summer Stay (Original Mix)
+04. Klassy Project - Serenity (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4333618CBC9081D0F40D20BF82820DE5AFEFEF73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440872   (1038282) от 19.01.2021
 
 VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP3|320 Kbps] <Trance>
@@ -640,60 +694,6 @@ Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:564F7D4EC9A28B158D5640FC4C3E4D19DBFE630A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613367   (1039577) от 18.02.2023
-
-Orbital - Optical Delusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Techno, Breakbeat, Trance>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ringa Ringa (The Old Pandemic Folk Song) (feat. Mediæval Bæbes) (04:14)
-2. Day One (feat. Dina Rizvić) (05:16)
-3. Are You Alive? (feat. Penelope Isles) (07:37)
-4. You Are The Frequency (feat. The Little Pest) (04:37)(   Читать дальше...   )Жанр: Techno, Breakbeat, TranceПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C183844D08B88172343019C31ED45DEBB04E9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439696   (1039609) от 14.01.2021
-
-Shingo Nakamura - Silk Music Pres. Shingo Nakamura 03 (2019) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura & Kazusa - Move On (Original Mix) (8:43)
-02. Shingo Nakamura & Stendahl - Tribute (Original Mix) (7:37)
-03. Shingo Nakamura & RNX - Oregon (Shingo Nakamura Mix) (6:26)
-04. Shingo Nakamura - Thousands Of Sounds (Original Mix) (8:39)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA5DB01AA2D15274253C31B5D872F0BD45B337
 ```
 
 

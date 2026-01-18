@@ -1,3 +1,298 @@
+###  Публикация: 1037485   (612223) от 25.07.2016
+
+Periphery - Periphery (2010) Reissue 2012, 2CD [FLAC|Lossless|tracks+.cue]<Progressive Metal, Djent, Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612223.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Original Album
+CD2 - InstrumentalЖанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B88A092C143F177F09174997594BB4B20755AF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911781   (612357) от 25.06.2015
+
+Юта - Лучшие песни (2009) [MP3|320 кб/с]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хмель и солод
+02. Одинокое шоссе
+03. Имя
+04. Сигнал(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFFC2A32D98F75135C4DE48A587C7BB65A7ACDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911819   (612390) от 25.06.2015
+
+Дай Дарогу! - Дай Дарогу! (2015) [MP3|320 кб/с]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612390.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом альбоме Дай Дарогу! катком прошлись по многим актуальным темам... "Съемная хата", "Мальдивы", "Общество калек", "Предсмертный хит". Как обычно в альбоме много чисто дайдорожного стеба и юмора - "Передоз", "Митю мы не парим", "18 лет", "Твои каштановые" . Главная лирическая песня (   Читать дальше...   )01. Мальдивы
+02. Митю мы не парим
+03. Танкист
+04. На звездной кочерге(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1488740629F9FCBE79BAD4214D36B980592AF45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912260   (612402) от 25.06.2015
+
+Antillia (Антиллия) - Древние Силы (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последний звездопад
+02. Тайна
+03. Рассвет
+04. Штурм(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438D32CDB2BD7ABA5234B18369BB2355AAC66635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912323   (612442) от 25.06.2015
+
+VA - Heart Rock - Rock Fur's Herz vol.3 (1991) 2CD[FLAC|tracks + .cue]<Rock, Soul, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Frankie Goes To Hollywood - The Power Of Love [5:32]
+02.Stevie B. - Because I Love You (The Postman Song) [3:47]
+03.Chris Rea - Ace Of Hearts [4:29]
+04.Commodores - Nightshift [5:03](   Читать дальше...   )Жанр: Rock, Soul, PopПродолжительность: 02:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC6BC9F246259BF59BE03C738480C183D3D5585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912325   (612514) от 25.06.2015
+
+To/Die/For (To Die For) - Cult (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Black
+02. Screaming Birds
+03. Unknown III
+04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36419499AB61EB9D7CE1DD7FC7AB80A23080FFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912017   (612515) от 25.06.2015
+
+VA - Heart Rock vol.2 (1990) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cat Stevens - Morning Has Broken [3:17]
+02. Milli Vanilli - Girl Im Gonna Miss You [4:27]
+03. Lionel Richie - Say You, Say Me [4:03]
+04. The Righteous Brothers - Youve Lost That Lovin Feelin [3:43](   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B7046E4383E81014A5FD018EBA1200394C1FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911967   (612518) от 25.06.2015
+
+Refused - Freedom (2015) [MP3|320 кб/с]<Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elektra
+02. Old Friends / New War
+03. Dawkings Christ
+04. Françafrique(   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AEF689B13ECF33202BCDB14D5F2E98065BF717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912201   (612519) от 25.06.2015
+
+Frank Zappa - Dance Me This (2015) [MP3|320 кб/с]<Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Me This 2:02
+02. Pachuco Gavotte 3:27
+03. Wolf Harbor 8:02
+04. Wolf Harbor II 6:53(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7902FE3D5FF5EE737FDE85E78C169838050A6688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912022   (612567) от 25.06.2015
+
+Thy Art Is Murder - Holy War (2015) [MP3||~245 кб/с (V0)]<Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Genocide (04:26)
+02. Light Bearer (03:56)
+03. Holy War (04:01)
+04. Coffin Dragger (Feat. Winston McCall Of Parkway Drive) (02:56)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1757E4E131705FF5C6E21E3D7842C1DF3FA8268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912245   (612568) от 25.06.2015
+
+Frank Zappa - Dance Me This (2015) [FLAC|tracks+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Me This 2:02
+ 02. Pachuco Gavotte 3:27
+ 03. Wolf Harbor 8:02
+ 04. Wolf Harbor II 6:53(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB103BF7C9CB018660559938537671C5BCB1F8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910839   (612579) от 25.06.2015
 
 Strike - Паранойя (2015) EP [MP3|320 кб/с]<Heavy Metal>
@@ -395,303 +690,6 @@ Ribbons of Euphoria - You Don't Care (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243A2A55C621D0E9AF54A41FC07DCAA4C904D007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911384   (612898) от 25.06.2015
-
-Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612898.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moonrise (4:02)
-2. Black Dove (3:30)
-3. Shelter (3:57)
-4. Vertigo (3:44)(   Читать дальше...   )Жанр: Progressive / Art RockПродолжительность: 00:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3582B7EC2B2E71691F2289D969CBD813E48270B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911228   (612907) от 25.06.2015
-
-Solstice Coil - Commute (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Eyes
-02. Forget You Ever Saw Us
-03. Shuffle the Cards
-04. Her Silent Silhouette(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBCC381CBAA761FD060387E37D0E0DE9FBACCE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912096   (612909) от 25.06.2015
-
-William D. Drake - Revere Reach (2015) [MP3|320 кб/с]<Progressive Rock, Alternative Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Buzzing (3:26)
-02. In Converse (4:18)
-03. Lifeblood (2:58)
-04. Be Here Steryear (4:48)(   Читать дальше...   )Жанр: Progressive Rock, Alternative Psychedelic RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E312EEFAC30FEE2053F1FB8A7739B696BA5BCEB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911891   (612919) от 25.06.2015
-
-Telergy - 3 альбома (2011-2015) [MP3|192-320 кб/с]<Epic / Symphonic / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612919.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into The Past
-2. Enslavement
-3. Pleading
-4. Plagues(   Читать дальше...   )Жанр: Epic / Symphonic / Progressive MetalПродолжительность: 03:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91CCE6E5D8C14585985D977E49BC8A4F52D357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911364   (612921) от 25.06.2015
-
-Marco Minnemann - Celebration (2015) [MP3|320 кб/с]<Progressive Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Miami (3:27)
-2. Celebration (2:59)
-3. It Always Seems (2:26)
-4. March of the Living Dead (1:55)(   Читать дальше...   )Жанр: Progressive Rock, FusionПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C3416E7540A89C8283ECB1CD9B03EFCDB1860D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911715   (612922) от 25.06.2015
-
-Tulsadoom - Storms Of The Netherworld (2015) [MP3|320 кб/с]<Black Metal, Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Storms Of The Netherworld
-2. Skulls
-3. Nightwind
-4. Riders Of Doom(   Читать дальше...   )Жанр: Black Metal, Heavy Metal, Thrash MetalПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA59290417BC8B5F82DF79C94A32D73B2A22340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911717   (612924) от 25.06.2015
-
-Aeveron - 4 альбома, 1 EP (2004-2015) [MP3|320 кб/с]<Melodic Black / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Trapped Within Me 04:07
-02 - Construality 05:25
-03 - Days of Perception 04:00
-04 - Fragile Thoughts 03:35(   Читать дальше...   )Жанр: Melodic Black / Death MetalПродолжительность: 03:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B363005F213FE60CFE2B97B741190264FB2D339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146521   (612962) от 30.06.2017
-
-Innerspace - The Village (2012) [FLAC|Lossless|image + .cue]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Land of Hope
-03. Wild Flower
-04. Mister Mayor(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984119136E3E8C53D951A14C562EED99AAFC1B5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911888   (612990) от 25.06.2015
-
-Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetheart Deal (3:35)
-02. How Do You Do (3:02)
-03. Just Say Go (3:05)
-04. Strange Maps (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E313149A9867F459530EFF1347E87B6D8027A72C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912274   (612991) от 25.06.2015
-
-Mourning's Hope - The Storm Within (2015) [MP3|320 кб/с]<Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shadow of Death
-02. Forsaken Sorrow
-03. Until We Meet Again
-04. The End of Time(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB13FC27E36C8DCF273606C7E587AD3BFEF3DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912019   (612992) от 25.06.2015
-
-Supresion - Emerging Extermination (2015) [MP3|320 кб/с]<Thrash / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness Retreat
-02. I Don't Care
-03. War Is Beginning
-04. U.L.U.S(   Читать дальше...   )Жанр: Thrash / Death MetalПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9852CBD3FDC2C5725DD68B93DE7B22454EFA006
 ```
 
 

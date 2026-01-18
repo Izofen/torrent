@@ -1,3 +1,298 @@
+###  Публикация: 1350278   (1003442) от 05.01.2020
+
+Монгол Шуудан - Гуляй Поле Реанимация (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Гуляй Поле
+3. На Белом Коне
+4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3874F715996D9095EEE0DD1220D013BB7DAF9C76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350172   (1003497) от 05.01.2020
+
+Zeno - 5 альбомов Collection 6 CD (1986-2006) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1986 - Zeno
+1986 - Zeno (Remastered 2005)
+1995 - Zenology (Remastered 2005)Жанр: Melodic Hard RockПродолжительность: 05:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5807664223BB6A261D41952B99C97E9F31D29E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350171   (1003526) от 05.01.2020
+
+Zeno - 5 альбомов Collection 6 CD (1986-2006) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1986 - Zeno
+1986 - Zeno (Remastered 2005)
+1995 - Zenology (Remastered 2005)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 05:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04832FCA080A56F95A80EFB6542D3BE5F39D183
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487423   (1003613) от 05.08.2021
+
+Attack Of The Rising - Game Changer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Horizon 04:29
+02. Gargula 03:44
+03. Island Of Seven Skulls 05:45
+04. Burning Daylight 04:34(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD21784FB09D90FF9DB7033EFC454D73547B0B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487424   (1003614) от 05.08.2021
+
+Witches Town - Black Pestilence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me out of This Place
+02. Scream in the Silence
+03. Died so Young
+04. Stranger to Myself(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E503E12C2E1B9F563030A480A3BA9DAB61C23A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201580   (1003733) от 04.01.2020
+
+Monolord - 4 Albums, 1 EP (2014-2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monolord - шведская группа из Гётеборга, образованная в 2013 году, исполняющие тягучий Stoner Doom Metal.
+Названы в честь глухого на одно ухо друга, который по их словам жирный и раздражительный как Картман.Список альбомов:
+2014 - Empress Rising
+2015 - Vaenir
+2016 - Lord of Suffering-Die in Haze(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 03:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8EAE302085063EA593A832CA67BB01F97627A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350121   (1003799) от 04.01.2020
+
+Diablo Swing Orchestra - Pacifisticuffs (2017) [FLAC|Lossless|image + .cue] <Avantgarde, Experimental, Heavy Metal, Swing>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knucklehugs (Arm Yourself With Love) (2:27)
+02. The Age Of Vulture Culture (5:00)
+03. Superhero Jagganath (5:41)
+04. Vision Of The Purblind (1:01)(   Читать дальше...   )Жанр: Avantgarde, Experimental, Heavy Metal, SwingПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C27FFD88F60D182D6E3933F821326AF054CEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350138   (1003807) от 04.01.2020
+
+Destruction - Born To Perish (2019) Japan [WavPack|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Born To Perish
+02 Inspired By Death
+03 Betrayal
+04 Rotten(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9220ECF2DD9B15F6EF6C36325824A99A200D14E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487321   (1003820) от 04.08.2021
+
+Красная плесень - Best 2 (2001-2004) (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003820.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гимн космонавтики (New Version)
+2. Зa рулем пизда (New Version)
+3. Регулировщик (New Version)
+4. А сейчас выступает... (New Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B016E489252C804C39D9507C1E75633DB0C0B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657158   (1003831) от 04.08.2021
+
+The Steamboat Band - Runners And Riders (1995) [FLAC|Lossless]<Rock, Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE4DC231C5D52F3E9D5A7E0D8FB0BDE4FB9A777
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487263   (1003835) от 04.08.2021
+
+Paul Mccartney - Mccartney III (2021) Deluxe Edition [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Long Tailed Winter Bird (05:16)
+ 02 - Find My Way (03:54)
+ 03 - Pretty Boys (02:58)
+ 04 - Women And Wives (02:52)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F668E60B2C6F52599A49DD8A69703E889A4A3128
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350146   (1003839) от 04.01.2020
 
 Kurgan - Yggdrasil Burns (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -398,300 +693,6 @@ Type O Negative - Bloody Kisses (1993) Japanese Edition [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E5D1FA3C8E07FED943D4FC7CC3E060F2CE251F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349699   (1004304) от 02.01.2020
-
-Type O Negative - Dead Again (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Again (4:15)
-02. Tripping A Blind Man (7:05)
-03. The Profit Of Doom (10:47)
-04. September Sun (9:48)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2B22C4377004A71114A16667E96BB1112A5059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349696   (1004309) от 02.01.2020
-
-Type O Negative - Life Is Killing Me (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thir13teen (1:08)
-02. I Don't Wanna Be Me (5:09)
-03. Less Than Zero (<0) (5:25)
-04. Todd's Ship Gods (Above All Things) (4:11)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:14:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C251F7BB5D20473B458A7262F6BB22F0E2A1D26D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349713   (1004310) от 02.01.2020
-
-Barrock - Oxian (1994) [FLAC|Lossless|image + .cue] <RPI>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fuga Sul Tema Di Oxian (1:35)
-2. Profughi
-  a) Intro (1:55)
-  b) Oltre I Monti (5:28)(   Читать дальше...   )Жанр: RPIПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BC7EAFA848D3228336289117B95386323A1CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349694   (1004311) от 02.01.2020
-
-Type O Negative - World Coming Down (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skip It (0:11)
-02. White Slavery (8:22)
-03. Sinus (0:53)
-04. Everyone I Love Is Dead (6:11)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9861B20CCA0C39C8A3DE26AE2938D979B64AD648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486792   (1004375) от 02.08.2021
-
-Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Sludge Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pseudocide (No Intro) [00:02:19]
-02. Prisoner 103 (Alt Take) [00:03:09]
-03. The Invisible (Instrumental) [00:03:56]
-04. Area Code 51 (Demo) [00:04:30](   Читать дальше...   )Жанр: Heavy Metal, Sludge Metal, Industrial MetalПродолжительность: 4 CD, 03:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92E93EAE59ADA133D70BBE992527D21AF07D9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486943   (1004376) от 02.08.2021
-
-Universe - Mission Rock (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   Gravy Train   [3:48]
- 02.   Up To The sky   [3:57]
- 03.   Mission Rock   [3:09]
- 04.   Innocence   [5:08](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E366BC859E4ABBC284DD75CEF1F55FC7363137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486914   (1004380) от 02.08.2021
-
-Nth Ascension - Stranger Than Fiction (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004380.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Opening (5:59)
-2. True Identity (5:26)
-3. Fire in the Sky (7:51)
-4. Reconciled (10:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEB41239D94983BB79F8C90941CF128708F1457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486905   (1004382) от 02.08.2021
-
-Thronehammer - Incantation Rites (2021) [MP3|320 Kbps] <Doom, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incantation Rites (14:10)
- 02. Thy Blood (08:05)
- 03. Eternal Thralldom (05:02)
- 04. A Fading King (10:53)(   Читать дальше...   )Жанр: Doom, SludgeПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC0F371E2E1A64653129C76799FE98308C201C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486817   (1004385) от 02.08.2021
-
-Chris Rosander - King of Hearts (2020) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Online (4:54)
-02. She's A Killer (3:53)
-03. Don't Look Back (4:46)
-04. Angelina (4:24)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4759CDA7BFF4C88374EFBD8E500F9403E12BD8D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349550   (1004438) от 01.01.2020
-
-Ленинград - Компромисс (2019) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. КомпромиссЖанр: Rock, SkaПродолжительность: 00:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79127DCC6364A9A556D03F8D43B198EEC779C83C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349448   (1004494) от 01.01.2020
-
-Six Feet Under (Sweden) - Discography: 2 albums (1983-1984) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Six Feet Under - довольно малоизвестная шведская группа, образована в 1982 году - настоящая жемчужина хард-металлической сцены Швеции 80-ых. Не путать с одноименной брутальной американской дэт-грув-метал бандой! Группа выпустила пару синглов, два студийных альбома и распалась в 1985 году. В состав группы входит Бьерн Лодин (Bjorn Lodin) - шведский вокалист и композитор, (   Читать дальше...   )--------------------------
-
-01. We Are Together (3:42)
-02. I Want Your Love (3:18)(   Читать дальше...   )Жанр: Hard 'n' Heavy |Продолжительность: 01:13:30 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953F805B4536972860742910C519C291BFA42138
 ```
 
 

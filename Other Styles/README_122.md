@@ -1,3 +1,30 @@
+###  Публикация: 1129209   (724371) от 27.04.2017
+
+VA - 50 Mindful Sessions Turkish Massage Treatment (2017) [MP3|320 Kbps] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healing Oriental Spa Collection - Mindful Sessions: Turkish Massage Treatment
+02. Tranquility Spa Universe - Zone of Zen Deepth
+03. Relaxing Spa Music Zone - Relaxing Nature Sounds
+04. Unforgettable Paradise SPA Music Academy - Healing Touch(   Читать дальше...   )Жанр: New Age, Meditative, RelaxПродолжительность: 03:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6501A2E1B1CECBC064578C6C4C2AE5FE63155C64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284589   (724458) от 24.02.2019
 
 Lady Gaga, Bradley Cooper - A Star Is Born Soundtrack (2018) Explicit [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
@@ -665,33 +692,6 @@ Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91A15ECC45CB43DFE7F089DBC6758D4737E0740E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284587   (727747) от 22.02.2019
-
-Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ocean Moon
-02 Break Of Dawn
-03 Rising Tide
-04 Ocean Haze(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77E2E0E28B4694E7AA390A20E39C81DF04507D5
 ```
 
 

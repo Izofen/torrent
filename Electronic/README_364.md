@@ -1,3 +1,54 @@
+###  Публикация: 667373   (725282) от 14.06.2013
+
+ATB - 8 Album, 3 Compilation (1999-2007) (17CD)[FLAC|Lossless]<Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_725282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218197   (725292) от 08.04.2018
+
+VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numall Fix - Memories (Original Mix)
+02. Estatica - The Lost World (Original Mix)
+03. Baintermix - Indian Chief (Original Mix)
+04. 5Beat - Lost Story (Remaster Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858F44B957DF637996315F635891EB3951B391D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128850   (726266) от 26.04.2017
 
 Alphaville - Strange Attractor (2017) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
@@ -639,60 +690,6 @@ Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5670C69A3289A1193E89067735B8EB78A09D33CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128627   (727566) от 25.04.2017
-
-VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter Pearson - Round and Round  4:26
-02.  Emotion Coder - Streets  4:03
-03.  JP-Juice - Cette Planete  3:41
-04.  Deeper Sublime & Krapan - La Musica Sei Tu  5:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE91443326758886B2BE3E5C3284C809DD1E454B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128438   (727663) от 25.04.2017
-
-VA - This Is My Church Vol.4 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Gee - Vagabond Musician (Original Mix)  3:37
-02.  Port Grimaud Project - Think To A Girl (Original Mix)  3:39
-03.  Makina Jane - 2 Much (Original Mix)  3:23
-04.  The Planet Sun - Get Up Stand Up (Original Mix)  3:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FB35521931B71A34AAD7EC714642398B588046
 ```
 
 

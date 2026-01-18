@@ -1,3 +1,57 @@
+###  Публикация: 1376271   (860375) от 17.04.2020
+
+VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Adina Butar - Indestructible (Extended Mix) 6:39
+02. Solarstone & Orkidea - Slowmotion V (Extended Mix) 7:28
+03. Menno De Jong & Kristina Sky feat. Fiora - The Sun (Extended Mix) 7:51
+04. Cold Blue - Golden Leaves (Extended Mix) 7:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal Trance, ElectronicПродолжительность: 02:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D12D6A8316147E3E4BBACED88A478F90E949F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376302   (860485) от 17.04.2020
+
+VA - Body Building Music Hits 2020 Fitness Session (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Speedmaster - We're Not Gonna Take It Anymore (Fitness Version) (3:56)
+2.Speedmaster - Pour Some Sugar on Me (Fitness Version) (3:09)
+3.DJ Kee - This Club Is Closed Forever (Fitness Version) (3:45)
+4.Speedmaster - You Wreck Me (Fitness Version) (3:53)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E16A72ABFFD379297139AF0624B254D33568C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376402   (860486) от 17.04.2020
 
 Freedom Fighters - Era (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -641,60 +695,6 @@ New Arcades - In the Deepest of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBA6E4B2AE5FC24B2F66EDEA796309D3ADF5213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198074   (861927) от 16.04.2020
-
-Plesiada - Discography 4 Releases (2013-2020) Miandres Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epi (04:35)
- 02. Region 30 (06:47)
- 03. Speaking With Waves (06:22)
- 04. Flashback 1 (05:18)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/DowntempoПродолжительность: 02:39:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF006E08FDCF9D5AEEDCA9F5110AB7200C62DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375905   (862037) от 16.04.2020
-
-Artful Dodger - It's All About the Stragglers (2001) [FLAC|Lossless|WEB-DL] <UK Garage, House>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think About Me (feat. Michelle Escoffery) (4:35)
-02. Re-Rewind (Radio Edit) (feat. Craig David) (4:02)
-03. Outrageous (feat. Lynn Eden) (4:15)
-04. Please Don't Turn Me On (Radio Edit) (feat. Lifford) (3:43)(   Читать дальше...   )Жанр: UK Garage, HouseПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA4A9A1872AED93938A379CE8782DEE284E8595
 ```
 
 

@@ -693,6 +693,30 @@ magnet:?xt=urn:btih:2D211E1F71691E78487645A8BC5A0B36A63DC853
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190660   (497145) от 10.09.2015
+
+VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_497145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop | Club | DanceПродолжительность: 05:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935975   (497328) от 10.09.2015
 
 VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]<Pop>
@@ -715,39 +739,6 @@ VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8652420ABC1995821E52542C4729716F65A2FF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542848   (497484) от 04.09.2012
-
-VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fonzerelli - Moonlight party
-002. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
-003. Michael Calfan - Resurrection
-004. Sway feat. Kelsey McHugh - Level up (Cahill radio edit)
-005. Shakira feat. El Cata - Addicted to you
-006. Justin Timberlake - Cry Me a River
-007. Kelly Clarkson - Stronger
-008. T-Moor Rodriguez - Welcome to the night
-009. Britney Spears - Look Who's Talking Now
-010. Chicks N Fire - Price tag (Bbop & Roksteadi mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282A25E9C1BFB59371E0FC28B4B3E11DA9719BE7
 ```
 
 

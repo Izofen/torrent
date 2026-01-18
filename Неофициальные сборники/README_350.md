@@ -1,3 +1,30 @@
+###  Публикация: 1041473   (581471) от 10.08.2016
+
+VA - Mechanoids Carnival (2016) [MP3|320 Kbps] <Dubstep, Drumm and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581471.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Frim - 110 Squad
+002. TroyBoi & Diplo - Afterhours (BONE Remix)
+003. NGHTMRE & Boombox Cartel - Aftershock (NTCRCKRS Remix)
+004. Elephante - Age Of Innocence (CrankDat Remix)(   Читать дальше...   )Жанр: Dubstep, Drumm and BassПродолжительность: 06:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C43E906781DEB1C79AA7260CE4152A19C17DB2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041859   (581474) от 10.08.2016
 
 VA - Recover - Ministry of Sound (2016) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553373   (582882) от 25.05.2022
-
-VA - Trance Colors (2022) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Skyvol - 9th Life (Extended Mix) (6:58)
-002. Nicola Maddaloni - Brainwashing (Extended Mix) (6:19)
-003. U-Mount & SpaceLine - Libra Terra (Extended Mix) (7:33)
-004. Ahmed Romel - You Never Know (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C965624BB6857AA56F1CC3BCEA8A565D403156
 ```
 
 

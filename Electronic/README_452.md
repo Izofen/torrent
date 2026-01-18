@@ -1,3 +1,57 @@
+###  Публикация: 1374798   (871189) от 11.04.2020
+
+Astral Terror - Liquid Brain (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ayahuasca Dark Trip (Narkotik) (7:46)
+2. Ayahuasca Dark Trip (Meriald) (8:55)
+3. Ayahuasca Dark Trip (Didi) (6:56)
+4. Ayahuasca Dark Trip (Liquid Brain) (7:04)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124045E49442B8A18FB0BEF1A9B77AC7EC7C18D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374913   (871193) от 11.04.2020
+
+The Gnome - Pleasant Sounds For Unpleasant Times (2020) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflection (03:38)
+ 02. Garden Of Sound (03:38)
+ 03. A Light Touch (05:31)
+ 04. Two Times (05:25)(   Читать дальше...   )Жанр: Ambient, IDMПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388AAD338942CECE44E59943D99C5C4BA750335A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374920   (871199) от 11.04.2020
 
 Paolo Lucchi - The Dusk Sessions (2019) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -638,60 +692,6 @@ David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106338   (873756) от 19.02.2017
-
-VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive - Freezing Cold
-02. Velvet Dreamer - Your Game My Love (feat Diana Jasilionyte & Tim Gelo)
-03. Inventors Of The Sun - Opium Lovers
-04. Weathertunes - Nothing Without You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EA1CBC94651FB6686FC179A46E24FE9709F4EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106224   (873758) от 19.02.2017
-
-VA - Cappuccino Lounge Vol.2 (Relaxed Coffee Tunes) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Urban Phunk Society - Spring 2 Summer  3:03
-02.  Artur Bayramgalin - Cafe Rendez-Vouz  5:01
-03.  Greg Walker - Rio Geo (Revisited)  3:31
-04.  Charly McLion - Sunrise  4:59(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC6B480B3DB389347011F93E5E4BFAD907F9E5B
 ```
 
 

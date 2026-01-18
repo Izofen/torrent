@@ -1,3 +1,57 @@
+###  Публикация: 1369137   (905702) от 22.03.2020
+
+Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Despina Vandi - Gia (Milk & Sugar Dub Mix) (5:42)
+02. Bocagrande - Push (Main Mix) (4:51)
+03. Tanja Monies - It's Only A Test (Andrea T. Mendoza vs. Tibet Tribal Mix) (4:36)
+04. Global Brothers - Clap Your Hands (Main Mix) (5:59)(   Читать дальше...   )Жанр: House, Disco, Progressive HouseПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:006B6C13FB1D6AF25CD6A795C38A6AB54526CD97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369205   (905703) от 22.03.2020
+
+VA - Resonance Vol.2 (Mixed By DJ Arseniy) (2005) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Code Hypnotic Influence (Always Listen) (The McKenn-apella) (6:47)
+02. D:Facto - PDG (4:31)
+03. Bill Payer And Fat Hippy - Moon Musik (Kingkade vs. Bpfh Remix) (Guitar From H.C.B. - Hard Club Band (Bolls Mix) (3:05)
+04. Deepgroove - Electricity (5:15)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4D36305F8CB516BCE0316ABD8B3C2F12A302C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369193   (905705) от 22.03.2020
 
 Kirill Doomsky - Housemission II - Only One In The World (2004) [MP3|320 Kbps] <House, Disco>
@@ -626,60 +680,6 @@ Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368711   (907426) от 21.03.2020
-
-Flowjob - Beatpolar (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907426.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beatpolar (Original Mix) (7:32)
-2. Reverse Vacation (Original Mix) (7:39)
-3. Hidden Beauty (Original Mix) (7:17)
-4. Gipsy Juice (Original Mix) (7:44)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A165112AA27BAFA973456FDB3E0900511E345D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991299   (907792) от 27.02.2016
-
-Blank & Jones - Pure Lounge: Chilling Club Sounds (2016) [FLAC|Lossless|tracks+.cue] <Chillout, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Nuits Blanches (4:08)
-02. Blank & Jones with Coralie Clément - J'en Reste Là (3:28)
-03. Blank & Jones - Coming Home (Afterlife Mix) (5:05)
-04. Blank & Jones with Cathie Battistessa - Happiness (Milchbar Terrace Mix) (4:12)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1DEDBC7347A195EEFCED1CE600E32B7D4A6DC6
 ```
 
 

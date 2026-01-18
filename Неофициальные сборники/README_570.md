@@ -1,3 +1,30 @@
+###  Публикация: 1376524   (858913) от 18.04.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 17.04.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Little Big - UNO 2:41
+03. The Weeknd - Blinding Lights 3:22
+04. Dua Lipa - Physical 3:14(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644900220183877DE3AE9E7B6AA7838664AB457F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376463   (858914) от 18.04.2020
 
 VA - Reggae On The Roof (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
@@ -668,33 +695,6 @@ VA - Music News vol.134 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFBD801A4186CF2E9D48E6FFE6C1EE9EC0E3F7C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497897   (859651) от 25.09.2021
-
-VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akishou And Jelz - Katana
-002. Marija - All The Girls
-003. Sorgalim - Moonlight
-004. Jack Rush - Butterfly(   Читать дальше...   )Жанр: Club, Dance, House, Tech HouseПродолжительность: 08:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3DE157BD809A67AA0CC512A3D95913AAD833D0
 ```
 
 

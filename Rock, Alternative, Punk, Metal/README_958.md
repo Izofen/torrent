@@ -1,3 +1,300 @@
+###  Публикация: 1025488   (710021) от 12.06.2016
+
+Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust
+02. Tragic Kind Of Love
+03. Bitch Like You
+04. Unshatter Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA627676F0E5ACA8C51E4A045BD7FD421A55FEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025475   (710038) от 12.06.2016
+
+The Temper Trap - Thick As Thieves (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thick As Thieves (3:54)
+02. So Much Sky (4:29)
+03. Burn (3:29)
+04. Lost (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD169F770826EDFA958391E4C122C4C6CB5965B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219720   (710041) от 16.04.2018
+
+Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock & Roll, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Love (02:22)
+02. Wake Up Little Susie (02:03)
+03. Bird Dog (02:17)
+04. Claudette (02:15)(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B0EE16BFA7D3E651A36E8766DC5898684D8EB83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219777   (710043) от 16.04.2018
+
+Casino (Clive Nolan) - Casino (1992) Japan Press, 1994 [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Opera, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prey (10:38)
+i) Prey
+ii) Overheard in Passing # 1 (at the Bar)
+02. Crap Game (5:47)(   Читать дальше...   )Жанр: Neo-Prog, Progressive Opera, Prog-RockПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB4A4BB0A30B21FAC40CB90764F6E71721D696D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220009   (710047) от 16.04.2018
+
+Becoming A Hero - Becoming A Hero (2018) [MP3|320 Kbps] <Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shame On You
+02. Checkmate
+03. We're Done
+04. War(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AFE7AF41894553411BBDF9DD065196A77C6F4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025602   (710179) от 12.06.2016
+
+Leecher - Slightless (2016) [MP3|320 кб/с] <Gothic Metal, Symphonic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Damnation
+03. Eclipse
+04. Fading(   Читать дальше...   )Жанр: Gothic Metal, SymphonicПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2D3D4A2611C0A2CD5751B2BBB8FF6A4FA2669C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025617   (710187) от 12.06.2016
+
+Case Mayfield - I Wish This Was About You (2016) [MP3|320 кб/с] <Indie Pop Rock, Indie Folk, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alright Louise
+02. Crooked Waits
+03. Tomorrow Is My Slavename
+04. I Don’t Know I Don’t(   Читать дальше...   )Жанр: Indie Pop Rock, Indie Folk, AcousticПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF0777BE6B73EED311B5E896261DFC0CA204324
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025618   (710191) от 12.06.2016
+
+Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Frame Of Mind
+2. Crusical Scene
+3. All I Really Want Explain
+4. If(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025408   (710196) от 12.06.2016
+
+Orymus - Miracles (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of the World (04:19)
+ 02. Just One Minute (03:39)
+ 03. Carried Away (03:47)
+ 04. Testament of a Simple Man (04:38)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B04C03F6F78C4BF574E053B715139185545C7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532917   (710303) от 21.02.2022
+
+Красная плесень - Пробивные хиты (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Самогон (New Version)
+2. У ресторана в Ленинграде (New Version)
+3. Нравится, не нравится - спи, моя красавица (New Version)
+4. Мы еб**ись первый раз (Hard Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDF93DF1D7B3FDA0613494BE40FF19C508CA00C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131120   (710675) от 04.05.2017
+
+Billy Thorpe & The Aztecs - The Very Best Of Billy Thorpe & The Aztecs (1994) [FLAC|Lossless|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock 'N' Roll City
+02. Southern Comfort
+03. Let Love Show The Way
+04. Rock Me Baby(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0C734DC103E4E2F894F91879193DD57B9068E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130961   (710790) от 04.05.2017
 
 Аstrаl Dооrs - Вlаcк Еyed Сhildren (2017) Limited Editiоn [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -396,300 +693,6 @@ Onslaught - Generation Antichrist (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:770444808441E53C342FDFD03B4C32F5E1FFAC4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286712   (711345) от 03.03.2019
-
-Trick Pony - Trick Pony (2001) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711345.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Pour Me 	2:48
-2 	Party Of One 	3:16
-3 	Big River 	3:33
-4 	Every Other Memory 	3:48(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA22D56F960521ABB9CB3F4BE399F39C5DD3C0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286582   (711350) от 03.03.2019
-
-Banda Bassotti - Amore e odio (2004) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711350.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Juri Gagarin (03:43)
-2. Amore E Odio (03:33)
-3. Partiro' Per Bologna (03:58)
-4. Scelgo (03:50)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60853D46FA5FFF99BF11554AABF58B6A09AABDF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401250   (711352) от 09.08.2020
-
-Deep Sun - Race Against Time (2016) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Race Against Time (05:24)
-02. Riders Of Death (04:04)
-03. The Believer (02:47)
-04. Good Old Times (06:49)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E9960F284055BD123F4D5353D4D3721D2A79A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401331   (711357) от 09.08.2020
-
-Black Veil Brides - Re-Stitch These Wounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Glam Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outcasts (Reborn) [00:00:31]
-02. We Stitch These Wounds [00:03:59]
-03. Beautiful Remains [00:04:13]
-04. Children Surrender [00:03:11](   Читать дальше...   )Жанр: Melodic Metalcore, Glam Metal, Hard RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C3945A2D757E16C682AFBC91941DD20C1F84A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401257   (711360) от 09.08.2020
-
-Orbit Culture - Nija (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Front 03:08
-02. North Star of Nija 05:14
-03. Day of the Cloud 04:57
-04. Behold 05:13(   Читать дальше...   )Жанр: Groove Metal, Progressive MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32998F79B2C59FBA7BA176490C32237057A78DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401154   (711438) от 09.08.2020
-
-Orbit Culture - Nija (2020) [MP3|320 Kbps] <Groove Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Front
-02. North Star Of Nija
-03. Day Of The Cloud
-04. Behold(   Читать дальше...   )Жанр: Groove Metal, Progressive MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554A621CF258A7BFD7EBAB0646E8AB76EA85421F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401267   (711444) от 09.08.2020
-
-Deep Sun - Das Erbe Der Welt (2019) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relentless Resistance (04:49)
-02. Heroes (04:01)
-03. Insurrection Of Technology (03:54)
-04. Worship The Warship (05:41)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F354D0CE98E52EC9A8FCC9DED87FA258725B7AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401247   (711447) от 09.08.2020
-
-Soul Blind - Greatest Hits Vol. 1 (2020) [MP3|320 Kbps] <Grunge, Shoegaze, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuck In A Loop [00:02:41]
-02. Crawling Into You [00:03:23]
-03. Falling Asleep [00:03:47]
-04. Swirl [00:03:03](   Читать дальше...   )Жанр: Grunge, Shoegaze, Post-HardcoreПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C208B5D619DCCA1553A998C15E8B49D65DABC13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401128   (711482) от 09.08.2020
-
-12 Stones - 1 CD, 1 Single (2017-2020) [MP3|320 Kbps] <Alternative Metal, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sever [00:03:31]Жанр: Alternative Metal, Post GrungeПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2746D548644C7F9401419F8DF846366D2868C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401112   (711494) от 09.08.2020
-
-Curses - Chapter II: Bloom (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Heaven (4:09)
-02. The Door in the Wall (3:28)
-03. 无为 (4:39)
-04. Toska (4:16)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADF3349C7F1D9BCE97CE64E5FF69C621F3C4E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401078   (711514) от 09.08.2020
-
-FM - Rockville (2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tough Love (05:04)
-02. Wake Up The World (05:16)
-03. Only Foolin' (04:30)
-04. Crave (04:39)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504E5FBA0FB8EE7C41CE2CF07CD109985136936B
 ```
 
 

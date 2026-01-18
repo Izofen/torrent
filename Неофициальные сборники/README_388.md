@@ -1,3 +1,30 @@
+###  Публикация: 1293681   (635662) от 04.04.2019
+
+VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. James Blunt - Melody (Ofenbach Remix) (2:48)
+02. Embody - I Miss You (2:56)
+03. LUxCA - Little Girls (3:11)
+04. Stereoact & Jaques Raupe feat. Peter Schilling - Terra Titanic (Anstandslos & Durchgeknallt Remix) (2:59)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBA6A681EBC1CFCCDEFAFB3157ED44934D6944C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293531   (635672) от 04.04.2019
 
 VA - Soap Buble: Clubbing Electro House (2019) [MP3|320 Kbps] <House>
@@ -679,33 +706,6 @@ VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293309   (637134) от 03.04.2019
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zucchero  -  Baila (Sexy Thing)  4:08
-02.  Raffaella Carra  -  Tanti Auguri (Com'e Bello Far L'amore)  3:53
-03.  Umberto Tozzi  -  Al Sud  5:12
-04.  Serena Rizzetto  -  E Tutto Un Attimo  3:17(   Читать дальше...   )Жанр: PopПродолжительность: 67:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FE9C388CD15C91CE39E5394F6976DEEEF84DD4
 ```
 
 

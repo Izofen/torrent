@@ -1,3 +1,30 @@
+###  Публикация: 1051767   (530578) от 12.09.2016
+
+VA - Музыкальные Новинки Интернета Осенний Выпуск (2016) [MP3|177~320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Smash  -  Feel The Summer  1:09
+002. Полина Смолова  -  Тонкой Ниточкой  2:47
+003. DJ Polique feat. Mohombi  -  Turn me on  3:04
+004. Fun Factory  -  Turn It Up  2:52(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 16:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A98605D96D1851FF14EB62E3E896B56DD634A6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533212   (530758) от 11.08.2012
 
 VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
@@ -679,33 +706,6 @@ VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051585   (532797) от 11.09.2016
-
-VA - 100 Workout Energy Hits Stars (2016) [MP3|209~320 Kbps] <House, Future House, Bigroom, Reggaeton, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532797.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. STAS  -  You (DJ Mix)  3:48
-002. Quintino  -  Get Low (Extended Mix)  3:40
-003. Kyle Kennedy Ft Tenzinette  -  Black Hole (Radio Edit)  2:43
-004. The Him feat. Son Mieux  -  Feels Like Home (Club Edit)  3:48(   Читать дальше...   )Жанр: House, Future House, Bigroom, Reggaeton, Progressive, ClubПродолжительность: 08:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96B3040DA68C10073CD5B813F2E27F1E7B9C11F5
 ```
 
 

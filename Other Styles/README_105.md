@@ -1,3 +1,35 @@
+###  Публикация: 518135   (643313) от 03.07.2012
+
+VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeux Interdits ("Spanish Romance"), for guitar  [01:50]
+   Common Name   Spanish Romance, Jeux Interdits For Guitar
+   Composer   Anonymous
+   Performer   Pepe Romero (Guitar)
+
+ 02. Suite española No. 1, for piano, Op. 47, B. 7: Sevilla (Sevillanas)  [04:37]
+   Common Name   Sevilla Sevillanas, Suite Espanola 1 For Piano
+   Composer   Isaac Albйniz (1860 - 1909)
+   Performer   Eduardo FernandezЖанр: Classical GuitarФормат: 2CDПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517021   (643320) от 03.07.2012
 
 VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classical>
@@ -696,33 +728,6 @@ Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906112   (647543) от 07.06.2015
-
-Phil Thornton - Tribale (2015) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duma Sa Duma
-02. Bay City Shimmy (Fusion Mix)
-03. Golden Gate Mist
-04. Raqs Shehani(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75244019D01523D631A87FDA816B10ABAA9501BB
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1216314   (751361) от 30.03.2018
+
+VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shingo Nakamura - Memory Of The Sea (2011 Mix) 7:35
+02. Talamanca - When The Sun Goes Down (Extended Mix) 7:15
+03. Bleedin Neutron - Steel Pillars Of Dawn (Eyal Cohen Remix) 8:12
+04. Vintage & Morelli - Aurora (Extended Mix) 7:23(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523177   (751422) от 11.01.2022
 
 Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
@@ -669,33 +696,6 @@ VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B802E22AB8A6B9C1AD8BC4FACC0C5D8FA0C4012E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216242   (753058) от 29.03.2018
-
-VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2fox feat. Nandi - Motion (Original Mix)
-002. 2fox feat. Nandi - Zulu Suite (Original Mix)
-003. A-Mase feat. Rave CHannel - Just Be  (Original Mix)
-004. A. Rassevich - Hate Me Tonight (QRVZH Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BCBA2E810E5F83E6CEA44CAE9E16B50E0D188D8
 ```
 
 

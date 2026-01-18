@@ -1,3 +1,30 @@
+###  Публикация: 932597   (508165) от 30.08.2015
+
+VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508165.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danny Byrd - Golden Ticket (Feat. Tanya Lacey)
+002. Sanz - Ghatam
+003. Calm Groove - Future Time
+004. Madd Inc - EverydayЖанр: Drumm and Bass, DubstepПродолжительность: 08:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C12C50E00402560A6558AF0E16E9C6D6B09E97A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932638   (508234) от 30.08.2015
 
 VA - Pop Dance Maniac (2015) [MP3|320 кб/с]<Vocal, Dance, Club, Euro>
@@ -698,33 +725,6 @@ VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AD7EF368747BF89C545122E7C7F61AAA0E919D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932210   (510199) от 28.08.2015
-
-VA - A Chill House Affair Vol. 3 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Pacific Industries - Conselve (3:03)
-02. Gabriele Johnson - Mondo Novo (5:11)
-03. Neon G - Sagrado (3:25)
-04. Kama - Playmate (4:02)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 04:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3101603210EA896863C970B10811E926067218
 ```
 
 

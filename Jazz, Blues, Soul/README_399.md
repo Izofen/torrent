@@ -1,3 +1,246 @@
+###  Публикация: 1540699   (650470) от 31.03.2022
+
+The Blue Chevys - The Night Calls (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Calls
+02. Willow Tree
+03. Fun No More
+04. Thin Line(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81EB1A5EF8C1A10748E52F5A5C53063AC0FBC4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227137   (650495) от 24.05.2018
+
+Wycliffe Gordon - The Search (2000) Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheeky [6:37]
+02. What Is This Thing Called Love [5:53]
+03. He Looked Beyond My Fault (Danny Boy) [3:25]
+04. Frantic Flight [5:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66D8DDC33A432B35FB8DF91EF58FC3C229380A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227129   (650513) от 24.05.2018
+
+Dorothy Donegan - Dorothy Romps: A Piano Retrospective 1953-1979 (1991) Rosetta Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donegan Walk [1:43]
+02. Just in Time [3:03]
+03. Dorothy Rocks [2:32]
+04. Put Your Arms Around Me [3:12](   Читать дальше...   )Жанр: Boogie-Woogie, Bop, Piano JazzПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD5BBAF48BD4CAD79391B025055AC416C6C4F5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227138   (650518) от 24.05.2018
+
+Wycliffe Gordon - The Joyride (2000) 2003, Nagel Heyer Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Impromptus [5:33]
+02. The Island Boy [5:12]
+03. Bad Time [6:32]
+04. Let's Call This [5:17](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82462E60565ABED74691C6E868C20E17CFC2F2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227133   (650519) от 24.05.2018
+
+Earl Anderza - Outa Sight (1962) 1998, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [5:16]
+02. Blues Baroque [4:58]
+03. You'd Be So Nice to Come Home To [6:46]
+04. Freeway [2:28](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E650BAC6F11E3D287669D10ADF20C377801F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227141   (650521) от 24.05.2018
+
+Rickey Woodard - The Silver Strut (1996) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silver Strut [6:42]
+02. Grizzly [6:11]
+03. Quick Flash [6:21]
+04. Kerstin [7:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50744230357A01EAA529C7CA14BC087CA8C45DF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141579   (650545) от 10.06.2017
+
+The Johnny Smith Guitar - My Dear Little Sweetheart (1960) 2017, Roost, Parlophone, Warner Music Japan [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Dear Little Sweetheart (3:45)
+02. Indian Summer (3:45)
+03. Softly, As In A Morning Sunrise (3:09)
+04. All The Things You Are (4:20)(   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9948851DBB1546A0A8AEFD6E652927D218FF2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141448   (650558) от 10.06.2017
+
+Toufic Farroukh - Cinema Beyrouth (2012) Enja [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No brain no pain [05:10]
+02. A wonderful afternoon with Zena-Laure [05:00]
+03. Fema ka [04:47]
+04. Summer run [04:37](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEEB0D1BBB5BE29A03D98A2267980EF0F9FD15AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141443   (650559) от 10.06.2017
+
+Paquito D'Rivera - La Habana-Rio Conexion (1992) 2005, Messidor [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Comparsa [03:33]
+02. Cancao De Noite [04:35]
+03. Danzas cubanas: A los tres golpes [01:22]
+04. Danzas cubanas: Invitacion [00:49](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB34369DDE87DB0D50110ABE136148B70EE2629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141447   (650561) от 10.06.2017
 
 Ryan Truesdell Presents - Centennial: Newly Discovered Works of Gil Evans (2012) Slowfoot [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
@@ -452,249 +695,6 @@ Hendrik Meurkens Quartet - A Night In Jakarta (2010) [FLAC|Lossless]<Jazz, Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:553BAC2FC7EA572151EB1785C19E0B96CFE30243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031715   (652166) от 04.07.2016
-
-Denny Zeitlin Trio - Live at the Trident (1965) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction / St. Thomas [04:07]
- 02.Carole's Waltz [05:47]
- 03.Spur Of The Moment [06:07]
- 04.Where Does It Lead [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F49C35B075674F9E9DE06C51677895F49280375
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227037   (652193) от 23.05.2018
-
-Robin Trower - Let There Be A Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Thrill Is Gone
-02 - Once The Spell Is Broken
-03 - Something's About To Change
-04 - Dreams That Shone Like Diamonds(   Читать дальше...   )Жанр: Blues rockПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F72EB8ED0007BAFAFDA45273F7622E000EB4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141193   (652447) от 09.06.2017
-
-Chuck Berry - Chuck (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Woman (5:21)
-02. Big Boys (3:06)
-03. You Go To My Head (3:21)
-04. 3/4 Time (Enchiladas) (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74898511CED58EA8944C5E9492DE89FA8A14D009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141242   (652462) от 09.06.2017
-
-VA - Jazz Romance. Romantic Smooth Jazz for Two (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Bussi - Charme
-02. Giovanni Tornambene - Song for Us
-03. St Project - Stars
-04. Davide Corini - Swing Time(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA331501624EFF5DCB11E4A446836CD683238E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226928   (652467) от 23.05.2018
-
-Jack Teagarden - 1944 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beale Street Blues [03:56]
-02. I Swung The Election [02:17]
-03. If I Could Be With You One Hour Tonight [05:54]
-04. Chinatown My Chinatown [02:53](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BBD2F28BCBD9A0F9ED1EEF7798AC16874B5887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226926   (652469) от 23.05.2018
-
-David Bixler - Call It A Good Deal (2006) Zoho Music [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiding and Abetting [07:13]
-02. Unraveled [08:22]
-03. Game Face [07:24]
-04. Gemenlie [07:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D039A81B107F8DB2AFB3F5A44FA80F908B1AF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141223   (652551) от 09.06.2017
-
-Duke Ellington - Elvin chez Duke: European Tour - January 1966 (2015) La Maison du Duke [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The “A” Train [02:11]
-02. Black And Tan Fantasy / Creole Love Call / The Mooche [10:18]
-03. Chelsea Bridge [04:02]
-04. El Viti [04:07](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A460D0D24418F210069043E88A41726D48C7305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141220   (652556) от 09.06.2017
-
-Wynton Kelly Trio & Wes Montgomery - Smokin' In Seattle: Live At The Penthouse (1966) 2017, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Is No Greater Love [08:19]
-02. Not A Tear [06:33]
-03. Jingles [04:33]
-04. What's New? [04:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB61D7F38484D6FCBB485E5EF8624CFB2BAD0D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141210   (652559) от 09.06.2017
-
-The Harry Allen Quartet - Someone to Light Up My Life (2005) Master Mix Music [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [5:28]
-02. Day In Day Out [6:04]
-03. Here's To That Rainy Day [5:44]
-04. Someone To Light Up My Life [6:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44C3E66A347CFC32BAF6FE89EEF078A746844F9
 ```
 
 

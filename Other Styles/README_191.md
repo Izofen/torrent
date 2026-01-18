@@ -1,3 +1,30 @@
+###  Публикация: 1480651   (1007159) от 11.07.2021
+
+Machu Picchu - La Colegiala (1990) Reissue, 1997,  Vilma [FLAC|Lossless|tracks + .cue] <World Music, Panflute, Folk, Native American, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	La Colegiala 	4:12
+2 	El Gavilan 	2:25
+3 	Cancion Para Manuel 	4:40
+4 	Rosenda 	5:20(   Читать дальше...   )Жанр: PachangaПродолжительность: 1:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A49ABC54B11983A684DBC4BBF3DB6B3C9D490F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483144   (1007170) от 11.07.2021
 
 Kárpátia (Karpatia) - Csatazaj (2021) [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -667,33 +694,6 @@ Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF5DC4BA1418DBFB4CDB413F54B1A2D7EF5A7FA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469936   (1016099) от 14.05.2021
-
-Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Hypnosis, Nature Music (4:01)
-02. Above the Clouds (with Rain Sound) (3:13)
-03. Beyond The Mind (4:17)
-04. No Space (Flute) (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240F00624F569B0B411873072CC049EB79D2B39F
 ```
 
 

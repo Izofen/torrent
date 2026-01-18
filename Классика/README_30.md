@@ -1,3 +1,63 @@
+###  Публикация: 523424   (616896) от 16.07.2012
+
+Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden et al, Tragicomedia, Stephen Stubbs & Erin Headley (1680-1695)/2001, Warner Classics/[FLAC|Lossless]<Vocal>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome, viceregent of the mighty king, Z 340
+(Welcome song for Charles II, 1680) 12:28
+2. O dive custos Auriacae domus, Z 504
+(Elegy on the death of Queen Mary, 1695) 06:28
+3. Raise, raise the voice, Z 334
+(Ode for St. Cecilia`s Day, ca.1685) 12:28
+4. O let me ever, ever weep
+(The Plaint from “The Fairy Queen”, Z 629, 1692) 07:29
+5. Incassum, Lesbia, rogas
+(The Queen`s Epicedium) – Elegy on the death of Queen Mary, Z 383, 1695 07:32(   Читать дальше...   )Жанр: VocalПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B75BBF97B23FB35C40F7DEDFD0C0CA4E09EA0AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036768   (616955) от 22.07.2016
+
+Hesperion XXI, Jordi Savall, Manfredo Kraemer, Rolf Lislevand, Michael Behringer, Mauro Lopes, Arianna Savall - Altre Follie (1500 - 1750) 2005 [APE|Lossless|image + .cue] <Renaissance, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anуnimo (PERI) / Folias Criollas (improv.)    03:27
+02. Anуnimo (CMP 121) / Folias Antiguas    03:57
+03. Antonio de Cabezуn / Pavana Con Su Glosa    03:03
+04. Alonso Mudarra / Fantasia Que Contrahaze La Harpa De Ludovico    02:36(   Читать дальше...   )Жанр: Renaissance, BaroqueПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4670EFADCEAA58F0D7AEDE27D6C001058192D890
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036896   (617063) от 22.07.2016
 
 Barry Wordsworth & Capella Istropolitana - Mozart: Overtures (1988) Naxos, 1989 [APE|Lossless|image + .cue] <Classical, Orchestral>
@@ -663,67 +723,6 @@ Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70C46E250BDD332579927CB22261D91241F25497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541800   (642471) от 04.04.2022
-
-The London Promenade Orchestra - A Romantic Evening of Operetta: The World's Most Beautiful Melodies (2001) [FLAC|Lossless|image + .cue] <Classical, Stage & Screen, Opera>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642471.jpg" />
-</div>
-
-
-###  Подробнее
-
-London Promenade Orchestra базируется в Лондоне, Онтарио, Канада. Он был основан в 1946 году музыкантами других небольших оркестров, распавшихся во время Второй мировой войны. Сегодня в их составе 35 музыкантов, два раза в год они исполняют программы популярной классической и легкой концертной музыки.
-"Мы музыканты-любители в оркестре, играем легкую классику, (   Читать дальше...   )01. London Promenade Orchestra - Show Boat Medley: Introduction/Make Believe/You Are Love  (5:43)
-02. London Promenade Orchestra - Italian Street Song  (1:38)
-03. London Promenade Orchestra - 'Neath the Southern Moon  (2:55)
-04. London Promenade Orchestra - Tramp, Tramp, Tramp  (2:26)(   Читать дальше...   )Жанр: Classical, Stage & Screen, OperaПродолжительность: 01:03:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C6FFF37095B9D45FECE1990B3A4CDB23618D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517397   (642879) от 03.07.2012
-
-André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade - A. Rieu / J. Tieu [04:13]
-02. Cavalleria Rusticana: Intermezzo Sinfonico - P. Mascagni [03:27]
-03. Air - J. S. Bach [05:01]
-04. The Gadfly: Romance - D. Dhostakovich [03:33]
-05. Romance In F - L. Van Beethoven [04:53]
-06. Send In The Clowns - S. Sondheim [04:05]
-07. La Traviata: Overture - G. Verdi [03:33]
-08. Carnival Of The Animals: The Swan - C. Saint-Saens [03:11]
-09. Peer Gynt Suite No.1 Opus 46: 1. Morning - E. Grieg [04:04]
-10. Salut D'Amour Opus 12 - E. Elgar [03:19](   Читать дальше...   )Жанр: Classic, InstrumentalПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 

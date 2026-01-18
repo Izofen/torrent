@@ -1,3 +1,30 @@
+###  Публикация: 1297263   (604827) от 21.04.2019
+
+VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604827.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dope Ammo Feat. Rio Hellyer - Wishin' On A Star
+002. Degwood - Re-Entering (Original Mix)
+003. Oliver Ferrer - Two Of Us
+004. Asok - Hyperspace(   Читать дальше...   )Жанр: D&B, Dubstep, BassПродолжительность: 10:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E3B096D0F02450687D545B1F7AD972240FC5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297231   (604833) от 21.04.2019
 
 VA - Digital Dream: Techno Set (2019) [MP3|320 Kbps] <Techno, Electronic>
@@ -688,33 +715,6 @@ VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0912EDAD217149E6B942EFEADA7B1D953B3B2498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546519   (606103) от 24.04.2022
-
-VA - The Official UK Top 100 Singles Chart 22.04.2022 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606103.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harry Styles - As It Was (2:47)
-002. Jack Harlow - First Class (2:53)
-003. Aitch - Baby (2:57)
-004. Dave - Starlight (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C6E87AA5D3856F876E9CCDD21E667650C8601E
 ```
 
 

@@ -1,3 +1,302 @@
+###  Публикация: 614243   (977262) от 08.02.2013
+
+Nick Cave and the Bad Seeds - Push The Sky Away (2013) [MP3|320 кб/с]<Alternative / Rock / Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977262.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We No Who U R [4:05]
+2. Wide Lovely Eyes [3:40]
+3. Water's Edge [3:49
+4. Jubilee Street [6:36]
+5. Mermaids [3:49]
+6. We Real Cool [4:18]
+7. Finishing Jubilee Street [4:28]
+8. Higgs Boson Blues [7:50]
+9. Push The Sky Away [4:09]Жанр: Alternative RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670EC0641C5F1A45D63C00F28F4519E6E8C8F2A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615605   (977306) от 08.02.2013
+
+Bullet For My Valentine - Temper Temper (Deluxe Edition) (2013) [FLAC|Lossless]<Melodic Metalcore / Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic Metalcore / Heavy MetalПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615523   (977506) от 08.02.2013
+
+David Knopfler - Songs for the Sire (2006) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steel Wheels [3:46]
+02. Fire Down Below [4:36]
+03. Sophie's Songs [5:45]
+04. Somebody Kind [4:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278316   (977534) от 31.01.2020
+
+Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 68CD [FLAC|Lossless|image + .cue|tracks+.cue] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девин Гаррет Таунсенд (англ. Devin Garrett Townsend, родился в городе Нью-Уэстминстер 5 мая 1972 года) — канадский певец, гитарист и продюсер. Характерным для его композиций жанром является прогрессивный метал, хотя музыкант не ограничивает себя рамками какого-то одного направления в музыке. Его произведения подвержены влиянию многих жанров, среди которых эмбиент, (   Читать дальше...   )Список альбомов:
+1995 - Heavy As A Really Heavy Thing
+1996 - Punky Bruster
+1997 - City(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, Industrial Metal, Thrash Metal, Heavy Metal, Ambient, FolkПродолжительность: 41:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F433C22BB5D8E90DFE86161654D03BABFA95898C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615488   (977608) от 08.02.2013
+
+Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came to Rock (6:34)
+02. Rock and Roll Children (4:27)
+03. The World I See (6:29)
+04. Burn Your Flame (3:30)
+05. Man of the Dark (5:14)
+06. My Road (2:46)
+07. Time to Be King (4:24)
+08. Black Morning (4:37)
+09. Like Stone in Water (5:19)
+10. Vision Eyes (4:56)(   Читать дальше...   )Жанр: Symphonic / Heavy MetalПродолжительность: 01:11:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356638   (977747) от 31.01.2020
+
+Gorillaz - Song Machine Episode 1 (2020) Single [MP3|320 Kbps] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Song Machine: Machine Bitez #1
+2. Momentary Bliss (feat. slowthai and Slaves)
+3. Machine Bitez #2
+4. Machine Bitez #3Жанр: Alternative Rock, ElectronicПродолжительность: 00:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A6EBF9C00B0C2D9FC16045FC3D67BA1223E44F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511928   (977834) от 31.01.2020
+
+Sarah Where Is My Tea - Desolate (2011) [MP3|320 кб/с]<deathcore/melodic metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Procrastination (3:59)
+02 Empty Promises (4:12)
+03 Who's Your Daddy (3:02)
+04 To Perform Last Spurt (3:40)(   Читать дальше...   )Жанр: deathcore/melodic metalcoreПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350C4ACCF88EBD731A092814469BABE96918F8B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356631   (977836) от 31.01.2020
+
+Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Together
+02. Let Me Love You
+03. I Want You Back
+04. Taste of Your Love(   Читать дальше...   )Жанр: Blues, Rock, R'n'BПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE9EA1C6C730A3CBA43073D1E9D4D5D0EA87017
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356532   (977844) от 31.01.2020
+
+Танцы Минус - Лыжи (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977844.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ЛыжиЖанр: RockПродолжительность: 00:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE4FA2AAFB406CC135BC2886C0C90B99BDD4D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356653   (977847) от 31.01.2020
+
+Ensemble Of Christ The Saviour & Crude Mother Earth - Your Knife Will Show (2019) [MP3|320 Kbps] <Radikal Political Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agony Of Government
+02. You Are Forbidden
+03. Viva The War!
+04. We Will Build All The Gulag's Again(   Читать дальше...   )Жанр: Radikal Political HardcoreПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A291480DF8B3C5A333BCB3F50E71E7CDE27F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356635   (977850) от 31.01.2020
+
+Сурганова и Оркестр - Река (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977850.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. РекаЖанр: RockПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BF97C697BBF3C9D13320ED1BB170090B56A134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356506   (977946) от 31.01.2020
 
 Green Miles - Free’N’Alive (2004) [FLAC|Lossless|image + .cue] <Rock>
@@ -427,301 +726,6 @@ Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Me
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356495   (978716) от 30.01.2020
-
-Нуки (Слот) - Волки смотрят в лес (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодно
-02. Пищевая цепочка
-03. 451
-04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A240FE3526B4A3F694F84D1FC4F12A36B36E3FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356490   (978899) от 30.01.2020
-
-Нуки (Слот) - Волки смотрят в лес (2020) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Холодно
-02. Пищевая цепочка
-03. 451
-04. Пожары(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A860F182E7339630F06349149BC040B22BEC30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356493   (978901) от 30.01.2020
-
-Lordi - Killection (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978901.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radio SCG 10
-2. Horror for Hire
-3. Shake the Baby Silent
-4. Like a Bee to the Honey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718CE113577F449852F9194EF8C545CA5A9F5E62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356487   (978902) от 30.01.2020
-
-Amberian Dawn - Looking for You (2020) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United
-02. Eternal Fire Burning
-03. Looking for You
-04. Two Blades(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01F46529BEA982FB079D5842666F1B103B18FF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973670   (978936) от 09.01.2016
-
-Lemmy & Motorhead - Leaving Here - Second Hand Songs (2016) Bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakin' All Over (Johnny Kidd & The Pirates)
-02. Train Kept-A-Rollin' (The Johnny Burnette Trio)Жанр: Hard Rock, Heavy MetalПродолжительность: 01:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903981AC6797F9E59A68C0C81C27D139A3280444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356314   (979016) от 30.01.2020
-
-Фантастика - Первобытный (2019) [MP3|320 Kbps] <Pop Punk, Punk Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Продолжаю путь
-03. Не рабы
-04. 5 аккордов(   Читать дальше...   )Жанр: Pop Punk, Punk Rock, RockПродолжительность: 00:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC555334D74B7A836FE54ECECCBDFB26FA800EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973239   (979052) от 09.01.2016
-
-Avril Lavigne - The Best Damn Thing (2007) [FLAC|Lossless|image + .cue] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Girlfriend (03:38)
-02 I Can Do Better (03:18)
-03 Runaway (03:49)
-04 The Best Damn Thing (03:11)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C920904509A8CB38128333464FA59565B0E07F9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356489   (979115) от 30.01.2020
-
-Serenity - The Last Knight (2020) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Knight
-02. Invictus
-03. Set the World on Fire
-04. Keeper of the Knights(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A6254B1E45A4EA088C49E7CE59550BA7A76493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356080   (979119) от 30.01.2020
-
-Alina Orlova (Алина Орлова) - Mutabor (2010) переиздание, 2012, Moon Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Acoustic, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Širdis
-02. Šilkas
-03. Лихорадка
-04. Stars(   Читать дальше...   )Жанр: Alternative Rock, Acoustic, FolkПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FAD4067F678A754F709A46BF19231CCDF8E8A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356010   (979123) от 30.01.2020
-
-Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Tide (06:09)
-02. Kinda Dark (03:25)
-03. It Just Doesn’t Happen (05:01)
-04. The Television Music Supervisor (04:09)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356476   (979124) от 30.01.2020
-
-Martina Edoff - Martina Edoff (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Top
-02. Back Home
-03. Who You Are
-04. Hero(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D814EA577A1D7E53614275536D1547C5A26814
 ```
 
 

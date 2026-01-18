@@ -1,3 +1,30 @@
+###  Публикация: 1402115   (703678) от 13.08.2020
+
+VA - Mindful Meditative Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finest Pasas - Mystic Clouds (06:34)
+02. Spirit - Om Sat Guru (06:41)
+03. Power Shui - Harmonious Journey (03:47)
+04. Foundations - Peacefulness (07:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F1E62DED873FFD258C76948C907967E05F4731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026440   (703953) от 15.06.2016
 
 Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
@@ -665,33 +692,6 @@ Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025537   (708123) от 13.06.2016
-
-Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Dance (4:35)
-02. Ship to Shore (4:23)
-03. Another Time, Another Place (5:54)
-04. Cherry Blossom (4:07)(   Читать дальше...   )Жанр: New-Age, Instrumental, PianoПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F20145F4C945A012E890EAECD8FC8820FCFB14
 ```
 
 

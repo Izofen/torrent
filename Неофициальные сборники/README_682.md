@@ -1,3 +1,30 @@
+###  Публикация: 1440914   (1038061) от 20.01.2021
+
+VA - Beatport Tech House: Electro Sound Pack #177-1 (2021) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композиции музыкальной этой подборки определенно должны попасть в топ лучших альбомов года каждого меломана. Ведь уже упоминание известного медиа лейбла в его названии говорит само за себя, обещая нам музыку полного драйва и адреналина.001. Acid Joy - Goes On
+002. Ultra Pop - Dance To The Beat
+003. Dillon Tap - Womp
+004. Deebesh - Of A Sudden(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 09:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D86187F86C058DBE733CBA30C884C9B46C9EF8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440829   (1038197) от 19.01.2021
 
 VA - Top 100 Most Streamed Songs On Spotify 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B732780AA73E8E7D20DA9656F1434F15B3B9E320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439745   (1039555) от 14.01.2021
-
-VA - Glam Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите послушать действительно качественную музыку, которая будет в меру спокойная и в меру энергичная, то представляемый Вам альбом под названием "Glam Deep House" это то, что нужно чтобы скоротать вечер.001. Adryiano - She's Alright
-002. A Vision Of Panorama - Atlantic Dawn
-003. Skyline Project - Mountain Ride
-004. Richard Scholtz - Belmont Apartment(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51B07DF59AFC1EE56E798ED9AD765AFE946044A
 ```
 
 

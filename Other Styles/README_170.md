@@ -1,3 +1,32 @@
+###  Публикация: 175925   (933576) от 19.02.2010
+
+Ben Chasny (Six Organs of Admittance, Comets on Fire) - Discography (37 albums) (1998-2009) [192-320|mp3] <Psychedelic Folk, Indie rock, Neofolk, Psychedelic Rock, Drone, Experimental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Six Organs of Admittance - Furnace (18:06)
+2. Azul - Campanella (4:12)
+3. Azul - Mamo (6:25)
+4. Azul - Ocean (3:15)
+5. Azul - Gnya Gnya Blues (4:02)
+6. Azul - A Short Stop Along the Way (Song for David Tibet) (4:52)Жанр: Psychedelic Folk, Indie rock, Neofolk, Stoner Rock, Drone, ExperimentalПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 284905   (933643) от 22.01.2011
 
 VA - Рапунцель: Запутанная история / Tangled (2010) [MP3|192-320 kbps]<OST>
@@ -734,33 +763,6 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E987CEF5AA8A1A0B5CB82FC96F3D6C9FDA1FC80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364471   (936257) от 03.03.2020
-
-Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May It Be
-02. Ballroom Of Romance
-03. Granuaile's Dance
-04. Dulaman(   Читать дальше...   )Жанр: Celtic, New ageПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
 ```
 
 

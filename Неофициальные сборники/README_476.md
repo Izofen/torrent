@@ -1,3 +1,30 @@
+###  Публикация: 1281901   (748299) от 10.02.2019
+
+VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bigbabygucci - Hypnotized
+002. Armoo - Bozoo
+003. Bebe Scammre - Sega Genesis
+004. Christian Foley - Temptation(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08 :31 :13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD017205C4B64C83CC73C034B43D5DC71319E633
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281815   (748301) от 10.02.2019
 
 VA - Record Super Chart 573 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04FB74F9D1A936ABB78710BB4BF4E1F83FFA1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216507   (749327) от 31.03.2018
-
-VA - Hits Cocktail Vol.17 (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tungevaag & Raaban - All For Love
-02. Darius & Finlay x Last Night feat. Max Landry - Close My Eyes
-03. Odyssey feat. Breana Marin - Fire
-04. Foxa x Bazzflow Ft. Jex - Find You (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6CBD4533AFBB07A401323CE57278FBE4D662BD
 ```
 
 

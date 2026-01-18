@@ -1,3 +1,30 @@
+###  Публикация: 1350013   (1003674) от 04.01.2020
+
+Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illegal Alien
+02. Many Too Many
+03. In The Cage
+04. Silver Rainbow(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350005   (1003723) от 04.01.2020
 
 The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock, Folk>
@@ -668,33 +695,6 @@ VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486583   (1004589) от 01.08.2021
-
-VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doesntmatter - Lewis Timetraveller
-002. Jorkes, Nikkname - Citizen
-003. Matè - Vertigo
-004. Mike Rish - Kelfavik(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 11:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17EA12224B40FAF46BE80E0B745895953A479A4
 ```
 
 

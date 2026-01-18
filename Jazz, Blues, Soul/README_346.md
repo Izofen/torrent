@@ -1,3 +1,30 @@
+###  Публикация: 1049212   (544863) от 04.09.2016
+
+Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homesick     [03:51]
+02. Cry For Me Baby     [04:02]
+03. Whispering Fields     [03:17]
+04. I Walked A Mile With Sorrow     [04:18](   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCEA4C822B5EC8E37502C5875EE6300D7E254E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049282   (544907) от 04.09.2016
 
 Bootleggers - Heart Of Dixie (2012) [MP3|320 Kbps] <Blues, Country, Southern Rock>
@@ -668,33 +695,6 @@ Distant Star (1996)(   Читать дальше...   )Жанр: Jazz, Piano, Po
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310501   (546887) от 24.06.2019
-
-ZAZ - Effet Miroir (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain C'est Toi [2:39]
- 02. Que Vendra [2:59]
- 03. On S'en Remet Jamais [3:19]
- 04. J'aime J'aime [3:26](   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E409ABB5F97D7D6C1B6E533F225E97F007A51BD2
 ```
 
 

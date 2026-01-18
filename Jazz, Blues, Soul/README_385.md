@@ -1,3 +1,246 @@
+###  Публикация: 1544694   (620199) от 16.04.2022
+
+Blaa Trikaa - Part of My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day (3:42)
+02. Sleep Another Minute (4:18)
+03. Locomotive Man (4:03)
+04. Circle of Sin (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2903E26F5D2BECB8E3AD03BE0E8C0508DF33C05D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910784   (620366) от 21.06.2015
+
+Lee Palmer - Like Elway (2015) [MP3|320 кб/с]<Country Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin’ This Chair (03:34)
+02. Life’s A Mess (03:13)
+03. Those Winter Blues (04:37)
+04. Lonely At The Top (04:02)(   Читать дальше...   )Жанр: Country BluesПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C173ED2A5A4CA46A36C23853FD7F91C9406E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910855   (620367) от 21.06.2015
+
+David Benoit ft. Jane Monheit - 2 In Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barcelona Nights
+02. This Dance
+03. Too In Love
+04. Dragonfly(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196E254A3A70209C3B9BE055F29FCE0CC287D1DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910619   (620527) от 21.06.2015
+
+Ester Rada - I Wish (2015) [FLAC|image+.cue]<Ethno Jazz, Funk, Soul, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinnerman
+02. Four Women
+03. Feeling Good
+04. I WishЖанр: Ethno Jazz, Funk, Soul, RockПродолжительность: 00:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AED513601A834BC165341B24071BE73717FB0C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910770   (620678) от 21.06.2015
+
+Gary McFarland Sextet - Point Of Departure (1963) /1998, Impulse!/[FLAC|tracks+.cue]<Jazz, Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pecos Pete [04:22]
+02. Love Theme From David And Lisa [04:46]
+03. Sandpiper [07:45]
+04. Amour Tormentoso [03:32](   Читать дальше...   )Жанр: Jazz, Hard Bop, Post-BopПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4015D8624B3F18B9761B51CED6E1BBCB1F08FED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295306   (620768) от 12.04.2019
+
+Anne Paceo - Bright Shadows (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tomorrow (4:54)
+2. Bright shadows (5:13)
+3. Hope is a swan (4:02)
+4. Nehanda (4:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Post-FusionПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148BD6CC5D5CFF6A7F7690B9DB02245244D216DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295390   (620770) от 12.04.2019
+
+Tim Weisberg - Naked Eyes (1994) Fahrenheit Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Talkin' to You [4:32]
+02. After the Rain [5:03]
+03. Brazilian Dance [4:12]
+04. Naked Eyes [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBECA4C376B69BB7193059BA7866749C8E34BA4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295452   (620771) от 12.04.2019
+
+Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introduction (1:33)
+2. The Clues (5:28)
+3. Andromeda (8:22)
+4. Slightly Behind (6:19)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B66EA69A986024A009D1E8AEAF01D67CBF5EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295392   (620772) от 12.04.2019
+
+Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Campo Belo [7:35]
+02. March to March [7:12]
+03. Edu [4:24]
+04. After the Flood [5:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A98E68542DA37E0DC7EB05014AAF87FED851E4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910769   (620794) от 21.06.2015
 
 Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
@@ -452,260 +695,6 @@ Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Ret
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A470F7DFF449AC54BBBB7493DFD30646D4AAE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036086   (622798) от 19.07.2016
-
-Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladykiller
-02. Kiss Me Mister Histrionics
-03. Be My Husband (feat. Everett Bradley)
-04. I Don’t Know(   Читать дальше...   )Жанр: Blues, Pop, SoulПродолжительность: 0:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58195005B897FBF7AE4173CF2084147CDBC711E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036061   (622825) от 19.07.2016
-
-The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.440 [09:50]
- 02.Jesus Maria And Other Spanish Strains [11:55]
- 03.Musique Mecanique I [09:47]
- 04.Musique Mecanique II (At Midnight) [07:03](   Читать дальше...   )Жанр: Post-Bop, Experimental Big BandПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33296D03C87A70EAAEB70E30E68A5CD6984C64EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035867   (622852) от 19.07.2016
-
-Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Of Blues And Dreams [05:00]
- 02.Suite For Another World - i. Lethe [11:42]
- 03.Suite For Another World - ii. Graef [06:10]
- 04.Suite For Another World - iii. Madame Xola [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A2544FA3863CB264E3A94041A45C2A23CC5AE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522064   (622936) от 13.07.2012
-
-VA - Classics In Jazz (5CD) (2005) [MP3|320 кб/с]<Jazz, Classical Music>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eugen Cicero - Classics In Jazz vol.1
-Eugen Cicero - Classics In Jazz vol.2
-Sir Roland Hanna - Georga Mraz - Classics In Jazz vol.3
-Hregor Huebner, Richie Beirach, George Mraz - Classics in Jazz vol.4
-Steve Kuhn, David Finck, Billy Drummond - Classics In Jazz vol.5Жанр: Jazz, Classical MusicПродолжительность: 01:03:35
-
-Steve Kuhn - piano
-David Finck - bass
-Billy Drummond - drums
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3645EC86C223ACC351F8581C0C1E9E97BA456627
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522082   (623019) от 13.07.2012
-
-Black Joe Lewis & The Honeybears - Scandalous (2011) [FLAC|Lossless]<Modern Electric Blues, Retro-Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' in the Jungle (03:22)
-02. I'm Gonna Leave You (03:51)
-03. Booty City (02:41)
-04. Black Snake (03:02)
-05. She's So Scandalous (04:34)
-06. Messin' (02:25)
-07. Mustang Ranch (03:41)
-08. You Been Lyin' (featuring The Relatives) (03:30)
-09. Ballad of Jimmy Tanks (03:23)
-10. Since I Met You Baby (04:14)(   Читать дальше...   )Жанр: Modern Electric Blues, Retro-SoulПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145072   (623525) от 24.06.2017
-
-Welshly Arms - Welshly Arms (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love In A Minor Key (03:57)
-02. Dirty Work (03:37)
-03. Never Meant To Be (02:54)
-04. Ain't Supposed To Rain (04:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB6A9F8AAFCB07701E196CB047B0178995E10CAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544194   (623580) от 14.04.2022
-
-Edgar Winter - Brother Johnny (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Town Blues (5:05)
-02. Still Alive and Well (3:43)
-03. Lone Star Blues (3:57)
-04. I’m Yours and I’m Hers (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40960B4FCD3D3B15458FEBF9EBD6528EAC61410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144958   (623794) от 24.06.2017
-
-Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When My Sister Sings the Blues (01:24)
-02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
-03. That Don't Appease Me (04:26)
-04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145092   (623795) от 24.06.2017
-
-Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Mission
-02. Soulsalicious
-03. Senorita Bonita
-04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
 ```
 
 

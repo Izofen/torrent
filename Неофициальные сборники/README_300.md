@@ -1,3 +1,30 @@
+###  Публикация: 933982   (504606) от 03.09.2015
+
+VA - Chill Rock (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Taylor - PS Look out for Me - Radio Edit 2015
+02. Franco Salerno - Time to Time
+03. New P - Desaster
+04. Cunz - Gimme Your Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AEC88323F8C34ADE9F26684F53E3E47F410D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540060   (504818) от 28.08.2012
 
 VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с]<Pop, Rock, Blues>
@@ -704,39 +731,6 @@ VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Br
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB67F8A459842126ABD6E70C54DD541AD939E079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539538   (506731) от 26.08.2012
-
-VA - Клубная Дискотека Record vol. 7 Зарубежная (2012) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Bob Sinclaris Feat Gilbere Drangonfly And Fatman Scoop - Rock In The Boat
-02 Loreen - Euphoria
-03 Cheryl - Call My Name
-04 Nelly Furtado - Big Hoops
-05 Martin Solveig - The Night Out
-06 Javi Mula - Come On (Dave Kurtis Remix)
-07 Vika Prayster And Magnata - Only Time (Original Mix)
-08 Megara vs. DJ Lee - Dance (Single Edit)
-09 Henrik B And Rudy - Leave A Light On (radio Edit)
-10 ATB With Dash Berlin - Apollo Road(   Читать дальше...   )Жанр: DanceПродолжительность: 06:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0ED7A3A34773F8F3CF818893D9AC3684DB2B39
 ```
 
 

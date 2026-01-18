@@ -1,3 +1,30 @@
+###  Публикация: 1149204   (602477) от 09.07.2017
+
+VA - Rock Republic: Solid Album Of Rock (2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602477.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kiss - Forever
+002. Survive This! - Down
+003. The Vision Bleak - Spirits of the Dead
+004. Emerson, Lake & Palmer - I Believe In Father Christmas(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 10:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F2953F52EA05FC6BC46513283F445CF002639D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149210   (602504) от 09.07.2017
 
 VA - Beatport Top 100 Downloads June (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
@@ -668,33 +695,6 @@ VA - Beatport Top 100 Dance June (2017) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3A997FE31AA738698276FEDB415F0009C19B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148693   (603446) от 07.07.2017
-
-VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Trance, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603446.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Timmy Trumpet, Krunk - Al Pacino (Original Mix) 03:42
-002. Clean Bandit, Zara Larsson - Symphony (feat. Zara Larsson) (Dash Berlin Remix) 05:03
-003. Jamis, MAD M.A.C. - Renegade Master (Dimitri Vegas & Like Mike Edit) 04:15
-004. Mr.Black, Ale Mora - Party People (Extended Mix) 03:46(   Читать дальше...   )Жанр: House, Tech House, Trance, Big RoomПродолжительность: 07:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1A649F1B5985B93C1F5AD9A1C9A85346E3E50B
 ```
 
 

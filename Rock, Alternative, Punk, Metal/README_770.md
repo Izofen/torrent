@@ -1,3 +1,30 @@
+###  Публикация: 1562080   (509037) от 09.07.2022
+
+Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Rock, Alt.Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opinions [00:03:07]
+02 - Dark Side [00:02:57]
+03 - Don't Fix Me [00:02:53]
+04 - Bad Idea [00:03:12](   Читать дальше...   )Жанр: Rap Rock, Alt.Rock, ElectronicПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F265B3AEAF8358DDF2244D44EC2C0327626B6291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562248   (509104) от 09.07.2022
 
 Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
@@ -670,33 +697,6 @@ Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931877   (510706) от 27.08.2015
-
-Motorhead - Bad Magic (2015) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory or Die
-02. Thunder & Lightning
-03. Fire Storm Hotel
-04. Shoot Out all of Your Lights(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCCC0884EF27634C60C7DD23B2DB87E2ED5C5DE
 ```
 
 

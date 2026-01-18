@@ -1,3 +1,30 @@
+###  Публикация: 1125534   (768061) от 15.04.2017
+
+VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
+02.  Davey Asprey - Fallout (Original Mix)  3:26
+03.  Emmer - Here (Extended Mix)  6:46
+04.  Matrick - We Fight For Our Survival (Make One Remix)  4:39(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871B3A9F5A73E1834596A314E3F69BD2C320F6CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125585   (768096) от 15.04.2017
 
 VA - Visual Image: Extended Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -666,33 +693,6 @@ VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C6ABB62EA954EDC341B28E5349ECB26FE46004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016840   (769560) от 15.05.2016
-
-VA - Правильная музыка радио Шансон (2016) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Федосей - Без тебя
-02. Виталий Теринг - В осколках зеркал
-03. Константин Жиляков - Воробушек
-04. Константин Жиляков - Дело было в Одессе(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B24B9F10C1D9247BE80FA23FFDC230AD8F05F3D
 ```
 
 

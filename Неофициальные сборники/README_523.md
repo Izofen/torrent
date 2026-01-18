@@ -1,3 +1,27 @@
+###  Публикация: 1274088   (794706) от 05.01.2019
+
+Max Oazo feat CAMI - What Is Love (2018) Remix, Cover [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794706.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Max Oazo feat CAMI - What Is Love (The Distance & Igi Remix) Haddaway CoverЖанр: Club, DanceПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCEA56511C6E84D4236296A1E7D91F1268882A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012220   (794723) от 30.04.2016
 
 VA - Соль души Блатной суперсборник (2016) [MP3|256-320 кб/с] <Шансон>
@@ -668,33 +692,6 @@ VA - Classical in Jazz Vol.2: New Jazz Version of Classical Masterpieces (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A95631CD4320E68361CF95B266BD92EACD7E872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012152   (795565) от 29.04.2016
-
-VA - Alternative Spring by Evaluator Pt.1 (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decyfer Down - Believe in Me
-02. Hour 24 - Take Me Away
-03. Throw The Fight - Bury Me Alive
-04. Cilver - It's My Life(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1E262817EA7BBB920997B85EEBD54D8B0B3B20
 ```
 
 

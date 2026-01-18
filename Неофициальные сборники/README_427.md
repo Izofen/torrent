@@ -1,3 +1,30 @@
+###  Публикация: 1135233   (683050) от 18.05.2017
+
+VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Audiorock - Party People  4:15
+02.  Dimaro & Pegasus - Last Night (On Earth) (Dimaro Club Mix)  5:39
+03.  DJs From Mars & Luca Testa feat. Becko - Stronger  4:20
+04.  Eskai & SNR feat. Jhana - Find Yourself (Original Mix)  5:02(   Читать дальше...   )Жанр: House, Progressive, Future HouseПродолжительность: 04:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A786F46CD7D87F8B6FB9F7B17AB9A0F2B8FBB599
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507827   (683265) от 08.06.2012
 
 VA - В Машину! Лето Русский (2012) [MP3|256 кб/с]<Pop>
@@ -683,33 +710,6 @@ VA - Лучший Клубный Хит (2018) [MP3|320 Kbps] <Club, House, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDA2ABD48BD3682365AF952FB8146433B74C1F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222397   (684440) от 29.04.2018
-
-VA - Лучший Клубный Хит Vol.2 (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fedde Le Grand - You Got Me Runnin
-02. Grivina - I Love Deep House (Ramirez & Rakurs Remix)
-03. Filatov & Karas Vs. Виктор Цой - Остаться С Тобой (Vox Mix)
-04. An.Du - She's A Bitch (X-Tropic Remix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03903BB95093018FA7A9234DBD4C806AA4FC0ED
 ```
 
 

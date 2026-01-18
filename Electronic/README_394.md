@@ -1,3 +1,57 @@
+###  Публикация: 1209114   (779535) от 25.02.2018
+
+VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boss Axis - Challenger (Alle Farben Remix) (6:08)
+02. Tarranado - Ain't Enough (Murat Acar Remix) (6:14)
+03. Panik Pop - Coax the Creature Out (Feat. Benjamin Galliers) (Club Mix) (6:19)
+04. Naturtalente - Mondlandung (3:04)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 06:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911AEDC87D38B01E79CD2C50C44287242523F607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209093   (779538) от 25.02.2018
+
+Yann Novak - The Future Is a Forward Escape into the Past (2018) Touch [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radical Transparency (10:00)
+02. The Inertia of Time (09:49)
+03. Casting Ourselves Back into the Past (10:19)
+04. Nothing Ever Transcends Its Immediate Environment (11:20)Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A55CCED13573178B169C3EBDA1F62CA1A4BD70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209111   (779539) от 25.02.2018
 
 Makia Blue - Dreams In The Twilight: Psychedelic Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -641,60 +695,6 @@ VA - Nothing But... Essential House Music Vol.01 (2018) [MP3|320 Kbps] <House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CF3FC60BF429AFC3AEE5BD36731CE7227139159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207822   (780313) от 20.02.2018
-
-VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Square Moon  -  Event Horizon (Original Mix)  6:22
-02.  Sergei Vasilenko  -  Mysterious Voices (Original Mix)  7:51
-03.  Martins White  -  The Golden Age (Original Mix)  7:19
-04.  Nicola Maddaloni  -  The Journey (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F96138C9BF66874FD376942DD7445B34C71861
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207646   (780387) от 19.02.2018
-
-Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Streams Pt.1 (14:36)
-02. Streams Pt.2 (11:20)
-03. Streams Pt.3 (11:56)
-04. Streams Pt.4 (09:36)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6625DFF448A6755FE43CDA75DB2AB6AB0A3EFE1
 ```
 
 

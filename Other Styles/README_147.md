@@ -1,3 +1,30 @@
+###  Публикация: 1114252   (833295) от 14.03.2017
+
+Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks] <Score, Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Score, Soundtrack, AmbientПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D3C1477CEC19C7DFDB2F10ED6362578ECCF21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114304   (833502) от 14.03.2017
 
 Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -672,33 +699,6 @@ Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757071   (839206) от 29.04.2020
-
-Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jewel in the Sun (6:35)
-02. Adrift (5:20)
-03. Under the Blue Sky (5:06)
-04. Beyond Borders (6:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
 ```
 
 

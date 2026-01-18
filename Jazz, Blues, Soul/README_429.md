@@ -1,3 +1,246 @@
+###  Публикация: 1401134   (710981) от 09.08.2020
+
+Maria Daines - Wisdom's Tooth (2007) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm The Lonely (5:16)
+02. What Are We Livin' For (4:16)
+03. Wisdom's Tooth (6:30)
+04. Pay For This (5:31)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2FD8643B018AF813D3891A209788BEC2C5136B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286596   (711182) от 03.03.2019
+
+Rosie Flores - Simple Case Of The Blues (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Love Nobody 03:53
+02. Mercy Fell Like Rain 04:46
+03. I Want To Do More 03:35
+04. Simple Case Of The Blues 03:38(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF992E2566516589652EEA27275FF90CCCCC1A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286573   (711355) от 03.03.2019
+
+Jan Johansson - 300.000 (1967, 1968) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Free Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Visa fran Jarna [4:21]
+02. Kiswahili [6:22]
+03. Willow weep for me [6:56]
+04. Staden mellan broarna [11:18](   Читать дальше...   )Жанр: Hard Bop, Free Jazz, Piano JazzПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E4436B20D5ED2E3AD62644CF835D535938F5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286576   (711361) от 03.03.2019
+
+Jan Johansson - Spelar Musik Pa Sitt Eget Vis (1964 - 1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm gonna go fishin' [2:49]
+02. Joshua fit the battle of Jericho [3:35]
+03. Django [4:47]
+04. Arap Kapero och Nanda mundani [4:05](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EAA67409F1ED5175CD9369F5CF62F8D2A688452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 329108   (711695) от 28.04.2011
+
+VA - The Best Of Big Band (2008) 4 CD [MP3|320 kbps] <Jazz, Instrumental, Oldies>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711695.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Glenn Miller Orchestra - Chattanoogo Choo Choo  02:27
+02. Benny Goodman - One O'Clock Jump  07:38
+03. Duke Ellington - Honeysuckle Rose  03:11(   Читать дальше...   )Жанр: Jazz, Instrumental, OldiesПродолжительность: 03:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75DBAD659D351A86484898928A842C0AA8E424F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219662   (711829) от 15.04.2018
+
+Malia - Ripples (Echoes Of Dreams) (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unfastened 03:16
+02. Maddy 02:34
+03. Little Darling 03:28
+04. After The Love 02:37(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949259085F6D14E1260A90F83A81496AC5CDDB14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219626   (711841) от 15.04.2018
+
+Dave Brubeck - His Greatest Hits: Take Five (1990) 1995, Sony Music [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five [05:26]
+02. I'm In A Dancing Mood [03:00]
+03. In Your Own Sweet Way [04:59]
+04. Trolley Song [03:04](   Читать дальше...   )Жанр: CoolПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A4FAE95E8D0849A1063B8A912346AC891ECE51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219628   (711981) от 15.04.2018
+
+Ed Jones - For Your Ears Only (2018) Impossible Ark Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomadology [07:36]
+02. Pandoras Box [04:57]
+03. Starbright (for Wayne Shorter) [07:46]
+04. Marielyst [12:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C349092A9E59F431329EA160264384D9F8438CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025085   (712141) от 11.06.2016
+
+Johnny Winter with Dr. John - Live in Sweden 1987 (2016) [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sound the Bell
+2. Don't Take Advantage of Me
+3. Mojo Boogie
+4. You Lie Too Much(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917F81AEA3F449F94803366DCDABA5C03CDBFB19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025306   (712201) от 11.06.2016
 
 Adrian Galysh - Into The Blue (2016) [FLAC|Lossless|image + .cue] <Blues-rock, Instrumental-guitar-rock>
@@ -452,249 +695,6 @@ Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286198   (713279) от 02.03.2019
-
-Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retrospect [14:29]
-02. Darn That Dream [6:17]
-03. Verona Rag [16:38]
-04. Tinkering [4:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B95B294C2B086268356CA602923771DC2597EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286178   (713280) от 02.03.2019
-
-Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's A Sin To Tell A Lie [2:56]
-02. All My Life [3:13]
-03. Ol' Man River [2:50]
-04. Why Was I Born? [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC642D59D2D0AFEEFC6C871E69B61C8513C22444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401013   (713493) от 08.08.2020
-
-Ella Fitzgerald - The Complete Piano Duets (1964, 1975) 2020, 2CD, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713493.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Looking for a Boy [3:10]
-02. My One and Only [3:17]
-03. How Long Has This Been Going On? [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EAF308B1C8EC92C75B7F794034216DEE224049
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401058   (713502) от 08.08.2020
-
-Horace Silver - The Horace Silver Collection (1952-1956) 2019, 2CD, Acrobat [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713502.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Horace-Scope [3:49]
-02. Safari [2:49]
-03. Thou Swell [2:55](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 02:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A550FE2C78896A8886837345C3DA339F112A179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219424   (713908) от 14.04.2018
-
-Swing Republic - Long Legs (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Breakbeat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Legs
-02. Let Yourself Go
-03. Obble-Ee-Bop
-04. Mist YouЖанр: Electro Swing, BreakbeatПродолжительность: 00:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC240176DF0B8D28C11325FA53D446F32F4D00D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024737   (714242) от 10.06.2016
-
-Deitra Farr - The Search Is Over (1997) [FLAC|Lossless|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anywhere But Here    04:31
-02. Bad Company    05:10
-03. You've Got To Choose    03:25
-04. Waiting For You    04:38(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61A50AA7F6EA7DA153DB4952AD3E71CC6D790D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024915   (714246) от 10.06.2016
-
-The Sergio Mendes Trio Featuring Wanda De Sah - Brasil '65 (1965) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.So Nice (Samba de Verao) [02:16]
- 02.Favela [02:59]
- 03.Berimbau [03:23]
- 04.Tristeza Em Mim [02:04](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52AA600357CF2D4CA66DAFF9818FAC353523A5D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024856   (714252) от 10.06.2016
-
-Boyz II Men - Throwback (2004) [APE|Lossless|image + .cue] <RnB, Swing, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Whip
-02. Let's Stay Together
-03. What You Won't Do For Love (featuring MC Lyte)
-04. Cutie Pie(   Читать дальше...   )Жанр: RnB, Swing, SoulПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E42C8E2B7D05FA80C16339247905B3AD116623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024987   (714318) от 10.06.2016
-
-Phil Woods - The New Phil Woods Album (1975) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Sun Suite (from The Sun Sweet) [11:27]
- 02.At Seventeen [04:01]
- 03.Gee [04:22]
- 04.B Side D (from Change Partners) [00:45](   Читать дальше...   )Жанр: Post-Bop, Modern Big BandПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E8331A340BB9FCE33261D39C77BE846D3CA852
 ```
 
 

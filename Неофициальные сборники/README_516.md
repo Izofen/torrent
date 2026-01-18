@@ -1,3 +1,30 @@
+###  Публикация: 1275569   (789655) от 12.01.2019
+
+VA - Top 100 Зайцев.Нет Декабрь 2018 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789655.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тима Белорусских - Мокрые кроссы
+002. Tiesto - In My Mind
+003. Макс Корж - Малиновый закат
+004. N1NT3ND0 - Ран Вася ран(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF55F11E60CDD420630543272C09794B0B2163A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201595   (789684) от 29.01.2018
 
 VA - Tropical Vibes vol. 1 (2017-2018) [MP3|320 Kbps] <Tropical House, Deep House, Nu Disco>
@@ -668,33 +695,6 @@ VA - Vocal Drum And Bass (2018) [MP3|320 Kbps] <Vocal Bass, D&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E3B62FA20FECE89F808FCBB5D2B6AC0C32F276
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202402   (790505) от 28.01.2018
-
-VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR & Headhunterz  -  Dharma  2:57
-02.  Sati Nights  -  Enchantments (Original Mix)  3:03
-03.  Robbie Rivera  -  Deep  3:06
-04.  Skinny  -  Lakshmi  3:37(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D211B3D706C61B47BD03EFEDC54314115861FB7
 ```
 
 

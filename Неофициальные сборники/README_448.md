@@ -1,3 +1,30 @@
+###  Публикация: 1025289   (712195) от 11.06.2016
+
+VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various Artists - Pussy Lounge 2016 (Continuous Mix By Darkraver & Ruthless) [01:18:21]
+02. Various Artists - Pussy Lounge 2016 (Continuous Mix By Paul Elstak & The Viper) [01:16:35]
+03. Geck-O - Sorry Not Sorry [3:16]
+04. Pat B & Nowaxx & Potato - Pressure [3:32](   Читать дальше...   )Жанр: HardstyleПродолжительность: 06:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C70CC95FAD581F9279D633DDF013B5A93816F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025291   (712213) от 11.06.2016
 
 VA - Real Retro House Party (2016) [MP3|320 кб/с] <Jumpstyle, Techno, Hard Trance>
@@ -668,33 +695,6 @@ VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219359   (713329) от 14.04.2018
-
-VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2illusions - Flying Butterfly (Original Mix) 3:56
-02. 2illusions - Spring Day 3:15
-03. Daminika - Last Goodbye 4:03
-04. DJK - I Like Chopin (Rainy Daze Chillout mix) 4:54(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 18:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16B051E3CDE27EEAF4333CB7780A0A5C41365CE
 ```
 
 

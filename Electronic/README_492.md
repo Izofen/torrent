@@ -1,3 +1,63 @@
+###  Публикация: 1354532   (987881) от 22.01.2020
+
+Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|image + .cue] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Inside Out [5:17]
+ 02 - Monkey In The Moon [3:53]
+ 03 - Guardian Angel [4:14]
+ 04 - Wishful Thinking [3:48](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD27FB51CD789F28C36903233BA671F0679C6271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611584   (987973) от 31.01.2013
+
+V.A. - Vintage Cafe 7 - Covered In Gold (4CD) (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout, Jazzy>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987973.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность: 01:17:43
+
+01. Topazz - Corcovado
+02. Bassa Nostra - Roxanne Nao Ligar
+03. Sagi Rei - Right In The Night
+04. Montefiori Cocktail - Gypsy Woman
+05. La Natives - Beautiful
+06. Rajaton - Voulez-Vous
+07. Moondust Feat. Querubyna - In Between Days(   Читать дальше...   )Жанр: Lounge, Chillout, JazzyПродолжительность: 05:12:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354082   (989054) от 21.01.2020
 
 Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -675,72 +735,6 @@ Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603187   (995951) от 19.01.2013
-
-VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deepshakerz - Silbidos 013 (07:52)
-02. Deniz Koyu - Hydra (07:05)
-03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
-04. Jean Elan - What It Takes - Club Edit (03:16)
-05. DBN - Inside Out (06:15)
-06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
-07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
-08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
-09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
-10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603693   (996045) от 18.01.2013
-
-Lemongrass - Discography (1998-2012) [MP3|320 кб/с]<Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, Breaks>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wawa - Taste Of Fear (Lemongrass Full Moon Mix)
-02. Kondencuotas Pienas - So Pure (Lemongrass Rmx)
-03. Jettricks Feat. Adefunke & Faye Houston - Lose You (Lemongrass Deep House Remix)
-04. Glam Sam And His Combo - The Last Days Of Disco (Lemongrass First Kiss Rmx)
-05. Michiko - Stuck On You (Lemongrass Samba De Sol Rmx)
-06. Tokyo Counterpoint - To The Sky (Lemongrass Free Bird Remix)
-07. Alexandra Hampton - Breaking Waves (Lemongrass Remix Feat. Jana Tarasenko)
-08. Luke Hampton - Jazz Music (Lemongrass Remix)
-09. Karen Gibson Roc - So I Say (Lemongrass Remix)
-10. Five Seasons - Love Apple (Lemongrass Wet Dreams Remix)(   Читать дальше...   )Жанр: Electronic, Downtempo, Chillout, Lounge, Ambient, Deep House, BreaksПродолжительность: 37:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E3206C58968C8E9F81B88F87C41961294BAF45
 ```
 
 

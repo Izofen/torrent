@@ -1,3 +1,30 @@
+###  Публикация: 1382495   (818687) от 11.05.2020
+
+Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Fingerstyle, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Road
+02. Song for a Rainy Morning
+03. Angelina
+04. Luttrell(   Читать дальше...   )Жанр: Fingerstyle, Acoustic GuitarПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197044   (818897) от 05.01.2018
 
 Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
@@ -668,32 +695,6 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A32F18EFAF754743095426E6FDD9CED03DB5E05F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116501   (822476) от 20.03.2017
-
-Болот Байрышев - 2 альбома (2012) [FLAC|Lossless|tracks + .cue] <World Music, Ethno, Throat Singing, Altai Горловое пение>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Алас
-2012 - Ай эскидеЖанр: World Music, Ethno, Throat Singing, Altai Горловое пениеПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6701557CBF61EDA506D0AA3A3A77FFB3B6BFAC8
 ```
 
 

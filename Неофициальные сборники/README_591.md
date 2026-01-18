@@ -1,3 +1,30 @@
+###  Публикация: 1371395   (892034) от 30.03.2020
+
+VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Club Bizarre - Persona
+02. Franz Matthews - All I Wanted
+03. Occams Laser - Abandoned Vows
+04. Colya Zucker - Magazine(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 06:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A4A4C431A9AD35AE9987F3805F9DA673F4DA53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371397   (892037) от 30.03.2020
 
 VA - Time For Dreams: Chillout Zone (2020) [MP3|320 Kbps] <Chillout, Lounge, Ambient, Downtempo>
@@ -668,33 +695,6 @@ VA - Top 50 Club Tracks 2 (2019) [MP3|320 Kbps] <House, Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71E411C82D23548DD4C0CE0610EEF4C5E1020394
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101934   (893070) от 08.02.2017
-
-VA - Ресторан Кураж зимний выпуск №3 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893070.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Дубай-Питер-Вологда 4:00
-002. Александр Курган - Сердце Прости 3:26
-003. Александр Казанцев (Сотник) - Никому Не Желаю Зла 3:21
-004. Владимир Захаров - Я Не Пойму 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18944E208EA528C87A51AA34587E81AD8D1F4F1
 ```
 
 

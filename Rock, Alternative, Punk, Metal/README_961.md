@@ -1,3 +1,297 @@
+###  Публикация: 893349   (713300) от 29.04.2015
+
+СЛОТ (The Slot) - Сила притяжения (2015) Single [MP3|320 кб/с]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сила притяженияЖанр: AlternativeПродолжительность: 00:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706A2D348A430EC1D0D0FCC2FE3CD6A9E591DDB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401077   (713308) от 08.08.2020
+
+LAMPOCHKA & Abazur - Девочка, которая хотела перепробовать всё (2020) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713308.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Никогда
+2. Девочка, которая хотела перепробовать всё
+3. Фанатка
+4. Пустою головой(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542FBE800826635F5DE53C13562B3942688EE1C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401015   (713459) от 08.08.2020
+
+Таліта Кум (Талита Кум) - 2 Альбома (2005 - 2007) [FLAC|Lossless|tracks + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Упс!
+02. Джек - пот
+03. Шоу бізнес!
+04. Просто бути людьми(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A117470CFEBAE63C80EC332E53B454F183CAF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401056   (713497) от 08.08.2020
+
+In Hearts Wake - Kaliyuga (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crisis 01:19
+02. Worldwide Suicide 01:56
+03. Hellbringer (feat. Jamie Hails) 03:22
+04. Moving On 02:51(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5549081A4E9C854C42141D59660EC49435E61F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401053   (713506) от 08.08.2020
+
+Kiljin - Master Of Illusion (2020) [MP3|320 Kbps] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path of the Warlock (06:22)
+02. I'm Sitll Alive (07:37)
+03. Personality Treason (08:00)
+04. New Disease (05:58)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692C191754ABDE5A0B98BF3C7258CD7C78FB2F4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401025   (713514) от 08.08.2020
+
+DVSR (Devastator) - West Technique (2020) [MP3|320 Kbps] <Rap Metal, Progressive Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Sugar
+02. Bloodlust (feat. CJ McMahon)
+03. Off Tap
+04. TN Tax(   Читать дальше...   )Жанр: Rap Metal, Progressive Metal, DjentПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82194AB02966CF6A72798BC4BC4B7DD8B1142AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024920   (713541) от 10.06.2016
+
+Paul McCartney - Pure McCartney (2CD) (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713541.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Maybe I'm Amazed (3:52)
+02. Heart Of The Country (2:25)
+03. Jet (4:10)(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3821C0452C3649A30C30811C81B7998BE108433D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024918   (713581) от 10.06.2016
+
+Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Band On The Run 05:14
+02. Arrow Through Me 03:38
+03. My Love 04:10
+04. Live And Let Die 03:13(   Читать дальше...   )Жанр: RockПродолжительность: 02:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401066   (713608) от 08.08.2020
+
+Good Tiger - Raised In A Doomsday Cult (2020) [MP3|320 Kbps] <Progressive Metal, Math Rock, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kimbal (2:39)
+02. Ghost Vomit (3:35)
+03. Whatever Happened to Man's Best Friend (4:16)
+04. 1252 (4:09)(   Читать дальше...   )Жанр: Progressive Metal, Math Rock, DjentПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E979DA5069600B3295898007E1D649EF8AD38EA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401041   (713609) от 08.08.2020
+
+Zero Mindset - 4 EP (2015-2020) [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intersect [00:03:49]
+02. Evil Corp [00:03:03]
+03. Theory [00:02:46]
+04. Mastermind [00:01:40](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 4 CD, 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0C2D14CE7B00FED75FA2D69533B3EB08D14C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219453   (713781) от 14.04.2018
+
+Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning
+02. Temple Of Lies
+03. On The Wings Of An Angel
+04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219295   (713899) от 14.04.2018
 
 Vildhjarta - 6 альбомов (2007 - 2015) [MP3|192-320 Kbps] <ambient, math, progressive metal>
@@ -398,302 +692,6 @@ Phil Rudd - Head Job (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C460B4F9F845A6169B3D842B31EFC4B9E8DDCC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130489   (714431) от 02.05.2017
-
-AZ.U.R. - Rock Like Pigz (1990) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son Of Rock ‘N Roll
-02. Love And Temptation
-03. Talkin’ Dirty
-04. I Don’t Need No Doctor(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A1E3D9DF0756821BC487623A9AFA8C83EF6BE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130585   (714489) от 02.05.2017
-
-Sudden Darkness / Economist - Fear of Reality: Anthology (2014) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sudden Darkness - Freece Tricolori (Burning Flesh)  (06:34) 
-02.  Sudden Darkness - Devil Dope  (07:46) 
-03.  Sudden Darkness - Deathless  (02:06) 
-04.  Sudden Darkness - Fear Of Reality  (04:46) (   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 02:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F837D0C635DC038BD77CC6330D935F3018F564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286139   (714626) от 01.03.2019
-
-Би-2 - Нечётный воин 4. Часть 2 (Retro Edition) (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сон про снег (feat. Настя Полева)
-02. Песня для героя (памяти Пипа) (feat. Варя Демидова)
-03. Унисон
-04. Для тех, кто в танке(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2F1F0DB5701EE162BD52385D18C7208744B126
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400856   (714661) от 07.08.2020
-
-Deep Purple - Whoosh! (2020) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Throw My Bones
-02. Drop the Weapon
-03. We're All the Same in the Dark
-04. Nothing at All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0647A1E56F936AB10B645B3D42FF6D0B78ABA991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286166   (714710) от 01.03.2019
-
-Пикник - Сияние (2019) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714710.jpg" />
-</div>
-
-
-###  Подробнее
-
-"О чем поется в новой песне под названием Сияние группы Пикник?
-Вы, наверное, будете немного шокированы, но там поётся именно о Сиянии! Вопрос только в том, что это за Сияние? То ли это свечение загадочных огней над ночным городом? То ли тревожное мерцание далеких звёзд? Или же это внутреннее Сияние, которое ещё только зарождается в душе человека?
-Пусть на этот (   Читать дальше...   )1. СияниеЖанр: RockПродолжительность: 00:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829341A9369C371DF6BDC1ADD437E346E5F682F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286024   (714820) от 01.03.2019
-
-Bryan Adams - Shine A Light (2019) Polydor Records [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine a Light (3:26)
- 02. That’s How Strong Our Love Is (feat. Jennifer Lopez) (3:32)
- 03. Part Friday Night, Part Sunday Morning (3:13)
- 04. Driving Under the Influence of Love (2:39)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D384AF0B032EC126F9FE6840080D48C828E1DE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532175   (714828) от 19.02.2022
-
-Immolation - Acts Of God (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandoned
-02. An Act Of God
-03. The Age Of No Light
-04. Noose Of Thorns(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452F75AC584DED2AA9D66BA11B20D43BD1CEC598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532160   (714829) от 19.02.2022
-
-Manic Sinners - King Of The Badlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drifters Union
-02. King Of The Badlands
-03. Anastasia
-04. Ball And Chain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:305B3F9AF95634E150072D864EA7B52DC32F1841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532286   (714832) от 19.02.2022
-
-Mystery - Live Life Loud (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Revolution
-02. To My Knees
-03. Lust Control
-04. All We Need Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314AAAA1137CDC8089F448C22407C4C86934F932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532158   (714840) от 19.02.2022
-
-Sleepwulf - Sunbeams Curl (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satan Is King
-02. Green Man Dead
-03. Sex Magic Manifestation
-04. Stoned Ape(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF700E11B5ECFC025ACF8D95DBF8EDDDBD966BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286145   (714917) от 01.03.2019
-
-Jane Air - ДЕТИ АТОМНЫХ СТАНЦИЙ (2019) EP [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. СМЕРТЬ НА РЕЙВЕ
-2. ДЕТИ АТОМНЫХ СТАНЦИЙ
-3. НА СТАРОНЕВСКОМ (Re-Edit Buttweizer)
-4. КАНИДРОМЖанр: AlternativeПродолжительность: 00:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74032BD183F92DB3ABCC12C595478BDA6D4BEEC1
 ```
 
 

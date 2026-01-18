@@ -1,3 +1,30 @@
+###  Публикация: 1299772   (596059) от 03.05.2019
+
+VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stormzy - Vossi Bop
+002. Lil Nas X - Old Town Road
+003. Lewis Capaldi  Pete Kelleher  Tom Barnes  Phil Cook  Benjamin Kohn - Someone You Loved
+004. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6803DF0F0E36DC9D2EF8FE529662064EC3CB2674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039316   (596060) от 01.08.2016
 
 VA - European EDM Music: July Box (2016) [MP3|249-320 Kbps] <Dance, Club, House, Electro>
@@ -671,33 +698,6 @@ VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039119   (597635) от 31.07.2016
-
-VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything But The Girl - Missing
-02. George Michael - Praying For Time
-03. Robert Miles - Children
-04. Andru Donalds - Mishale(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39BB9A911F55E34535A95A1D238344D6DC1A46B
 ```
 
 

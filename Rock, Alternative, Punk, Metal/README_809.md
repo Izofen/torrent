@@ -1,3 +1,57 @@
+###  Публикация: 1237229   (552460) от 23.07.2018
+
+Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552460.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I'm Funky
+2. Road Fever
+3. Going To Canada
+4. Waitin' For My Ship(   Читать дальше...   )Жанр: Psychedelic Rock, BluesПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCD45ED92A4A1E780FD7C14EFEC90AFBE13D9B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237463   (552462) от 23.07.2018
+
+Bighorn - Bighorn (1978) Reissue, 1999, SME Records [MP3|320 Kbps] <Classic Rock, Art Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Penny For Your Dreams
+2. (I Love You) I'm Not Afraid Anymore
+3. Star Rocker
+4. Mary-Anne(   Читать дальше...   )Жанр: Classic Rock, Art Rock, AORПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76A592ADCA7FCF8CD1FADDB66CEB98EB6E5A9F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046202   (552714) от 26.08.2016
 
 Бахыт-компот - Незнакомые явленья (2016) [MP3|320 Kbps] <Rock>
@@ -640,60 +694,6 @@ Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B777E99099BE1365CBC01227A9425F399CCE009
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308546   (553950) от 14.06.2019
-
-The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Pop Rock, Post Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:18)
- 02. Blind Ambition (3:39)
- 03. Bring Me Back To Life (3:48)
- 04. Way Down (3:21)(   Читать дальше...   )Жанр: Indie Rock, Pop Rock, Post PunkПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC0A4D345165F04B02D31F6DBE506CA2D16CBC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236779   (554009) от 19.07.2018
-
-Powerwolf - The Sacrament of Sin (2018) Deluxe Edition [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fire & Forgive
-2. Demons Are A Girl's Best Friend
-3. Killers with the Cross
-4. Incense & Iron(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA4F27C733A44DC7C1FCC37418955C9CA1F6F6A
 ```
 
 

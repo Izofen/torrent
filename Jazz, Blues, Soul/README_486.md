@@ -1,3 +1,246 @@
+###  Публикация: 1382684   (817545) от 12.05.2020
+
+Zoot Sims - The Modern Art Of Jazz 1956 (1998) Dawn [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September in the Rain [5:09]
+02. Down at the Loft [4:30]
+03. Ghost of a Chance [6:39]
+04. Not So Deep [7:04](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05679A05A511198DC116FC82ED2FFAD41E4D904B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197305   (817578) от 06.01.2018
+
+Louis Armstrong - The Silver Collection (1984) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat, White Tie And Tails
+02. Have You Met Miss Jones
+03. I Only Have Eyes For You
+04. Stormy Weather(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1275ECD5C0156A7D266D53A1BE8CB44A61D67A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503794   (817634) от 20.10.2021
+
+Black Cherry Perry's Mississippi Medicine Show - Where There's Smoke (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There's Smoke (5:27)
+02. Desperate People (3:36)
+03. Southern Cross the Dog (3:25)
+04. The Mojo Man (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484AB3CC571B560F2D777AC221B661FAB5B9F928
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503801   (817638) от 20.10.2021
+
+Frank Magnolia - Night Rider (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matter of Style (2:59)
+02. Night Rider (2:37)
+03. Leave Me Your Number (3:03)
+04. She Do What She Like (2:48)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:22:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465FC0490E37ADC626C8B4224947EF63C67C92C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503799   (817640) от 20.10.2021
+
+Carolyn Wonderland - Tempting Fate (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile Peace And Certain War (3:59)
+02. Texas Girl And Her Boots (4:20)
+03. Broken Hearted Blues (4:52)
+04. Fortunate Few (3:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACAC19486939028E7A27611B910E6236CB1D2DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382724   (817675) от 12.05.2020
+
+Maynard Ferguson - Storm 1982 (2015) Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Admiral's Horn [4:41]
+02. Jar Star [6:07]
+03. Take the 'A' Train [3:47]
+04. Latino Lovewalk [7:12](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, BopПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FEC1BBD45CF0A246506777177011C9867F8EC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382694   (817690) от 12.05.2020
+
+Maynard Ferguson & Chris Connor - Two's Company 1961 (1996) Roulette Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel a Song Coming On [2:06]
+02. The Wind [4:59]
+03. New York's My Home [4:38]
+04. Guess Who I Saw Today? [3:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFE922C4805348C96F5D34CBD4AAD649799957C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197103   (817726) от 06.01.2018
+
+Eddie 'Lockjaw' Davis - Seven Classic Albums (1959 - 1962) 4CD, 2013, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817726.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Very Saxy [08:17]
+02. Lester Leaps In [06:14]
+03. Fourmost [05:21](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 04:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DE7A8D97B59F576CB15DB4A255B14BCD37A370
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197180   (817730) от 06.01.2018
+
+Wild Bill Davison - Pretty Wild & With Strings Attached (1956, 1957) 2000, Arbors Records [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandy, Make Up Your Mind [02:36]
+02. Black Butterfly [03:00]
+03. If I Had You [02:25]
+04. Just A Gigolo [03:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A4F71E32EAAB94C45416332EB687932306D996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503783   (817795) от 20.10.2021
 
 Vincent Ingala - Fire & Desire (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -452,248 +695,6 @@ Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4B9EB7F299C14111A741D9E4832CE92E6CF30C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196916   (819351) от 05.01.2018
-
-Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rickitick Tick [06:03]
-02. There It Is [08:50]
-03. The Feeling Of Something New [09:09]
-04. Take A Chance [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382447   (819414) от 11.05.2020
-
-Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Go to My Head [6:19]
-02. Sugar [3:37]
-03. Baltimore Oriole [4:01]
-04. Do It Again [4:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE823C634946E146DD9D7DCAD0CDFFF61AD754FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503502   (819596) от 19.10.2021
-
-Dinah Shore - Happy In Love (1940 - 1942) 1995, Hallmark Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeysuckle Rose [2:45]
-02. I Do, Do You? [2:37]
-03. Manhattan Serenade [3:11]
-04. If It's You [3:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9CB7DCBAD4F294CF2D68C871AC19206E9014E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007800   (819745) от 16.04.2016
-
-Willie Phoenix & The Soul Underground - Blues My Soul (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Boom
-02. Blues Don't Shake Me
-03. Blues My Soul
-04. Crystal Ball(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E87D624122B24B24E065E87CBF310B4CF9BD0D12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007543   (819755) от 16.04.2016
-
-Weather Report - Night Passage (1980) Reissue 1990 [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Passage
-02. Dream Clock
-03. Port of Entry
-04. Forlorn(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9BAA13DA9273A3DB93BCF2F37BEAA7EA8C697F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007727   (819808) от 16.04.2016
-
-Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil Keep Chewin' (02:51)
-02. 40 Years in Bars (05:37)
-03. Some Buddy Like You (04:21)
-04. Kiddieville (04:54)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99307AC841740D879FC3AED6B32D7CC0907F2EFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007724   (819813) от 16.04.2016
-
-Roy Rogers & Norton Buffalo - Travellin' Tracks (1992) [MP3|320 кб/с] <Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Can't Forget You (04:24)
-02. Big Jake (04:19)
-03. The Message (03:45)
-04. Mercury Blues (06:06)(   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A121631F155569B578F35443FEDA5F7B90913D01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007788   (819824) от 16.04.2016
-
-Miller, Petrucciani, Lagrene, White, Garrett - Dreyfus Night In Paris (recorded 1994) (2003) [APE|Lossless|image + .cue] <Jazz, Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tutu
-02. The King Is Gone
-03. Looking UpЖанр: Jazz, Fusion, Contemporary JazzПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801F3DE0D7531EE897E210A2DF45370AB6F52E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007857   (819894) от 16.04.2016
-
-Chet Baker - Live In Rosenheim: Chet Baker's Last Recording As Quartet (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Funk In Deep Freeze [17:06]
- 02.I'm A Fool To Want You [12:07]
- 03.Portrait In Black And White [07:13]
- 04.In A Sentimental Mood [06:08](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Post-BopПродолжительность: 01:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F4C56AB9557B5042499B5A7B167D5259A53523
 ```
 
 

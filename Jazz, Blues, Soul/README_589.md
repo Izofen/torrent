@@ -1,3 +1,246 @@
+###  Публикация: 1483693   (1006402) от 17.07.2021
+
+Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If I Were A Bell
+02.Dear Lover
+03.My Dear Mr. Gaye
+04.Just Us Two(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2580248D075C3927C68418409B8A885D65422CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483901   (1006501) от 16.07.2021
+
+Brian Walton - Still Got My Mojo (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakey Ground (3:28)
+02. Crossfire (4:25)
+03. Born Under a Bad Sign (4:42)
+04. A Good Fool Is Hard to Find (4:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA7285D6413F804D24E33898345AA35263CFC14D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483906   (1006507) от 16.07.2021
+
+Chris King Robinson - Chris King Robinson (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Track You Down (3:31)
+02. Why Don't You Give Me Your Love? (4:41)
+03. Million Miles Away (4:21)
+04. Going My Own Way (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F0994829D0F46931BB3E71D19BA11E817A89AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483893   (1006516) от 16.07.2021
+
+Ben Jud - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope (Intro) (1:36)
+02. Glad You Made It (3:43)
+03. In My Chest (3:48)
+04. Believe in Myself (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE390F5F5E4C562AA328AC7E9B1F8860F57751D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483842   (1006534) от 16.07.2021
+
+Lena Horne - Love Songs (50-e - 60-e) 2005, Legacy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me or Leave Me [3:12]
+02. The Man I Love (Live) [4:29]
+03. What Is This Thing Called Love? [2:42]
+04. At Long Last Love [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99D4E6330D8F7073A6871ED0D4A80BB714D50A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483694   (1006670) от 15.07.2021
+
+Johnny Holiday - Sings (1954) 2004, Contemporary Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Your Lover Has Gone [2:40]
+02. Stardust [5:04]
+03. By Myself [3:32]
+04. It's a Blue World [3:03](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEC93AFCC54C16FEB4B759CCF5296FA31AB0FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483090   (1006790) от 14.07.2021
+
+Sananda Maitreya - Pandora's PlayHouse (2021) [FLAC|Lossless|WEB-DLL|tracks] <Funk, Soul, R&B, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006790.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Pandora's Plight
+02. Time Is On My Side
+03. Don't Break My Balls(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 00:56:43+00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08264CF9AFAD7613B1F695B4A3FF91717FB20E02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483084   (1006795) от 14.07.2021
+
+Sananda Maitreya - The Sphinx (2011) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) The Sphinx
+2) Christine
+3) The Ballad of LeBron & Kobe
+4) I Saw Her(   Читать дальше...   )Жанр: Funk, Soul, R&B, RockПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7B73580EE6E60FEC15849C4B43145929317696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483358   (1006919) от 13.07.2021
+
+David Lahm - Jazz Takes On Joni Mitchell (1999) Arkadia Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solid Love [7:04]
+02. Song for Sharon [6:45]
+03. Edith & The Kingpin [6:14]
+04. Coyote [5:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E540BA1AC00F0DF5628877D2A68F65225BF878E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483203   (1006966) от 12.07.2021
 
 Brian Simpson - All That Matters (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -452,249 +695,6 @@ Sonic Blue - Last Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D282F3FE1EE4982868F6E8ECB3E52D6C0713B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482199   (1007738) от 07.07.2021
-
-Dave Rudolf - Nostalgia (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backstreet Driver (3:52)
-02. Wayfaring Stranger (4:01)
-03. I Thought I Knew (3:54)
-04. Nostalgia (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF0D102690980CD2A0BF087128A93A7168040DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482154   (1007785) от 07.07.2021
-
-The Dave Brubeck Quartet - Time Outtakes (1959) 2020, Brubeck Editions [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Rondo a la Turk [8:54]
-02. Strange Meadowlark [7:12]
-03. Take Five [5:49]
-04. Three to Get Ready [4:58](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B4A6DFC1CFAFEF0CD647434BF3A218E2E7F63B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482158   (1007788) от 07.07.2021
-
-Dave Brubeck - In Berlin (1964) 1999, SME Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Louis Blues [12:03]
-02. Koto-Song [6:59]
-03. Take the 'A' Train [7:43]
-04. Take Five [7:09]Жанр: Cool, Mainstream JazzПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBC6410B5EDDC805ECC72125CABB69DD326B020
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482053   (1007839) от 06.07.2021
-
-Barbara Lewis - Don't Forget About Me: The Atlantic & Reprise Recordings (2020) 3CD [FLAC|Lossless|tracks + .cue] <Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longest Night of the Year (Mono Single) (2:23)
-02. My Heart Went Do Dat Da (Mono Single) (2:22)
-03. My Mama Told Me (aka 'My Momma Told Me') (2:14)
-04. Gonna Love You Till the End of Time (2:16)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 03:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45F111F09EAEA8612F6C7B92B8C84DE03980A677
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482026   (1007867) от 06.07.2021
-
-Chris King Robinson - Chris King Robinson (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Track You Down (03:31)
- 02. Why Don't You Give Me Your Love (04:41)
- 03. Million Miles Away (04:21)
- 04. Going My Own Way (03:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9692FD3F709A8134F0C7046679E92D0E285007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481970   (1007919) от 06.07.2021
-
-P.J. Perry & Doug Riley - Come Sunday: Songs of Spirituality (2004) Justin Time [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sermonette [4:35]
-02. Come Sunday [5:06]
-03. What a Friend We Have in Jesus [4:45]
-04. Freedom [6:54](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A816B3B6FB75F5F81243172A23CCE4E18D3449C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481805   (1008039) от 05.07.2021
-
-Billy May And His Orchestra - Sorta-May / Sorta-Dixie (1996) Creative World [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou Swell [2:51]
-02. Blues in the Night [3:55]
-03. Chicago [3:33]
-04. All You Want to Do Is Dance [2:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F60B6D4F6358BC809E83CEA5BA2AC12D7DD1FC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481407   (1008335) от 03.07.2021
-
-Bob Crosby And His Orchestra - 1938 (1990) Circle [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Rampart Street Parade [2:50]
-02. More Than Ever [2:40]
-03. College Swing [3:08]
-04. Please Be Kind [2:44](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490D2436CC9C898DE6F2BF3F9B73C73983C28A31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481165   (1008475) от 02.07.2021
-
-Les Brown - The Les Brown Story (1959) 1989, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got My Love to Keep Me Warm [2:47]
-02. Sentimental Journey [3:09]
-03. Bizet Has His Day [2:23]
-04. Midnight Sun [2:56](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530A89EE34328F3B8592C3F9FFE6538B9435EF09
 ```
 
 

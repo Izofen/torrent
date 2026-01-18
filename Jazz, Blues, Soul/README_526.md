@@ -1,3 +1,253 @@
+###  Публикация: 1103997   (883637) от 13.02.2017
+
+Johnnie Bassett & The Blues Insurgents - Cadillac Blues (1998) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Do, What I'm Gonna Do (4:11)
+02. Cadillac Blues (5:13)
+03. Broke In Pieces (5:54)
+04. I Can't Get It Together (4:46)(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B49074996E8F8EC35D4B944F7E824A7A9B8CBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 185374   (883661) от 24.03.2010
+
+Miles Davis (Майлз Дэвис) - Chronicle (The Complete Prestige Recordings 1951-1956) (8 CD Boxset) (1993) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: JazzПродолжительность: 09:10:29
+.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103992   (883699) от 13.02.2017
+
+Johnnie Bassett & The Blues Insurgents - I Gave My Life To The Blues (1996) [FLAC|Lossless|image + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Get Over You - 6:38
+02. Mean Feeling - 5:41
+03. Drink Muddy Water - 3:17
+04. Blowing The Horn - 3:16(   Читать дальше...   )Жанр: Blues, Modern Electric BluesПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707C90F5EDCFE90D261A0DB75A60CE245538C1C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104050   (883706) от 13.02.2017
+
+Mel Torme - Sunday In New York & Other Songs About New York (1963) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sunday In New York [02:33]
+ 02.Autumn in New York [03:23]
+ 03.Lullaby of Birdland [02:29]
+ 04.Broadway [02:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754DF7419EC5E80B4A750C589D6449495C7ED785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103263   (883737) от 13.02.2017
+
+Benoit Lugue - Cycles (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny Toy (4:37)
+02. The Blue Nine (3:39)
+03. Sugar Kane (Feat Magic Malik) (3:52)
+04. El Tigre (4:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20457E9ACF0DC1C7BC6C16ABCCAEA166F51B8D1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 763781   (883834) от 07.03.2014
+
+Jeff Steinberg - Jazz & Cocktails (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Just the Way You Look Tonight (4:38)
+02. Fly Me to the Moon (3:38)
+03. Manhattan (3:17)
+04. Nice Work if You Can Get It (3:45)
+05. Love for Sale (4:41)
+06. 'S Wonderful (4:02)
+07. East of the Sun (3:47)
+08. They Can't Take That Away From Me (3:35)
+09. Don't Get Around Much Anymore (3:44)
+10. Too Close for Comfort (4:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D51971D380BADC48C07E60979CDFB156C06DC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372761   (883998) от 04.04.2020
+
+The Oscar Peterson - Big 6 At Montreux 1975 (1997) Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au Private [11:29]
+02. Here's That Rainy Day [10:25]
+03. Poor Butterfly [15:56]
+04. Reunion Blues [13:36]Жанр: Mainstream JazzПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C0EC6EA0C5AB7A4C007C166D2CD7A25FEB3462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294908   (884353) от 19.02.2015
+
+Toots Tielemans - The Brasil Project (1992 -1993) 2CD [FLAC|Lossless]<Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Тильманс начинал как гитарист. В 1949 г. в Париже он принял участие в джем-сешне вместе с Сидни Беше, Чарли Паркером, Майлзом Дэвисом, Максом Роучем. В 1949 и 1950 годах он участвовал в европейских турне Бенни Гудмена, осуществив в Париже свою первую запись вместе с товарищем по оркестру, саксофонистом Зутом Симсом. В 1951 г. ездил в турне с бельгийским артистом Боббеяном Схупеном.
+В 1952 г. Тильманс переехал в Соединённые Штаты, где работал с Чарли Паркером, Майлзом Дэвисом и Диной Уошингтон. Он играл и записывался (   Читать дальше...   )1. Comecar De Novo
+2. Obi
+3. Felicia And Bianca
+4. O Cantador
+5. Joana Francesa(   Читать дальше...   )Жанр: Brazilian Jazz |Продолжительность: 01:49:14|
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38828C255FDE863EC800E64C4468A2605853469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870583   (884426) от 19.02.2015
+
+Robin Trower - Something's About To Change (2015) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Something's About To Change
+02. Fallen
+03. Riff N7 (Still Alive)
+04. Dreams That Shone Like Diamonds
+05. Good Morning Midnight(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526EB970940BEE2B28DC5A17600628BEE25D4960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495056   (884454) от 10.09.2021
 
 Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -484,264 +734,6 @@ Albert King - The Best of Albert King (1998) [FLAC|Lossless]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E4104B58AA261F424A597B46FC9D7828C7BD3BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763719   (885269) от 06.03.2014
-
-Freddie King - The Blues Live! Expanded Edition (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Ever Loved A Woman (12:47)
-02. Mojo Boogie (7:19)
-03. You`re The One (7:13)
-04. Messin' With The Kid (4:26)
-05. Going Down (4:18)
-06. Stormy Monday (13:39)
-07. Let The Good Times Roll (8:05)
-08. Sweet Home Chicago (6:04)
-09. Hide Away (4:27)
-10. Rock Me Baby (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7157AD3CEB8A45AC73978106A303A8F95D7E600F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763654   (885286) от 06.03.2014
-
-Buddy Guy - Live At Legends (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:39)
-02. Best Damn Fool (6:14)
-03. Mannish Boy (4:06)
-04. I Just Want To Make Love To You\Chicken Heads (9:22)
-05. Skin Deep (5:17)
-06. Damn Right I Got The Blues (6:26)
-07. Boom Boom\Strange Brew (3:01)
-08. Voodoo Chile\Sunshine Of Your Love (3:35)
-09. Polka Dot Love (5:35)
-10. Coming For You (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FE2D12C7E6731DB869E5A0CFC4A73CC606300A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103379   (885563) от 12.02.2017
-
-Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
-CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103470   (885575) от 12.02.2017
-
-Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Rather Get Shot Down (3:38)
-02. Elevator Operator (4:03)
-03. 24-7 Blues (3:49)
-04. Long Way (From Loving You) (6:33)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372063   (885623) от 03.04.2020
-
-Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' With Symphony Sid [3:02]
-02. Robbins Nest [3:16]
-03. Tico Tico [3:02]
-04. Get Happy [2:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9CF59BB4143A7FC57D7A6EE550A0489BC4CBA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297737   (885695) от 19.02.2011
-
-Joe Cocker - Joe Cocker - The Ultimate Collection 1968-2003 (2003) 2CD [APE|Lossless]<Blues, Soul, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Could You Be Loved (4:15)
-02. Civilized Man (3:54)
-03. First We Take Manhattan (3:45)
-04. The Simple Things (4:47)
-05. N'oublies Jamais (4:41)
-06. That's All I Need To Know Difendero (Live) feat. Eros Ramazzotti (4:03)
-07. Have A Little Faith In Me (4:17)
-08. Don't Let The Sun Go Down On Me (5:31)
-09. Now That The Magic Has Gone (4:42)
-10. Sweet Lil' Woman (4:04)(   Читать дальше...   )Жанр: Blues, Soul, Rock |Продолжительность: 02:09:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103537   (886007) от 12.02.2017
-
-Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz, Rock, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Past Present Organisation - Itchy Feet
-02. Trashmonkeys - Clubtown
-03. Sugarman Three - Soul Barrio Part 2
-04. James Taylor Quartet - Car Chase(   Читать дальше...   )Жанр: Acid Jazz, Rock, Funk, SoulПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD919D424276B93E06D9610C41D63AFCEBAA69D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103411   (886050) от 12.02.2017
-
-Monika Roscher Bigband - 2 Album (2012, 2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Failure in Wonderland
-2016 - Of Monsters and BirdsЖанр: Fusion, Contemporary JazzПродолжительность: 02:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB377665B5127892C0CDB424911902235BF9239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103694   (886059) от 12.02.2017
-
-Stanley Cowell - Musa: Ancestral Streams (1974) 2006, Bomba Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Abscretions [05:07]
- 02.Equipoise [03:44]
- 03.Prayer For Peace [07:09]
- 04.Emil Danenberg [02:53](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B501E5E439A78C0582F13EDE7CA636BD4E6B826A
 ```
 
 

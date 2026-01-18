@@ -1,3 +1,30 @@
+###  Публикация: 1496157   (874631) от 16.09.2021
+
+VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merol - Vol (02:42)
+ 02. AMMNNEZI - Пьяная Мадам (02:51)
+ 03. AMRAX feat. Тестостерович - Курим Кальян (02:39)
+ 04. Anette Olzon - Sad Lullaby (05:20)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD14227C242E1D2CD1F9765657D911FAED3FB717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496209   (874639) от 16.09.2021
 
 VA -   Kontor Summer Jam (2021) [MP3|320 Kbps] <Dance, Disco, House, Trance>
@@ -661,33 +688,6 @@ Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374095   (876489) от 08.04.2020
-
-Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton - Cocaine
-02. Cream - Sunshine of Your Love
-03. Eric Clapton - After Midnight
-04. Derek & The Dominos - I Looked Away (40th Anniversary Version / 2010 Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 03:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
 ```
 
 

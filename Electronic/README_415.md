@@ -1,3 +1,57 @@
+###  Публикация: 1122921   (793608) от 06.04.2017
+
+VA - Dinner and Jazz Vol.1: Finest Lounge and Smooth Jazz Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillowack — Lullaby
+02. Takt 3 — Jordan — Swing Mix
+03. Eivissarts — De la Tierra
+04. Peter Pearson — Surfing The Ether(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD594F7831CBE3E09BA36AD3FC5FE9120E3A149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122755   (793611) от 06.04.2017
+
+VA - Play Acoustic Music (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental >
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tyler Hilton - Missing You (Acoustic Version)  3:21
+02.  Saint Lu - Falling For Your Love (Acoustic Version)  2:53
+03.  Al Stewart - Soho  3:59
+04.  Kelly Joe Phelps - Dock Boggs Country Blues  6:23(   Читать дальше...   )Жанр: Downtempo, Acoustic, InstrumentalПродолжительность: 01:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770323CE324D52E233F8119CF0B5970BF644AB39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509498   (793640) от 13.11.2021
 
 Pet Shop Boys - Collection 25 Releases (1986-2020) 43 CD [FLAC|Lossless|tracks + .cue] <Synthpop, Electronic>
@@ -640,60 +694,6 @@ VA - Workout Beach 2020 Summer [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B128973D56EF5AF78A2DDE7FB1FDCFCB583057F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386423   (794554) от 29.05.2020
-
-Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TV (06:53)
-02. DB (Webo Mix) (06:41)
-03. Exotica (05:46)
-04. BC Style (Vinyl Mix) (06:28)(   Читать дальше...   )Жанр: Techno, Deep HouseПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1545BD10AD44D837A22062B68FD6DA9E92535055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200945   (794764) от 22.01.2018
-
-Aether - Nexus (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Downtempo, Chillwave, Ambient>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aether & Enzalla - Overture (04:15)
- 02. Aether & Culprate - You (feat. Higuero) (03:44)
- 03. Aether & Ekcle - Gloom.8 (06:10)
- 04. Aether & Vacant - As She Wakes (04:04)(   Читать дальше...   )Жанр: Future Garage, Downtempo, Chillwave, AmbientПродолжительность: 00:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8499A89A1904979F45A3B7D3FBDB8EAF6E7937
 ```
 
 

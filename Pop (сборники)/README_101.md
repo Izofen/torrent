@@ -1,3 +1,30 @@
+###  Публикация: 1510445   (790771) от 17.11.2021
+
+VA - National Pop Dance Music (Vol.26) (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790771.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andre Makus - Das Leben Geht Weiter
+002. Johannes Oerding - Anfassen
+003. Sharon Shannon - You're In My Love
+004. Steiner & Madlaina - So Schoen Wie Heute(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB26B01FB7CFD7253B5B1945C2D0C368B1A2BD3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510438   (790800) от 17.11.2021
 
 VA - Memories Of Summer (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13B7223E3810C84F45E865D3AF074729097CBE58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385896   (795796) от 27.05.2020
-
-VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795796.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady GaGa - Just Dance 4:01
-002. Beyoncé - Single Ladies (Put A Ring On It) 3:13
-003. Christina Aguilera & Lil' Kim feat. Mýa & P!nk - Lady Marmalade 4:25
-004. The Pussycat Dolls - Don't Cha 4:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BA672502C2D894F6A39E6B6BA65BAB7672660A
 ```
 
 

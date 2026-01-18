@@ -1,3 +1,57 @@
+###  Публикация: 896203   (758492) от 08.07.2020
+
+Abjective - Discography 21 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks]<IDM, Experimental, Glitch, Ambient, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sages (06:10)
+ 02. Xviiixvi (09:51)
+ 03. Technogenic Eleegy (07:49)
+ 04. Similitude (09:02)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Glitch, Ambient, Minimal •Продолжительность: 20:18:33 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9FAF288589FFED834063D0701BF1B99ABFAEFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280828   (758634) от 04.02.2019
+
+VA - Armin Van Buuren - A State of Trance 900 (Part 1) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren – Lifting You Higher (ASOT 900 Anthem)
+02. Estiva X Ruben de Ronde – Rainbow
+03. James Holden & Julie Thompson – Nothing (93 Returning Mix)
+04. Tritonal ft. Angel Taylor – Getaway (Gareth Emery & Ashley Wallbridge Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71494309BF10B4E9DB0CB193E4EEAFC6FDD0C51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280832   (758637) от 04.02.2019
 
 VA - Armin Van Buuren - A State of Trance Episode 900 (Part 2) (2019) [MP3|320 Kbps] <Trance>
@@ -641,60 +695,6 @@ VA - Future Vocal Trance Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:489F894B9BACB0D7EE91EABAFC00E2516975D994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214921   (761688) от 24.03.2018
-
-VA - Chill Out/La Noche (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Mushroom Recordings  -  For Bill (Original Mix)  9:49
-02.  Sabretooth  -  Sea Grass (Original Mix)  4:45
-03.  DJ Cattail  -  Chill Forest (Original Mix)  2:14
-04.  Bobby Deep  -  We're All In This Alone (Original Mix)  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32D611FC451EE96354D2866C6D05D7719BB7762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214848   (761807) от 24.03.2018
-
-VA - Ferry Corsten Presents Corsten's Countdown March (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ferry Corsten & Paul Oakenfold  -  A Slice Of Heaven (Extended Mix)  7:00
-02.  Above & Beyond feat. Richard Bedford  -  Northern Soul (Ben Bohmer Remix)  6:23
-03.  Libra presents Taylor  -  Anomaly (Calling Your Name) (DIM3NSION Remix)  5:55
-04.  Raz Nitzan feat. Moya Brennan  -  Find The Sun (Rafael Frost Remix)  3:54(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC684EB14268E0A08D18C0EE49EEFBC8C49DAC9
 ```
 
 

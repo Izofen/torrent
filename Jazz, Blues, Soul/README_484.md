@@ -1,3 +1,246 @@
+###  Публикация: 1197662   (812140) от 09.01.2018
+
+Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [11:15]
+02. Playful Flute [04:19]
+03. Love and Humor [06:13]
+04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008988   (812181) от 20.04.2016
+
+Curtis Salgado - More Than You Can Chew (1995) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Hell Withit (pt 1) (00:44)
+02. Little Charmer (04:46)
+03. I Don?t Care (05:13)
+04. Salt In My Wounds (05:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32667AF0A67D1722C32218C664A7242A959C7315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009115   (812182) от 20.04.2016
+
+Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home Stretch (04:14)
+02. Road Kill (02:44)
+03. Wash My Horse In Champagne (05:21)
+04. Cool Mistake (03:57)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D966C229CEA6615DE1D3B203104A0BB4D183E48E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009062   (812250) от 20.04.2016
+
+Eddie Harris Trio - Eddie Who? (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Eddie Who? [04:18]
+ 02.Sally Butterfly [08:50]
+ 03.Ambidextrous [06:20]
+ 04.Daahoud [07:10](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8E32D07BBDAB41A7111EBF65462609F6799115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008992   (812252) от 20.04.2016
+
+Reuben Wilson - A Groovy Situation (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.While The World Lies Waiting [05:16]
+ 02.Sweet Tooth [06:56]
+ 03.If You Let Me Make Love To You Then Why Can't I Touch You (From The Musical Production 'Salvation') [06:20]
+ 04.A Groovy Situation [08:47](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46332230C15365D4129668E7BCB76021C19DB7AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883059   (812988) от 31.03.2015
+
+Climax Blues - Broke Heart Blues (2015) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Monday
+02. Cruel
+03. Gossip Is Gold
+04. Miss You So(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4350A203651DE4DE64884709CB7978D2C18F1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118304   (813187) от 25.03.2017
+
+Joe Louis Walker - Hornet's Nest (2014) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hornet's Nest (4:04)
+02. All I Wanted To Do (4:23)
+03. As The Sun Goes Down (4:25)
+04. Stick A Fork In Me (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E5F27AEE33813AD9A7D8CAAFE22186BF1ACD04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118287   (813314) от 25.03.2017
+
+Coco Montoya - Hard Truth (2017) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before The Bullets Fly (3:12)
+02. I Want To Shout About It (3:39)
+03. Lost In The Bottle (4:48)
+04. Old Habits Are Hard To Break (5:36)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276C58115421B5257262B326258A70B5850DF699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118293   (813499) от 25.03.2017
+
+Roomful of Blues - 45 Live (2013) Recorded Live At The Ocean Mist [FLAC|Lossless|tracks + .cue] <Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Keep On Rockin' (3:48)
+02. It All Went Down The Drain (5:29)
+03. Jambalaya (5:02)
+04. Easy Baby (7:22)(   Читать дальше...   )Жанр: Jump BluesПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE4EB6C07CE249D961F1862E918DE0D6571A99F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118273   (813614) от 25.03.2017
 
 Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -450,250 +693,6 @@ VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7AF115FFDDB3811BFC5248DB0A634EC60CED80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117875   (815484) от 24.03.2017
-
-Quinn Sullivan - Midnight Highway (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой американский музыкант, гитарист и блюзмен, которым по-настоящему восхищается Бадди Гай. Сегодня даже матерые музыканты, глядя на гитариста-подростка, удивлены – он слишком хорошо, совсем 'не по возрасту' играет блюз. При этом сам Куинн говорит, что он вовсе не сводит свою жизнь к игре на гитаре – он ведет обычную жизнь обычного американского подростка.
-American (   Читать дальше...   )01. Something For Me (4:53)
-02. Tell Me I'm Not Dreaming (3:52)
-03. Midnight Highway (5:56)
-04. Crazy Into You (4:02)(   Читать дальше...   )Жанр: Blues-Rock, Electric BluesПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ECADA4B98D82A883F0A471702BBDCB3828A502
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117733   (815492) от 24.03.2017
-
-Julian Sas - Feelin' Alive (2016) Live, 2017, Cavalier Recordings [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Jump For Joy  (04:48) 
-02| High And Low  (06:26) 
-03| Did You Ever Wonder  (04:04) 
-04| Fear Of Falling  (08:00) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96C3EDF27136966C9AA9C6AC92B9F56D57CF839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117991   (815493) от 24.03.2017
-
-Green - Waltz-N-All (2013) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock, Rock, Rock'n'Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girls (4:22)
-02. Heading Down (4:40)
-03. The Letter (5:04)
-04. My Whole World (6:02)(   Читать дальше...   )Жанр: Blues-Rock, Rock, Rock'n'RollПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F815E0223F3DD48A17563675E36ED7E291B1471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117988   (815616) от 24.03.2017
-
-Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Mellow Tone [10:11]
- 02.Yesterdays [07:07]
- 03.You Go To My Head [06:01]
- 04.Tin Tin Deo [11:20](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5354952B79CFF3B38A134F0F9CCE466D99F731E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117985   (815619) от 24.03.2017
-
-Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hittin' The Jug [08:32]
- 02.Close Your Eyes [03:48]
- 03.My Romance [04:17]
- 04.Canadian Sunset [05:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFB2728F1403EE4B45DD094CB3DC170DFA4F23B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382883   (815677) от 13.05.2020
-
-Maynard Ferguson - New Vintage 1977 (2004) Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (from the 20th Century-Fox Film 'Star Wars') [4:14]
-02. Oasis [6:31]
-03. Maria (from 'West Side Story') [6:28]
-04. El Vuelo (The Flight) [7:18](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6362A4D9FC39E69CE4DA1B37E3C1CDE77E084FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382888   (815682) от 13.05.2020
-
-Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia on My Mind [3:32]
-02. Rockin' Chair [3:03]
-03. Is That Religion? [3:03]
-04. Harlem Lullaby [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A1495BE6C94B1EA9E5F8353449A998509139F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008590   (815794) от 18.04.2016
-
-Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cry Me A River 02:50
-02.Diamonds Are A Girl's Best Friend 01:59
-03.My Heart Belongs To Daddy 02:40
-04.September In The Rain 01:40(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00E8E518A8DC8B5006A4F4DD7922F09A4E388DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197485   (815817) от 07.01.2018
-
-Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Save Your Love For Me [07:44]
-02. The Bee Hive [09:11]
-03. Eddie Harris [06:20]
-04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
 ```
 
 

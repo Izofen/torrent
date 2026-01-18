@@ -1,3 +1,57 @@
+###  Публикация: 1374968   (1012889) от 03.06.2021
+
+Fugenn & The White Elephants - Discography 22 Releases (2011-2021) Progressive Form [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Downtempo, Ambient, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pattern_1 (04:00)
+ 02. Pattern_2 (05:26)
+ 03. Pattern_3 (03:36)
+ 04. Pattern_4 (04:03)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Glitch, Downtempo, Ambient, Breaks •Продолжительность: 10:53:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B2B94F08FA84461DD8385580E2E8806597DF70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474530   (1013061) от 02.06.2021
+
+Dani Corbalan - Best of Dani Corbalan (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterfall (Radio Edit) (3:09)
+02. Let It Go (Radio Edit) (2:42)
+03. Burning In Ice (Radio Edit) (2:42)
+04. Fire In Me (Radio Edit) (2:42)(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19140CD29968A714B45078C22646BDA9736FF362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474322   (1013066) от 02.06.2021
 
 Gambusia - Artist Series: Gambusia (2021) Superordinate Dub Waves [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
@@ -641,60 +695,6 @@ Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469668   (1016267) от 13.05.2021
-
-Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut My Heart Out
-02. Killed Our Love
-03. Sounds Of Blue
-04. Say It's Over(   Читать дальше...   )Жанр: Electronic, Trip-Hop, DowntempoПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEAE8EE177F0FB78E40317366EA57C278DC9441
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469204   (1016417) от 12.05.2021
-
-VA - Kontor Festival Sounds 2021.01 - The Awakening (2021) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN feat. Lanie Gardner - Dreams
-02. Dimitri Vegas & Like Mike & Scooter - We Love Hardcore (Extended Mix)
-03. Mike Candys - Sky (Original Club Mix)
-04. Steve Aoki & Ben Nicky feat. Spyro & Maikki - Like It Like That (Extended Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 06:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868F21F316820F6075C44715181F10F30B558C69
 ```
 
 

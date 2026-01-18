@@ -1,678 +1,683 @@
-###  Публикация: 1447994   (1031389) от 15.02.2021
+###  Публикация: 1454661   (1026133) от 16.03.2021
 
-Roxy Robinson - Silence And Other Sounds (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+Synth Elements - Fifth Element (2017) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031389.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Come On (5:14)
-02. Let The Love Like Shine (3:09)
-03. Lonely Is The Night (4:12)
-04. Nice And Easy (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:40:52
+01. Out of the Maze (6:32)
+02. Visions (6:00)
+03. Blind Cosmos (6:26)
+04. Misterious Book (6:45)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:18:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC26119A8F8D237D12526341DD1F442B6DDC7459
+magnet:?xt=urn:btih:A81862E18E2D7A006CA7AF6EA08C42674123FAAF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448005   (1031390) от 15.02.2021
+###  Публикация: 1454846   (1026134) от 16.03.2021
 
-Газета | Народный совет №6 (февраль 2021) [PDF]
+П.П. Кострикин (ред.) | Как это устроено? Порт и корабли (2017) [PDF]
 
->>Журналы
->>Другие журналы
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031390.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+Книга "Порт и корабли" расскажет не просто об устройстве кораблей различных эпох: парусников, пароходов, атомных крейсеров и подводных лодках, современных океанских лайнеров, но и обо всём, что связанно с мореплаванием: о маяках и фортах, о том, как управлять яхтой и океанским лайнером, о различных типах грузовых судов, об эхолоте и глубоководных аппаратах (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E32F67109B65492300E1831AF554967F8062EF98
+magnet:?xt=urn:btih:BFE97A6CB147ACF23631ED53D12CF902EE53B3AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448004   (1031391) от 15.02.2021
+###  Публикация: 1454797   (1026135) от 16.03.2021
 
-Газета | Народный совет №5 (январь-февраль 2021) [PDF]
+Сегундо Де Шомон. Короткометражки / Segundo de Chomon (1909-1910) DVDRip
 
->>Журналы
->>Другие журналы
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031391.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйФормат: PDF
+И снова этот великолепный фантазер - Сегундо Де Шомон.Производство: Франция, Pathé FrèresЖанр: Короткометражный, немое киноАктеры: НеизвестныПеревод: НемойСубтитры: Отсутствуют (в двух роликах русские отдельным файлом)Продолжительность: 01:14:00 (суммарно, 11 роликов)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CA880FEB4635C146D41F5D4455670A46C7660B2
+magnet:?xt=urn:btih:D4261BE870FFF3F57783E13352B47BF0167BDCFF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447952   (1031392) от 15.02.2021
+###  Публикация: 1454675   (1026136) от 16.03.2021
 
-Пропавший Карраччи / The Loss Carracci (Il Carracci Perduto) (2012) DVB
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карраччи (Carracci) • семья итальянских живописцев: Лодовико (Lodovico, 1555-1619 гг.) и его двоюродные братья, Агостино (Agostino, 1557-1602 гг.) и Аннибале (Annibale, 1560-1609 г.). Братья Карраччи были основателями болонской "Академии вступивших на правильный путь" (основана ок. 1585 г.). Братья Карраччи изучали произведения Рафаэля, Корреджо и венецианских (   Читать дальше...   )Производство: ИталияЖанр: Документальный, история, искусствоРежиссер: Андреа ДальпьянПеревод: Одноголосый закадровый, профессиональный (ТПО "Ред Медиа")Субтитры: отсутствуютПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71E19AAF0776D3D5940724C3822C77D7D82483E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447876   (1031393) от 15.02.2021
-
-Sirenia - Riddles, Ruins & Revelations (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addiction No. 1
-02. Towards An Early Grave
-03. Into Infinity
-04. Passing Seasons(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AC26A73391F5579A69E6169802E72F9945C4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447896   (1031394) от 15.02.2021
-
-Durbin - The Beast Awakens (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prince Of Metal
-02. Kings Before You
-03. Into The Flames
-04. The Sacred Mountain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCAC94D3406A2615E00E69CF0A66F2A57DB64BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447805   (1031395) от 15.02.2021
-
-Freddie Gibbs & The Alchemist - Alfredo (2020) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1985 (2:32)
-02. God Is Perfect (3:59)
-03. Scottie Beam (feat. Rick Ross) (4:04)
-04. Look At Me (2:33)(   Читать дальше...   )Производство: ESGN, ALC Records, Empire – ESGN0006Жанр: Hip-HopПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DCB1B796D046F63962E4603F44EC31CDDB321F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447816   (1031396) от 15.02.2021
-
-Dakh Daughters - Make Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
+Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031396.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Want (03:09)
-02. Suknya V Trusakh (03:44)
-03. Shkoda/NeShkoda (03:01)
-04. When I Was Thirty Six (04:09)(   Читать дальше...   )Жанр: Cabaret, Jazz, FolkПродолжительность: 00:42:45
+01. The Urban Smoothsmith
+02. Funk in De Pocket
+03. Friday Night
+04. Dance 3000(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69E9EFEE945D1E59D33EB6ED3D8D548317C96FEB
+magnet:?xt=urn:btih:4E3BE26338F2E4C615FA67E540328C458D9C951F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447836   (1031397) от 15.02.2021
+###  Публикация: 1454659   (1026137) от 16.03.2021
 
-Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Питтсбург Пингвинз (14.02.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Synth Elements - The Illusion of Time (Remixes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031397.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 февраля 2021, воскресенье. 23:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США). Матч прошёл без зрителей
-Главный судья: Джон Макисаак (Труро, Канада); Главный судья: Гислейн Эбер (Батерст, Канада)Телекомпания: NBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:04
+01. Gravity Zero (Extended Mix) (7:16)
+02. New Travel (Bonus Remix) (5:56)
+03. Love Bigger Than Space (Extended Mix) (7:18)
+04. Cosmological (Remix) (6:47)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:23:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDF4440D8082F2BAD619C22FA0DF6FF3EA7EAC08
+magnet:?xt=urn:btih:F3ED5093820F270376CC6F6A3E0A349A22F7B876
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447891   (1031398) от 15.02.2021
+###  Публикация: 1454839   (1026138) от 16.03.2021
 
-Леонид Андреев| Океан (2021) [Mp3]
+Шпильки - The Best & New. Альбом третий (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031398.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Леонид Андреев (1871-1919) - один из ярких представителей литературы Серебряного века, основоположник русского экспрессионизма, в прозе которого причудливо переплетаются повседневная действительность и символические, иррациональные образы.
-Пьеса "Океан" - одна из наиболее сложных драм писателя. Противопоставление инфернального образа океана-"бездны" (   Читать дальше...   )Жанр: Драма, пьесаПродолжительность: 03:16:48
+01. Сам ты Наташа (3:42)
+02. Маленькая штучка (3:31)
+03. Больше гламура (3:38)
+04. Папуасы (3:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6456396809FB7FF4D2EC59AC78E5F76A82C07AAF
+magnet:?xt=urn:btih:3F4B2DCE9EF1075D32DB14157E91DA966358F5C5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447873   (1031399) от 15.02.2021
+###  Публикация: 1454761   (1026139) от 16.03.2021
 
-Хоккей. Еврохоккейтур 2020-2021. Шведские хоккейные игры 2021. 2-й Тур. Финляндия — Чехия (2021) WEB-DL [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еврохоккейтур 2020-2021. Шведские хоккейные игры 2021 (Beijer Hockey Games).
-13 февраля 2021, суббота. 14:00 МСК
-2-й Тур.
-Финляндия — Чехия(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA235540A5D42BC5757F49833994C9241398CA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447931   (1031400) от 15.02.2021
-
-Kreek - Kreek (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Bottom Of Hell
-02. Missiles
-03. Meet Your Maker
-04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB2CC588BF7AD8E744FC36F77163D102AE89C4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447933   (1031401) от 15.02.2021
-
-Imperium - Heaven Or Hell (2020) [FLAC|Lossless|image + .cue] <Melodic Rock>
+Bram Stoker & Pete Ballam - 5 albums, 6 CD (1972-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031401.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Won't Let You
-02. Heaven Or Hell
-03. Road To Paradise
-04. Vision In A Dream(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:45:14
+Соответствуя своему готическому имиджу, обусловленному именем "Bram Stoker" (Брэм Стокер – автор романа "Дракула"), эта группа после трехлетнего существования таинственно исчезла с музыкального горизонта, чтобы по прошествии множества лет мистическим образом возродиться. Команда была создана летом 1969 года владельцем "Хаммонда" органистом (   Читать дальше...   )--------------------------
+
+01. Losers Hotel (3:25)
+02. Jump The Gun (3:36)(   Читать дальше...   )Жанр: Heavy Progressive Rock |Продолжительность: 04:12:30 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4F2428EF7FE337F46BE5394200C1FF6936049B1
+magnet:?xt=urn:btih:4890610A27A8FE78991D05C9160CD8992A873D02
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447972   (1031402) от 15.02.2021
+###  Публикация: 1454858   (1026140) от 16.03.2021
 
-Ablaze My Sorrow - Among Ashes And Monoliths (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+VA - Table Of Elements Volume 5​.​0 (2021) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nearfield - Beauty Of The Sea World (06:01)
+02. DEF - Astiiroid (05:40)
+03. Lith - Kaazar (04:28)
+04. C.H. District - Modular Live From Studio (Excerpt) (14:15)(   Читать дальше...   )Жанр: IDM, Industrial, AmbientПродолжительность: 02:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBC490F084B835526EEB2D83C3B3B3335A05B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454658   (1026141) от 16.03.2021
+
+Synth Elements - The Illusion of Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity Zero (6:44)
+02. Journey Between the Stars (6:26)
+03. X Force (6:39)
+04. Summer Holiday (6:31)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E4B1A950760860862154AABDBFFDC20A6A08A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454660   (1026142) от 16.03.2021
+
+Synth Elements - View from Outer Galaxy (2016) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Italo-Dance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Games (6:52)
+02. Giant Robots (7:21)
+03. Man Machine (5:50)
+04. We Are Generation of Space (5:55)(   Читать дальше...   )Жанр: Spacesynth, Italo-DanceПродолжительность: 01:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266677AF3FA28B74C39A8C8A3E6A7DB8E697C54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454840   (1026143) от 16.03.2021
+
+Леонид Гальперштейн | Моя первая книга о технике (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга-путеводитель по лабиринтам сложных технических изобретений и терминов. Она знакомит маленьких читателей и их родителей с таинственным миром техники. Прекрасные иллюстрации - незаменимый гид в этой увлекательной экскурсии по стране знаний.
+
+Для младшего школьного возраста.Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9E6EE69AC52F10AB2FD5DEB74D62CEBAC9AA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454690   (1026144) от 16.03.2021
+
+Редьярд Киплинг | 40 норд-50 вест (1931) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для детей младшего и среднего школьного возраста.
+Редкая книга. Первое издание в библиотеке.Жанр: Детская проза, СтихиПеревод: С. МаршакФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F06110AAAE035EB2589FACC0E73A9461231765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454847   (1026145) от 16.03.2021
+
+Схиигумен Иоанн (Алексеев) | Письма Валаамского старца, схиигумена Иоанна (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026145.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге представлено собрание писем известного валаамского подвижника, старца Иоанна (Алексеева) (1873–1958), которые он адресовал своим многочисленным духовным чадам и в которых указывается, как правильно проходить путь спасения во Христе. Душеназидательные письма схиигумена Иоанна принесут пользу всем православным христианам.Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D89CE5A612CE10EBA09482E2342C2FDE26C88EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454712   (1026146) от 16.03.2021
+
+Crystal Eyes - Starbourne Traveler (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031402.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Sorrow
-02. Among Ashes And Monoliths
-03. Black Waters
-04. Grit(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:29
+01. Gods Of Disorder
+02. Side By Side
+03. Extreme Paranoia
+04. Starbourne Traveler(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:076A9E1B005A8C7D5CEC06D2A57ADDF4353B1E6C
+magnet:?xt=urn:btih:7DC2607AB50E9BF66F17B3169812205F30879768
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447636   (1031403) от 15.02.2021
+###  Публикация: 1454697   (1026147) от 16.03.2021
 
-Хоккей. НХЛ 2020-2021. Тампа-Бэй Лайтнинг - Флорида Пантерз (13.02.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Black Diamonds - Once Upon A Time (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Untold
+02. The Ghost And The Shadow
+03. Love Stick Love
+04. Romeo & Juliet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE20AC24BB889539B31DA513B552D57A4F82CEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454770   (1026148) от 16.03.2021
+
+Хоккей. НХЛ 2020-2021. Бостон Брюинз - Питтсбург Пингвинз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031403.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 февраля 2021, воскресенье. 03:00 МСК
-Стадион: Би-Би-энд-Ти-центр (Санрайз, США), 4 509 зрителей (23 % при вместимости 19 434)
-Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: FOXSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:03
+16 марта 2021, вторник. 02:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 2 800 зрителей (15 % при вместимости 18 673)
+Главный судья: Фурман Саут (Сьюикли, США); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA8EC89B1734502376E0543AA168D82E1188FECA
+magnet:?xt=urn:btih:6F023DBB3DB90B40E1CA97DCA54ED9FEFA28DDC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447839   (1031404) от 15.02.2021
+###  Публикация: 1454774   (1026149) от 16.03.2021
 
-Django Reinhardt - 1937 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+Хоккей. НХЛ 2020-2021. Вашингтон Кэпиталз - Баффало Сэйбрз (15.03.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031404.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Had to Be You [2:45]
-02. Sweet Sue, Just You [2:30]
-03. Honeysuckle Rose [2:55]
-04. Sweet Georgia Brown [3:09](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:07:05
+16 марта 2021, вторник. 02:00 МСК
+Стадион: Кибэнк-центр (Баффало, США). Матч прошёл без зрителей
+Главный судья: Брайан Почмара (Детройт, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B25ACAB0C9492EB0AEEADFAA62A1D849B372194B
+magnet:?xt=urn:btih:E780CE5074140C158CCE1A549E08EBC76E7FB62A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447660   (1031405) от 15.02.2021
+###  Публикация: 1454666   (1026150) от 16.03.2021
 
-Сто к одному (14.02.2021) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F507170076492DB7959507BCE037A2B2CCC3A79C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447833   (1031406) от 15.02.2021
-
-Django Reinhardt - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Melancholy Baby [2:50]
-02. Japanese Sandman [3:08]
-03. Tea for Two [3:14]
-04. I Wonder Where My Baby Is Tonight? [2:48](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841FBD348EC40726019A3D038BC1CC1C04DA3199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447862   (1031407) от 15.02.2021
-
-Iron Mask - Master Of Masters (2020) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
+Michael Romeo - The Dark Chapter (1998) [APE|Lossless|image + .cue] <Progressive Neoclassical Metal, Shred>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031407.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Kiss The Ring
-02. Tree Of The World
-03. Revolution Rise
-04. One Against All(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 01:01:00
+01. Carpathia
+02. Cask of Amontillado
+03. Psychotic Episode
+04. Masque of the Red Death(   Читать дальше...   )Жанр: Progressive Neoclassical Metal, ShredПродолжительность: 00:42:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34FFDAA0DDC2A4C37BAE49116EB84DEE84C62B5D
+magnet:?xt=urn:btih:A90086F65B9E53E77ED6B35406118B4B4699AD34
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447883   (1031408) от 15.02.2021
+###  Публикация: 1454849   (1026151) от 16.03.2021
 
-Becoming The Entity - Beyond Cygnus (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+Multiplex - Discography 10 Releases (1997-2006) Toytronic, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Leftfield, Abstract, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macao (05:00)
+ 02. My Synthesiser (04:50)
+ 03. Lito : A (04:17)
+ 04. Momensch (06:29)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Leftfield, Abstract, Ambient •Продолжительность: 07:39:34 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5E26D5937A3990C07DA4D4903A8393EBC9B1AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454714   (1026152) от 16.03.2021
+
+Crystal Eyes - Dead City Dreaming (2006) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031408.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emancipation Of Our Kind
-02. Beyond Cygnus
-03. Black Hole Inversions
-04. Quantum Jump Insanity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:38
+01. Dead City Dreaming
+02. Into The Light
+03. The Narrow Mind
+04. Wall Of Stars(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE42AC295B9242E753907A86BB87CB5F26C8998B
+magnet:?xt=urn:btih:EB1330F768CA5A46B1E403836A59F69108C35BF1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447867   (1031409) от 15.02.2021
+###  Публикация: 1454741   (1026153) от 16.03.2021
 
-Terravore - Vortex Of Perishment (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Crystal Eyes - World Of Black And Silver (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031409.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poltergeist
-02. Vespa Crabro
-03. Carnal Beast
-04. Rupture(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:52
+01. Interstellar War
+02. Gods Of Ohe World
+03. Winds Of The Free
+04. The Power Behind The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:58:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7F530A73E5B0D23FC021BB75E90EF2303C41428
+magnet:?xt=urn:btih:F76419B5B7BA02B7C8B1820B5AA7D0FF8F1D601F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447835   (1031410) от 15.02.2021
+###  Публикация: 1454738   (1026154) от 16.03.2021
 
-Erskine Hawkins - 1940 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031410.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Soft Winds [3:35]
-02. Nona [3:26]
-03. Riff Time [3:05]
-04. I Know a Secret [3:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:42
+01. Vengeance Descending
+02. Highland Revenge
+03. Child Of Rock
+04. Mr. Failure(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A965F8EC6A31E9CE5ACCD8D0377EAE0B9D35B6DF
+magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447834   (1031411) от 15.02.2021
+###  Публикация: 1454735   (1026155) от 16.03.2021
 
-Erskine Hawkins - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031411.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Satan Does the Rhumba [3:04]
-02. More Than You Know [3:17]
-03. Uptown Shuffle [2:50]
-04. I Hadn't Anyone 'Till You [3:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:46
+01. The Charioteer
+02. Confessions Of The Maker
+03. Northern Rage
+04. The Fools' Ballet(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8AEE6295C52516F74C7BFC2DF575639AFDD38B7
+magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621054   (1031412) от 23.03.2023
+###  Публикация: 1454709   (1026156) от 16.03.2021
 
-Кирилл Родионов | Инсульт: до и после (2018) [MP3, Артём Носков]
+Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031412.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Инсульт занимает второе место по частоте среди причин смерти, и он может коснуться каждого.
-– Как правильно понять назначения врача и какие методы лечения инсультов сегодня признаны эффективными.
-– Какие лекарства помогут при инсульте и зачем именно они нужны.
-– Что нужно, чтобы восстановиться после инсульта – и избежать этой беды.(   Читать дальше...   )Жанр: Здоровье, МедицинаПродолжительность: 03:50:37
+01. Ride The Rainbow
+02. The Fire Of Hades
+03. The Devil Inside
+04. Waves Of War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FB3D66B90154852A33B648FCD7018846964B13A
+magnet:?xt=urn:btih:99FF79B1B44B8D6408F285A38C926B27067E114A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621096   (1031413) от 23.03.2023
+###  Публикация: 1454707   (1026157) от 16.03.2021
 
-Wondershare PDFelement 9.4.7.2144 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
+Daemonlord - Hellfire Centuries (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031413.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Rifles And Hammers (4:33)
+02. Riding The Mushhushu (4:58)
+03. Monuments of Bereavement (3:39)
+04. The Shattering (1:26)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3A0BBD46CA23771342C1193E39242BAB4545702
+magnet:?xt=urn:btih:700722FFB623F3160E4246025F7D7B08B1AB5A71
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616630   (1031414) от 23.03.2023
+###  Публикация: 1065053   (1026158) от 15.03.2021
 
-Воскресни, любовь моя / Arise, My Love (1940) DVDRip [AVO]
+Sid Meier's Civilization VI (2016) [Ru/Multi] (1.0.10.15/dlc) Repack Other s [Digital Deluxe]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031414.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американский летчик Том Мартин, ожидает приговора в испанской тюрьме в 1939 году. К власти пришли фашисты и приговорили его к смерти. Как раз перед исполнением приговора в тюрьму прибывает репортерша Августа Неш и помогает летчику совершить дерзкий побег, при условии эксклюзивного интервью. Августа и Том симпатизируют друг другу, однако, для нее карьера на первом (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, мелодрама, комедияРежиссер: Митчелл ЛейзенАктеры: Клодетт Колбер, Рэй Милланд, Дэннис О`Кифи, Уолтер Абель, Дик Пурселл, Джордж Зукко, Фрэнк Пулья, Эстер Дэйл, Пол Лейссак, Энн КоудиПеревод: Авторский (Алексей Яковлев)Язык озвучки: Русский, АнглийскийСубтитры: английские (отдельным файлом)Продолжительность: 01:46:03
+Созданная легендарным дизайнером Сидом Мейером серия Civilization представляет собой увлекательную пошаговую стратегию, в которой игроку предлагается создать империю, способную выдержать испытание временем. Станьте одним из сильных мира сего, основав собственную цивилизацию, и возглавляйте ее в течение многих эпох. Объявляйте войны, ведите дипломатические переговоры, (   Читать дальше...   )Тип издания: RepackРазработчик: Firaxis GamesЖанр: Strategy (Turn-based, Grand strategy), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий  и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1EC38E07F2E63DA463C22E511BA8C7B531E4086
+magnet:?xt=urn:btih:EEEB15F45779D8041B451528DE6CE7C42CBA10D5
 ```
 
 

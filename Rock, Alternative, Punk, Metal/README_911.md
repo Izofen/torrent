@@ -1,3 +1,318 @@
+###  Публикация: 904584   (654392) от 03.06.2015
+
+From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heresy...
+02. Straight to the Face
+03. H8 Meh!
+04. Dead Trees(   Читать дальше...   )Тип издания: АльбомЖанр: Post-Hardcore | Alt.RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0BA6A4E178115DDD8E4E432BED7E51DC4AAEF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904347   (654458) от 03.06.2015
+
+Pete Townshend - Psychoderelict (1993) Remastered /2006, Imperial Records/ [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. English Boy 05:07
+02. Meher Baba M3 03:31
+03. Let's Get Pretentious 03:36
+04. Meher Baba M4 (Signal Box) 02:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4926279AB4E7504DC97B81166E116D91FA815700
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904427   (654459) от 03.06.2015
+
+Todd Rundgren - Global (2015) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evrybody 03:28
+02. Flesh & Blood 04:50
+03. Rise 03:44
+04. Holyland 04:04(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1514F151F149BDA3E5DF3701606689BB7B3E1FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904592   (654463) от 03.06.2015
+
+Rest Among Ruins - Fugue (2015) [FLAC|tracks + .cue]<Metalcore | Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Storm
+02. In Another's Skin
+03. Before You Speak
+04. Sign to Surrender(   Читать дальше...   )Тип издания: АльбомЖанр: Metalcore | Progressive MetalПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5278788FB57909F9DA4626E0C23803A3DC2E640E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515048   (654513) от 27.06.2012
+
+Quantum Fantay - 5 albums (2005-2010) [FLAC|Lossless] <Psychedelic / Space / Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kukuriku Pt.1 - Bridge One (08:09)
+02. Follow The Star - Bridge Two (08:59)
+03. Shiver Moments - Bridge Three (07:53)
+04. Portable Forest - Bridge Four (08:28)
+05. Counter Clockwise - Bridge Five (09:20)
+06. Kukuriku Pt.2 (05:03)Жанр: Psychedelic / Space / Progressive RockПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515999   (654590) от 27.06.2012
+
+Burning Point - The Ignitor [Japanese Edition] (2012) [WavPack|Lossless]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Flame (Salvation By Fire Part II) (03:58)
+02. In The Fires Of My Self-Made Hell (03:08)
+03. In The Night (03:50)
+04. The Ignitor (04:07)
+05. Silent Scream (04:38)
+06. Heaven Is Hell (04:28)
+07. Losing Sleep (04:02)
+08. Demon Inside Of You (03:45)
+09. Everdream (03:40)
+10. Lost Tribe (03:45)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515966   (654591) от 27.06.2012
+
+Eagle Twin - The Unkindness of Crows (2009) [FLAC|Lossless] <Drone Doom / Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning was the Scream (09:13)
+02. Murder of ... (12:11)
+03. 10,000 Birds of Black Hot Fire (09:02)
+04. Storytelling of Ravens (06:23)
+05. Crow Hymn (15:00)
+06. Carry on, King of Carrion (06:26)
+07. And it came to pass that birds fell to earth as black snakes (06:34)Жанр: Drone Doom / Sludge MetalФормат: CD, AlbumПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226624   (654606) от 21.05.2018
+
+Five Finger Death Punch - And Justice For None (2018) Limited Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative, Groove, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble
+02. Fake
+03. Top Of The World
+04. Sham Pain(   Читать дальше...   )Жанр: Alternative, Groove, Nu MetalПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6F348D515720BFCCBF6D948965DF861DF97828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963798   (654649) от 28.03.2022
+
+Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) [MP3|320 кб/с] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая поп-рок-группа, основанная в 1991 году. Исполняет песни исключительно на английском языке. Наиболее известная песня — «Lemon Tree», долгое время занимала места в мировых чартах.  После смены состава в 2003 году группа стала называться Fools Garden (без апострофа).
+Все участники группы являются большими поклонниками знаменитых поп-рок и рок-групп, таких, как (   Читать дальше...   )1993 - Once In A Blue Moon
+1995 - Dish Of The Day
+1997 - Go And Ask Peggy For The Principal Thing
+2000 - For Sale(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 16:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D631FB7C173FC07D9FEAE66F9DA25E7F675197F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515717   (654674) от 27.06.2012
+
+Trixter - New Audio Machine (2012) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_654674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drag Me Down (03:58)
+02. Get On It (03:36)
+03. Dirty Love (03:40)
+04. Machine (03:34)
+05. Live For The Day (03:35)
+06. Ride (03:49)
+07. Physical Attraction (03:51)
+08. Tattoos and Misery (03:32)
+09. The Coolest Thing (03:37)
+10. Save Your Soul (04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226644   (654697) от 21.05.2018
+
+Michael Schinkel's Eternal Flame - Smoke on the Mountain (2018) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (Intro) (1:59)
+ 02. Smoke On The Mountain (4:35)
+ 03. This Is My Life (3:59)
+ 04. Queen Of The Hill (4:47)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A694D28BBD7FD0A67E764CAF60180BAFA92A869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140781   (654757) от 07.06.2017
 
 Дом Ветров - Четыре края света (2017) [MP3|320 Kbps] <Heavy Metal>
@@ -412,306 +727,6 @@ Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C6D20149CE0DF9F5422CBEAE6870B8B2D59385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903997   (655138) от 02.06.2015
-
-Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy World [05:10]
-02. Alien Nation [05:44]
-03. Tease Me Please Me [04:37]
-04. No Pain No Gain [03:47](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31CE3E38B029A512904EBA3B78F0F3CDBF62F52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904235   (655182) от 02.06.2015
-
-СерьГа - Чистота (2015) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время готовить костёр (3:23)
-02. Хоровод (2:55)
-03. Ромео и Джульетта (4:52)
-04. Чистота (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561B0FBCE78B87D68A131E4BBC0693B2A7934AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512970   (655198) от 26.06.2012
-
-The Offspring - Days Go By (2012) [FLAC|Lossless]<Alternative Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Future Is Now
-02. Secrets From The Underground
-03. Days Go By
-04. Turning Into You(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904274   (655239) от 02.06.2015
-
-Yes - Progeny: Seven Shows From Seventy-Two (2015) 14CD Box Set [FLAC|image+.cue]<Progressive Rock, Symphonic Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To The Edge 19:47
-I. The Solid Time Of Change
-II. Total Mass Retain
-III. I Get Up I Get Down(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, Art RockПродолжительность: 11:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178D2E06367F792FCED346A975831282427052C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904386   (655240) от 02.06.2015
-
-The Royal Philharmonic Orchestra - Plays Prog Rock Classics (2015) [FLAC|Lossless]<Rock, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655240.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 апреля 2015 года новый амбициозный проект вышел от одного из ведущих оркестров мира! Особую ценность записи придает участие в ней членов знаковых прогрессив-рок-групп!
-Особенно Вам понравится симфонические версии Pink Floyd’s "Comfortably Numb" с Alan Parsons Project,  мульти-инструменталист Ian Bairnson вместе с  King Crimson’s в "21st Century Schizoid (   Читать дальше...   )01. ELP Suite: Tarkus / From The Beginning / Tarkus (Reprise)  (6:39)
-02. Comfortably Numb feat. Ian Bairnson  (6:47)
-03. Thick As A Brick feat. Richard Harvey  (6:28)
-04. 21st Century Schizoid Man feat. Gavin Harrison and Guthrie Govan  (6:55)(   Читать дальше...   )Жанр: Rock, ClassicalПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2870BBEE4D8A364553BFC756700AD8857BA61B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904328   (655244) от 02.06.2015
-
-BrainStorm - 7 Steps Of Fresh Air (2015) [FLAC|Lossless]<Brit-pop, pop-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Lights Go Out (4:14)
-02. Snow Falls In Reverse (3:17)
-03. Непокой (3:39)
-04. Stay Young And Beautiful (3:33)(   Читать дальше...   )Жанр: Brit-pop, pop-rockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8966A1C7036482BF51AB5F314E0ACAB4E2C62140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515450   (655329) от 26.06.2012
-
-Hidria Spacefolk - 7 albums (2001-2007) [FLAC|Lossless] <Space, Progressive, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symetria (06:57)
-02. Futur Ixiom (07:28)
-03. 322 (06:30)
-04. Flora/Fauna (06:50)
-05. Radien (08:32)
-06. Sine (11:28)Жанр: Space, Progressive, Psychedelic RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515092   (655429) от 26.06.2012
-
-If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Post-Rock, Atmospheric, Math-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath of Life (01:48)
-02. The First Fire (06:30)
-03. Barren Lands of the Modern Dinosaur (05:57)
-04. They Speak with Knives (05:40)(   Читать дальше...   )Жанр: Post-Rock/Atmospheric/Math-RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904020   (655456) от 02.06.2015
-
-Spooky Tooth - The Island Years (1967-1974) 9CD Box Set Remastered /2015, Universal-Island Records/ [FLAC|image+.cue]<Rock, Blues Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasy Satisfier 04:39
-02. Two Time Love 03:30
-03. Kyle 03:47
-04. Woman And Gold 03:41(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive RockПродолжительность: 08:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBF84C2474A95201E21A35B2D63A6CB8F5736C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904389   (655467) от 02.06.2015
-
-Nekrogoblikon - Heavy Meta (2015) [MP3|320 кб/с]<Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Infinity
-02. We've Had Enough
-03. Bring Us More
-04. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9052F8B1D2804E294063AC4DA3ED3470E1D25291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904014   (655469) от 02.06.2015
-
-Renaissance - DeLane Lea Studio (1973) Remastered /2015, Purple Pyramid Records/ [FLAC|image+.cue]<Symphonic Rock, Art Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Understand 10:09
-02. Let It Grow 05:40
-03. Sounds Of The Sea 06:11
-04. Carpet Of The Sun 03:38(   Читать дальше...   )Жанр: Symphonic Rock, Art Rock, Prog RockПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333E58837A76D89F6367C2279FF4B37348A1CB80
 ```
 
 

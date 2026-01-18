@@ -1,3 +1,57 @@
+###  Публикация: 1391203   (781413) от 19.06.2020
+
+СЛОТ - Ин да хаос. Re-play (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 войны (2020 Re-play)
+2. Хаос (2020 Re-play)
+3. Кукла вуду (2020 Re-play)
+4. Если (2020 Re-Play)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206390   (782124) от 14.02.2018
+
+Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный флаг (3:08)
+ 02. Великий Джордано (6:05)
+ 03. Russian Rock Brothers (4:59)
+ 04. Один в поле воин (2:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205558   (783213) от 11.02.2018
 
 Вежливый Отказ - Вежливый Отказ 1985 - 1995 (1995) Антология [FLAC|Lossless|tracks + .cue] <Jazz Rock, Folk Rock>
@@ -651,60 +705,6 @@ magnet:?xt=urn:btih:2E80BEF02BA0C425888271DB192CB5190ACBE3BB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAED30119F48555AFC353E0E999BAC6A7688CACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509019   (795483) от 11.11.2021
-
-Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Век воли не видать
-02. Черней, чем блюз
-03. Оксюморон(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508556   (796802) от 09.11.2021
-
-Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello My Friend (Remastering 2021) (3:45)
- 02. Moscow Calling (Remastering 2021) (4:57)
- 03. Stare (Remastering 2021) (4:44)
- 04. Bang (Remastering 2021) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B7BB4F5E9FA9BA753497C23F876B6F2ADB0F7C
 ```
 
 

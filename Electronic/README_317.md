@@ -1,3 +1,57 @@
+###  Публикация: 1144425   (625937) от 23.06.2017
+
+VA - Ostentatious Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625937.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atelier Francesco - The Moon's Landing (07:28)
+2. Javier Carballo - Deeper World (07:37)
+3. Sierra Sam - Per Aspera Ad Astra (05:58)
+4. Cesare vs Disorder - Redshift 7 (07:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6E2CC1B2D3AA5A12EC3CCA5335A5D89F5BAD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294877   (626099) от 09.04.2019
+
+Алина Секвенция - Лучшие ремиксы (2003) [FLAC|Lossless|image + .cue] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon – Give Me Tonight ‘2003 (Sequence Radio Edit) (4:28)
+02. Alina Sequence – Stars (Freedom ‘2001 Sequence Mix) (6:59)
+03. Лика Star – Я вспоминаю тебя, как снег (Sequence Remix) (3:55)
+04. Melo-Dy – Облака (Sequence Tandem Remix) (8:17)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D2A9FF442718F6AF83C0704E0F0C6D34A4B1A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294879   (626107) от 09.04.2019
 
 Beatfarmer - Speaking with the Wind (2019) [FLAC|Lossless|WEB-DL|tracks] <Psydub, Glitch Hop, Tribal>
@@ -642,60 +696,6 @@ Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144181   (627751) от 22.06.2017
-
-VA - This Is My Church Vol.6 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Waldo Munoz - Reverse (Miami Beach Mix)  3:32
-02.  Jason Smith - Bull Drake (Original Mix)  3:45
-03.  Danny Hay - Tendency (Cosmic Light Mix)  5:52
-04.  Ranner Richard - Arab (Desert Roses Mix)  5:40(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F1A7D53D64BCB469B6BB998623E6CAA9D29043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144259   (627753) от 22.06.2017
-
-Evolving Atmospheres - Evolving Atmospheres (2017) [MP3|320 Kbps] <Ambient, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar Journey, Part One
-02. Interstellar Journey, Part Two
-03. Lost in Space
-04. Ground Control(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB02FFF24A4C49825967FF313BE32EABD484798D
 ```
 
 

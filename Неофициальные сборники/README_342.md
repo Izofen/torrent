@@ -1,3 +1,30 @@
+###  Публикация: 1043319   (572983) от 16.08.2016
+
+VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fifth Harmony - No Way
+002. Интонация - Давление
+003. The Dollyrots - Little Medusa
+004. Sasha - Всего Лишь Три Слова(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B83038C055D5814F38F4467622AAD5B9FB23DBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043477   (572985) от 16.08.2016
 
 VA - Vertex Nostalgia Daydreamer (2016) [MP3|320 Kbps] <Trance, Energy, Progressive, Melodic>
@@ -671,33 +698,6 @@ VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908663   (574145) от 20.05.2019
-
-VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brian Eno - Under Stars [04:21]
-002. London Philharmonic Orchestra, Karl Jenkins, Adiemus - Adiemus [04:01]
-003. Michael Nyman - The Heart Asks Pleasure First The Promise (Edit) [03:13]
-004. Roxy Music - Avalon [04:15](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 07:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
 ```
 
 

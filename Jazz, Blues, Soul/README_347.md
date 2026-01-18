@@ -1,3 +1,30 @@
+###  Публикация: 1310501   (546887) от 24.06.2019
+
+ZAZ - Effet Miroir (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Nu Jazz, Chanson, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_546887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demain C'est Toi [2:39]
+ 02. Que Vendra [2:59]
+ 03. On S'en Remet Jamais [3:19]
+ 04. J'aime J'aime [3:26](   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E409ABB5F97D7D6C1B6E533F225E97F007A51BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048074   (547354) от 01.09.2016
 
 Nicky Schrire - Space and Time (2013) [MP3|320 Kbps] <Jazz, Vocal>
@@ -671,33 +698,6 @@ John Brim and Pinetop Perkins - Chicago Blues Session Vol. 12 (1989) 1990, Wolf 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1618E944501AF00B8B08095016D501D2A8E1E9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046881   (550253) от 29.08.2016
-
-Magic Slim & The Teardrops - Chicago Blues Session Vol.3 (1986 - 1987) 1993, Wolf Records [FLAC|Lossless|tracks + .cue] <Chicago Blues, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Talk To Your Daughter  04:14
-02. Bad Avenue  06:13
-03. Gambler  04:24
-04. So Easy To Love You  07:22(   Читать дальше...   )Жанр: Chicago Blues, Modern Electric BluesПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53019AFF663F763483F72A80320461BB8722A097
 ```
 
 

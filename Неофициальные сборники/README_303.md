@@ -1,3 +1,30 @@
+###  Публикация: 932210   (510199) от 28.08.2015
+
+VA - A Chill House Affair Vol. 3 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Pacific Industries - Conselve (3:03)
+02. Gabriele Johnson - Mondo Novo (5:11)
+03. Neon G - Sagrado (3:25)
+04. Kama - Playmate (4:02)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 04:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3101603210EA896863C970B10811E926067218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932254   (510333) от 28.08.2015
 
 VA - A Chill House Affair Vol. 4 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
@@ -708,33 +735,6 @@ VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931615   (511874) от 26.08.2015
-
-VA - Fifty Shades Of Lounge (50 Smooth & Sexy Chill Tunes 4 Erotic Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cafe Americaine - Magical Mambo (Latin Lounge Cut) (5:23)
-02. Chillwalker - Smooth Peter (Jazzbrunch Mix) (5:21)
-03. Vladi Strecker - Red Wine (Slowjazz Mix) (6:31)
-04. Noise Boyz - I’m a Jazzwoman (Cooljazz Mix) (5:06)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C251C3CBDFA9E8695A067654DDF93758E7BF9443
 ```
 
 

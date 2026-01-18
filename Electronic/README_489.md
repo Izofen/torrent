@@ -1,3 +1,57 @@
+###  Публикация: 1356933   (976564) от 01.02.2020
+
+VA - Goa 2020 Vol.1 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Drive - Ozark (Original Mix) 6:17
+02. Marcus (IL) - Malayalam (Original Mix) 8:45
+03. Serenity Flux - Symphony Of A Broken Dream (Original Mix) 8:28
+04. Estefano Haze & Novotech - Bodyscan (Original Mix) 8:11(   Читать дальше...   )Жанр: Psy-Trance, Psychedelic, ElectronicПродолжительность: 02:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6E44CF3CFBE2BC5004814D1D1954EE0C3F3690
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356939   (976871) от 01.02.2020
+
+Proswell - Amaterasu (2020) Touched Music [FLAC|Lossless|WEB-DL|tracks] <Leftfield, IDM, Abstract, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amaterasu (03:33)
+ 02. Rakusui (04:32)
+ 03. CRT (02:57)
+ 04. Usanpo (04:16)(   Читать дальше...   )Жанр: Leftfield, IDM, Abstract, ExperimentalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0A19119F1B6A3CAB805133B1C33CEBA36D56CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614510   (976894) от 09.02.2013
 
 B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
@@ -645,60 +699,6 @@ Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972805   (980657) от 07.01.2016
-
-Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <Synth-pop, Electro>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West End Girls (10" Mix) (7:04)
- 02. Paninaro (7" Mix) (4:40)
- 03. It's A Sin (Disco Mix) (7:41)
- 04. What Have I Done To Deserve This? (7" Mix) (4:19)(   Читать дальше...   )Жанр: Synth-pop, ElectroПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9437CE6342DFDA468709FAC69248D7DFC2568686
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972679   (980674) от 07.01.2016
-
-Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golddiggers (3:36)
-02. Ding Dong Song (4:04)
-03. Teeny Weeny String Bikini (4:00)
-04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
 ```
 
 

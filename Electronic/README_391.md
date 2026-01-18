@@ -1,3 +1,57 @@
+###  Публикация: 1211523   (777272) от 08.03.2018
+
+VA - Miami Madness 2018 [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Salgado - Wanna Be (Dub Mix)
+02. Jack Souza - Thrill in the Air
+03. Stanley Loud - Need U (Dub Mix)
+04. Andrew Belize - Groofy(   Читать дальше...   )Жанр: House, Electro House, Deep HouseПродолжительность: 01:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D279AD73E5314F4E13CAB30E0937FD7A1F39CCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211491   (777275) от 08.03.2018
+
+VA - Lounge Tonight (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulnasty  -  Gravity (Original Mix)  6:42
+02.  9dw  -  Thinking Makes A Mistake (Original Mix)  4:13
+03.  Alex Cortiz  -  Fingerflowing (Original Mix)  4:12
+04.  Schwarz & Funk  -  Particular (Original Mix)  5:40(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9712D84DADFE58A9B28559B774EBCFB7662265C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211481   (777277) от 08.03.2018
 
 VA - Spring 2018 Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,57 +695,6 @@ VA - Total Trance Selections Vol.09 (2018) [MP3|320 Kbps] <Trance, Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA9FA2FF831F8870C494114C1BD5F0CCCDE841A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210866   (778242) от 05.03.2018
-
-VA - Redux Presents: The Uplifting Selection Vol.1 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  TrancEye  -  Lonesome Feelings (Extended Mix)  6:40
-02.  Kiyoi & Eky  -  Moon River (Extended Mix)  6:59
-03.  Riialto & F.G. Noise  -  Edgy (Extended Mix)  7:15
-04.  Fright Nite  -  Fifth Dimension (Extended Mix)  6:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06943A4BCEE3BC5D796B9094180CEA2CB8213055
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211068   (778244) от 05.03.2018
-
-Zen - Dark Blue (2018) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Techno, Psytech>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Blue (10:43)Жанр: Techno, PsytechПродолжительность: 00:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58AA92B58D8AC69ED0751F4D27563BCC6B48DD0C
 ```
 
 

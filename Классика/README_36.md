@@ -1,3 +1,56 @@
+###  Публикация: 1210354   (778671) от 03.03.2018
+
+Catherine Lara - Bô, le voyage musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, New Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almach 5:00
+02. Selene (with I Muvrini) 6:22
+03. Alhena 3:33
+04. Nodus 4:10(   Читать дальше...   )Жанр: Classical Crossover, New AgeПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4175965F790365987195C7E2EDD3BB10BAE3F454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208125   (779749) от 23.02.2018
+
+Paul Van Nevel & Huelgas Ensemble - Дискография (1990-2017) 53 альбома [APE\FLAC|Lossless|image+.cue] <A Cappella, Choral, Sacred>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Huelgas Ensemble — основал Поль Ван Невель в 1970 г. в Высшей школе старинной музыки в Базеле (Schola Cantorum Basiliensis, Basel).
+Название ансамбля взято по названию цистерцианского монастыря 12-го века близ Бургоса (Испания).
+Mузыкальный коллектив концентрируется на аутентичном исполнении музыки эпох Средневековья и Возрождения, представляя неожиданные проекты (   Читать дальше...   )Жанр: A Cappella, Choral, SacredПродолжительность: 60:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA83CA9366DE1B06BF86848B136040592D0E92D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208354   (779781) от 23.02.2018
 
 Jacqueline Leung - In Sunshine or In Shadow (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
@@ -639,60 +692,6 @@ Maria Callas - La Divina 3 (1986 - 1987/1995) [FLAC|Lossless|tracks + .cue] <Cla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45301CB05F6DB3944589E2F9B714EFF5708F890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121784   (799150) от 04.04.2017
-
-Handel - Carmelite Vespers 1707 (1989) 2CD, 1999, Virgin Veritas [APE|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799150.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Deus in adjutorium meum intende
-2 - Antiphon I: Pulchra es et decora
-
-Psalm I: Dixit Dominus(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A5432C998AA35C7E7E25AB5821E015C385D9FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425187   (799476) от 03.04.2017
-
-Великие композиторы. Жизнь и творчество (2009) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799476.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Маленькая ночная серенада"
-соль мажор (KV 525)
-1. Allegro
-2. Romanze - Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 83:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5A52ABF7F100CC0E94817EDD70D958D0A93B88
 ```
 
 

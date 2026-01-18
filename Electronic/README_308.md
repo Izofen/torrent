@@ -1,3 +1,57 @@
+###  Публикация: 1297190   (604829) от 21.04.2019
+
+Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|tracks] <Techno, Deep Techno, Dub Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled 1 (06:06)
+ 02. Untitled 2 (07:10)
+ 03. Untitled 3 (06:04)
+ 04. Untitled 4 (08:10)(   Читать дальше...   )Жанр: Techno, Deep Techno, Dub Techno, Tech HouseПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297281   (604830) от 21.04.2019
+
+VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Diaz & Karl Frierson - Say A Little Prayer (Unplugged Edit) 3:00
+02. Schwarz & Funk - Sheela & Luna (Original Mix) 4:59
+03. Key Of Dreams - You Don't Know (Original Mix) 5:04
+04. Peter Pearson - Message In A Dream (Original Mix) 5:22(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038699   (604847) от 29.07.2016
 
 Zhu - Generationwhy LP (2016) [MP3|320 Kbps] <Electronic, Deep House, House>
@@ -659,60 +713,6 @@ VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F30A0056BDF549A3877142A8D52CA52F38A4E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231401   (607053) от 17.06.2018
-
-VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Jorn Van Deynhoven Remix)
-02. UDM - Highlight (Extended Mix)
-03. Feel & Alexandra Badoi - Did We Feel (ReOrder Remix)
-04. Ahmed Helmy & Mhammed El Alami - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41072651A3D022EA53C9417FDE7AF9CB5A403A1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912864   (607090) от 28.06.2015
-
-VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Tech House, Deep House, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noir - "Around" (feat Hayze - album version)
-02. Little By Little - "Bang The Box"
-03. Gotsome - "Heart Starts" (Phil Weeks remix)
-04. Dale Howard - "Intervention"(   Читать дальше...   )Жанр: Tech House, Deep House, Minimal, TechnoПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
 ```
 
 

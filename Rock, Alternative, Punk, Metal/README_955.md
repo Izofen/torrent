@@ -1,3 +1,297 @@
+###  Публикация: 1220247   (706180) от 18.04.2018
+
+Олег Чилап (Оптимальный Вариант) и Пчела-Бэнд - Акустический Бродячий Цирк (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706180.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Акустический бродячий цирк I
+2. Увы…
+3. Мим
+4. Это было вчера(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962F685A94521823D4C0E8E9B94E2B811D58EEDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220234   (706182) от 18.04.2018
+
+Joe's Garage - The Best Of (2018) [MP3|320 Kbps] <Electronic Pop Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission Love
+02. Big Palais
+03. If You Hear
+04. The Sun(   Читать дальше...   )Жанр: Electronic Pop Rock, Female VocalПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D0C3127833F6B74733AE999D0950A45B32E5D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220284   (706183) от 18.04.2018
+
+Roland Nipp - Better Days (2018) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake These Blues
+02. Better Days
+03. In a Lifetime
+04. Echoes(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33CEFC20A41D131E33FA5E498E600017C65517A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220316   (706184) от 18.04.2018
+
+Roland Nipp - In the Cool of the Dawn (2017) [MP3|320 Kbps] <Roots Rock, Instrumental Rock, Electric Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Cool of the Dawn
+02. Beauty and Demons
+03. Sand
+04. It's Time(   Читать дальше...   )Жанр: Roots Rock, Instrumental Rock, Electric GuitarПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BC61679541FAE59B34FDA4618E32FFAF79F7E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131520   (706489) от 06.05.2017
+
+Ногу свело! - Туда-сюда (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Туда-сюдаЖанр: RockПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BC7B754853F6D4D0BF3579EF92BEAD86E3D476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287103   (706671) от 05.03.2019
+
+Dire Straits - The Very Best Of Dire Straits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing
+02. Tunnel Of Love
+03. My Parties
+04. Brothers In Arms(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28579BA779C0B6C8D6485DB544578AE3F68319B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131532   (706721) от 06.05.2017
+
+The Knack - Get The Knack (1979) 2017, Capitol Records, Universal Music, Mobile Fidelity Sound Lab [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Out
+02. Your Number Or Your Name
+03. Oh Tara
+04. (She's So) Selfish(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6F2F02EEC8BC58B3E9409E5F05591E28198652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131687   (706848) от 06.05.2017
+
+Per Gessle - En Vacker Natt (2017) [FLAC|Lossless|image + .cue] <Pop Rock,  Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Min Plats (3:19)
+02. Första Pris (Duett med Helena Josefsson) (4:12)
+03. Småstadsprat (Duett med Lars Winnerbäck) (3:42)
+04. Enkel Resa (3:58)(   Читать дальше...   )Жанр: Pop Rock,  PopПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2FBF3B57F6C9508AB70DD96081107D26285CB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286613   (706895) от 05.03.2019
+
+Balthazar - Fever (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever (06:05)
+02. Changes (03:46)
+03. Wrong Faces (03:57)
+04. Whatchu Doin’ (03:44)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0492B09327BDAA8A98E9E1B54637104E0C2380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286652   (706915) от 05.03.2019
+
+The Doors - Greatest Hits (1995) Recorded 1980, Remastered [FLAC|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, I Love You
+02. Light My Fire
+03. People Are Strange
+04. Love Me Two Times(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E29C2B083B8F8C50DFD2AC233C37A68D2CFDCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131674   (706937) от 06.05.2017
+
+Sерtembеr Mоurning - Vоlume I [ЕР] + Vоlumе II (2015-2016) [FLAC|Lossless|image + .cue] <Alternative Metal, Gothic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Collection (1:15)
+02. Angels To Dust (3:50)
+03. Before The Fall (3:49)
+04. Children Of Fate (4:04)(   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Female VocalПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94B48A3AD7D0540C15EAA7389CD670110E7F94FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131691   (706953) от 06.05.2017
 
 Say Sue Me - Say Sue Me (2017) [FLAC|Lossless|tracks] <Indie Pop, Surf>
@@ -400,303 +694,6 @@ Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7001DC2AFEEAF5C10EC222A9F9207ECA32E3A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533025   (707219) от 23.02.2022
-
-Kill The Pharaoh - Thrash Delivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Cream
-02. Ride In Hell Tonight
-03. Inside Me
-04. Kill The Pharaoh(   Читать дальше...   )Жанр: Heavy Metal,ThrashПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CD04B873F64D648437414075CF12D986314159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533048   (707221) от 23.02.2022
-
-The Korea - Vorratokon (2022) [MP3|320 Kbps] <Alternative Metal, Modern Metal, Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сабаки
-02. Миллениум
-03. Монохром
-04. Крысы(   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, Progressive MetalcoreПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D36DABCDFC97E996BE8F03DABF8D40EA19836DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652160   (707226) от 13.06.2016
-
-Сергей Шнуров - Сборник каверов (2013) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поезд в огне (оригинал БГ)
-02. Сто друзей (оригинал А.Пугачёва)
-03. Чёрные очки (оригинал Рикошет)
-04. Нашла (оригинал Земфира)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6AED8A7A9D8AF88EFB77AF89363EE80874D3B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131638   (707296) от 06.05.2017
-
-Ragnarok - Malediction (2012) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood of Saints
-02. Demon in My View
-03. Necromantic Summoning Ritual
-04. Divide et Impera(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EF4A694D53951E63B7133EB86CF5E6351085239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286644   (707301) от 05.03.2019
-
-Vince Gill - The Key (1998) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Don't Come Cryin' To Me 	(3:06)
-2 	If You Ever Have Forever In Mind 	(4:38)
-3 	I Never Really Knew You 	(2:14)
-4 	Kindly Keep It Country 	(3:09)(   Читать дальше...   )Жанр: Rock, Country Rock, BalladПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35727C42712D94880DB3D0E67F73EE031DA73FFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131625   (707304) от 06.05.2017
-
-Ragnarok - Arising Realm (1997) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 02:21
-02. God is Wasted 04:18
-03. Searching For My Dark Desire 04:50
-04. En Verden Av Stein 04:00(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCA1361295F9A27781717BAF3AFBA484ED4F745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287018   (707309) от 05.03.2019
-
-Attila - Villain (2019) Attila Music LLC [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore, Rapcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdition (1:44)
- 02. Villain (2:47)
- 03. Blackout (2:59)
- 04. New Addiction (3:13)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Rapcore, DeathcoreПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955D7FA8BBF9ECA363ED5135CF06C9B65D7ED575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533258   (707318) от 23.02.2022
-
-Авентайл - Поиск пути (2008) [FLAC|Lossless|image + .cue] <Melodic Death, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город, которого нет [5:35]
- 02. Кладбище надежд [4:53]
- 03. Миг на жизнь [5:19]
- 04. Новый день [4:14](   Читать дальше...   )Жанр: Melodic Death, Power MetalПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4D590B07FA7E4EAD810202A3F17CB21B8EF4C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131636   (707323) от 06.05.2017
-
-Ragnarok - Collectors of the Kings (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Resurrection
-02.	Stabbed by the Horns
-03.	Burning the Earth
-04.	In Honour of Satan(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737ED84B67A624BA29BAC077086B80A76D369768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287002   (707327) от 05.03.2019
-
-Seven Mary Three - American Standard (1995) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Water's Edge 	3:52
-2 	Cumbersome 	3:59
-3 	Roderigo 	4:24
-4 	Devil Boy 	4:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736E411ADF25683DACB3C8C779B742AE84C7E8B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286921   (707332) от 05.03.2019
-
-Methyl Ethel - Triage (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruiner (04:20)
-02. Scream Whole (04:13)
-03. All the Elements (04:24)
-04. Trip the Mains (03:49)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A0DB8738777DD2B9BC27503872B768330CB7C2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1018615   (755677) от 20.05.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride [5:49]
+ 02. Eagle And Condor [4:52]
+ 03. Cool Breeze [6:59]
+ 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018055   (755820) от 20.05.2016
 
 VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
@@ -668,33 +695,6 @@ VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D710452ED138D03B69F5B1360D9BCDB2BEDEFFD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394272   (763729) от 05.07.2020
-
-Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Rose of Spring (03:40)
- 02. Blue Star (04:35)
- 03. I ll Break Out Again Tonight (02:50)
- 04. Don t Let the Old Man In (03:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
 ```
 
 

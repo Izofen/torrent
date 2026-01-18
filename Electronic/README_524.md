@@ -1,3 +1,57 @@
+###  Публикация: 1618168   (1034363) от 10.03.2023
+
+Wolfgang Flur - Magazine 1 (2022) [FLAC|Lossless|image + .cue] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольфганг Флюр — единственный оставшийся в живых участник классического состава Kraftwerk, который в настоящее время пишет и выпускает новую музыку! Полностью новый электронный альбом «Magazine 1», который был создан Вольфгангом Флюром вместе с некоторыми самых известных имен синти-попа и электронного танца прошлого и настоящего. С участием Мидж Юр (Ultravox), Питера (   Читать дальше...   )01. Magazine (feat. Ramón Amezcua)
+02. Zukunftsmusik (feat. U96)
+03. Best Buy (feat. U96)
+04. Das Beat (feat. Midge Ure)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CEEE54BC0D342F0BC1F0DCDD3C892D2E2C62C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444689   (1034428) от 02.02.2021
+
+Joachim Spieth - Ousia (2021) Affin [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sparsha (07:17)
+02. Jiwa (06:39)
+03. Mutuus (with Markus Guentner) (07:43)
+04. Akasha (07:20)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D34DDD00220AC33774E5B26A9DD6A25BA0504ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444588   (1034437) от 02.02.2021
 
 Spacehawk - Terracide (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Spacedisco, Spacedance>
@@ -638,60 +692,6 @@ VA - Fitness Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D86440EC9BC298412BD3D3F792F6888B18763A28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443508   (1035471) от 29.01.2021
-
-VA - Armin van Buuren - A State Of Trance 1001 (Celebration Mix) (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andain – Beautiful Things (Gabriel & Dresden Unplugged Mix)
-02. Gareth Emery & STANDERWICK ft. HALIENE – Saving Light
-03. Yuri Kane ft. Kate Walsh – Right Back
-04. Cosmic Gate ft. Emma Hewitt – Be Your SoundЖанр: Trance, Progressive TranceПродолжительность: 02:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1669BB5B430C4B738A4F5FFB17CFADF71D3FA6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412544   (1035474) от 29.01.2021
-
-Giuseppe Falivene - Discography 14 Releases (2017-2021) Annulled, Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Techno,  Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icelands (05:02)
- 02. Never Ending (08:08)
- 03. Ravessence (09:22)
- 04. Diagonal (06:30)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Drone, Techno,  Experimental •Продолжительность: 07:29:04 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B53CCC00C5DD8D7C9EE9067D2C29D531D5724F2
 ```
 
 

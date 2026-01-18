@@ -1,3 +1,301 @@
+###  Публикация: 1273561   (799897) от 02.01.2019
+
+Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter (4:12)
+02. Breaker (3:50)
+03. The Messenger (3:28)
+04. Arrival (5:57)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF0F3B8BD7A7246CF3B427F63E8E4F9EEBD4CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273566   (799900) от 02.01.2019
+
+Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Chaos to Murder
+03. Fallen One
+04. My Dominion(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273562   (799901) от 02.01.2019
+
+Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Queen
+02. A Kiss And A Rose
+03. Fate's Introduction
+04. The Lonely Warrior's Fate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273570   (799902) от 02.01.2019
+
+Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:39
+02. Heroes to the Gallows 05:57
+03. Animal Killstinct 05:16
+04. Rise of the Cobra 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273574   (799903) от 02.01.2019
+
+Wreck-Defy - Fragments of Anger (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Industrial Lies 05:33
+02. Justify the Unjust 05:10
+03. Sentenced 06:48
+04. The Eternal Lie 04:14(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A80933DB47AB616DFD51B4AE8B966218BD466D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273567   (799905) от 02.01.2019
+
+Killers - Danger de vie (1986) Reissued, 1997 [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Metal Kids 05:50
+02. L'assassin 06:00
+03. Bouffon 04:45
+04. Parabellum 04:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:757B0B0CFB7399BA4C6DA55EEE32CFB95EF9E3EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506453   (799927) от 31.10.2021
+
+Limp Bizkit - Still Sucks (2021) [MP3|320 Kbps] <Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of Style
+02. Dirty Rotten Bizkit
+03. Dad Vibes
+04. Turn It Up, Bitch(   Читать дальше...   )Жанр: Nu Metal, MetalcoreПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA22859AC0A674FFF60DE4E1AF0ACE8945869272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506615   (799943) от 31.10.2021
+
+Pink Floyd - Ummagumma (1969) 2xCD, Remastered 2011, reissue 2021 [FLAC 2.0|192/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc - 1:
+1. Astronomy Domine (8:30)
+2. Careful With That Axe, Eugene (8:50)
+3. Set The Controls For The Heart Of The Sun (9:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:26:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C076CC3974AD92C751A9A21BB0A0D842BE73D8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506466   (799992) от 31.10.2021
+
+The Immediate Family - The Immediate Family (2021) [FLAC|Lossless|image + .cue] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Stop Progress (04:28)
+02. Slippin' And Slidin' (03:55)
+03. Everything That's Broken (03:21)
+04. Damage (03:26)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3034FFC38B4A51AB21E66E6F24B51CDFBE7736E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506382   (800000) от 31.10.2021
+
+U.D.O. - Game Over (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатый по счёту полноформатник, получивший название "Game Over", увидел свет 21 октября этого 2021 года на лейбле AFM Records.
+Название работы "Game Over" отражает размышления о возможном фатальном будущем человечества, если оно не переосмыслит некоторые аспекты своего существования. Например, в песне группа "Kids And Guns" критикует (   Читать дальше...   )01. Fear Detector
+02. Holy Invaders
+03. Prophecy
+04. Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBB661CBBD164801E73F83987DA8DBC683DD465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199700   (800061) от 17.01.2018
+
+Fall Out Boy - M A N I A (2018) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay Frosty Royal Milk Tea (02:50)
+02. The Last of the Real Ones (03:50)
+03. HOLD ME TIGHT OR DON’T (03:30)
+04. Wilson (Expensive Mistakes) (03:36)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD30AAAD721041DB3B9445EF536E67AA70B4367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506488   (800094) от 31.10.2021
 
 BrainStorm - Год без календаря (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -398,297 +696,6 @@ magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E237E256018DC3EABB2ECB6AD40B46F0700351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385130   (800332) от 23.05.2020
-
-7Б - Майская звезда (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Майская звездаЖанр: RockПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C67C99FACA45902DECEAB70DA95718DBE90FA638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385021   (800333) от 23.05.2020
-
-Pavlov's Dog - At The Sound Of The Bell (1976) [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Came Shining (4:20)
-02. Standing Here With You (Megan's Song) (3:52)
-03. Mersey (3:05)
-04. Valkerie (5:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:33:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59877B90D58A60C5B22FD747460EECE38EA470C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385134   (800342) от 23.05.2020
-
-666 - Мясо с кровью (2020) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800342.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пули в тело - деньги в дело
-2. Летучие мыши
-3. Под прицелом
-4. Ад(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600D27C868143ECCB1CF5F78C7486D808F9BB513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199817   (800352) от 17.01.2018
-
-Маша Кудрявцева и группа Кудри - Люди и тени (2017) [MP3|320 Kbps] <Art Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По линиям метро
-02. То снег, то дождь
-03. Там, где ты
-04. О личном(   Читать дальше...   )Жанр: Art Pop, RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E2DC84687DB09D5E663806C37AD289E0FA3B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199699   (800361) от 17.01.2018
-
-Полини - Время дождей (2017) [MP3|320 Kbps] <Acoustic Rock, Folk Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Так и стоял до рассвета
-02. Солнце на коне
-03. Золотое правило
-04. Время дождей(   Читать дальше...   )Жанр: Acoustic Rock, Folk Rock, Art RockПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3D09498E4ACBF30BCF72186D65DBE7E961A17F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199665   (800362) от 17.01.2018
-
-Per Frost - The Calling (2018) [MP3|320 Kbps] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Crow Blues (04:11)
-02. A Case Of You (04:44)
-03. Take Me To The River (03:59)
-04. Tannis Bay (03:34)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1F93DCC8A4C4BFDC8E24E611FCF1A7A9B9CB51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385222   (800400) от 23.05.2020
-
-Zaratustra - It Was A Night (1999) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Colour Of Your Soul (8:01)
-02. Holder Of A Chest (5:42)
-03. About The Poisonous Spider (6:11)
-04. Moon Brother (9:13)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A265C8817E395F6CC4BB47F903D6862436545677
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199753   (800403) от 17.01.2018
-
-Метанойя - Антициклон (2017) [MP3|320 Kbps] <Acoustic Art Rock, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свет твой
-02. Подо льдом
-03. Успело стемнеть
-04. Карнавал(   Читать дальше...   )Жанр: Acoustic Art Rock, Art PunkПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7DCF7E2F1AAE25A09371A1BDF3926E88E32AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199650   (800406) от 17.01.2018
-
-Everything Everything - A Fever Dream (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night of the Long Knives (04:38)
-02. Can't Do (03:32)
-03. Desire (03:25)
-04. Big Game (03:48)(   Читать дальше...   )Жанр: Indie Pop, Art RockПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2650AF7453B814BA4458C8E353192BDA6E8C278C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199791   (800414) от 17.01.2018
-
-Адаптация Пчёл - Стеклянный шар (2017) Single [MP3|320 Kbps] <Alternative Rock, Cyber Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стеклянный шарЖанр: Alternative Rock, Cyber Rock, Space RockПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8026E7EF57162E5DA820EBF2EA0726430BAB444
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199738   (800422) от 17.01.2018
-
-Night - 2 Albums (1979, 1980) Reissue CD, 2012,Gonzo Multimedia [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была основана в конце 1978-начале 1979 года и выпустила два альбома. Состав: Chris Thompson, Stevie Lange, Robbie McIntosh, Nicky Hopkins, Billy Kristian, Rick Marotta, Bobby Guidotti, Bobby Wright.01. Hot Summer Nights (3:24)
-02. Cold Wind Across My Heart (3:30)
-03. If You Gotta Make A Fool Of Somebody (4:06)
-04. Ain't That Peculiar (4:41)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4CD1D3C6CB7A03868D8A17AE528925C2C53435
 ```
 
 

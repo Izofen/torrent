@@ -1,3 +1,30 @@
+###  Публикация: 1473992   (1013403) от 31.05.2021
+
+VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013403.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Folklore & Vacce - Krater
+002. Caox & Chris Fielding - Enemy
+003. Andrew Fields - Secret Place
+004. Maph - Ridin Dirty(   Читать дальше...   )Жанр: Club, Dance, House, EDMПродолжительность: 08:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A17BAB545B00EF38364140831CF9BD00CA9571B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473650   (1013473) от 30.05.2021
 
 VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
@@ -665,33 +692,6 @@ VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87325D87EF72680D000BB99B4A145B662412B9B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472590   (1014058) от 27.05.2021
-
-VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Club, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roman Novelrain - She & Me
-002. Inner Sinner - Just Like B4
-003. Groove Control - Real Love
-004. Twenty Six - Consequences(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 08:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E92FCD856516D9E258AF85C1DC826F142D7F0A
 ```
 
 

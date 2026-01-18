@@ -1,3 +1,56 @@
+###  Публикация: 1493632   (892292) от 05.09.2021
+
+ONUKA - KOLIR (2021) [MP3|320 Kbps] <Electronic, Folk, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONUKA - VSTUP
+2. ONUKA - CEAHC
+3. ONUKA - ZENIT
+4. ONUKA feat. DakhaBrakha - UYAVY(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD9CD3B417985E9AF46A707B75011B03331E870
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102161   (892513) от 08.02.2017
+
+VA - Ministry Of Sound: I Love Trance (2017) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - 9pm (Till I Come) (Radio Mix UK) (02:43)
+02. Sash! - Encore une fois (Future Breeze Edit) (03:38)
+03. Faithless - Insomnia (Monster MixЖанр: TranceПродолжительность: 07:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CF72E744DAC77B1F72574B16F3C4246CF0D09C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101987   (892839) от 08.02.2017
 
 VA - The Best of 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive>
@@ -646,58 +699,6 @@ Secede - Discography 7 Releases (2003-2019) Merck, Sending Orbs [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:100F67C2010BF67B93BA4E6D332C42D85CA233D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370633   (895143) от 28.03.2020
-
-Steve O'Sullivan & Mike Schommer - Submerged (2020) Mosaic [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dub Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Submerged (Deepchord Negative-space Exploration Version) (09:05)
- 02. Submerged (Original Mix) (07:31)Жанр: Dub TechnoПродолжительность: 00:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFFB8CDC65F33F9369E50CF77918A65C6790305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370754   (895190) от 28.03.2020
-
-Dj Arthur Project - Лето Уйдёт (2006) [MP3|192 Kbps] <House, Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Arthur Project - Intro
-02. DJ Arthur Project - Лето Уйдёт
-03. DJ Arthur Project - Моя Луна (Radio edit)
-04. DJ Arthur Project - Обернись(   Читать дальше...   )Жанр: House, DiscoПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6487F02FCEEF6870BF011F2B807D0CB740AEB2A8
 ```
 
 

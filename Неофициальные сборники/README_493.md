@@ -1,3 +1,30 @@
+###  Публикация: 1016271   (771252) от 13.05.2016
+
+VA - Союз 58 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нюша - Целуй
+02. Alekseev - Снов осколки
+03. Loboda - К черту любовь
+04. Григорий Лепс - Я поднимаю руки(   Читать дальше...   )Жанр: PopПродолжительность: 02:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77AA0511C3402B4953275B6FA4F0237B2EB1E5D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016076   (771361) от 13.05.2016
 
 VA - Музыка дороги Сборник русского шансона 4 (2016) [MP3|256 кб/с] <Шансон>
@@ -674,39 +701,6 @@ VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318519   (772590) от 06.04.2011
-
-VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Tas - Without You (V I F Remix)
-02. Alex Barattini - Let Me Kiss You (Radio
-03. Alisiya - Колыбельная (Dj Pomeha Remix)
-04. Arnej - The Day Will Come (Sied van Riel Remix)
-05. Axwell - Nothing But Love (Radio Edit)
-06. Benassi Bros feat. Dhany - Hit My Heart (DJ Freedom Remix)
-07. Bob Sinclar Feat. Ben Onono - Rainbow Of Love
-08. Candi Lynn - Hopn Popn (Disco Fries Clean Radio Edit)
-09. Cher - You Haven't See The Last Of Me (Almighty Radio Edit)
-10. Coolio - Gangsta's paradise (Bernasconi & Farenthide radio mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 03:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EB0761FA3F1E204E1C68EEBBCFB17EC36E9F4
 ```
 
 

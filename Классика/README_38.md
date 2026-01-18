@@ -1,3 +1,57 @@
+###  Публикация: 1117379   (818787) от 22.03.2017
+
+Schubert, Schumann - Wanderer Fantasy, D.760;  Fantasie, Op.17 (Orlando Jopling, English Chamber Orchestra, Members of the Schubert Ensemble) (2007) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Schubert - Wanderer Fantasy in C Major, D.760
+
+[1] I. Allegro con fuoco ma non troppo (06:00)
+[2] II. Adagio (07:02)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35D78EBD1D8444A724BF5251F10DE88676A0980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007284   (819154) от 16.04.2016
+
+Kaori Muraji - Plays Bach (2008) [APE|Lossless|image + .cue] <Classical, guitar>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for Harpsichord in E major, BWV 1053 by Johann Sebastian Bach
+1) I. Allegro 09:20
+2) II. Siciliano 05:47
+3) III. Allegro 07:41Жанр: Classical, guitarПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042808C64DDB7D33CE11D614DB98E5E7766CCBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007732   (819161) от 16.04.2016
 
 The Florestan Trio - Schubert. Piano Trio No 2 In E Flat Major, D929 (2002) [FLAC|Lossless|image + .cue] <Classical>
@@ -656,60 +710,6 @@ Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F9310EB2524144C2CBE0C234987321628C8EF17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005671   (832387) от 09.04.2016
-
-Mito Chamber Orchestra, Seiji Ozawa - Mozart, Strauss - Woodwind Concertos (2002) [FLAC|Lossless|image + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - I. Allegro maestoso  9:10
-02.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - II. Adagio non troppo  9:04
-03.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - III. Rondeau. Tempo di menuetto  7:01
-04.  Mozart Concerto for Basson and Orchestra, K.191 - I. Allegro  7:52(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BB29F3FF0330578EB35414DA760FC9B79F5EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380482   (832943) от 03.05.2020
-
-Сергей Лемешев - Золотые россыпи романса (2000) [FLAC|Lossless|tracks + .cue]<Retro>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Средь шумного бала
-02. Серенада Дон Жуана
-03. На нивы желтые
-04. Я помню чудное мгновенье(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
 ```
 
 

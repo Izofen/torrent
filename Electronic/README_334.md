@@ -1,3 +1,57 @@
+###  Публикация: 1140010   (658272) от 04.06.2017
+
+VA - Monaco Night Tales - The Best Of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Santo Smokes - Sunset Surf 5:54
+02.  Amakipkip - Royal Summer Lounge 5:28
+03.  Ambient Grooves - Marina Cruise 5:39
+04.  Dragonfly - Rue Des Fleurs 3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF3413835671A293BF8B8B34F09DBE2682F4B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139989   (658275) от 04.06.2017
+
+VA - Endless Music - Balearic Ibiza Grooves Vol.2 (Compiled By Paul Lomax) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oceanvs Orientalis - Revenge Of The Wankers 9:04
+02.  Matt Correa - Euphony (feat. Alexey) 6:46
+03.  Mika Olson - What I Need (feat. Jermaine Fleur) 7:35
+04.  Popart - Florescent Love (Miguel Campbell Remix) 5:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEDE6973BF019D5D55384FA856C9077C1856141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139995   (658276) от 04.06.2017
 
 VA - Lounge System Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ VA - Lounge & Cookies Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBC8DEC9B1B00135FAD430A96E806AEA49B2537D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139742   (659377) от 03.06.2017
-
-VA - Pool Service Summer Chill 4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Guitatmar - Bahia Blanca 6:27
-02.  Dubdiver - Mermaid 7:25
-03.  Red Buddha - Distant Air 5:27
-04.  Vibemares - Chill Vibes 4:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF7A999E46DB6F537ABF7FAD03C26D95C1FA425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139583   (659378) от 03.06.2017
-
-VA - Classic Progressive House Vol 3 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Funk - Stay With Me (Blugazer remix) (07:37)
-02. Alex Drayling - Hope (Monojoke remix) (07:42)
-03. Digital Department - Lake Towers (Slam Duck remix) (07:14)
-04. James Woods - Parallax (Mizar B remix) (07:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958C744EA2D2F2093F67A732CE795640E8C57F3B
 ```
 
 

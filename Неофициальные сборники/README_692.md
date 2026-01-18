@@ -1,3 +1,30 @@
+###  Публикация: 1845813   (1051094) от 
+
+Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're the Reason I Still Believe
+02 - Glows
+03 - No One Feels Like Home But You
+04 - So Real(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845832   (1051095) от 
 
 Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
@@ -236,6 +263,249 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847043   (1051735) от 
+
+VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avalan & Rokston - Something To Believe In (2:22)
+002. Tate McRae - Sports Car (2:45)
+003. Sam Feldt feat. Oaks - My Heart Goes (2:13)
+004. Gryffin feat. Kaskade & Nu-La - In My Head (3:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB69AB15A40F1C287399AC86B5A561581320FD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847342   (1052204) от 
+
+VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сергей Грищук - Голос Безмолвия
+02 - Aurora Night - Lonely
+03 - Saidjan - Into the Wave
+04 - Bruno Mars & D Beats - Late Night Smoke(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, Sunoai, Pop, Dance, OtherПродолжительность: 01:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2861FA5A2F71E9D2AAEA699DC942C9610B241EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847477   (1052229) от 
+
+VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Кристина КРИСТАЛИКА, Andy Shik - Пою про любовь я (02:22)
+ 002. 220 KID - Hold On For Heaven (03:34)
+ 003. A Cold Paradise - The Prettiest Girl On Earth (03:29)
+ 004. Achev - Килограмм сыра (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 17:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882F8C311F516A31E790351BB3885D44717961D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847645   (1052261) от 
+
+VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Because You Stayed
+02 - Wicked Wenches - Wild Over You
+03 - Møxes - No Pillow But Your Name
+04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847923   (1052407) от 
+
+Tom Media - Blues Every Night (Compilation) (2026) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Glass of Whiskey [04:08]
+02. A Thought on Summer Night [04:27]
+03. Alongside [04:18]
+04. Blues Legacy [04:18](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 07:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AEDB7708EB4BF826D8DA046988EDE2AA47A456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848432   (1052725) от 
+
+VA - Music News For Forum vol.156 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052725.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lyna Mahyem & Imen Es - Tout Se Sait (03:33)
+ 002. Alan Walker & Alessia Labate - Not Home (02:01)
+ 003. Alex Sivets - Моя дочь (02:03)
+ 004. Alice Merton - Coasting (03:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE5A4D1E8BC5D0E5872F181B727458119952FD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848219   (1052783) от 
+
+VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Carry Me Through the Night
+02 - Wicked Wenches - Love Won’t Be Rushed
+03 - Møxes - Shadows of Goodbye (1 Versions)
+04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848228   (1052784) от 
+
+VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052784.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:05] . 001-Hazyhero - Dance,Drown,Drink
+[2:32] . 002-Armin Van Buuren & Alok & Norma - Euphoria
+[4:34] . 003-Constantin & Shaggy & Lavbbe - High
+[4:14] . 004-Ahmet Kilic - No Communication (Cover Bingo Boys)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 08:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E467C8677A08CF0C923F9FA626C551EC6715BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848279   (1052795) от 
+
+AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye! (3:37)
+02. Love Is Gone (4:36)
+03. Moonlit Dance (4:10)
+04. Symphony Of Dreams (4:40)(   Читать дальше...   )Жанр: Pop, AI MusicПродолжительность: 02:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4A3463DCBFB4CF906D40C243676D1F64DD4D11
 ```
 
 

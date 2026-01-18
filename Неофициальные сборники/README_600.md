@@ -1,3 +1,30 @@
+###  Публикация: 991689   (904226) от 29.02.2016
+
+VA - Relaxed Guitar Chillout: Selected Summer Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ms. Jones and the Fireflies - Born Again - Koko Beach Boy Mix
+02. Holiday Groove - Bella Vita - City Of Owls Mix
+03. Benny loves 2 Dance - Waves of Life - Scream and Shout Mix
+04. Lotti barks the moon - Chilling Beach - Lights for Ellie Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF1FACCDBDF4015966920CC00229BDD7531095F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992023   (904284) от 29.02.2016
 
 VA - Chillstep Master Pack (2016) [MP3|266-320 кб/с] <Chillstep, Dubstep>
@@ -672,33 +699,6 @@ VA - Отдыхаем душой на стильном радио Шансон (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57AD80D0032857F8D02454DFEE50B6BBB4CC96FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099542   (905315) от 01.02.2017
-
-VA - Я слушаю шансон. Зимний выпуск. Версия №4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905315.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виктор Тартанов - Сценарий Любви 4:21
-002. Владимир Ждамиров - Скажи Зачем 4:59
-003. Александр Думлер - Не Вспоминай Меня 3:34
-004. Даниил Сорокин - Время Лечит 3:10(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D79C770C3F7ED38BD2A742F7CB55FA9E17E6DF
 ```
 
 

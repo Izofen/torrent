@@ -1,3 +1,57 @@
+###  Публикация: 1442574   (1036580) от 25.01.2021
+
+Lazer Station - Time Blazer (2021) [MP3|320 Kbps] <Darksynth, Cyberpunk, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Directive (6:25)
+02. The Engine (4:51)
+03. Preparations (5:36)
+04. The Paradox Problem (5:10)(   Читать дальше...   )Жанр: Darksynth, Cyberpunk, SynthwaveПродолжительность: 00:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793D5C07ABC4F0C104227DB172A88302E872A809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442488   (1036591) от 25.01.2021
+
+VA - Uplifting Trance (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 Strings & Trance Classics feat. Ellie Lawson - Safe From Harm (Omar Sherif Remix)
+02. Susana - Dark Side Of The Moon (Ferry Tayle Remix)
+03. Ana Criado - In A Thousand Skies (Dan Stone Remix)
+04. Philippe El Sisi & Sarah Russell - You Are (Steve Dekay Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E60625CA41E26B7E2335B88987A909CDB32F54D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442579   (1036594) от 25.01.2021
 
 Imperative Reaction - Mirror (2021) [MP3|320 Kbps] <EBM, Electro, Industrial, Synthpop>
@@ -629,60 +683,6 @@ DC Breaks - DCXV (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum 'n' Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6863B094F7ED54854DFF6BA030F82B2C91B8586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616002   (1036980) от 28.02.2023
-
-Maxthor - Nothing (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Synth Rock, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sons of Darkness [00:05:22]
-02. Silence [00:06:04]
-03. Colossus [00:04:07]
-04. The Last Dance [00:04:38](   Читать дальше...   )Жанр: Synthwave, Retrosynth, Synth Rock, New WaveПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65E3846490AB25DBBA14F003CAB84BEA7853730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615949   (1036987) от 28.02.2023
-
-VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eelke Kleijn - Transmission (Joris Voorn Extended Remix) [6:10]
-02. Innellea - Targo (Original Mix) [5:16]
-03. Maxim Lany - Renaissance (5AM Extended Edit) [7:03]
-04. Agents of Time feat. Vicky Who? - Liquid Fantasy (Extended Mix) [5:30](   Читать дальше...   )Жанр: House, Progressive House, ElectronicПродолжительность: 04:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
 ```
 
 

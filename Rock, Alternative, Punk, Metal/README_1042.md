@@ -1,3 +1,300 @@
+###  Публикация: 1011402   (796121) от 28.04.2016
+
+The Animals - The Best Of (2000) compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The House Of The Rising Sun  [1964]  4:31
+02.  Don't Let Me Be Misunderstood  [1964]  2:28
+03.  We've Gotta Get Out Of This Place  [1965]  3:14
+04.  Roadrunner  [1965]  2:49(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:028B454885EA3D23DD791F94F4D4B07DEFDE86B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 630379   (796154) от 10.11.2021
+
+Edenbridge - A Livetime in Eden [CD+DVD] (2004) [FLAC|Lossless]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ascending (Intro) [01:30]
+02.The Undiscovered Land [05:16]
+03.Skyward [04:51]
+04.Holy Fire [05:03](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88EEFF6D624E2BEBC2A90ABB0610C67E4603090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011766   (796156) от 28.04.2016
+
+Rob Zombie - The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser (2016) [MP3|320 кб/с] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Of The Demons Defeated (01:34)
+02. Satanic Cyanide! The Killer Rocks On! (02:59)
+03. The Life And Times Of A Teenage Rock God (02:55)
+04. Well, Everybody’s Fucking In A U.F.O. (02:44)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF3892E90AA64298BA59FF01F8512670113F8479
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508397   (796239) от 10.11.2021
+
+Edge Of Paradise - The Unknown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Edge of Paradise - американская хард-рок / хэви-метал- группа, образованная в Лос-Анджелесе в 2011 году. Маргарита родилась в Ереване, в раннем возрасте переехала в Москву, где с 4-х лет начала заниматься музыкой на пианино. В возрасте 11 лет вся семья переехала в Хьюстон, где Марго продолжила обучение в Высшей школе исполнительских и визуальных искусств. Маргарита (   Читать дальше...   )01. Digital Paradise
+02. My Method Your Madness
+03. Tidal Wave
+04. The Unknown(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C13BFC8B9640541B769E97D87D1B8CA3D2644678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200254   (796257) от 20.01.2018
+
+Whitesnake - The Purple Tour: Live (2018) [MP3|320 Kbps] <Hard-Rock, Classic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Burn (Live)  8:01
+02.  Bad Boys (Live)  5:32
+03.  Love Ain't No Stranger (Live)  4:19
+04.  The Gypsy (Live)  5:24(   Читать дальше...   )Жанр: Hard-Rock, Classic-RockПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9219F153ACEA5024D2F8B78F73E13EBA4800BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200259   (796268) от 20.01.2018
+
+Whitesnake - The Purple Tour: Live (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Burn (Live)  8:01
+02.  Bad Boys (Live)  5:32
+03.  Love Ain't No Stranger (Live)  4:19
+04.  The Gypsy (Live)  5:24(   Читать дальше...   )Жанр: Hard-Rock, Classic-RockПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF79A44D75497997330DD3265D4FD28F4DEFADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508795   (796274) от 10.11.2021
+
+Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Dojo
+02. Rise Above
+03. Anthem For America
+04. The Power(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DDCFA020DA6BEA305A8F660A7E22B8E8E64721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508942   (796275) от 10.11.2021
+
+Illumishade - Eclyptic: Wake Of Shadows (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage Through The Clouds
+02. The Calling Winds
+03. Tales Of Time (ft. Chrigel Glanzmann)
+04. The Farewell Arcades(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC9746EB99FCBA5DFD34F96326AD8418CF832AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508896   (796278) от 10.11.2021
+
+Emma Ruth Rundle - Engine of Hell (2021) [FLAC|Lossless|tracks + .cue] <Post Rock, Experimental, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return (05:16)
+ 02. Blooms of Oblivion (05:39)
+ 03. Body (05:27)
+ 04. The Company (04:12)(   Читать дальше...   )Жанр: Post Rock, Experimental, AlternativeПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A10EA61C91E8E954E22C175BD6E602C11DFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508794   (796280) от 10.11.2021
+
+Jim Peterik And World Stage - Tigress: Women Who Rock The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigress (feat. Kate French)
+02. Prom Night In Pontiac (feat. Chloe Lowery)
+03. A Cappella (feat. Chez Kane)
+04. Living For The Moment (feat. Cathy Richardson)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E0D68F9C858CD59280D9555C5C44B683B75C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508998   (796282) от 10.11.2021
+
+Pat O'May - Welcome To A New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Shall Never Surrender 08:36
+02. Grinch 03:43
+03. Anything I Want 04:45
+04. Please Tell Me Why 04:06(   Читать дальше...   )Жанр: Hard Rock, Heavy ProgressiveПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55203B8DAE0FBE1EF05A3932F1A990B6AC2E0D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508989   (796283) от 10.11.2021
 
 Night Hearth - El rincon del tiempo y el alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
@@ -398,303 +695,6 @@ Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011334   (796405) от 28.04.2016
-
-SIG:AR:TYR - Northen (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helluland 08:26
-02. Crownless 06:10
-03. Runarmal 06:45
-04. Markland (The Hammer Fades) 07:52(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91CDDAD9F3C08CD396DD96262A73E69B00F1789B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011601   (796433) от 28.04.2016
-
-VA - Metal For The Masses 7th Deadly (2008) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796433.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 01
-01. In This Moment - The Great Divide (4:13)
-02. Suicide Silence - No Pity for a Coward (live) (3:16)
-03. Arsonists Get All the Girls - Scobra Vs. Cupcake: The Battle of the Bulge (4:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, HardcoreПродолжительность: 02:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B206BD549DD63FC2B6D7FD1EAE00183DB68CFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385721   (796668) от 26.05.2020
-
-Glass Hammer - Dreaming City (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dreaming City (07:14)
-02. Cold Star (07:29)
-03. Terminus (04:17)
-04. The Lurker Beneath (01:44)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820FC32F101C7F9F3252CF1B991F47C5FDC178D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385773   (796685) от 26.05.2020
-
-War - Ex Tenebris Nasceris Ut Deleas (2004) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empty World (6:11)
-02. Night Cold (4:36)
-03. The Days Of Tyrants (4:45)
-04. Sigillum Diabolicum (4:48)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECDEA1C0EE23021BBBE4E72C590F1719FF7F518
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011123   (796753) от 27.04.2016
-
-Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Meds (Feat. Alison Mosshart)  2:55
-02.  Infra-Red  3:16
-03.  Drag  3:21
-04.  Space Monkey  3:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C52C2725365E6A4F207D4897B0120784686DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508338   (796757) от 09.11.2021
-
-Gorky Park - The Best (2021) Remastering 2021 [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello My Friend (Remastering 2021) (03:45)
-02. Moscow Calling (Remastering 2021) (04:57)
-03. Stare (Remastering 2021) (04:44)
-04. Bang (Remastering 2021) (04:45)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874F7C0AA4125525372B43CA58D3F3F56B60B1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508639   (796761) от 09.11.2021
-
-Diamond Head - Lightning To The Nations (1980) 2xCD [FLAC|Lossless|image + .cue] <NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796761.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Lightning To The Nations (The White Album):
-01. Lightning To The Nations
-02. The Prince
-03. Sucking My Love(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 01:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D913EEBF5766D8182C3D1B8D3CF46CDDBEC1694B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200176   (796784) от 19.01.2018
-
-Лорд Пневмослон - Вся х##ня (2018) [MP3|320 Kbps] <Rock, Ska, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пневмослон - сайд проект Феофана из славного города Санкт-Петербург, играющего музыку в стиле хайпкор. Делать будем в России весело. Снова! Тебя ничего не радует? Проблемы навалились, как снежный ком? Чёрная полоса кажется бесконечной, и ты хочешь об этом поговорить? Пневмослон готов говорить об этом и с тобой и за тебя! Пневмослон вскрывает все пороки человечества: (   Читать дальше...   )1. Адовый адок на задок и на передок (Ранняя версия)
-2. Грибочки
-3. Да пошёл ты н##уй, ##аный Серёга (Ранняя версия)
-4. Если б мог, то сп##дил (Ранняя версия)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F64CFC3A932E76C557EE7940DF1FF542757CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508556   (796802) от 09.11.2021
-
-Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello My Friend (Remastering 2021) (3:45)
- 02. Moscow Calling (Remastering 2021) (4:57)
- 03. Stare (Remastering 2021) (4:44)
- 04. Bang (Remastering 2021) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B7BB4F5E9FA9BA753497C23F876B6F2ADB0F7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508646   (796806) от 09.11.2021
-
-Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Roads (Remastering 2021) (5:09)
- 02. Within Your Eyes (Remastering 2021) (4:54)
- 03. Two Candles (Remastering 2021) (4:21)
- 04. Stranger (Remastering 2021) (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB15A3795B9BC38222F87C3BD3E0AD65C8C9C8F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508716   (796811) от 09.11.2021
-
-Procol Harum - Conquistador (1991) [FLAC|Lossless|image + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquistador
-02. Mabel
-03. Repent Walpurges
-04. Boredom(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C2D39F92CEB8A42F006AE045C5F9DB137B6C7F
 ```
 
 

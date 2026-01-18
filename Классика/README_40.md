@@ -1,3 +1,57 @@
+###  Публикация: 1001620   (846514) от 01.04.2016
+
+Joseph Haydn - The Seven Last Words of Christ on the Cross (Alexei Lubimov) (2014) [FLAC 2.0|88,2/24|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846514.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Seven Last Words Of Christ On The Cross Op.51 (Hob. III, 50-56)
+
+The keyboard transcription is an anonymous arrangement authorised by Haydn.
+(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C795E6CD7C5579B91C65B47666759C488095C44B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001914   (846515) от 01.04.2016
+
+Julian Perkins - Smith & Handel: Works for Harpsichord (2015) [FLAC|96/24|Lossless|WEB-DL] <Classical, Baroque, Keyboards>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846515.jpg" />
+</div>
+
+
+###  Подробнее
+
+George Frederic Handel:
+01.  Overture to Riccardo Primo- re dInghilterra- HWV 456(5)  3:51
+John Cristpher Smith - Six Suites of Lessons for the Harpsichord- Op 3:
+Suite No. 1 in A major - in A-Dur - en la majeur(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardsПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4841958D7110F4D8AB6F9D83A95F3BC9ED30DB26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378439   (846532) от 25.04.2020
 
 Sophie Hutchings - Scattered On The Wind (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <Modern Classical, Piano>
@@ -635,60 +689,6 @@ Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE542A88A94C9ED5C515DF4201604421CC86E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001328   (853712) от 28.03.2016
-
-Murray Perahia -  Mozart • The Complete Piano Concertos (2006) 12CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853712.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Konzert Nr. 1 F-Dur, KV 37 - 15:51
-* I. Allegro - 5:24
-* II. Andante - 5:21
-* III. Allegro - 5:07(   Читать дальше...   )Жанр: ClassicalПродолжительность: 11:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9F89912B24D583C5D90CE79D5FAE5F62370D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001419   (853758) от 28.03.2016
-
-VA - J S Bach: Complete Harpsichord Concertos on Antique Instruments (2009) 3CD [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 1. Allegro  4:09
-02.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 2. Largo  1:45
-03.  Concerto In A Minor For Four Unaccompanied Harpsichords, BWV 1065. 3. Allegro  3:39
-04.  Concerto In A Major, BWV 1055. 1. Allegro  4:39(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 03:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31974B6EC213ACD2472C8D5004903FB3B0BC90AF
 ```
 
 

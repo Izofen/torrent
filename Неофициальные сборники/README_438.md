@@ -1,3 +1,30 @@
+###  Публикация: 1132652   (698692) от 10.05.2017
+
+VA - Вальяжный Май: Сборник Шансона (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698692.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Кравцов - Свой Путь 3:36
+002. Вадим Петров - Три Дороги 3:35
+003. Дмитрий Романов - Журавли 3:53
+004. Смирнов & Компания - Девчонка Русская 3:26(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2572B5BE0E938637BE4C9A219B9FF9A7D4F3F442
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221118   (698707) от 22.04.2018
 
 VA - View In Color: Deep House Club Essential (2018) [MP3|320 Kbps] <Deep House, Electro>
@@ -665,33 +692,6 @@ VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287942   (699772) от 09.03.2019
-
-VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Yarranton - Meridian
-002. Michael Hooker - Melindas Secrets (Original Mix)
-003. Moscoman - Song for Bourdain
-004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
 ```
 
 

@@ -187,6 +187,33 @@ magnet:?xt=urn:btih:61E21EA8AA312389277E7C383FB2516E02F5DE53
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181571   (505860) от 01.09.2015
+
+Shakti with John McLaughlin - 6 альбомов (1976 - 2001) [FLAC, APE, Lossless]<Jazz, Carnatic music, World fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_505860.jpg" />
+</div>
+
+
+###  Подробнее
+
+John McLaughlin - один из самых разносторонних и влиятельных гитаристов нашего времени, добившихся признания во всем мире. Джон Маклафлин - инновационный фьюжн-гитарист, получивший известность с начала 70-х, возглавлял незабвенный Mahavishnu Orchestra и на протяжении всех лет своей творческой карьеры сохранил репутацию феноменального и последовательно любознательного (   Читать дальше...   )1976 - Shakti with John McLaughlin
+1977 - A Handful of Beauty
+1977 - Natural Elements
+1999-John McLaughlin, Zakir Hussain, T.H.”Vikku”Vinayakram – Remember Shakti(2cd)(   Читать дальше...   )Жанр: Jazz,Carnatic music, World fusionПродолжительность: 06:51:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316477   (505966) от 26.07.2019
 
 Eddie Higgins Quartet featuring Scott Hamilton - My Funny Valentine (2005) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -680,33 +707,6 @@ Jim Adkins - Soul Expression (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8EAE5E3D4296AE8EDDAE7A1E1C98AF3C9CDBB42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932808   (507242) от 31.08.2015
-
-June Bisantz - It's Always You June Bisantz Sings Chet Baker Vol. 2 (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Get Along Without You Very Well
-02. It's Always You
-03. Forgetful
-04. Everything Depends On You(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C2705B8502688EC20CE0ABB9359ED05F761693
 ```
 
 

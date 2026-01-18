@@ -1,3 +1,57 @@
+###  Публикация: 1446932   (1032258) от 11.02.2021
+
+VA - Black Hole Recordings Presents Best Of Vocal Trance 2021 Vol 1 (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HALIENE - Walk Through Walls (MaRLo Extended Remix)
+02. Christina Novelli - Numb (Extended Mix)
+03. Dennis Sheperd x EKE - Playing With Fire (Extended Mix)
+04. Markus Schulz & London Thor & Valentino Alessandrini - Feel Alive (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FF7D8D2A11C32B9B847A76562B09882722327A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620154   (1032326) от 19.03.2023
+
+Eguana - Resurrected (2023) [MP3|320 Kbps] <Electronic, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation [01:55]
+02. Nuclear Pulsation [05:23]
+03. Great Filter [05:37]
+04. Immanence [06:02](   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68084D747F75DA5CEF12F299844551F68F15BDAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620376   (1032330) от 19.03.2023
 
 Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
@@ -627,60 +681,6 @@ Tim Schaufert - Have My Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDB06B06126803C49E87BBE0A42517A1E74AB3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619249   (1033001) от 16.03.2023
-
-VA - Top 6 February 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rolfiek - Opus One (Original Mix) (07:01)
-02. SilMax - Melancholy (Original Mix) (07:05)
-03. D-J. Santos - Dancing in Love (Original Mix) (08:45)
-04. Sothzanne String - The Day You Left (Original Mix) (08:16)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA5DD4C8D301B2B7805631C4BC0256A0B764ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446406   (1033023) от 08.02.2021
-
-VA - Balearic Lounge & Chill out Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weathertunes - Sitting on the Moon with You (03:39)
-02. Jane Maximova - Morning Bird (05:53)
-03. Sunset Lovers - Flamenco (Tribute to the White Isle Edit) (04:08)
-04. Wawa - Taste of Fear (Lemongrass Full Moon Mix) (03:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120BB554B61BD9703075C1ABE8F3B8FA284D76F7
 ```
 
 

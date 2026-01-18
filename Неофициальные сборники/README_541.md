@@ -1,3 +1,30 @@
+###  Публикация: 1383146   (813749) от 14.05.2020
+
+VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Udo Jürgens - Mit 66 Jahren 03:39
+02. Connie Francis - Schöner fremder Mann 02:41
+03. Jürgen Marcus - Eine neue Liebe ist wie ein neues Leben 03:46
+04. Juliane Werding - Am Tag als Conny Kramer starb 03:26(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8A1BC6045D400AB2505F00B37E524AB2A83DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383071   (813750) от 14.05.2020
 
 VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
@@ -670,33 +697,6 @@ VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008619   (815925) от 18.04.2016
-
-VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristiano Pomante Quartet - Maybe
-02. Guido Russo - Antigua
-03. Overflow - Sunny
-04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
 ```
 
 

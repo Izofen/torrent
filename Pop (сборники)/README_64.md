@@ -1,3 +1,27 @@
+###  Публикация: 359429   (580885) от 07.07.2011
+
+VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55273BCADD15E5F6DAFA001825CD44ADBFAA6423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359811   (580893) от 07.07.2011
 
 VA - 1000% Ballads  (2011) [MP3|256 kbps]<Pop>
@@ -632,33 +656,6 @@ VA - Drive Best Hits Compilation Vol.10 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9DBB73B11A61C16EFDD066531DAD5722E6D0B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041404   (583415) от 08.08.2016
-
-VA - Billboard TOP100 Single Charts (13.08.2016) (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia feat. Sean Paul - Cheap Thrills
-02. Major Lazer feat. Justin Bieber & M0 - Cold Water
-03. Drake feat. Wizkid & Kyla - One Dance
-04. Calvin Harris feat. Rihanna - This Is What You Came For(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AC71A0AEA27462CD23568072229B6EFB02BC12
 ```
 
 

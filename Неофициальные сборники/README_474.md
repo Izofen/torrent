@@ -1,3 +1,30 @@
+###  Публикация: 1282324   (745405) от 12.02.2019
+
+VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Maite Kelly - Heute Nacht für immer
+03. Kerstin Ott - Regenbogenfarben
+04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396638   (745438) от 16.07.2020
 
 Dread Zeppelin - The Song Remains  (2020) Compilation [MP3|320 Kbps] <Reggae, Rock>
@@ -668,33 +695,6 @@ VA - : Весенний марафон от радио Шансон 9 (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473050AB7BC44F650DEC41ACC63E1B4F940328A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020006   (746832) от 25.05.2016
-
-VA - Acoustic Worship (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umbu Kaborang - Bersorak
-02. Sidney Mohede - Tiba Saatnya
-03. Violynt Venestia - Terpujilah NamaMu Tuhan
-04. Ryan Valentinus - You Are My Father(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96F13AD5EF36955A813D5D79E368DB096FE0D26
 ```
 
 

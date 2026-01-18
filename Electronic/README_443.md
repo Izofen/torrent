@@ -1,3 +1,57 @@
+###  Публикация: 1378020   (850090) от 23.04.2020
+
+Synergic - A World Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axiom (Original Mix) (7:41)
+2. Dissonance Theory (Original Mix) (7:05)
+3. Synergic; Kala - Old Night (Original Mix) (7:02)
+4. A World Beyond (Original Mix) (7:38)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567C156CC97FA7C4EBFA7076355BF3EB2A771583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001700   (850208) от 30.03.2016
+
+Pet Shop Boys - Super (2016) [MP3|320 кб/с] <Electronic, New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiness
+ 02. The Pop Kids
+ 03. Twenty-Something
+ 04. Groovy(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9070F8A050D30CD05F62185E30D8098EE82FEACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111048   (850377) от 04.03.2017
 
 VA - Sound Of Serenity Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -639,60 +693,6 @@ VA - Electro Vibes Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D31CF501BB189DB37576A0CE2807E0978684B260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110534   (852279) от 03.03.2017
-
-VA - Lovely Mood Lounge Vol.25 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lazy Hammock - We Want Peace  4:31
-02.  Weathertunes - Ladies First  2:58
-03.  Deeper Sublime - Tranquil Dusk  3:56
-04.  Lazy Hammock - Black Daddy  4:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145D037D677327BA3C4F89CAD45BE3C780D854FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498720   (852424) от 29.09.2021
-
-VA - House vs. Deep House Show Love (2021) [MP3|320 Kbps] <House, Deep House, TechHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RaviGauly - House Of Shiva (Full Moon Mix)
-02. Trip2 Universe - Fake Reality (Original Mix)
-03. WiNeSk feat. Carmen Miller - Business (Original Mix)
-04. Thomas Dur - One Way (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, TechHouseПродолжительность: 02:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBA4555498A6933225629D11C188D4DFA25A49E
 ```
 
 

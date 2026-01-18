@@ -1,3 +1,30 @@
+###  Публикация: 1202402   (790505) от 28.01.2018
+
+VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  KSHMR & Headhunterz  -  Dharma  2:57
+02.  Sati Nights  -  Enchantments (Original Mix)  3:03
+03.  Robbie Rivera  -  Deep  3:06
+04.  Skinny  -  Lakshmi  3:37(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D211B3D706C61B47BD03EFEDC54314115861FB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275380   (790512) от 11.01.2019
 
 VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -668,33 +695,6 @@ VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBE7F0234909BCD3AF7829DB017197E5D2DA342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201972   (791012) от 27.01.2018
-
-VA - Дискотека 2018: Зимнее Настроение (Compiled by ZeByte) (2018) [MP3|320 Kbps] <House, Trapical, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ed Caspian feat. Redrama & Sandra  -  Bad To The Bone  3:23
-02.  Akcent feat. Reea  -  My Lady  3:19
-03.  LVNDscape feat. Cathrine Lassen  -  Dive With Me  4:00
-04.  Volkan Uca feat. Ersin Ersavas & Semih Celikel  -  Ameno  4:29(   Читать дальше...   )Жанр: House, Trapical, DanceПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACF3A552BFB4CF180B3CF9347339CB23505BB84
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 974221   (978150) от 10.01.2016
+
+VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arrabal
+02 - Verdemar
+03 - Che bandoneon
+04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973777   (978184) от 10.01.2016
 
 Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
@@ -717,33 +744,6 @@ VA - Vip Lounge 2014 [MP3|320 кб/с]<Chill Out, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC124C4069B0262DA5E98BBECB6E34EC72FAB8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356271   (980489) от 29.01.2020
-
-Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
-02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
-03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
-04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
 ```
 
 

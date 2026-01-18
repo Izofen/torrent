@@ -1,3 +1,30 @@
+###  Публикация: 1557418   (535642) от 18.06.2022
+
+VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steffen Juergens - Du bist Liebe (Mixmaster JJ Remix)
+02. Zweiklang - Schattenseiten (Treanen sollten wir bewahren)
+03. Flamingoboys - Egoist (Mf-Remix)
+04. Michael Fischer - Wo bist du (Mf-Fox Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:12:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44488F26836C34B08B5EC1C8B73754DAFC340915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557303   (535702) от 18.06.2022
 
 VA - Ballermann Party Knueller (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -708,33 +735,6 @@ VA - Popular Summer Time (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C51BFACA2BB18D6285D28A7F1F1AB98E483B1F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238776   (544595) от 01.08.2018
-
-VA - Night Eurodance Music (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cid - I Miss You
-002. Lika Morgan - Money for Love
-003. Ferry Corsten - Waiting
-004. Monoloop - UUCK(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3899A6168344CBD813A8A29ACADAC03788629080
 ```
 
 

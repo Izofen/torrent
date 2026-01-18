@@ -1,3 +1,30 @@
+###  Публикация: 1145164   (621539) от 25.06.2017
+
+Dee Snider - After T.S. (2017) Compilation [MP3|320 Kbps] <Rock, Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Core
+02. Blue For You
+03. Emaheevul
+04. Isn't It Time(   Читать дальше...   )Жанр: Rock, Metal, Heavy MetalПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530474EDA1B5F9B18C47CEA8FC48B5BF7414B97F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145127   (621544) от 25.06.2017
 
 VA - Synthpop Remixes (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Electronic>
@@ -686,39 +713,6 @@ VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97CC66B07F43F953FD030849C4311A3420AD194D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522127   (623140) от 13.07.2012
-
-VA - Новинки танцполов 6 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David - Лето
-02. Bob Sinclar feat. Sophie Ellis Bextor - Fuck With You
-03. Ksela feat. DJ Alix - Наше Лето
-04. Ruslan Nigmatullin vs. Taco - Puttin' On The Ritz (Radio Mix)
-05. Дилайс - Нежно-Нежно
-06. Sonny Flame - Sale El Sol
-07. Горячие Головы - Лето В Крыму
-08. Inna - Caliente (Radio Edit)
-09. DJ Kerim Muravey - Лето, лето (Original mix)
-10. Elena Gheorghe - Amar Tu Vida(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B5C4AFEA4865BC8BAB5A9A494271F596B382AA
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1480290   (1009185) от 27.06.2021
+
+Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Neo Trance, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bengalo (6:48)
+ 02. Dr.2 (7:41)
+ 03. Packard (6:48)
+ 04. Tempest (7:15)(   Читать дальше...   )Жанр: Deep House, Tech House, Neo Trance, Minimal TechnoПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AB600F60DF3C2FF48C99D583DD2E8A6FB6F1CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293229   (1009266) от 26.06.2021
+
+Bot1500 - Discography 9 Releases (2016-2021) Analogical Force, Furthur Electronix [FLAC|Lossless|WEB-DL|tracks] <IDM, Acid, Electro, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euphoria 7 (06:49)
+ 02. Euphoria 1 (05:56)
+ 03. Euphoria 3 (08:18)Тип издания: Web, VinylЖанр: IDM, Acid, Electro, Breaks •Продолжительность: 02:00:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E19F2F062A337D1DAD6C95CD074E2A41BAF9A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110717   (1009387) от 25.06.2021
 
 Microlith | Rhys Celeste - Discography 13 Releases (2014-2021) CPU Records, mindcolormusic, Fundamental Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, IDM, Acid, Techno>
@@ -632,60 +685,6 @@ Healer - Book of Clouds (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-Sc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E723F95BC9495CEF73B877B8FEE5628A4808C62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478770   (1010032) от 21.06.2021
-
-Steevio - Acatalepsy (2021) FireScope [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarantism (07:06)
- 02. Cynefin (06:26)
- 03. Oxytocin (07:36)
- 04. Intonation (07:40)Жанр: IDM, LeftfieldПродолжительность: 00:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA165DC5DF6BD53E295E23790D58CF17E72FC56F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478745   (1010150) от 20.06.2021
-
-Dimension - Organ (2021) [FLAC|Lossless|tracks + .cue] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saviour (feat. Sharlene Hector) (3:22)
-02. Alive (feat. Poppy Baskcomb) (4:08)
-03. Danger (feat. MC GQ) (3:02)
-04. Devotion (feat. Cameron Hayes) (3:10)(   Читать дальше...   )Производство: Dimension – DMNSNCD001Жанр: Drum & BassПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592CD85EE2FDD675305D266CF69F46CF138A273C
 ```
 
 

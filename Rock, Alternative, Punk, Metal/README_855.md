@@ -1,3 +1,292 @@
+###  Публикация: 1299376   (599747) от 01.05.2019
+
+Антитіла - HELLO (2019) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ми починаємо (03:31)
+02. Лови момент (03:07)
+03. Stand up! (04:05)
+04. Лети (03:51)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8734A9C23F60BFF3B2FF0DEF9F9C42B2EEDF11DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299412   (599751) от 01.05.2019
+
+VA - Булат 95 Tribute. К 95-летию Булата Окуджавы. Part III (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. !БЕЗ КОМПРОМИССОВ! - До свидания, мальчики
+02. DMITRY 29 RUS - Тело вскрыли и зашили
+03. Дендрарий - Приезжая, семья фотографируется возле памятника Пушкину
+04. Стас Гатилов - Вот так она любит меня…(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6217A5B05D14B2BE0F0439A455E1FDCC972D9B0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547969   (599880) от 02.05.2022
+
+Jagannatha - 3 Albums (2016-2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agni [00:17:58]
+02. Surya [00:09:35]
+03. Vayu [00:13:48]Жанр: Psychedelic Stoner Rock, Blues RockПродолжительность: 3CD, 02:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64CB35803EB9C3E52A112795D279CE23C5B991F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232467   (599921) от 24.06.2018
+
+Radio Tapok - Старик и братья (2018) Single [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трек выполнен в лучших традициях группы Король и Шут.1. Старик и братьяЖанр: Punk RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB586C739D6C3EE05691F6C7F0687300D41465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232347   (599924) от 24.06.2018
+
+Powerwolf - Demons Are a Girl‘s Best Friend (2018) Single [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons Are a Girl‘s Best FriendЖанр: Power MetalПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687D75CD9DAE5C2D06DFBC1EFA5C8883016288D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547568   (600021) от 02.05.2022
+
+Poets Of The Fall - Ghostlight (2022) [MP3|320 Kbps] <Alt. Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firedancer
+02. Requiem for My Harlequin
+03. Sounds of Yesterday
+04. Revelations(   Читать дальше...   )Жанр: Alt. Rock, Pop-RockПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFBF10DAF00AAC35E2E5C9EABD7481D53636C2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913756   (600069) от 01.07.2015
+
+Юта - Кстати (2014) [MP3|320 кб/с]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кстати
+2. Прости-прощай
+3. Первое свидание
+4. Встреча(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679990BFADEF692659E6D7C944DCDECC6BA2D831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913677   (600076) от 01.07.2015
+
+Tito & Tarantula - Lost Tarantism (2015) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When To Let It Go  (03:58)
+02. Back To Mexico  (04:27)
+03. Jokes On Me  (04:14)
+04. Damn Good Day To Die (04:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCCA971C7478F247CD3F79EF16A5F55C18F85F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548359   (600141) от 02.05.2022
+
+План Ломоносова - Десяточка (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Священная корова (Live at Известия Hall) [00:03:39]
+02 - Столичная весна (Live at Известия Hall) [00:02:45]
+03 - Имейте совесть! (Live at Известия Hall) [00:03:07]
+04 - Критическое мышление (Live at Известия Hall) [00:03:31](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B826A95C6BBC401307BA10913D93372A9DC82147
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299337   (600152) от 01.05.2019
+
+RAT BOY - Internationally Unknown (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CHIP ON MY SHOULDER (02:01)
+02. MY NAME IS RAT BOY (02:32)
+03. DON'T HESITATE (02:52)
+04. I WANNA SKATE (02:14)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2816C4F15557C8D524D9A9651C934AF57CEAE313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618521   (600170) от 01.07.2015
+
+Emerald Night - 2 альбома (2012, 2015) [MP3|320 кб/с]<Melodic Black Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Король эльфов
+2015 - Во МракеЖанр: Melodic Black Metal, Dark MetalПродолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDC5C0B529312FEA846A721BA1BDE5800580EE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914064   (600183) от 01.07.2015
 
 Thy Art Is Murder - 3 Albums, 2 EP (2007-2015) [MP3|167-175, 320 кб/с]<Technical Deathcore, Death Metal>
@@ -398,303 +687,6 @@ Belzebubs - Pantheon of the Nightside Gods (2019) [MP3|320 Kbps] <Sympho Black M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:876E44F5AFABD778F3B40CA04E9C51D786BDC092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913687   (600879) от 30.06.2015
-
-Мумий Тролль - Пиратские Копии (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600879.jpg" />
-</div>
-
-
-###  Подробнее
-
-В концепции нового альбома группа Мумий Тролль параллельно придерживается и другой  трактовки «пиратства» - в переводе с древнегреческого «пират» означает "пытающий счастья, испытывающий свою судьбу". Мумий Тролль - неисправимые романтики, ассоциирующие себя с мореплавателями прошлых веков, которые в поисках гармонии не боялись отправиться к неизведанным (   Читать дальше...   )01. С Чистого Листа
-02. Медленные Танцы
-03. Мумий Витамины
-04. Пиратские Копии(   Читать дальше...   )Жанр: RockПродолжительность: 02:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C01CCEE5D5339F5CB77122EC7F134AD61ABD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547891   (600956) от 01.05.2022
-
-Ted Nugent - Detroit Muscle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit Muscle
-02. Come and Take It
-03. Born in the MotorCity
-04. American Campfire(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FEABEEE9F9089515453911EA6495C868B891CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547563   (600958) от 01.05.2022
-
-Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outsider (Originally Released on The Stories of H. P. Lovecraft) [00:11:51]
-02. Decameron Date 6 Tale 9 (Originally Released on Decameron - 10 Days in 100 No... [00:20:05]
-03. Haunted Storm (Previously Unreleased) [00:06:41]
-04. Ride (Dance mix) [00:05:43](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 3 CD, 03:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548021   (600962) от 01.05.2022
-
-The Spirit - Of Clarity and Galactic Structures (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Black Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Of Clarity and Galactic Structures (7:36)
-02. The Climax of Dejection (5:49)
-03. Repression (5:51)
-04. Celestial Fire (4:33)(   Читать дальше...   )Жанр: Black Death MetalПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA149E83ACBBA92357572B587E5533943CFEC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548005   (600966) от 01.05.2022
-
-Abated Mass of Flesh - The Existence of Human Suffering (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600966.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Realm of Contorted Perceptions
-2. In the Absence of Time
-3. Endlessly Carving
-4. Throes of Depravation(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBEED623EB8BFB9DE7BBD561EA685A5F8803237
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913715   (601000) от 30.06.2015
-
-Emerson, Lake & Palmer - Once Upon A Time In South America (2015)  (4CD) [FLAC|Lossless]<Progressive / Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction Fanfare (live Satntiago, Chile - April 1, 1993)
-02. Tarkus (live Satntiago, Chile - April 1, 1993)
-03. Knife Edge (live Satntiago, Chile - April 1, 1993)
-04. Paper Blood (live Satntiago, Chile - April 1, 1993)(   Читать дальше...   )Жанр: Progressive / Art-RockПродолжительность: 04:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB624467A9E56F077F66C7731C5E2CA7D76A4FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547898   (601010) от 01.05.2022
-
-Charlie Collins - Undone (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovers To Strangers (03:51)
-02. Just My Luck (02:23)
-03. Undone (03:12)
-04. Hit The Lights (04:05)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7030DD4E6C1D18CCB6917039F7BF0353E0BD17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548040   (601015) от 01.05.2022
-
-This Raging Silence - Broken Oceans (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless Machines
-02. Save Me
-03. 2 Hours Too Far From The Sun
-04. Broken Oceans(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12985B41287BE202228734A4ACF354C87DAAFD4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548015   (601025) от 01.05.2022
-
-LionSoul - A Pledge to Darkness (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Continuum (1:35)
-02. Exile To Arise (4:28)
-03. Amber Of Illusion (4:48)
-04. Wailing In Red (4:38)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0E1095E903D42C428B1F0050786DFFCC45AAFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149311   (601159) от 10.07.2017
-
-Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbeat (03:22)
-02. Kisses Never Lie (03:33)
-03. Firestorm (03:08)
-04. Bruises Fade (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913785   (601288) от 30.06.2015
-
-Niva - Relievin' Rain (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relievin' Rain
-02. Save My Soul
-03. Lying To Get Your Trust
-04. Freakshow(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCDD4B09874750EE02E32149367590AF2D9E729
 ```
 
 

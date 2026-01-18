@@ -1,3 +1,317 @@
+###  Публикация: 520782   (629189) от 10.07.2012
+
+Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_629189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Time [04:55]
+02. You Never Know Til You Get There [04:04]
+03. Calling You [04:53]
+04. I Love You More Than Words Can Say [05:31]
+05. It Takes A Lot To Laugh (It Takes A Train To Cry) [04:46]
+06. I Cried So Hard [04:21]
+07. Staxability [04:04]
+08. You Make Me Feel So Good (All Over) [04:25]
+09. Susan [03:52]
+10. Hold On (Feat Catharine Russell) [03:51](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543329   (629244) от 11.04.2022
+
+Scorpions - Lovedrive (1979) Reissue, 1989, Mercury [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Sunday Morning
+02. Another Piece of Meat
+03. Always Somewhere
+04. Coast to Coast(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C561FBF0AE52B7F6004C62412A90D402E9371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543373   (629259) от 11.04.2022
+
+Beitthemeans - Crude Alabama Storytellers (2008) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Blues Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down The River [00:04:54]
+02. Mr. Devil And The Black Widow Woman [00:04:35]
+03. The Hillside [00:03:59]
+04. Wicked Well [00:03:44](   Читать дальше...   )Жанр: Hard Blues Rock, Southern Rock, Stoner RockПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEB96604248C3A577E6AC4123E4F4236F1B913A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520857   (629305) от 10.07.2012
+
+In Mourning - The Weight of Oceans (2012) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_629305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossus (9:33)
+02. A Vow To Conquer The Ocean (7:24)
+03. From A Tidal Sleep (6:52)
+04. Celestial Tear (7:44)
+05. Convergence (8:35)
+06. Sirens (1:31)
+07. Isle Of Solace (4:53)
+08. The Drowning Sun (8:40)
+09. Voyage Of A Wavering Mind (5:49)Жанр: Melodic Death MetalПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519921   (629329) от 10.07.2012
+
+Myland - Light Of A New Day (2011) [APE|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_629329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In The Magic (5:30)
+02. Love Hurts So Bad (4:22)
+03. Never Care For The Future (4:59)
+04. Flying Higher (6:21)
+05. In Your Eye (5:32)
+06. Dancing In The Moonlight (4:24)
+07. Never Stop Screaming Rock (4:52)
+08. Hey You (4:57)
+09. Shattered Dreams (5:58)
+10. Fire Burns Desire (5:13)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 1:02:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543338   (629372) от 11.04.2022
+
+Boston - Greatest Hits (1997) Remastered [FLAC|Lossless|tracks + .cue] <Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Me
+02. Higher Power
+03. More Than A Feeling
+04. Peace Of Mind(   Читать дальше...   )Жанр: Classic Rock, AORПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4FD09CA3F9FDA34E7B309D7BED21B8F967C513
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908991   (629453) от 16.06.2015
+
+Breaking Benjamin - Dark Before Dawn (2015) [MP3|320 кб/с]<Post-Grunge, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark
+02. Failure
+03. Angels Fall
+04. Breaking The Silence(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D152B3303C7F999FC0AB02D00C95AF84689645DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144239   (629504) от 21.06.2017
+
+Rhарsоdу Оf Fire - Legеndаrу Yeаrs (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn Of Victory (4:45)
+02. Knightrider Of Doom (3:58)
+03. Flames Of Revenge (5:33)
+04. Beyond The Gates Of Infinity (7:22)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B89A9EB50C9067DA99DE7A6EBF92B5374B1BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543335   (629520) от 11.04.2022
+
+Edguy - The Savage Poetry, 2CD (2000) Remastered, 2021, Fono [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key To My Fate (Demo Version) (4:35)
+02. Hallowed (Demo Version) (6:29)
+03. Misguiding Your Life (Demo Version) (4:12)
+04. Sands Of Time (Demo Version) (5:06)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 00:53:10 + 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F45FCEA5EB9CDC21AEB56F88E91699409193563
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543103   (629786) от 11.04.2022
+
+Crown Compass - The Drought (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Send Your Words (00:04:09)
+02 - Ecdysis (00:06:12)
+03 - Gilbert (00:05:20)
+04 - The Drought I (00:07:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE459DE5F78FA72676984E7C328596A59AC7679B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229066   (629848) от 04.06.2018
+
+Five Finger Death Punch - A Decade Of Destruction (2017) Compilation [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble (3:13)
+ 02. Gone Away (4:35)
+ 03. Lift Me Up (4:07)
+ 04. Wash It All Away (3:46)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11BB04B930174F5ED5C855B90651AA56086C1397
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908828   (629876) от 16.06.2015
 
 The Rolling Stones - Sticky Fingers (1971) Remastered /2015, Polydor/ 3CD Super Deluxe Edition [FLAC|image+.cue]<Rock, Classic Rock>
@@ -398,315 +712,6 @@ Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421A972FFE49EAD5F482B7EF66C7CCFE05BE7D5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907838   (630315) от 16.06.2015
-
-The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonderkommando
-02. Wishing Well Of Bones
-03. Aktion T4
-04. Silent Ghosts Of Babi Yar(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B685FB71238E83214EC99F137C74D8F5FD4F7AEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908532   (630318) от 16.06.2015
-
-Hemlock - Bleed the Dream (2004) [FLAC|image+.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Eyes Itch 03:46
-02 - Weakman Suicide 04:26
-03 - The Platinum Lie 04:01
-04 - Nobody Knows 03:17(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A4AFE32B1C43BE861CC1AC0B77F866B4C4E0D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035097   (630410) от 15.07.2016
-
-Chris Norman - Golden Hits (1993) Series Golden Stars [APE|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Lady
-02. Some Hearts Are Diamonds
-03. Chain Reaction
-04. Love Is...(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751B43E134212CF4EE5E25AE17B7EEF221796808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035081   (630413) от 15.07.2016
-
-Chris de Burgh - Best Of Romantic (1994) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady in Red
-02. Diamond in the Dark
-03. Sailing Away
-04. Separate Tables(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678CEB926FEE66E7565B279041775DB977AEA215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035109   (630423) от 15.07.2016
-
-Bryan Ferry - I'm In The Mood For Love (2000) [FLAC|Lossless|image + .cue] <Glam Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sensation(05:07)
-02.Limbo(05:02)
-03.I Put A Spell On You(05:30)
-04.The 39 Steps(05:03)(   Читать дальше...   )Жанр: Glam Rock, Pop RockПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1200A5FAA66EDD19692E52B15983F750A1B7E8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035258   (630426) от 15.07.2016
-
-Ulfdallir - Ярость Фенрира (2016) [MP3|320 Kbps] <Viking Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630426.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Безумие Войны
-2. Вальхалла
-3. Норд
-4. Последний Поход(   Читать дальше...   )Жанр: Viking Death MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2110D44F855DBA787AE4E43844DD3DDA3037D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035043   (630519) от 15.07.2016
-
-Amethyst - The Maze Of Destiny (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirrored Sky
-02. Through The Maze
-03. Tomorrows Eyes
-04. Taken Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E93EBBC94901D1496746B237E6D08F064DA7D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035119   (630584) от 15.07.2016
-
-Fever Tree - Fever Tree / Another Time Another Place (1968) 2006 Reissue Collectors' Choice Music [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630584.jpg" />
-</div>
-
-
-###  Подробнее
-
-FEVER TREE
-01. Imitation Situation (Toccata And Fugue) / Where Do You Go?
-02. San Francisco Girls (Return Of The Native)
-03. Ninety-Nine And One Half(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80341E1385D3C5B9ABDBB8F95510DDAE35ADFE44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035113   (630587) от 15.07.2016
-
-Tomorrow - Tomorrow (1968) Reissue, 1991, See For Miles Records Ltd. [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630587.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My White Bicycle
-2. Colonel Brown
-3. Claremont Lake
-4. Real Life Permanent Dream(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59857F78EC504584E2FC192E1CA5C68816E3096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218594   (630782) от 15.07.2010
-
-Гарик Сукачев - Любимые песни.RU (2003) [FLAC|Lossless]<Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630782.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дроля
-2. Напои меня водой
-3. Ритка Дорофеева
-4. Playboy
-5. Дорожная
-6. Банька по белому
-7. 10000 км
-8. Ольга
-9. Горит Огонь
-10. Моя бабушка курит трубку(   Читать дальше...   )Жанр: РокПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218835   (630786) от 15.07.2010
-
-The Alan Parsons Project - 5 Albums (1977-1986) (Japan Paper Sleeve SHM-CD) (2008) [MP3|320 kbps]<Progressive Rock / Soft Rock / Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereotomy (07:17)
-02. Beaujolais (04:27)
-03. Urbania (Instrumental) (04:59)
-04. Limelight (04:39)
-05. In The Real World (04:21)
-06. Where's The Walrus? (Instrumental) (07:30)
-07. Light Of The World (06:19)
-08. Chinese Whispers (Instrumental) (01:01)
-09. Stereotomy Two (01:19)
-10. Light Of The World (Backing Track) (06:12)(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 01:01:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1031533   (651361) от 04.07.2016
+
+Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven And Hell
+02. Rainbow In The Dark
+03. Along Comes A Spider
+04. Don't Tell The Kids(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA227495C248268644EA5E9C238C6DAA12C4A797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031685   (651376) от 04.07.2016
 
 VA - Огонек (2016) [MP3|320 Kbps] <Pop>
@@ -695,39 +722,6 @@ VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516384   (651935) от 29.06.2012
-
-VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aura Dione - Friends
- 02. Junior Caldera feat. Natalia Kills & Far East Movement - Lights Out (Radio edit)
- 03. Bob Sinclar feat. Sophie Ellis Bextor & Gilbere Forte - Fuck With You
- 04. Michael Mind Project Feat. Bobby Anthony & Rosette - Rio de Janeiro (Radio Edit)
- 05. Avicii - Levels
- 06. Global Deejays - Hardcore vibes (Radio Edit)
- 07. DJ Fresh feat. Rita Ora - Hot Right Now (Radio Edit)
- 08. Bel Suono & Dj Magic Finger - Te Quiero (Vocal Mix)
- 09. Fonzerelli feat. Ellenyi - Moonlight Party (Radio Edit)
- 10. Javi Reina & Alex Guerrero feat. Syntheticsax - Oig (Radio Edit)(   Читать дальше...   )Жанр: Pop-DanceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F27C04FD6FF20F12F631C7B82FF5991135C311
 ```
 
 

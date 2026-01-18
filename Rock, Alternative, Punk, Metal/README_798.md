@@ -1,3 +1,57 @@
+###  Публикация: 1557479   (539258) от 16.06.2022
+
+Воху - Дорога неспокойной души (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Вирус (00:03:47)
+02 - Дурак (00:03:07)
+03 - Обречённый (00:03:23)
+04 - Оболочка (00:04:23)(   Читать дальше...   )Жанр: Hard Stoner RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11CA574347D1AD9B28798A0ABCD28FF81C27373
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557461   (539259) от 16.06.2022
+
+Mild West - Machine Learning (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Machine Learning (00:04:37)
+02 - Pompeii (00:03:20)
+03 - Life Again (00:03:42)
+04 - Forgotten Everything (00:04:54)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0768094245343BBA464E4CE51E4AE4C86C25F6C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557519   (539260) от 16.06.2022
 
 Secrets - The Collapse (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -654,60 +708,6 @@ magnet:?xt=urn:btih:763EFB33DC00A6A7C8EFC4AAAE8136DA6E7D4C7E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E1729DC32B2B0E38861E30A1390DFD2299DAFF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531426   (540464) от 06.08.2012
-
-Queen+Paul Rodgers - C-lebrity (2008) Enhanced CD [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540464.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 2004 года к музыкантам легендарной группы Queen Брайану Мэю и Роджеру Тэйлору в качестве вокалиста присоединился известный рок-исполнитель Пол Роджерс. Участники этого мероприятия подчеркивают, что Пол ни в коем случае не заменил Фредди Меркьюри , и сегодня речь идет об абсолютно новой группе.01. C-lebrity :: 03:40
-02. Say It's Not True :: 04:01
-03. Tie Your Mother Down (Live in Sheffield) :: 04:30Жанр: RockФормат: CD, Maxi-Single, EnhancedПродолжительность: 00:12:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239132   (540498) от 04.08.2018
-
-Liquid Tension Experiment - Liquid Tension Experiment 2 (1999) [FLAC|Lossless|image + .cue] <Instrumental Prog Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Liquid Tension Experiment — супергруппа из США, сайд-проект участников группы Dream Theater Майка Портного и Джона Петруччи. В проекте также принимали участие Тони Левин, бас-гитарист King Crimson и клавишник Dixie Dregs Джордан Рудесс. После выхода второго альбома Рудесс заменил Дерека Шериняна в группе Dream Theater.
-В 1997 году звукозаписывающая компания Magna (   Читать дальше...   )01. Acid Rain (6:36)
-02. Biaxident (7:41)
-03. 914 (4:01)
-04. Another Dimension (9:51)(   Читать дальше...   )Жанр: Instrumental Prog Rock, Heavy MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3DB19FB2A6122365FB9C4F74EEE8FC42FA7086
 ```
 
 

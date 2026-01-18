@@ -1,3 +1,245 @@
+###  Публикация: 1007437   (821613) от 15.04.2016
+
+Clube de Patifes - Casa de Marimbondo (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Mama (feat. Luiz Caldas) (04:22)
+02. Radiola (03:59)
+03. Baby Blues (03:55)
+04. O Inquilino (03:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F023BEF4F0A6185D4369E380596076D89B398A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007549   (821619) от 15.04.2016
+
+Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You See Is What You Get    03:47
+02. It's Gone    03:30
+03. It's A Hard Life    04:52
+04. Foolish Pride    03:08(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862A30F6918626DCADCA20DF4ED2C3F738CCE328
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007516   (821621) от 15.04.2016
+
+Art Blakey & The Jazz Messengers - 'S Make It (1964) Remaster, 2002, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Faith [03:47]
+ 02.'S Make It [05:41]
+ 03.Waltz For Ruth [05:47]
+ 04.One For Gamal [03:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724408F09CAABA7CC73BF868DA8F675CDDC1B8E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007522   (821694) от 15.04.2016
+
+The Buddy DeFranco (De Franco) Quintet - Cooking The Blues (1955) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Can't Get Started [05:40]
+ 02.Cooking The Blues [07:02]
+ 03.Stardust [06:09]
+ 04.How About You [06:52](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF2798782F6243E0C4FBAA25FFF641498CADF69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 196810   (821758) от 30.04.2010
+
+VA - 100% Jazz Hits volume 1 (2001) [FLAC|tracks]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima & His Band - I Wanna Be Like You  (4:22)
+02. Louis Armstrong - Cabaret  (2:43)
+03. Ella Fitzgerald - Mack The Knife (Live)  (5:04)
+04. Nina Simone - My Baby Just Cares For Me  (3:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196614   (822406) от 03.01.2018
+
+Brenda Layne - Torch (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kindred Spirits
+02. Breakthrough to the Temperate Zone
+03. Lucky Charm
+04. Solo Act(   Читать дальше...   )Жанр: JazzПродолжительность: 00:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D1A592F360026E0950CEE4BCB5E930F069079C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166028   (822435) от 17.10.2021
+
+Acoustic Alchemy - Discography (1987 - 2007) 17CD [WavPack|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитаристы Ник Вебб и Грег Кармайкл в 80-х и 90-х годах прошлого столетия под вывеской "Acoustic Alchemy" произвели на свет серию интересных альбомов, классифицируемых на Западе как "adult contemporary music". На самом деле в музыке "алхимиков" всегда присутствовала смесь различных стилей: джаз, фолк, поп, латино, нью-эйдж, соул и т. (   Читать дальше...   )Список альбомов:
+Red Dust & Spanish Lace (1987)
+Natural Elements (1988)
+Blue Chip (1989)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 14:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DA281661A152440309F1525A796890304C9C56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196545   (822543) от 03.01.2018
+
+Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Trust [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without A Song [08:41]
+02. Besame Mucho [05:05]
+03. Ain't No Sunshine When She's Gone [10:36]
+04. Vita Bella [05:12](   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, Post-BopПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586144EE3BA03681B9634E15A1CF4B277EAF92FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196550   (822556) от 03.01.2018
+
+Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening [13:53]
+02. Priestess [11:37]
+03. Love On The Sudan [17:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9F166F2CB1E958CC4498DEB4DF63F3798040DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196457   (822557) от 03.01.2018
 
 Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -450,249 +692,6 @@ Les McCann & Eddie Harris - Swiss Movement (1969) 1990, Atlantic [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95141BDDFCBC27A798F2CC72BCA36C0DC9A097A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007333   (823556) от 14.04.2016
-
-Malaya Blue - Heartsick (2016) [FLAC|Lossless|image + .cue] <Blues, Jazzy Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heartsick (03:21)
-2. Hunny Little Day Dream (04:02)
-3. Colourblind (04:42)
-4. Let's Reinvent (Love) (07:12)(   Читать дальше...   )Жанр: Blues, Jazzy Blues, Blues RockПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80D59738C35B77CAE1518E08DF39BB98BA4755E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007149   (823562) от 14.04.2016
-
-Louis Armstrong - Louis Armstrong (1987) Series Compact Jazz, Compilation [APE|Lossless|image + .cue] <Jazz,  Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Right To Sing The Blues
-02. Moon Song
-03. Don't Get Around Much Anymore
-04. Let's Fall In Love(   Читать дальше...   )Жанр: Jazz,  DixielandПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F97FD521B50B4376607BD9F41EAFC12880BC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007197   (823640) от 14.04.2016
-
-Milt Jackson - Bags & Flutes (1957) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bags' New Groove [06:03]
- 02.Sandy [03:57]
- 03.Midget Rod [05:47]
- 04.I'm Afraid the Masquerade Is Over [03:47](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74015DA9FEEE563A394181A37266EA5F10B4E2BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007204   (823643) от 14.04.2016
-
-Milt Jackson - The Ballad Artistry of Milt Jackson (1959) Remaster, 2012, Warner[FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Cylinder [02:47]
- 02.Makin' Whoopee [03:03]
- 03.Alone Together [04:51]
- 04.Tenderly [04:30](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647219F09B602E78A4E9F2FCE9ACD99CE6A749BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007309   (823647) от 14.04.2016
-
-Elvin Jones - Coalition (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Shinjitu [07:41]
- 02.Yesterdays [11:00]
- 03.5/4 Thing [05:28]
- 04.Ural Stradania [08:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EBD6087808E0B281DA0ADF6C60709D532D4F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839231   (824020) от 27.11.2025
-
-Max Magro and the Wolfgang - Old Smuggler Of Outlaw Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  See My Jumper Hanging On The Line (2:35)
-02.  Going Down That Dirt Road (4:59)
-03.  Going Down South (2:20)
-04.  New Crawling King Snake (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFC2129508CA899B05A7959DE4F175663102DD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839230   (824021) от 27.11.2025
-
-Matt Mann & The Shine Runners - Wrong Side Of History (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Difference (3:23)
-02.  Whiskey Tango (2:58)
-03.  Beggars (3:28)
-04.  O.C.D. (3:26)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CB731CA946D3E39E7B4F0D7DC97603B904FF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839229   (824023) от 27.11.2025
-
-Leonard Lowdown Brown - Street Party (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Master - Theme (2:37)
-02.  Party - Street Party (5:29)
-03.  Gonna - I'm Gonna Take Care of You (4:41)
-04.  Need - I Need Help (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B5799B849D694CE9597154CDC6B6FDE5A40275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839227   (824024) от 27.11.2025
-
-John Brennan - Bring It On Back To Me (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Junkyard Blues (3:05)
-02.  Bring It On Back To Me (3:05)
-03.  It Hurts Me Too (3:32)
-04.  You'll Get Yours Someday (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5FFDD99D021E4D9359EB13E44485534B64D706
 ```
 
 

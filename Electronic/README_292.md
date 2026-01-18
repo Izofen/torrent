@@ -1,3 +1,30 @@
+###  Публикация: 1043855   (571073) от 17.08.2016
+
+VA - Radio Charts - Gold Collection (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eduardo Espada  -  We Will Together  4:15
+02. Foxmelody  -  Be Junior  2:46
+03. Solovey  -  Vacuum  4:18
+04. Milena  -  One, Two, Three  3:32(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 05:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D6F34C97CAA9DA981B9194737A9C8004DBD854
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234464   (571145) от 05.07.2018
 
 VA - Nothing But... True Progressive Vol.06 (2018) [MP3|320 Kbps] <House,Progressive House>
@@ -675,33 +702,6 @@ VA - Sapporossive (2016) [MP3|320 Kbps] <House, Progressive, Melodic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31EDEB481485B9225C26EB9CE399930B60F80C74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921392   (573431) от 26.07.2015
-
-The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.cue]<Electronic, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I Feel So Deserted (feat. Daniel Pearce)
-02. Go (feat. Q-Tip)
-03. Under Neon Lights (feat. St. Vincent)
-04. EML Ritual (feat. Ali Love)(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2319BE1630BACBC41441C32BC5773F8362B2C0
 ```
 
 

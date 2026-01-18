@@ -1,3 +1,57 @@
+###  Публикация: 1213297   (771926) от 16.03.2018
+
+VA - Buddha Luxury Vol.2 (Esoteric World Music) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Silvio Piersanti  -  Hand In Hand (World Mix)  2:57
+02.  Marco Attali & Travel Memories  -  My Brazilian Heart (Original Mix)  3:30
+03.  Dharma Frequency  -  Oriental Pleasure (Original Mix)  3:54
+04.  Marga Sol  -  Desedena (Instrumental Mix)  4:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14DEE926570EC4EEA5779DDD53D584A118811CE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213348   (771930) от 16.03.2018
+
+Akshan - World Of Duality (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome as You Are (09:07)
+ 02. La conscience de l'espace (12:40)
+ 03. World of Trouble (08:42)
+ 04. Time for Change (10:00)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3235D3B63E00084D625A52730E3F0F29CD69DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213308   (771939) от 16.03.2018
 
 VA - Lounge Bar New York Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -629,60 +683,6 @@ VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212944   (773348) от 15.03.2018
-
-VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (3:49)
-02. MK - 17 (In The Air dub) (5:22)
-03. Marshmello & Khalid - Silence (Blonde remix) (3:45)
-04. Disciples - On My Mind (Deepend remix) (3:10)(   Читать дальше...   )Жанр: Club House |Продолжительность: 02:40:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E889E9A09A15BF4B336849DDC716831C80E59DF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213186   (773356) от 15.03.2018
-
-Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reminiscence (03:49)
- 02. Gears (05:51)
- 03. Lichtende (06:17)
- 04. Scorch (05:36)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
 ```
 
 

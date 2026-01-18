@@ -1,3 +1,57 @@
+###  Публикация: 1026190   (705765) от 14.06.2016
+
+Snap - Power Hits Of... (1995) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power [0:05:47.25]
+02. Ooops Up [0:06:47.00]
+03. Cult of snap [0:05:25.05]
+04. Believe the hype [0:04:55.45](   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA3CCE55ADB77087B05843A4747AB5CE022D2EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026139   (706155) от 14.06.2016
+
+VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prash - Bring That Bass (Extended Mix) (4:48)
+02. Chives & Splash - Love & Rage (Extended Mix) (4:50)
+03. United States of Dance - We Are the Night (Extended Mix) (4:57)
+04. Rock Massive - You Know Why (Ph Electro Radio Mix) (3:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220196   (706189) от 18.04.2018
 
 VA - Essential House Spring 2018 [MP3|320 Kbps] <Funky, Club House>
@@ -635,60 +689,6 @@ Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286759   (709087) от 04.03.2019
-
-ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival (04:49)
- 02. Burian (05:05)
- 03. A Prayer For The Departed (05:30)
- 04. In Every Place (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286875   (709092) от 04.03.2019
-
-Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Unity (04:33)
-02. Nothing but Stardust (06:15)
-03. Every Dream Is a Lifetime (05:53)
-04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
 ```
 
 

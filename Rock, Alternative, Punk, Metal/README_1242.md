@@ -1,3 +1,300 @@
+###  Публикация: 1458920   (1023458) от 31.03.2021
+
+Thomas Frank Hopper - Bloodstone (2021) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodstone 04:26
+02. Come Closer 03:55
+03. Dirtylicious 02:41
+04. Sweet Black Magic Sugar Babe 02:26(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC940EC6F4C009FB9A4F020C34C8F0D57FB13065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458896   (1023476) от 31.03.2021
+
+Константин Сапрыкин - Пассажир (2021) [MP3|~245 Kbps (V0)] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рок-звезда [00:04:04]
+02 - Эксцентриситет [00:05:11]
+03 - Живой [00:06:15]
+04 - Последнее письмо [00:03:22](   Читать дальше...   )Жанр: RockПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985A05249159EE70FEEBB5A6D17E2A703B014729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458975   (1023507) от 31.03.2021
+
+Secret Sphere - 11 Studio Albums (1999-2021) 12xCD [FLAC|Lossless|image + .cue] <Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянская группа Secret Sphere родилась в июле 1997 года. Сегодня группу называют одним из самых интересных итальянских фэнтези симфо пауэр-коллективов, а их вокалист считается звездой итальянской power metal-сцены. Создатель Secret Sphere Aldo Lonobile стал в группе гитаристом, а кроме него в первый состав входили Andrea Buratto (бас), Cristiano Scagliotti (барабаны), (   Читать дальше...   )1999 - Mistress Of The Shadowlight
+2001 - A Time Never Come
+2003 - Scent Of Human Desire
+2005 - Heart & Anger(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 11:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD17C851C1A65EA5928EEACC82B01933E3A1416E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459071   (1023518) от 31.03.2021
+
+Secret Sphere - 11 Release (1999-2021) [MP3|320 Kbps] <Melodic Power, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1999 - Mistress of the Shadowlight
+2001 - A Time Never Come
+2003 - Scent of Human Desire
+2005 - Heart & AngerЖанр: Melodic Power, Progressive MetalПродолжительность: 11:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B48E6F22F83069D74C340C8E052C972C372FC71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459012   (1023520) от 31.03.2021
+
+Nova Era - The Curse (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born to Die 03:55
+02. Slaves 04:06
+03. First Love 04:53
+04. Run for Your Life 03:49(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E617EB10876F42222F5F2DA2A0C801D14603188E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458936   (1023521) от 31.03.2021
+
+Thunder - All The Right Noises (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last One Out Turn Off The Lights (4:15)
+02. Destruction (5:02)
+03. The Smoking Gun (4:49)
+04. Going To Sin City (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20C9C3979DD0B7BBF2C8AB3A615DF5E6884C1CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458834   (1023628) от 30.03.2021
+
+OzzyCash - OzzyCash (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not So Easy Street
+02. Back To My Roots
+03. 'Round Here
+04. Sucker(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661E485EF326E0BF97E97569AFC79E523BE8E02E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458620   (1023770) от 29.03.2021
+
+Red Hot Chili Peppers - Devotion to Emotion (2021) live [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Higher Ground (live) [00:03:32]
+02 - Knock Me Down (live) [00:03:53]
+03 - Castles Made Of Sand (live) [00:03:16]
+04 - Me And My Friends  Strip My Mind (live) [00:03:07](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FCB9B214AE8913B82CADC3C842CCABA02AD493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458634   (1023790) от 29.03.2021
+
+Servants To The Tide - Servants To The Tide (2021) [MP3|320 Kbps] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023790.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Returning to Miklagard 01:36
+2. A Wayward Son's Return 05:04
+3. North Sea 08:13
+4. On Marsh and Bones (The Face of Black Palmyra) 05:39(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6937BF4D604DAFD66B34645D043C47827C3899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458489   (1023807) от 29.03.2021
+
+Whitesnake - The Rock Album (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Of The Night
+02. Best Years
+03. Tell Me How
+04. Love Ain't No Stranger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266643FEFB044F2615AC244A3156D20EB81EC33F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457570   (1023832) от 29.03.2021
+
+Sirenia - 10 Albums, 3 Singles (2002-2021) [MP3|320 Kbps] <Synpho-Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023832.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002 - At Sixes and Sevens
+2004 - An Elixir for Existence
+2007 - Nine Destinies and a Downfall
+2009 - The 13th FloorЖанр: Synpho-Gothic MetalПродолжительность: 10:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB236DF2A89D6A75044F72CA42DA7ABD67DD94D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458507   (1023849) от 29.03.2021
 
 Evilizers - Solar Quake (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -398,303 +695,6 @@ Septagon - Apocalyptic Rhymes (2018) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF6B36E7044ECABE58E02952D5AF7685B57AB3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811571   (1023938) от 28.03.2021
-
-Wolfmother - 4 Albums (2005 - 2016) 8 CD [FLAC|Lossless|tracks + .cue|image+.cue]<Hard Rock, Psychedelic, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представить австралийское рок-трио Wolfmother лучше всего смогут его создатели, называющие свою группу "психоделическим, звуковым, сексуальным цунами". "Это трое парней, которые выходят на сцену, выдавая на-гора все, что они умеют, вкладывая сердце и душу, получая огромное удовольствие от всего, что с ними происходит, и пытаясь увлечь зрителей в путешествие (   Читать дальше...   )Список альбомов:
-Wolfmother - 2006 - Wolfmother
-Wolfmother - 2009 - Cosmic Egg (Deluxe Edition)
-Wolfmother - 2014 - New CrownЖанр: Hard Rock, Psychedelic, StonerПродолжительность: 07:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8029EA1ED6DA5FDEE6C2E489840AC53052DC652B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458142   (1024034) от 28.03.2021
-
-The Dirty Mojo Blues Band - It Is What It Is (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Blues [00:04:37]
-02. Dirty Dog [00:02:47]
-03. Missin You [00:04:04]
-04. Pb and Jam [00:04:38](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E165652BCBBEA11C5BDAF10DDE72183B9F4917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457908   (1024040) от 28.03.2021
-
-The Quill - Earthrise (2021) [MP3|320 Kbps] <Stoner Rock, Heavy Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hallucinate [00:04:12]
-02 - Keep On Moving [00:03:23]
-03 - Dwarf Planet [00:07:18]
-04 - Left Brain Blues [00:03:58](   Читать дальше...   )Жанр: Stoner Rock, Heavy Blues RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB41118E9136F208A07C0677AA8372CA063B8C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457889   (1024041) от 28.03.2021
-
-Damon Fowler - Alafia Moon (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave It Alone [00:04:59]
-02. I've Been Low [00:04:16]
-03. Alafia Moon [00:04:34]
-04. Make The Best Of Your Time [00:05:40](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF65ACC486064D23A6462D13DB6F7736133473B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458144   (1024042) от 28.03.2021
-
-Gaelle Buswel - Your Journey (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Journey [00:03:29]
-02. Last Day [00:03:45]
-03. All You Gotta Do [00:03:51]
-04. Razor's Edge [00:04:52](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37B2A8E6B6DB2A78D90BF2FBC42CDB618A68C0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457901   (1024070) от 28.03.2021
-
-Silent Winter - Empire of Sins (2021) [MP3|320 Kbps] <Power, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gates of Fire [00:05:07]
-02 - Wings of Destiny [00:04:13]
-03 - Shout [00:04:33]
-04 - Mirror [00:05:09](   Читать дальше...   )Жанр: Power, Progressive MetalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA6D634C24E52C6047C9BA4ADF7214ED0194B28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458213   (1024074) от 28.03.2021
-
-Liquid Tension Experiment - LTE3 (2021) 2xCD,  Deluxe Edition [MP3|320 Kbps] <Instrumental Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструментальный прогрессив-рок/метал-проект LIQUID TENSION EXPERIMENT, в состав которого входят двое участников DREAM THEATER – клавишник Джордан Рудесс (Jordan Rudess) и гитарист Джон Петруччи (John Petrucci), а также бывший барабанщик DREAM THEATER Майк Портной (Mike Portnoy) и легендарный прогрессив-рок-басист Тони Левин (Tony Levin), работавший с KING CRIMSON (   Читать дальше...   )CD - 1:
-01. Hypersonic (08:22)
- 02. Beating The Odds (06:09)
- 03. Liquid Evolution (03:23)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, RockПродолжительность: 01:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA3F0A9BE047C9298073E605F7422DF6CF3BA7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457995   (1024080) от 28.03.2021
-
-Spliffripper - Spliffripper (2021) [MP3|320 Kbps] <Doom, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bongbreaker [00:06:41]
-02 - Left is Law [00:05:14]
-03 - Vietbong [00:04:50]
-04 - Chief Kief [00:03:14](   Читать дальше...   )Жанр: Doom, Sludge MetalПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC1F07EAA892A82FB1821DB704D927CE07FAA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458162   (1024081) от 28.03.2021
-
-Trettioariga Kriget - Till horisisonten (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:49]
-02 - In Memoriam [00:07:38]
-03 - Tidigt [00:04:35]
-04 - Staden [00:06:38](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BAF5EAA6B8BED64A035DE6BEA30FC08769AAA1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457974   (1024084) от 28.03.2021
-
-Sotury - Andel Zkazy (2021) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Zrozeni nechteneho syna [00:00:52]
-02 - Andel Zkazy [00:04:58]
-03 - Alastor [00:06:30]
-04 - Ocistec [00:08:18](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD924EDEF9EA5237ADDCAD8D02C0C8267718FEA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457689   (1024195) от 27.03.2021
-
-The Quill - Earthrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock, Heavy Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallucinate [00:04:12]
-02. Keep On Moving [00:03:23]
-03. Dwarf Planet [00:07:17]
-04. Left Brain Blues [00:03:58](   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Heavy Blues RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32E3A11ED218ABC3D87D8784F1FDCBFA1E2638E
 ```
 
 

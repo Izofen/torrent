@@ -1,3 +1,30 @@
+###  Публикация: 931877   (510706) от 27.08.2015
+
+Motorhead - Bad Magic (2015) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory or Die
+02. Thunder & Lightning
+03. Fire Storm Hotel
+04. Shoot Out all of Your Lights(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCCC0884EF27634C60C7DD23B2DB87E2ED5C5DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315969   (510747) от 22.07.2019
 
 Наутилус Помпилиус (Nautilus Pompilius) - Золотой век (2015) [MP3|320 Kbps] <Rock>
@@ -664,33 +691,6 @@ Profetus - Coronation Of The Black Sun & Saturnine (2006, 2009) 2xCD, Remastered
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:902041136CD02448E6E4B5CE5A5E94F6F09F1B67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562226   (511557) от 08.07.2022
-
-Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rectilinear Motion
-2. Shadow Archetype
-3. Currents
-4. Chiaroscuro(   Читать дальше...   )Жанр: Progressive Deathcore, Technical Death MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAAAC0B6AD3D9E77BAB48472A42935042ADC75A
 ```
 
 

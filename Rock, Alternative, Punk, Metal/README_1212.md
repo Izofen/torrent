@@ -1,3 +1,300 @@
+###  Публикация: 1187958   (1009892) от 21.06.2021
+
+Foreigner - 23 albums, 48 CD (1977-2019) Discography [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Foreigner (рус. «иностранец») — американская рок-группа, созданная в 1976 году Миком Джонсом, ранее игравшим в Spooky Tooth, The Leslie West Band и бывшим участником King Crimson Иэном Макдональдом. Их первые шесть альбомов (1977—1984) стали мультиплатиновыми и в целом продавались в США лучше, чем записи их конкурентов из мира хард-рока, всего в мире было продано (   Читать дальше...   )--------------------------
+
+01. Cold As Ice (6:00)
+02. Head Games (5:18)(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Melodic Rock |Продолжительность: 39:17:35 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C0C83290DE05E6CD753A31AF0D4A8E42137FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478844   (1009966) от 21.06.2021
+
+Игорь Кулагин - Коллекция (2015-2021) 3 альбома [MP3|320 Kbps] <Rock, Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Истеричная песня
+02. Шейк на песке
+03. Электрический глаз
+04. Владивосток EXPO(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BAB6C16CEB2818E6B40353C300EDB6CBB81C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478704   (1009999) от 21.06.2021
+
+VA - Soft Rock Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Cross - Ride Like the Wind
+02. Fleetwood Mac - Gypsy (2018 Remaster)
+03. Randy Crawford - Who's Crying Now
+04. Chris Rea - Dancing Girls(   Читать дальше...   )Жанр: RockПродолжительность: 03:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E21507242074DB4EDA2B33F7A6E6E267A66C85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478828   (1010016) от 21.06.2021
+
+Infinite & Divine - Silver Lining (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Alive
+02. Infinite & Divine
+03. Keep On Moving
+04. Not Too Late(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2714E28E46B256492F60981FF1C320D24EFCC67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478771   (1010018) от 21.06.2021
+
+Skarlett Riot - Invicta (2021) [FLAC|Lossless|image + .cue] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking The Habit
+02. Gravity
+03. Black Cloud
+04. Underwater(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3CE7595A40F5788A5734EE6AB4CF3006375CA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478922   (1010028) от 21.06.2021
+
+Hammer King - King Is Rising (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Is Rising (4:58)
+02. Last Hellriders (2:50)
+03. For God and the King (3:22)
+04. Warrior's Reign (4:21)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16DA3211D38014F5EE8B685A20705F266EFFD0FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478587   (1010030) от 21.06.2021
+
+Flotsam And Jetsam - Blood In The Water (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood in the Water (4:17)
+02. Burn the Sky (4:27)
+03. Brace for Impact (4:34)
+04. A Place to Die (4:22)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C2E9E6B5554E1F158A101CAF5362BDEA816F41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478899   (1010034) от 21.06.2021
+
+Grief Collector - En Delirium (2021) 2xCD [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010034.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - En Delirium:
+01. Corridors
+02. Wintersick
+03. Our Poisonous Ways(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B30BFFB8779CD6AB43BBA9E06B187C3B3CEEDC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478593   (1010036) от 21.06.2021
+
+Hammer King - Poseidon Will Carry Us Home (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poseidon Will Carry Us Home
+02. The King Is A Deadly Machine
+03. Battle Of Wars
+04. 7 Days And 7 Kings(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0080109B3A1F2AE130DA20C42D27A2AA92AD9D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478514   (1010158) от 20.06.2021
+
+King Of Asgard - Svartrvidr (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frodr
+02. Rifna
+03. Haeimr
+04. Kvikr(   Читать дальше...   )Жанр: Melodic Death Metal, Viking MetalПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB89F84659D433F57FBBB24AC1EB035B30884FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478577   (1010178) от 20.06.2021
+
+Tanzwut - Die Tanzwut Kehrt Zuruck (2021) 2xCD [FLAC|Lossless|image + .cue] <Industrial Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010178.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Die Tanzwut Kehrt Zuruck
+02. Feine Menschen
+03. Bis Zum Meer(   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AD8F5CB4FC565C5A3DC396B13470E6673B9D8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478399   (1010187) от 20.06.2021
 
 Dark Delirium - Fallen (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Modern Metal>
@@ -398,303 +695,6 @@ Styx - Crash Of The Crown (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FFEB2F47FC959CA7363510A4C6BE17FFDEC978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478250   (1010503) от 18.06.2021
-
-Tom Morello & The Bloody Beetroots - The Catastrophists (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil's Infantry (3:48)
- 02. Radium Girls (ft. Pussy Riot, The Last Internationale, Aimee Interrupter) (3:49)
- 03. Lightning Over Mexico (ft. Ana Tijoux) (4:12)
- 04. Keep Going (3:37)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, ElectronicПродолжительность: 00:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E045DF9D03AA6259776B850E534BBE50F4AD9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478174   (1010512) от 18.06.2021
-
-Social Disorder - Love 2 Be Hated (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Windy Road
-02. Dreaming
-03. Scars
-04. Love 2 Be Hated(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1962845882F24C192BA5092A718D4101602C76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478185   (1010513) от 18.06.2021
-
-Eye Of Purgatory - The Lighthouse (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And From The Fog...
-02. The Lighthouse
-03. Fornever To Awaken
-04. Carved In A Stone Bleeding(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C338D2E526EE0A5E0254875E064AD947D46A43C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478232   (1010517) от 18.06.2021
-
-Angelwings - Primordium (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis
-02. Primordium
-03. Nature’s Lullaby
-04. Fallen Angel Song(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86152D6383768BC947C3F0497F4CBDD0457852D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478170   (1010523) от 18.06.2021
-
-Season Of Dreams - Heroes (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowreaper
-02. Heroes
-03. Legion Of The Werewolves
-04. Princess Of The Dark(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF005BCEF32BA6702CE13F0A23AE76BD49BCBFB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478224   (1010524) от 18.06.2021
-
-Ravager - The Third Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intruders
-02. Planet Hate
-03. Back To The Real World
-04. Priest Of Torment(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9BE514FDBF4405BD937A90E520AE59D86F9B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478017   (1010525) от 18.06.2021
-
-Niva - Incremental IV (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t You Know
-02. Crush
-03. Better Just Forgotten
-04. Magnitude(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454B6F3B24E6F824D877AF2A04BD49D685E44F93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478181   (1010526) от 18.06.2021
-
-The Day Of The Beast - Indisputably Carnivorous (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corruptor/Infestor
-02. Disturbing Roars At Twilight
-03. Indisputably Carnivorous
-04. Enter The Witch House(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD522689105972F48A779A246E846E07C92925D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478172   (1010528) от 18.06.2021
-
-Bloodbeat - Process Of Extinction (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creative Murder
-02. Beyond The Skeletons
-03. Pulse
-04. No Control(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF18C927CD777C55B6899EC53628552F2525BD2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478228   (1010530) от 18.06.2021
-
-Omago - Decrepitus (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sore Loser
-02. Headless
-03. Vile Schemer Vile
-04. Burn The Books(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C3F91D290234C2D3BC8FF42940DD8D279E441C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478106   (1010532) от 18.06.2021
-
-Intrinsic - Intrinsic (1987) [FLAC|Lossless|tracks + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahead Of The Game
-02. Hit The Streets
-03. Compo
-04. RIP!!(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B30D193617F9991C6E59C43C329043936DA317
 ```
 
 

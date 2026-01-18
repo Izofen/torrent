@@ -1,3 +1,246 @@
+###  Публикация: 877809   (845941) от 13.03.2015
+
+VA - Living The Blues: The 70s Blues Classics (1997) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby “Blue” Bland - I Wouldn't Treat a Dog (The Way You Treated Me) (3:16)
+02. Ted Taylor - Something Strange Is Goin' on in My House (2:54)
+03. Ann Peebles - (I Feel Like) Breaking Up Somebody's Home (2:29)
+04. Albert King - I'll Play the Blues for You, Part 1 (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B72787DBE53C60ADAFEF611DCEC8D71739BB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499758   (846320) от 03.10.2021
+
+Ella Fitzgerald - The Irving Berlin Songbook, Vols. 1-2 (1958) 2CD, 1986, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846320.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Let's Face the Music and Dance [2:58]
+02. You're Laughing at Me [3:17]
+03. Let Yourself Go [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A26CB44A1D5E179B95E7FE7D92FEA3B06B4D781
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499673   (846322) от 03.10.2021
+
+Marcos Valle & Victor Biglione - Live In Montreal (2007) [FLAC|Lossless|tracks + .cue] <MPB>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azimuth 3:20
+02. Preciso Aprender A Ser Só 4:11
+03. Samba De Verão 4:02
+04. Terra De Ninguém 3:11(   Читать дальше...   )Жанр: MPBПродолжительность: 01:05:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5360177E0D5B550764FB1B5C0001A8B023612F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499658   (846323) от 03.10.2021
+
+Johnny Griffin & Eddie "Lockjaw" Davis - Ow! Live at the Penthouse (1962) 2019, Reel to Real [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intermission Riff (Intro by Jim Wilke) [0:53]
+02. Blues Up and Down [6:48]
+03. Ow! [8:20]
+04. Spoken Introduction [0:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB475A754C984824A60018F9E8A4C7C9EC3D8BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111721   (846747) от 06.03.2017
+
+Roy Buchanan - When A Guitar Plays The Blues (1985) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When A Guitar Plays The Blues (06:39)
+02. Chicago Smokeshop (05:00)
+03. Mrs. Pressure (04:39)
+04. A Nickel And A Nail (04:29)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB990214576EF1B9994FB9F816785D9B86AC178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111804   (846751) от 06.03.2017
+
+Chano Dominguez - Over The Rainbow (2017) Nuba Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Django [06:54]
+ 02.Duerme Negrita [05:18]
+ 03.Evidence [05:16]
+ 04.Gracias a la vida [09:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744838868BE6F27E5808A7A98E9E4604313F803B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111809   (846754) от 06.03.2017
+
+Chet Baker - Ensemble (1953) 2004, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bockhanal [03:01]
+ 02.Ergo [03:12]
+ 03.Moonlight Becomes You [03:28]
+ 04.Headline [03:12](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D39D42A4525A3099003DE0B85AF894F3A5142E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111812   (846756) от 06.03.2017
+
+Jeff Healey - Songs From The Road (2006) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  I Think I Love You Too Much  (05:36) 
+02|  I'm Ready  (05:20) 
+03|  Stop Breaking Down  (05:56) 
+04|  Angel Eyes  (05:54) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A1813715717A73128F87DC6B0F77C83559D043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111771   (846797) от 06.03.2017
+
+Delta Moon - Cabbagetown (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock And Roll Girl (3:44)
+02. The Day Before Tomorrow (3:32)
+03. Just Lucky I Guess (3:40)
+04. Coolest Fools (2:51)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C932BB016980EE6629D19E100BC62C350DBA7971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111848   (846804) от 06.03.2017
 
 Junior Cook - Senior Cookin' (1979, 1981) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -450,249 +693,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0006669D98CC3B3040EB3DD412D322D620DFC60F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110946   (850426) от 04.03.2017
-
-Omar Sosa & Seckou Keita - Transparent Water (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <World Fusion, Ethnic Jazz, Piano & Kora>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дуэт двух великих музыкантов – кубинского джазового пианиста и композитора, неоднократного номинанта премии Грэмми Омара Соса и сенегальского гриота, мультиинструменталиста и вокалиста Секу Кейта, искусно владеющего корой (21-струнная африканская арфа). В записи альбома Transparent Water («Прозрачная вода») также принимали участие: Густаво Оваллес – венесуэльский (   Читать дальше...   )01. Dary (Feat. Gustavo Ovalles) (5:09)
-02. In The Forest (5:14)
-03. Black Dream (Feat. Mieko Miyazaki & Wu Tong) (5:24)
-04. Mining-Nah (Feat. Gustavo Ovalles) (4:55)(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, Piano & KoraПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983917B173EB0F2BA6F6C2CE3533176F99AED7E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110972   (850430) от 04.03.2017
-
-The Blind Boys Of Alabama - Down In New Orleans (2008) [FLAC|Lossless|tracks + .cue] <Blues, Gospel>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blind Boys of Alabama (Блайнд Бойз оф Алабама) — американская музыкальная группа из штата Алабама, исполняющая музыку в жанре госпел. Является пятикратным лауреатом премии «Грэмми». Выступает с 1939 года. В 2003 году группа была принята в Зал славы госпела, в 2010 — в Музыкальный зал славы штата Алабама01. Free At Last  (3:33)
-02. Make A Better World (3:19)
-03. How I Got Over (5:03)
-04. You Got To Move (3:35)(   Читать дальше...   )Жанр: Blues, GospelПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB30E0742E45C9E6F2BEDA2F05A1DC97DAEB812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111145   (850431) от 04.03.2017
-
-Benny Goodman - B.G. in Hi-Fi (1954) 1989, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Dance [02:16]
- 02.Airmail Special [03:39]
- 03.Ain't Misbehavin' [03:28]
- 04.Get Happy [03:06](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7204B5E65EE0D0A2324992B883D82C5D83909F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110925   (850433) от 04.03.2017
-
-Tal Farlow - Chromatic Palette (1981) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.All Alone [04:15]
- 02.Nuages [05:59]
- 03.I Hear a Rhapsody [03:25]
- 04.If I Were a Bell [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A633E245BC38B89B6D191C2830ABBE93BD6FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110921   (850437) от 04.03.2017
-
-Al Cohn & Zoot Sims - Easy as Pie: "Live" at the Left Bank (1968) 2000, Label M [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tickle Toe [02:35]
- 02.Mr. George [06:18]
- 03.Medley: These Foolish Things/Willow Weep for Me [08:13]
- 04.John's Bunch [05:46](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F3D22B13CBC06283C7A162057FA5AEC9332A56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110920   (850439) от 04.03.2017
-
-Jon Hendricks - A Good Git-Together (1959) 2006, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everything Started In The House Of The Lord [01:04]
- 02.Music In The Air [03:59]
- 03.Feed Me [03:51]
- 04.I'll Die Happy [02:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD2194623D8DC2F635E8E1CFD1DBE6E9D3AD79B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110952   (850440) от 04.03.2017
-
-Art Tatum - Performance: Solo Piano Recordings from 1933 to 1952 (2010) 2CD, Fuel Label Group [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850440.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Young and Healthy [01:34]
-02.Stardust [03:09]
-03.Theme for Piano [01:02](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687B4CE3EE1166EA4B961D3852A26E69513D6E68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110917   (850441) от 04.03.2017
-
-Gerry Mulligan - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850441.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1- Walking Shoes:
-01.It May Be Wrong [03:28]
-02.So What [02:46]
-03.Bernie's Tune [02:55](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F556C1D02C69EBEF2387EAEF35267FF67B228AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110930   (850442) от 04.03.2017
-
-Guillermo Gregorio, Mats Gustafsson, Kjell Nordeson - Background Music (1998) HatOLOGY [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vanderin' (to Ken Vandermark) [04:23]
- 02.A Tiny Bit More (to Tiny Kahn) [17:34]
- 03.Cannots [04:55]
- 04.Worn a First Variation [02:11](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6828294F9AA5E8432A297137E4DB4EF332BE48
 ```
 
 

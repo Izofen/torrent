@@ -1,3 +1,30 @@
+###  Публикация: 1275997   (789072) от 14.01.2019
+
+VA - The Sacrifice: Techno Folk Party (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789072.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sirch And William Kiss - Delhi
+002. Dimor - Dark Story (Original Mix)
+003. Headhunterz - The Sacrifice (Max Enforcer Remix)
+004. Jnxd - Fuck Shit Up (Extended Mix)(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 10:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2333B176CEB516F11DF1FF65939258C718EA64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203026   (789109) от 31.01.2018
 
 VA - Progressive Psychodelic Trance (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
@@ -662,33 +689,6 @@ magnet:?xt=urn:btih:30E111E430B20C7CFF0F932F4491708B0F52B2DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F05BD4ADA8EB84B5DE9BF8231DA5B129F638ACF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275569   (789655) от 12.01.2019
-
-VA - Top 100 Зайцев.Нет Декабрь 2018 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тима Белорусских - Мокрые кроссы
-002. Tiesto - In My Mind
-003. Макс Корж - Малиновый закат
-004. N1NT3ND0 - Ран Вася ран(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF55F11E60CDD420630543272C09794B0B2163A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1396772   (745495) от 16.07.2020
+
+VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Progressive Trance, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minddigger - Infinite Motion (08:32)
+ 02. RAAS - Floating Forward (Invisible Ralf Remix) (06:36)
+ 03. Richard Stonefield - Ashtan (Revisited) (07:46)
+ 04. Dynamic Illusion - Back To Life (Revisited) (06:24)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, Downtempo, AmbientПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62E2445194BC4B8ABD3E4BD4C648C72704C1490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020274   (745521) от 26.05.2016
+
+Bernd Filz - A Good Stuff (2016) [MP3|320 кб/с] <Electronic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Good Stuff [05:49]
+2. Dark Canyon [06:17]
+3. Daydreamer [06:00]
+4. Houseworker [05:22](   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED696962D2AAB3984130B8F9B684F7F72E3AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396601   (745579) от 16.07.2020
 
 Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
@@ -629,60 +683,6 @@ Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396121   (748408) от 14.07.2020
-
-The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Years (prologue) (6:09)
-02. Gloria (4:50)
-03. WeMoveForward (8:08)
-04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 11:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCC64AA2E4344A8F7188E494372AB659753883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281936   (748424) от 10.02.2019
-
-VA - I Love Chill Vol. 4 (Finest Ambient Lounge And Chillout Music) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artenovum - Mystic Love 4:43
-02. Jean Mare - Moments In Paradise (Morphing Thru Time Mix) 4:49
-03. Buddhatronic - Human (Whispering Cut) 3:46
-04. Aqualuna - New Love (Spheric Chillout Mix) 4:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E1D85D1ED454F4A3510C7F1AFE795DEDDC172
 ```
 
 

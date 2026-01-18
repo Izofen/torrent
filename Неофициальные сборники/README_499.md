@@ -1,3 +1,30 @@
+###  Публикация: 1013937   (776950) от 06.05.2016
+
+VA - Rain Hugs: Relax Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Area Code 51 - Hook City
+002. Lan Sub - 7 Years - Acoustic Guitar
+003. Coffee Machine - I've Got You
+004. W. Dekay - Charming Night(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B30713040B1733D5A5F6F02C30AF30B0C5C5CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013627   (776951) от 06.05.2016
 
 VA - Spring Break Beach Party (2016) [MP3|320 кб/с] <Progressive House,Techno, House>
@@ -668,33 +695,6 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211338   (777560) от 07.03.2018
-
-VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sou El Flotador Ft Anonimus - Maniatica (Intro Dirty) 4:13
-02. Vakero - Anaisa (Djdx) (Intro Clean) 3:05
-03. Galante El Emperador Ft Indy Flow Y Castigo El Buho - Rico (Dirty) 3:48
-04. Kelmitt Ft Lary Over Y Farruko - Recuerdos (Clean) 4:39(   Читать дальше...   )Жанр: Dembow, Salsa, ReggaetonПродолжительность: 02:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C01FBC13CEB16B008A7DBBA7A6D87F8CDED3DD
 ```
 
 

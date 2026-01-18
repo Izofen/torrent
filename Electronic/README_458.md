@@ -1,3 +1,57 @@
+###  Публикация: 1103415   (886026) от 12.02.2017
+
+VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opal - Loving You
+02. Pimpi Arroyo - Voulez-vous coucher avec moi
+03. Purple Avenue - American Boy
+04. Wayra - Broken Wings(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CA66EFB35E3CA9B189F3A033304C57F8E0C89A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103172   (886042) от 12.02.2017
+
+VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soda Lounge - The Love We Share (Radio Edit)  3:37
+02.  Mykel Mars - Good Time (Daft Lounge Mix)  5:42
+03.  Eddy Chrome - In Love (Double Deep Chillhouse Edit)  6:12
+04.  DJ Absinth - Morning Sun (Eddy Chrome Instrumental Edit)  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0294F31AEDCEB4CAE4A14469C1583301542004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103432   (886052) от 12.02.2017
 
 VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -637,60 +691,6 @@ VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371739   (888710) от 01.04.2020
-
-Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|tracks+.cue] <Conscious, Abstract Hip-Hop, Instrumental, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustlin (02:41)
-02. 360 Degrees (feat. Del Tha Funkee Homosapien/Mr. Lif) (03:40)
-03. Fly (feat. Akrobatik/Maintain/Vast Aire) (04:44)
-04. Interlude (03:41)(   Читать дальше...   )Жанр: Conscious, Abstract Hip-Hop, Instrumental, Trip HopПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CE3D216702487694F840D579BA097370862CAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709002   (888729) от 07.09.2021
-
-Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Jazz, Modern Classical, Contemporary Jazz,  Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coloroid (04:44)
- 02. Vigilante (04:57)
- 03. Sea And Wind (05:32)
- 04. Galatea (04:49)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dark Jazz, Modern Classical,  Experimental •Продолжительность: 03:07:25 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C74994202DE35E00F06FE860DE5A238245C06A
 ```
 
 

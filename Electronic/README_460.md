@@ -1,3 +1,57 @@
+###  Публикация: 1371688   (890000) от 31.03.2020
+
+Culprate - Others Remixed (2020) Inspected [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Drum & Bass, Half-time>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jelly & Ice-cream (Mr. Bill Remix) (02:55)
+ 02. Inside (Ekcle Edition) (04:45)
+ 03. Helter (Phace Remix) (03:50)
+ 04. Beast (Vorso Remix) (04:06)(   Читать дальше...   )Жанр: Dubstep, Drum & Bass, Half-timeПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F040AEC1F79EE7DB732F8D8B5BE4AC9FBB838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371479   (890001) от 31.03.2020
+
+VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brutal Lex - American Psyho [04:40]
+02. Dr.Bad Man - Sunny [05:18]
+03. Resynth - Chernobyl [03:29]
+04. J Cash - Ngorongoro [07:09](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D3D597B8A5493C88807144DEAB2948FAF7ABAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371487   (890003) от 31.03.2020
 
 VA - Mystic (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -644,59 +698,6 @@ Derek Carr - Pursuit (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <EDM, Deep House, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B9E4F248F9FA7AFEBAF5422421A609C4B412D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493632   (892292) от 05.09.2021
-
-ONUKA - KOLIR (2021) [MP3|320 Kbps] <Electronic, Folk, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892292.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ONUKA - VSTUP
-2. ONUKA - CEAHC
-3. ONUKA - ZENIT
-4. ONUKA feat. DakhaBrakha - UYAVY(   Читать дальше...   )Жанр: Electronic, Folk, Ethno, Ambient, DowntempoПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD9CD3B417985E9AF46A707B75011B03331E870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102161   (892513) от 08.02.2017
-
-VA - Ministry Of Sound: I Love Trance (2017) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - 9pm (Till I Come) (Radio Mix UK) (02:43)
-02. Sash! - Encore une fois (Future Breeze Edit) (03:38)
-03. Faithless - Insomnia (Monster MixЖанр: TranceПродолжительность: 07:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CF72E744DAC77B1F72574B16F3C4246CF0D09C
 ```
 
 

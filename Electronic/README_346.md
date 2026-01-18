@@ -1,3 +1,57 @@
+###  Публикация: 1134943   (685215) от 17.05.2017
+
+VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sealovers - Wild Huntress  4:33
+02.  Panamera Project - Pratty Night  3:55
+03.  Don Markus - I Don't Won't Illusion  5:10
+04.  Midtempo Lovers - Neutral Wonder  3:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E18C01B1B708F81C2069DDBEBC4D212B3D4D95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222464   (685301) от 29.04.2018
+
+VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klasse Xxi - Waldesdunkel 6:05
+02. Hear My Soul - Black Forest 4:44
+03. Andere Orte - Grand Central 4:00
+04. Klausies - Slushaj 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926999ED2C4DCD488E526DD91C97F349C30238BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222610   (685305) от 29.04.2018
 
 VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
@@ -644,57 +698,6 @@ VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222020   (687122) от 28.04.2018
-
-Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134722   (687346) от 16.05.2017
-
-One Arc Degree - Cosmos in Flux (2017) Synphaera Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mayda (04:58)
-02. Antecedents & Consequences (07:12)
-03. Cosmos in Flux (06:20)
-04. Reconstruction of Function (07:00)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7140F3807A861069C29E8F049861A4D5E765FFB
 ```
 
 

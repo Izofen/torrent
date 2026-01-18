@@ -1,3 +1,57 @@
+###  Публикация: 1840862   (1047570) от 07.12.2025
+
+VA - The Orient Collective: Echoes of the Pyramids (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Suvorov - Cleopatra (4:53)
+02. Tibetania - Desert Moon (7:02)
+03. Tibetania - The Road to Egypt (6:36)
+04. Tibetania - Pyramid of Light (8:02)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A5855244B1D3F8266D4F94C6DC8341C9563DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840655   (1047583) от 08.12.2025
+
+Andrew Rayel - Find Your Harmony Radioshow (2015-2025) [AAC 128/260 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Andrew Rayel – Find Your Harmony 474 (GUEST MIX: Nifra & Tensteps)
+01. Beatsole – Velvet Fall | NOMADS MUSIC
+02. GENESI & Rivo & Aya Anne – Karma | DISORDER
+03. Phillip Castle & Tea Petrovic – New Sensation | RISING HRMNY (FIND YOUR HARMONY)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 28 дн., 08:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F87B9C1C13DFE1D0BC8A608B076F9626B832F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840945   (1047687) от 08.12.2025
 
 Thompson Twins - Industry & Seduction : A Thompson Twins Collection (2025) 3 x CD, Compilation, Limited Edition, Remastered, BMG [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -640,57 +694,6 @@ Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842716   (1048930) от 17.12.2025
-
-VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romain Garcia - Next To YouЖанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85FDE76FA83C1C8A43A30891D4FDC7FC1F17C73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843097   (1048939) от 18.12.2025
-
-VA - Chill Lounge del Mar 2026 (Café Chillout Playlist Compilation, Vol.9 - mixed by Matthew Kramer) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dub Dub - One World, One Sky (Reincarnation Mix) (05:41)
- 02.  Afterlive - Echoes of Light (Cool Lounge Cut) (05:00)
- 03.  Entre Dos Aguas - Rooftop Groove (Bela Orellano Mix) (04:54)
- 04.  Aphrodizia - Mainhattan Sunset (Lazy Sunday Remix) (04:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8974E181FC7CF35AB703FE85AC5B08C85A0A9151
 ```
 
 

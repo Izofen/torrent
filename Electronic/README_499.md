@@ -1,3 +1,57 @@
+###  Публикация: 1483092   (1007120) от 11.07.2021
+
+VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a-ha - Take On Me (Extended Version) (4:49)
+02. Camouflage - The Great Commandment (Extended Dance Remix) (5:59)
+03. Erasure - Blue Savannah (Out Of The Blue Mix) (6:44)
+04. Vis-A-Vis - Shadowplay (Shadow Mix) (5:51)(   Читать дальше...   )Жанр: Synthpop, New Wave |Продолжительность: 08:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1D28402F84C643B0D5531576729A265B78B85B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483068   (1007192) от 11.07.2021
+
+Dev Sk - This is my [peE]P (2015) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 717393 (04:12)
+ 02. Bus88 (03:03)
+ 03. Hypnopotamus (02:21)
+ 04. Notgoodenough Song (02:28)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B533D022AE090C9046B89081C12A388CF5979B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483060   (1007195) от 11.07.2021
 
 Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
@@ -632,57 +686,6 @@ BCee & Charlotte Haining - Life As We Know It (2020) [FLAC|Lossless|Web-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8566E24416F2C3B736F75AE78245EE28DDC3241
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481678   (1008167) от 04.07.2021
-
-Antiform - City In Exile (2009) [Flac|Lissless]<Drum & Bass, Hip Hop, Breaks, Rock>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Drum & Bass, Hip Hop, Breaks, RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC598E129C63D2135AB382BB5C487A4523EFDF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480724   (1008172) от 04.07.2021
-
-John Williams - Rodrigo: Concierto de Aranjuez_Villa-Lobos : Guitar Concerto (1974) reissued, 1989, CBS Records [FLAC|Lossless|image + .cue] <Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concierto De Aranjuez - Allegro con spirito [00:05:54]
-02. Concierto De Aranjuez - Adagio [00:11:25]
-03. Concierto De Aranjuez - Allegro gentile [00:05:00]
-04. Concerto for Guitar - Allegro preciso [00:05:11](   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE19C16826713B74C2AA53FD54EFD35FD5C831FB
 ```
 
 

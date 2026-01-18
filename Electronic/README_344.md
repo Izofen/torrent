@@ -1,3 +1,57 @@
+###  Публикация: 1029652   (680152) от 27.06.2016
+
+VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Green - Body Language, Vol. 18 (Continuous Mix)
+02. Sven Laux - Off You Go!
+03. Ole Biege - Justus
+04. Landside - Still There(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290367   (680318) от 19.03.2019
+
+VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Downey & Alex Di Stefano - Among Us (Extended Mix)
+02. ReOrder & Emma Chatt - Alive Tonight (Extended Mix)
+03. Whiteroom - The Whiteroom (TyDi Extended Remix)
+04. Solarstone & Clare Stagg - Jewel (Craig Connelly Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414E2FD5B4351DB3B9E74A6E8ADABE3CDC9072F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029692   (680341) от 27.06.2016
 
 VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -653,59 +707,6 @@ Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EFD03D8DB87BC57D452F923F72087F74A769C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029471   (682611) от 26.06.2016
-
-VA - Deephouse Favorites 2k16 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix)
-02. Danky & Brain - Chasing Cars (R.I.C.K. Remix)
-03. Marc Mounier - There Were Times (Radio Version)
-04. Chris Rockford & Phil Dinner - One Night (Radio Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2D1E8990E1780DF2ED13B412254DF896208674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029435   (682750) от 26.06.2016
-
-Dahu - Desolate EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desolate (Original Mix) (07:52)
-02. Never (Original Mix) (08:46)
-03. RS (Original Mix) (07:54)Жанр: Deep House, MinimalПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F838BC8AFD542920FE89B7F5CC09A394377B4225
 ```
 
 

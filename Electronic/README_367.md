@@ -1,3 +1,57 @@
+###  Публикация: 1283936   (731027) от 19.02.2019
+
+VA - Mario Più - Back From Hell (2019) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Più - Let's Begin (Intro)
+02. Mario Più & Matteo Marini - The Other Side I (Original Mix)
+03. Mario Più - Intollerance (Original Mix)
+04. Mario Più & Matteo Marini - Sabres of Hell (Original Mix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E24A4E32FDC0BBF5023DE5B504D1DF1C896C90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283891   (731032) от 19.02.2019
+
+Tourist - Everyday (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake (03:01)
+02. Emily (03:51)
+03. Someone Else (04:07)
+04. Love Theme (04:29)(   Читать дальше...   )Жанр: Electronic,  ChillwaveПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC80C42F8ED3D84EDD4EB33F989DA5EA50BBE95F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127693   (731042) от 22.04.2017
 
 Sуntec - Тhе Веginning (2016) [FLAC|Lossless|image + .cue] <SynthPop, ElectroPop>
@@ -641,60 +695,6 @@ Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529703   (732577) от 07.02.2022
-
-Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Indian Dance (Original Mix) (7:41)
-02. Christmas Choir (Original Mix) (5:42)
-03. From Depth To The Sky (Original Mix) (5:18)
-04. New Magic Place (Original Mix) (7:23)(   Читать дальше...   )Жанр: Chillwave, Ambient, DowntempoПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3281280C8D24A950CE7CE55F2ADF3F3D62279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529301   (732705) от 06.02.2022
-
-Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полёт в поясе астероидов (6:58)
-02. Дальний космос (6:36)
-03. Одинокий спутник (5:56)
-04. Мерцающая звезда (7:48)(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03019D6CDFB41B0E4F273F6275578102F5C54BC
 ```
 
 

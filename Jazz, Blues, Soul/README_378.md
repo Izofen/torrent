@@ -1,3 +1,249 @@
+###  Публикация: 525391   (607726) от 21.07.2012
+
+Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Post-Bop, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_607726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unit Seven
+02. Point The Finger
+03. Luqman's Dream
+04. From East To West
+05. Gumbo
+06. Wheel Within A Wheel
+07. PremonitionЖанр: Hard Bop, Post-Bop, Saxophone JazzПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147663   (607738) от 03.07.2017
+
+Jackie McLean - Lights Out! (1956) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights Out [13:02]
+02. Up [04:49]
+03. Lorraine [06:29]
+04. A Foggy Day [06:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8582D154E296598AB5623550A4F44D70F5DACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147659   (607858) от 03.07.2017
+
+Coleman Hawkins - Wrapped Tight (1965) 2011, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrapped Tight [03:31]
+02. Intermezzo [03:38]
+03. Out of Nowhere [03:44]
+04. Indian Summer [05:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD019A0DF6059CFA206FA8CAE2D163F1645ECC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147697   (607859) от 03.07.2017
+
+Stephane Grappelli - Pent Up House (1962) 1998, Drive Archive [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django [04:59]
+02. Nuages [04:29]
+03. Alabamy Bound [03:35]
+04. You'd Better Go Now [02:55](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB784968F94DB87790860B6B44894C2E41F4FE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147668   (607862) от 03.07.2017
+
+Sam Yahel - Hometown (2009) Posi-Tone Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealous Guy [04:48]
+02. Think of One [06:21]
+03. Blue Pepper [05:34]
+04. Hometown [05:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0807C887325E71CF2B2F4F047F5A5BEBF5C0EF47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147662   (607863) от 03.07.2017
+
+Jackie McLean & Bill Hardman - Jackie's Pal (1956) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Doll [06:07]
+02. Just for Marty [06:39]
+03. Dee's Dilemma [07:06]
+04. Sublues [08:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE5C6C39DEB1A924C812FC2646102D2398E49B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546271   (607999) от 23.04.2022
+
+Art Blakey & The Jazz Messengers - First Flight to Tokyo (1961) 2CD, 2021, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607999.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Now's the Time [22:34]
+02. Moanin' [13:33]
+03. Blues March [11:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C129861188FCC830C8A553AC789FEEB330DB9957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038197   (608710) от 27.07.2016
+
+Jazz At Lincoln Center Orchestra with Wynton Marsalis - Live In Cuba (2010) 2CD, 2015, Blue Engine Record[FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608710.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.2/3's Adventure [08:25]
+02.Baa Baa Black Sheep [11:41]
+03.Inaki's Decision [11:51](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 02:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC4F6AF683C03BC3BD9798C440A2A4B69070D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038162   (608713) от 27.07.2016
+
+Big Creek Slim - Keep My Belly Full (2016) [MP3|320 Kbps] <Modern Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Blues (03:42)
+02. You Don't Love Me (03:36)
+03. Precious Memories (05:58)
+04. Keep My Belly Full (03:34)(   Читать дальше...   )Жанр: Modern Delta BluesПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E34826688008840B55FAC01E5A51341F61379BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296725   (608720) от 19.04.2019
 
 VA - 12 Ladies In BP Club (2007) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -452,249 +698,6 @@ Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7782D8173EAFF63B71B927FA699A34C9CCE82381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147301   (609868) от 02.07.2017
-
-Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Clavo Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Cat [03:51]
-02. Mood Indigo [04:20]
-03. America the Beautiful [02:58]
-04. Una Manana [03:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE13D2408906E84D70DC0465B59123B30AC3264
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147466   (609869) от 02.07.2017
-
-George Masso Sextet - C'est Magnifique (2000) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's D'Lovely [09:43]
-02. It's All Right With Me [10:49]
-03. Why Shouldn't I [04:51]
-04. What Is This Thing Called Love [07:07](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE50C3F2A906EC43D2C7CF891FC91A163604561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147450   (609870) от 02.07.2017
-
-The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guys and Dolls [06:18]
-02. If I Were a Bell [04:16]
-03. A Woman in Love [03:03]
-04. Luck Be a Lady [05:06](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BF210576D930EA169D59A4E21DBE4906E84E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147403   (609871) от 02.07.2017
-
-Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Back Room Romp [3:52]
-02 Sweet Lotus Blossom [5:30]
-03 One Sweet Letter from You [5:21]
-04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147298   (609872) от 02.07.2017
-
-Clare Fischer - First Time Out + Jazz (1961, 1962) 2013, Poll Winners Records [FLAC|Lossless|image + .cue] <Hard Bop, Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigerian Walk [07:11]
-02. Toddler [04:43]
-03. Stranger [04:04]
-04. Afterfact [04:11](   Читать дальше...   )Жанр: Hard Bop, Latin Jazz, World FusionПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90C34BA845E6DBCEBD19AD63C3BD3D6EA0EBDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037849   (610206) от 26.07.2016
-
-Siggi Schwarz (Feat. Andreas Kummert & Jessy Martens) - Heart & Soul (2016) [MP3|320 Kbps] <Blues Rock, Blues Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossroads Blues (Feat. Andreas Kummert) (3:06)
-02. People Get Ready (Feat. Jessy Martens) (4:30)
-03. This Is A Man’s World (Feat. Andreas Kummert) (3:28)
-04. Midnight Rider (Feat. Jessy Martens) (2:59)(   Читать дальше...   )Жанр: Blues Rock, Blues SoulПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA065AD08D0463472B93D21F9B218D8424EAADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038033   (610209) от 26.07.2016
-
-Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll (Mercer-Strayhorn-Ellington) - 6:24
-02. Mr. Bow-Tie (Carter) - 9:37
-03. My Funny Valentine (Rodgers-Hart) - 11:22
-04. Wave (Jobim) - 9:39(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00: 57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500AE6FA03E1493E6B7BFF943E3E04FC2AFC982D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037897   (610219) от 26.07.2016
-
-Mick Kolassa - Michissippi Mick (2014) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  New Beale Street Blues (3:21)
- 02.  Blues Are All Around You (4:02)
- 03.  The Letter (4:37)
- 04.  Reefer Man (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3914D11A2C1F73737542A5D187BC27BDD6ADADAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037910   (610234) от 26.07.2016
-
-Stonefield - Stonefield (2013) [MP3|320 Kbps] <Blues Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  C'mon (3:20)
- 02.  Love You Deserve (3:41)
- 03.  Put Your Curse On Me (3:22)
- 04.  Over And Over (2:55)(   Читать дальше...   )Жанр: Blues Rock, Female VocalПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04182A14DD840005D4A7958898107E3CDB2E6857
 ```
 
 

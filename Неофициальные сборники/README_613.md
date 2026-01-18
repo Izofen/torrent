@@ -1,3 +1,30 @@
+###  Публикация: 1095985   (922812) от 22.01.2017
+
+VA - Empire Records - Chill Out 9 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Deep In The Rain Forest
+02. Milk And Sugar Feat. Maria Marquez - Canto Del Pilon (Taan Newjam Remix)
+03. Taco Town - Desierto Arabica
+04. Davi - Two Suns In The Sky(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7B77B824B3E886E631402993715A27F13F970C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095814   (922824) от 22.01.2017
 
 VA - Музыкальное потрясение зимы от Русского радио Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -671,33 +698,6 @@ VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08433FB0FBA12C3794709E1F9E53891928B5ECA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095357   (924458) от 21.01.2017
-
-VA - Снежный хит-парад. 100 русских хитов. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Моника - Корпоратив 3:08
-002. Evidelle - Ну Почему 3:40
-003. Александр Шоуа - Я Там Где Ты Оставила Меня 3:46
-004. Megirov - Стану Твоей Тенью 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE67005BE056F30809563BFB599B09F48355A07F
 ```
 
 

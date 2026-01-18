@@ -1,3 +1,246 @@
+###  Публикация: 1616434   (1036428) от 02.03.2023
+
+Nicki Parrott - Misty (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatever Lola Wants
+02. Misty
+03. Bewitched, Botheered ad Bewildered
+04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C317AD318D3BB75446701DD4F3792D793099D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616342   (1036441) от 02.03.2023
+
+Najee - Savoir Faire (2022) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом Savoir Faire - это утонченное исследование Najee мира чувственности и романтики, перемежающееся фантастическими энергичными ритмами, которые сделали этого саксофониста фаворитом во всем мире. Возможно кому-то покажется, что Savoir Faire стилистически не выдержан, но как говорит сам Najee - "Я давно перестал беспокоиться о разногласиях между жанрами. (   Читать дальше...   )01. Dr. Dolittle (Featuring Frank Wilkens) (4:28)
+02. Luna (Featuring Mark Harris) (4:01)
+03. Valentine Love (Featuring Alyson Williams) (4:40)
+04. A Felicidade - Happiness (4:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AE904984235ECFF093D0F5E70A44C938020D20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616383   (1036444) от 02.03.2023
+
+Dinah Washington - Collection: 25 songs (1994) The Collection [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad About the Boy [2:50]
+02. Ain't Misbehavin' [2:37]
+03. What a Difference a Day Made [2:32]
+04. Close to You [4:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C602CAAAD4F3B9283034A09837D242E50E61B71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616378   (1036452) от 02.03.2023
+
+Dinah Washington - Dinah Jams (1954) 1984, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover Come Back to Me [9:46]
+02. Alone Together [2:23]
+03. Summertime [2:27]
+04. Come Rain or Come Shine [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2DA7DF6CA062E85E9B38521859DFB2776F9F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442536   (1036614) от 25.01.2021
+
+Jeff Lorber - West Side Stories (1994) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036614.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grasshopper (Lorber) - 4:20
+2. Point Venus (Lorber) - 4:30
+3. Iguassu Falls (Lorber, Milstein) - 5:17
+4. Let the River Run (Lorber) - 4:25(   Читать дальше...   )Жанр: Fusion, Smooth Jazz, Crossover JazzПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0A06F33FCA2B29BDF7F2220A0981F7CA4B7805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442375   (1036661) от 25.01.2021
+
+Jo Jones - Caravan (2019) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Just Around the Corner (Gensler-Robin) - 4:12
+02. A Wig on the Bold Headed Mountain (Persiany) - 3:21
+03. I Found a New Set of Drums (Persiany) - 2:45
+04. I Cried for You (Arnheim-Lyman) - 5:57(   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF1F35337B1DBE1EF37393C74EB7C10C1C328D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442466   (1036666) от 25.01.2021
+
+Enrique Haneine - Unlayered (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Post Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Missing Whisper. 6:42
+02. Luculent Jiggle. 7:05
+03. Thriving Ring. 4:30
+04. Queen of the Underground. 6:52(   Читать дальше...   )Жанр: Jazz, Post Bop, Avant-Garde JazzПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A9F7635C0F263986492A00B69F06A96B2D4085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442456   (1036668) от 25.01.2021
+
+The Dave Brubeck Quartet - Brubeck in Amsterdam (1962) 2015,  Sony Music Labels Inc. [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since Love Had Its Way (Brubeck-Brubeck) - 5:59
+02. King for a Day (Brubeck-Brubeck) - 3:03
+03. The Real Ambassador (Brubeck-Brubeck) - 6:34
+04. They Say I Look Like God (Brubeck-Brubeck) - 4:16(   Читать дальше...   )Жанр: CoolПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D763FB7290AAA3AD61E0C4BE8538BF18287FE86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442477   (1036670) от 25.01.2021
+
+Hal Singer - Milt & Hal (1968) 2019, Solid Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milt and Hal [7:04]
+02. Time for Dreams [6:16]
+03. A Ghost of a Chance [3:55]
+04. There Is a Small Hotel [7:17](   Читать дальше...   )Жанр: Mainstream Jazz, Soul-JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA002C2CED5CAA5891E799A857DCF3E334C67207
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616133   (1036738) от 01.03.2023
 
 Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel (1956 - 1973) 2000, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop, Big Band>
@@ -449,249 +692,6 @@ Freddie Hubbard - Times Are Changing (1989) Blue Note [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C04D50A91143005635435D64ADA9B48248C5BE21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615491   (1037598) от 26.02.2023
-
-Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Quarters [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifeflight [8:44]
-02. Up Jumped Spring [7:08]
-03. Theme for Kareem [6:35]
-04. On the Real Side [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BCCDCF9EF3BF674FB82ABE5A35DA9339654EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441364   (1037821) от 21.01.2021
-
-Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellow Tone [2:33]
-02. Hannah Strikes Again [1:46]
-03. Li'l Darlin' [4:55]
-04. Diane [2:47](   Читать дальше...   )Жанр: Hard Bop, Big Band, Piano JazzПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D21422DF6859BC77E0782DBDAEA1A6B2AE95E93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441103   (1037947) от 20.01.2021
-
-Bonny B - Bonny B. & the Jukes (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Going Home (5:49)
-02. One String Is Enough (5:11)
-03. Trust Yourself (5:33)
-04. Father (7:57)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EAD0FD05A3B76445A37BAC601E39AD6D1CFEFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441105   (1037970) от 20.01.2021
-
-Brandon Trickey - Ruby Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruby Meredith (3:43)
-02. Drama Queen (3:32)
-03. Telephone (3:40)
-04. More Than Friends (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D005CEF6EA8282A3B04D9C4BEDED56B1BD85000C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441107   (1037973) от 20.01.2021
-
-Kung Botes Kapell - Botemedel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On A Roll (3:30)
-02. Reminder (2:48)
-03. Countryside Sunrise (2:43)
-04. Cool Organ (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C8C962D6E27449B6887D69B421D78EC3021E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441098   (1037975) от 20.01.2021
-
-Morblus - I Feel Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Electricblues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle Night (4:31)
-02. I play my blues (4:53)
-03. Guitar's Talking (4:16)
-04. Lump Sugar (2:43)(   Читать дальше...   )Жанр: ElectricbluesПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA47B3353B06CEABACB5D94D0AC40769CB76FAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441099   (1037977) от 20.01.2021
-
-Alan Arena - Fortune Wheel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Crossroad (3:32)
-02. Flower Girl (3:22)
-03. Fortune Wheel (2:59)
-04. Rise and Shine (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9D021753EDF8953623D1689E3AFCE0BD0D785D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441113   (1038022) от 20.01.2021
-
-The Steepwater Band - Turn of the Wheel (2020) [MP3|320 Kbps] <Вlues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn of the Wheel (03:38)
- 02. Trance (04:29)
- 03. Running from the Storm (03:14)
- 04. In the Dust Behind (03:37)(   Читать дальше...   )Жанр: Вlues Rock, RockПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582ABFF8DD228AAB83732465B4A4BF1835FD4629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441109   (1038025) от 20.01.2021
-
-Leon Laudenbach - Split N Half (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buried My Guitar (4:04)
-02. Jungle Gym (4:52)
-03. Lepers and Jelly Beans (6:04)
-04. One Hundred Different Ways (3:05)Жанр: BluesПродолжительность: 00:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E742B5DBB1E451FD2D280935ED0F65B51ECF55
 ```
 
 

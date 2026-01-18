@@ -1,3 +1,57 @@
+###  Публикация: 1005671   (832387) от 09.04.2016
+
+Mito Chamber Orchestra, Seiji Ozawa - Mozart, Strauss - Woodwind Concertos (2002) [FLAC|Lossless|image + .cue] <Classical, Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - I. Allegro maestoso  9:10
+02.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - II. Adagio non troppo  9:04
+03.  Mozart Concerto No.1 for Flute and Orchestra, K.313 - III. Rondeau. Tempo di menuetto  7:01
+04.  Mozart Concerto for Basson and Orchestra, K.191 - I. Allegro  7:52(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BB29F3FF0330578EB35414DA760FC9B79F5EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380482   (832943) от 03.05.2020
+
+Сергей Лемешев - Золотые россыпи романса (2000) [FLAC|Lossless|tracks + .cue]<Retro>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Средь шумного бала
+02. Серенада Дон Жуана
+03. На нивы желтые
+04. Я помню чудное мгновенье(   Читать дальше...   )Жанр: RetroПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379932   (833164) от 03.05.2020
 
 Chad Lawson - Home Sweet Home: The 2018 Lore Variations (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
@@ -641,60 +695,6 @@ Cello Concerto in E minor, Op 58
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7C1C0EC83DABC53DBEABF0BFC683ABEE11345E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001620   (846514) от 01.04.2016
-
-Joseph Haydn - The Seven Last Words of Christ on the Cross (Alexei Lubimov) (2014) [FLAC 2.0|88,2/24|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846514.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Seven Last Words Of Christ On The Cross Op.51 (Hob. III, 50-56)
-
-The keyboard transcription is an anonymous arrangement authorised by Haydn.
-(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C795E6CD7C5579B91C65B47666759C488095C44B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001914   (846515) от 01.04.2016
-
-Julian Perkins - Smith & Handel: Works for Harpsichord (2015) [FLAC|96/24|Lossless|WEB-DL] <Classical, Baroque, Keyboards>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846515.jpg" />
-</div>
-
-
-###  Подробнее
-
-George Frederic Handel:
-01.  Overture to Riccardo Primo- re dInghilterra- HWV 456(5)  3:51
-John Cristpher Smith - Six Suites of Lessons for the Harpsichord- Op 3:
-Suite No. 1 in A major - in A-Dur - en la majeur(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardsПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4841958D7110F4D8AB6F9D83A95F3BC9ED30DB26
 ```
 
 

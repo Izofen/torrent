@@ -1,3 +1,30 @@
+###  Публикация: 1007426   (821707) от 15.04.2016
+
+VA - Electric Nights Dance Sensation Vol.4 (2016) [MP3|320 кб/с] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Reger - Freak Out (Mark Room Remix) 04:53
+02. Alex Reger - Freak Out 04:23
+03. Andy LaToggo - Lonely I Won't Let Go (feat. Paula P'cay) (Brandon Steel Remix Radio Edit) 03:34
+04. Climax 2 - Saying It Live 06:07(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7868E57A56F4F6444406C1F44F1B08EC738ED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007520   (821710) от 15.04.2016
 
 VA - Ministers Of Progressive (2016) [MP3|320 кб/с] <Trance, Psy Trance, Psychedelic>
@@ -668,33 +695,6 @@ VA - Зажигательный молодежный музыкайф на Europ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E26841415B4BC5284F7AC97C5E476429464462B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007379   (823314) от 14.04.2016
-
-VA - Ты придумала счастье. Шансон для души (2016) [MP3|256-320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Весенин - Весну У Двоих Не Отнять
-02. Юрий Сандик - Ты придумала счастье
-03. Весна - Самый Близкий Человек
-04. Александр Бешенный - Под Дождем(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E543CFDD1CBB47D65BC7D418FECBF83C864F5C
 ```
 
 

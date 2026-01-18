@@ -1,3 +1,30 @@
+###  Публикация: 1284587   (727747) от 22.02.2019
+
+Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ocean Moon
+02 Break Of Dawn
+03 Rising Tide
+04 Ocean Haze(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77E2E0E28B4694E7AA390A20E39C81DF04507D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 324223   (728137) от 19.04.2011
 
 Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
@@ -673,30 +700,6 @@ Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CC7605EBB949CF4B673882967E07FBD6E1E74C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021993   (730976) от 31.05.2016
-
-Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta DawnЖанр: CountryПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CFE25CEBDF059E380D7985EDB1672A406322ADE
 ```
 
 

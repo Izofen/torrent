@@ -1,3 +1,30 @@
+###  Публикация: 920520   (576789) от 24.07.2015
+
+VA - Best Of Rock 100 Hits (2015) [MP3|320 кб/с]<Thrash Metal, Funk Metal, Britpop, Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Colours Red - Nuclear Holiday
+02. 3 Colours Red - Sixty Mile Smile
+03. Alice Cooper - Hey Stoopid
+04. Alice Cooper - Poison(   Читать дальше...   )Жанр: Thrash Metal, Funk Metal, Britpop, Alternative RockПродолжительность: 06:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245C24DDA372497D34D180AEB107E5FC097ADED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042873   (576824) от 14.08.2016
 
 VA - Beatport Trance Pack (12.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, Melodic,>
@@ -668,33 +695,6 @@ VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E86DA60434378382AEEB774095F1E3DBAED95D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150948   (578025) от 16.07.2017
-
-VA - Day Of Radiance: Space Ambient (2017) [MP3|320 Kbps] <Electronic, Synthspace, Synth Ambient>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Periskop - Horizon
-02. Erot - In a Distant Dream
-03. Erugo Purakushi - Digital Ethic
-04. Warmth - Youth(   Читать дальше...   )Жанр: Electronic, Synthspace, Synth AmbientПродолжительность: 04:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68BF4963AB7D8B10B2C51AE6A3B63ECC96A9B098
 ```
 
 

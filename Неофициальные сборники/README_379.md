@@ -1,3 +1,36 @@
+###  Публикация: 522127   (623140) от 13.07.2012
+
+VA - Новинки танцполов 6 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David - Лето
+02. Bob Sinclar feat. Sophie Ellis Bextor - Fuck With You
+03. Ksela feat. DJ Alix - Наше Лето
+04. Ruslan Nigmatullin vs. Taco - Puttin' On The Ritz (Radio Mix)
+05. Дилайс - Нежно-Нежно
+06. Sonny Flame - Sale El Sol
+07. Горячие Головы - Лето В Крыму
+08. Inna - Caliente (Radio Edit)
+09. DJ Kerim Muravey - Лето, лето (Original mix)
+10. Elena Gheorghe - Amar Tu Vida(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B5C4AFEA4865BC8BAB5A9A494271F596B382AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762554   (623196) от 19.06.2015
 
 VA - My Favourite Hits of 1980 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New age, Pop rock, Rock>
@@ -698,36 +731,6 @@ VA - Громкие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6979B07F14883C11EC98751E43C5B8C296471DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144655   (625513) от 23.06.2017
-
-VA - Hits of My Soul Vol. 27 (2017) [MP3|320 кб/с]<Trap, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. ATC - All Around The World (T-Mass Remix) (03:06)
-02. ODESZA feat. Zyra - Say My Name (04:53)
-03. Blink 182 - All The Small Things (Justin Caruso Remix) (02:53)
-04. Orlando Octave - Single (Bad Royale Remix) (03:33)(   Читать дальше...   )Жанр: Trap, Future Bass, Electronica, Chillout, LoungeПродолжительность: 01:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD89F2CEB82D301564968CA303A2A5081F01FC61
 ```
 
 

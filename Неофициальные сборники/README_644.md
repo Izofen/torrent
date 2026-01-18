@@ -1,3 +1,30 @@
+###  Публикация: 1355510   (982042) от 27.01.2020
+
+Gary Moore - As The Years Go Passing By... (2020) (2CD Compilation) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima
+02. Picture Of The Moon
+03. Cold Day In Hell
+04. Enough Of The Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574C398A7889D5BDE68CFF14F7FF942FD985A3A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972391   (982068) от 06.01.2016
 
 VA - Top 50 Progressive Trance (Paradise) (2015) [MP3|320 кб/с] <Progressive Trance>
@@ -686,33 +713,6 @@ VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D535127353A48CDA4F4653F7A2F5D4D51F8E9900
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873020   (985231) от 03.01.2016
-
-VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Disco, Italo Disco, Trance, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1. Pioneer Studio 33,5 - Music Infection (2015)
-2. Pioneer Studio 33,5 - Disco CCCP 2 (2015)
-3. Pioneer Studio 33,5 - Conveniently, Anywhere! (2015)(   Читать дальше...   )Жанр: Dance, Disco, Italo Disco, Trance, House & DanceПродолжительность: 10:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED4536C1441C8E776E4ACAC5EF5AD2E7ED86C49
 ```
 
 

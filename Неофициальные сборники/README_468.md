@@ -1,3 +1,30 @@
+###  Публикация: 1398280   (736197) от 25.07.2020
+
+VA - German Top 100 Single Charts 24.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736197.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Apache 207 - Blaulich (3:16)
+002. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat) (2:51)
+003. Luciano & Shirin David - Never Know (3:16)
+004. Pietro Lombardi - Cinderella (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135F26D992A82230EDD7F6B7F57F4E50E293DBE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527651   (736247) от 29.01.2022
 
 VA - Крутые пушки Зима 2022 [MP3|320 Kbps] <Club, Dance, Other>
@@ -674,33 +701,6 @@ VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1652F5848130303B7BDC0933B990A1EC8C205FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397690   (737561) от 22.07.2020
-
-VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Ka Millo - Message In A Bottle
-002. Sunlounger - White Sand
-003. Stolas - Beck Neck
-004. Akerman - Gate Of Time(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
 ```
 
 

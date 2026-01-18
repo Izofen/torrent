@@ -1,3 +1,30 @@
+###  Публикация: 1528538   (734414) от 02.02.2022
+
+VA - Tik Tok Треки выстрелили зимой 2022 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734414.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Train Wreck (3:28)
+002. Ritt Momney - Put Your Records On (3:30)
+003. The Kid LAROI - WITHOUT YOU (2:41)
+004. Justin Wellington, Small Jam - Iko Iko (My Bestie) (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE420A5A97D0A97D6002980E966A26385C25D69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528575   (734449) от 02.02.2022
 
 VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
@@ -674,33 +701,6 @@ VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D96B8C60F5F429FF86D5A3C97C20F0FABB412E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398280   (736197) от 25.07.2020
-
-VA - German Top 100 Single Charts 24.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736197.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Apache 207 - Blaulich (3:16)
-002. Jawsh 685, Jason Derulo - Savage Love (Laxed - Siren Beat) (2:51)
-003. Luciano & Shirin David - Never Know (3:16)
-004. Pietro Lombardi - Cinderella (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135F26D992A82230EDD7F6B7F57F4E50E293DBE7
 ```
 
 

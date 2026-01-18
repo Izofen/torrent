@@ -1,3 +1,30 @@
+###  Публикация: 1379838   (837233) от 30.04.2020
+
+VA - Вспоминая СССР. Любимые песни из кинофильмов (1934-1991) от DON Music, 2020 [MP3|320 Kbps] <Саундтрек, Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть 1 (1934-1959):
+
+001. Л.Утёсов - Марш весёлых ребят (Весёлые ребята, 1934)
+002. К.Крашенинникова и Л.Сатеева - Песенка Роберта (Дети капитана Гранта, 1936)(   Читать дальше...   )Жанр: Саундтрек, ЭстрадаПродолжительность: 13:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE7BCCAA266C4454143F944F41E47E7CB2F9671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379748   (837389) от 30.04.2020
 
 The Alan Parsons Project - 100% Alan Parsons (2020) [MP3|320 Kbps] <Progressive rock, Art rock, Progressive Pop>
@@ -662,33 +689,6 @@ VA - Козырная песня на радио Шансон выпуск № 3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF811D4DF5F8FE9E8A9518036E95598BACFA84DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004489   (838622) от 06.04.2016
-
-VA - Welcome House Atomic (2016) [MP3|160-320 кб/с] <Progressive, Club, House, Bigroom, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Pasquini - Qoaster 05:01
-02. Tara Mcdonald Feat. Snoop Dogg - Vay-K (Adam Trigger Remix) 04:30
-03. Talemono - Overload (Radio Edit) 03:11
-04. Relika & Dj Turtle - Jungle Them 04:52(   Читать дальше...   )Жанр: Progressive, Club, House, Bigroom, TropicalПродолжительность: 08:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05772BEF4D76744CAE69BEF35B7BEC0BCD0427E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1603564   (1045672) от 10.01.2023
+
+Peruquois & Praful - Breathing Love (2009) [FLAC|Lossless|tracks + .cue] <New Age, World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun of Inspiration
+02. My Devotion
+03. Kissing the Spirit Awake
+04. Come my LoveЖанр: New Age, World, MeditativeПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9999685D1EB8A093DB2DFB415CBE113CC0EAA13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603131   (1045731) от 09.01.2023
 
 VA - Night Time Yoga, Asana One (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>

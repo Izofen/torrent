@@ -1,3 +1,30 @@
+###  Публикация: 1205116   (783754) от 09.02.2018
+
+VA - The Rhythms Of Disco (2018) [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Synth-pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veronica Unlimited - Gimme More... (3:42)
+02. Speed Limit - The Disco Twist (4:21)
+03. Beautiful Bend - Ah - Do It (4:25)
+04. Cosmic Gal - Keep On Moving (3:45)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Synth-popПродолжительность: 05:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0902CE54A3A4CD417FF6A412BEC9AD59EF70453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389781   (783865) от 12.06.2020
 
 Twenty One Pilots - Great Artists of My Heart Vol. 05 (2020) [MP3|320 кб/с]<Indie Pop, Alternative Hip-Hop>
@@ -668,33 +695,6 @@ VA - Положительный заряд Hit FM. Выпуск № 6 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FD8831B12A7E6608663337A78D900B16FFF7BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123544   (786214) от 09.04.2017
-
-VA - Драйвовый весенний музон (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлианна Караулова - Ты Мой 3:05
-002. Зара - Без Многоточий 3:36
-003. Пицца - Лети 3:39
-004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE4123F256C881E4113A18CA8C5E844EEDE8EB4
 ```
 
 

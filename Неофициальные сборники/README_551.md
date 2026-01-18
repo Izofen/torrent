@@ -1,3 +1,30 @@
+###  Публикация: 1005764   (830816) от 10.04.2016
+
+VA - Lifestyle Jazz Vintage Sound (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Project - Stars
+02. Diana Krall - This Can’t Be Love
+03. Airborne Blues Virus - No Money
+04. Robertinho De Paula Jazz Quartet - Stormy(   Читать дальше...   )Жанр: JazzПродолжительность: 04:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBEB78CF2C635D0FB924F65DC0AF85B191EC79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380690   (830848) от 04.05.2020
 
 VA - Vocal Dance House (2020) [MP3|320 Kbps] <Vocal House, Dance, Club>
@@ -668,33 +695,6 @@ VA - Beatport Chill House: Sound Pack #355 (2021) [MP3|320 Kbps] <Chill, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74E48004DE2E2530344CC1A0A100D1D23345E878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501927   (831750) от 12.10.2021
-
-VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unison feat. Isupov - На Чиле (3:04)
-002. SAMURAMI - Ua-Ya (2:42)
-003. BITTUEV - Братик (1:53)
-004. JONY The Limba - Босс (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC33A5D0776372EB8E083C64BA676B0135EFFDF5
 ```
 
 

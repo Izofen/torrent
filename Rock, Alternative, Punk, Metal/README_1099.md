@@ -1,3 +1,297 @@
+###  Публикация: 1376566   (858558) от 18.04.2020
+
+No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:00:37]
+02 - Highway Robbery [00:03:30]
+03 - Rolling Around [00:04:03]
+04 - One Last Time [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376536   (858798) от 18.04.2020
+
+Звери - Одинокому везде пустыня (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858798.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дама с собачкой
+2. Попрыгунья
+3. Человек в футляре
+4. Палата №6(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6753A7BC7879A76DCE3F25FEEE4D731D2C998BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376586   (858926) от 18.04.2020
+
+Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. In Memoriam (Instrumental) [00:01:25]
+02. Finisterra [00:04:08]
+03. Memento Mori [00:04:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253CC6C3B6C3ECD14ACF823FB28925B46373589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000443   (858987) от 25.03.2016
+
+Сергей Бабкин - #неубивай (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #пробач
+02. #верь
+03. #ангел
+04. #напишименя(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93043B918F76EFEE98760E040B7EAC7F348B0F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376582   (859022) от 18.04.2020
+
+Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. In Memoriam (Instrumental) [00:01:25]
+02. Finisterra [00:04:08]
+03. Memento Mori [00:04:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A07006AE6B9D94045A54DA2311B4FB41B49E305
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376555   (859026) от 18.04.2020
+
+7Б - Медбоги (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. МедбогиЖанр: RockПродолжительность: 00:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCCF8045A6AB0517F14696270379216965BF03D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376613   (859032) от 18.04.2020
+
+Moonspell - Night Eternal (2008) Reissue, 2019, Alma Mater Records [MP3|320 Kbps] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 At Tragic Heights [00:06:40]
+02 Night Eternal [00:04:20]
+03 Shadow Sun [00:04:22]
+04 Scorpion Flower [00:04:32](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6DFB0454CC88722F7A838952A63157FFE95BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999882   (859103) от 25.03.2016
+
+Любэ - Полустаночки (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полустаночки (3:30)
+02. Эх, Москва (3:56)
+03. Ветер-ветерок (3:23)
+04. Кострома (2:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE83B0EC24E4D2717AE9DEF156FA035B3C78159
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109437   (859153) от 27.02.2017
+
+Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction/Titan (9:37)
+02. Get Back (3:18)
+03. Moon (4:12)
+04. We Are (The Boys And Girls) (3:11)(   Читать дальше...   )Жанр: Pop Rock,  Symphonic RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999902   (859200) от 25.03.2016
+
+Tool - Undertow (2001) Jараn Еditiоn [FLAC|Lossless|tracks] <Rock, Alternative Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859200.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Prison Sex   04:56
+03. Sober   05:06
+04. Bottom   07:13
+05. Crawl Away   05:30(   Читать дальше...   )Жанр: Rock, Alternative Rock, Prog RockПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5554DC88485CB250CA8BF97A4AEA6906C46ED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999919   (859202) от 25.03.2016
+
+Queensryche - Greatest Hits (2000) Compilation, Remastered [FLAC|Lossless|tracks] <Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen of the Reich   04:22
+02. The Lady Wore Black   06:14
+03. Warning   04:45
+04. Take Hold of the Flame   04:55(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D6CDD37386584F2A76F2F14AE587B6ACC4EEBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000341   (859203) от 25.03.2016
 
 Caliban - Gravity (2016) Deluxe Edition [MP3|320 кб/с]<Metalcore>
@@ -398,297 +692,6 @@ Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76FD0ABF57AFFD55833653DE1E6BBA2F1D3B5F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498078   (859778) от 25.09.2021
-
-John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anymore
-02. Bad Sister
-03. Drive Me Tonight
-04. Glory(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6DEF79A67E578F790F8E477507A32DC8B3D1E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497950   (859890) от 25.09.2021
-
-Rebel's End - Sing To The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DCLXVI
-02. Evil Eye
-03. Black Crow
-04. Rawhead(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C03F741C2DA738BF1B8041C7648CA9D1A80DB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497956   (859891) от 25.09.2021
-
-A Pale Horse Named Death - Infernum In Terra (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernum
-02. Believe In Something (You Are Lost)
-03. Cast Out From The Sky
-04. Shards Of Glass(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98AACBD1484859EB5B3C5CF0E1FE806362017E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498074   (859892) от 25.09.2021
-
-Tentation - Le berceau des dieux (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Exode (04:12)
-02. Le Couvent (04:28)
-03. La chute des titans (05:05)
-04. Interlude (01:41)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66E6322B9BABD83F52FAE3422E37FE2EC925DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497954   (859893) от 25.09.2021
-
-Thy Row - Unchained (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Goes On
-02. The Round
-03. Unchained
-04. Horizons(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447A410061C41A8D7B0A3BC1D750D3C0F9D7BD27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497961   (859894) от 25.09.2021
-
-Rivers Of Nihil - The Work (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tower (Theme from «The Work»)
-02. Dreaming Black Clockwork
-03. Wait
-04. Focus(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8D22744A77FCFA69FF4CF664FD5780C07128C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497944   (859895) от 25.09.2021
-
-Stagewar - Danger To Ourselves (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danger To Ourselves
-02. Box Of Dirt
-03. Follow Me
-04. R.U.N.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFB679C3D6DC6E701219EDC7F045FABF89F7EF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498081   (859897) от 25.09.2021
-
-White Stones - Kuarahy (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kuarahy
-02. Rusty Shell
-03. Worms
-04. Drowned in Time(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6444B63353AAA19670A3B69490D44BB55699795B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376257   (860050) от 17.04.2020
-
-Сплин - Передайте это Гарри Поттеру, если вдруг его встретите (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Передайте это Гарри Поттеру, если вдруг его встретитеЖанр: RockПродолжительность: 00:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB39AFDB7B28A7F83878DC53112429ABEA079DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376455   (860159) от 17.04.2020
-
-Сплин - Передайте это Гарри Поттеру, если вдруг его встретите (2020) Single [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Передайте это Гарри Поттеру, если вдруг его встретитеЖанр: RockПродолжительность: 00:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9C8B3614BC3A907F77549D703C6523DBDAF59A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376214   (860239) от 17.04.2020
-
-Звери - Одинокому везде пустыня (2020) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дама с собачкой
-2. Попрыгунья
-3. Человек в футляре
-4. Палата №6(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575776E0A62A6368CA280A631EE3680C1DF03631
 ```
 
 

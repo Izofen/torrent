@@ -1,3 +1,57 @@
+###  Публикация: 1124475   (785827) от 11.04.2017
+
+VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Peter Pearson - Feeling Free  6:03
+02.  Michael E - She's Hypnotic  5:27
+03.  Placid Larry - Mend  4:32
+04.  Lazy Hammock - Surround Me  5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729CD9CD6F2B699CA229868180D60901035A4282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124417   (785830) от 11.04.2017
+
+VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soap Bubbles - I Remember U & Me (Extended Mix)  5:13
+02.  Bildertal - Sunder Uul (Soundspretty Remix)  4:53
+03.  Sak Chaime - Swag (Extended Mix)  5:08
+04.  After Sunrise - Time To Chill  7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124565   (785831) от 11.04.2017
 
 VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -641,60 +695,6 @@ VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123520   (785982) от 10.04.2017
-
-VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marcel Martenez & Jommes Tatze - Make Me Feel  4:51
-02.  Amoon - Let The Music Play (Extended Mix)  4:57
-03.  Freaky Tricks - Tonight  3:36
-04.  Martin Nocun - Take It To The Top (Extended Mix)  3:56(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124249   (785983) от 10.04.2017
-
-VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maximo Gladius — Renaissance [00:06:32]
-02. Jago Alejandro Pascua — Epica [00:06:12]
-03. Mikhail Ovez — Lost Love [00:05:55]
-04. Mark Gaetani — Eighty [00:06:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
 ```
 
 

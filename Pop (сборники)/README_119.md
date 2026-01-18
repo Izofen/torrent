@@ -1,3 +1,30 @@
+###  Публикация: 862011   (931367) от 22.01.2015
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 - Часть- 4 (2015) [MP3|313 - 320 кб/с]<Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ashley - Touch By Touch
+02. Dieter Bohlen - Love Me On The Rocks (Dj Alex Dolce Remix )
+03. Disco Service - Come And Dance
+04. A-Ha - Early Morning (DJ Amure Remix )(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ECC9D23F7F7B29FBAF8D3C77C32165BA742DA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094001   (932428) от 16.01.2017
 
 VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps] <Pop>
@@ -667,33 +694,6 @@ magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C11EC462CF93E4B6A15449467283F643983516
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984603   (938495) от 09.02.2016
-
-VA - Italo & Space Disco Vol.2 (2016) [MP3|320 кб/с] <Italo-Disco, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto – Laser Coaster (04:39)
-02. Digital Galaxy – Planet Of Fire (05:02)
-03. Holomatrix – A Star Was Born (04:45)
-04. Synthesis – Guardian Of The Galaxy (07:00)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 05:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BF0EFFD2D73A7BC26E2E2AC1914F7B58249F54
 ```
 
 

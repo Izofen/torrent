@@ -1,3 +1,57 @@
+###  Публикация: 1024890   (713420) от 10.06.2016
+
+FM-84 - Atlas (2016) [MP3|320 кб/с] <Electronic, Synthwave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything (4:20)
+02. Running In The Night (feat. Ollie Wride) (4:30)
+03. Tears (5:35)
+04. Chasing Yesterday (3:56)(   Читать дальше...   )Жанр: Electronic, Synthwave, Synth-popПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062B0EE9F039EC704EADBB2784B91EBB96659F4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219491   (713911) от 14.04.2018
+
+Sergey Cheremisinov - Hibernation (2017) [MP3|320 Kbps] <Ambient, Neoclassical>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Future 2:50
+02. Comets and Sparks 4:11
+03. United Voyagers 6:24
+04. Sleepers 8:00(   Читать дальше...   )Жанр: Ambient, NeoclassicalПродолжительность: 00:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BA2EAFC3AA0AA8AF9610C1F31B7E67EACD80B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219383   (713912) от 14.04.2018
 
 VA - Ibiza Deep House Sensations (2018) [MP3|320 Kbps] <Deep House>
@@ -640,60 +694,6 @@ Thomas Gandey - 4 Releases (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4698174CCF5EA58F85A99F3B5591575F12E7422C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219299   (715229) от 13.04.2018
-
-Нейромонах Феофан - Тропа (2018) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715229.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тропа
-2. Ремесло
-3. На двореЖанр: Drum & Bass, ElectronicПродолжительность: 00:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E2975A91B52D42EDB10C953362A54736F0BB4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 893079   (715362) от 28.04.2015
-
-Biosphere - Microgravity (Expanded Edition) (2015) [FLAC|Lossless|WEB-DL]<Techno Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715362.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Microgravity
- 01. Microgravity (05:21)
- 02. Baby Satellite (05:06)
- 03. Tranquilizer (08:24)
- 04. The Fairy Tale (04:55)(   Читать дальше...   )Жанр: Techno Ambient, DowntempoПродолжительность: 00:48:08+00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8CA3D96E2EA9653A2F51365A68808A503BF0DE
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1216439   (751362) от 30.03.2018
+
+VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)
+02. Tranceye - When The Sun Goes Down (Miroslav Vrlik Radio Cut)
+03. Cold Rush - Bullet (Radio Edit)
+04. Rene Ablaze - Autumn 2015 (Miroslav Vrlik Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281491   (751492) от 08.02.2019
+
+Нейромонах Феофан - Ивушка (2019) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751492.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ивушка
+2. Намело
+3. Красна девица
+4. ДурьЖанр: Drum & Bass, ElectronicПродолжительность: 00:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049577   (751564) от 12.07.2020
 
 my.head - Discography 18 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 2-Step, Future Garage>
@@ -638,60 +692,6 @@ Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018711   (754015) от 21.05.2016
-
-VA - Pure Bliss Vocals (Spring 2016) (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Service & Sarah Russell - Would You (Radio Edit) 4:04
-02. 4 Strings & Fridolijn - What Matters Most (Radio Edit) 2:36
-03. Dennis Sheperd & Sarah Lynn - Dive (Radio Edit) 3:48
-04. Betsie Larkin - We Are The Sound (Chris Metcalfe Radio Edit) 3:55(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE140A3F944D5E623822147A62668561E86D5139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018925   (754090) от 21.05.2016
-
-VA - Spring Tube Sampler 07 (2016) [MP3|320 кб/с] <Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Carmela - Curve Sound (Original Mix)
-02. Anthony Mea - Dreama (Original Mix)
-03. Marco Grandi - Butterfly (Original Mix)
-04. Adam Byrd - Without You (Original Mix)(   Читать дальше...   )Жанр: Deep House, HouseПродолжительность: 01:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F332D9E7C7D1062D4016E00E4B4586B2D8BBEC
 ```
 
 

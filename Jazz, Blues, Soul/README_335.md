@@ -1,3 +1,30 @@
+###  Публикация: 928975   (520640) от 18.08.2015
+
+Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Banker's [04:35]
+02. Slow Fox [04:35]
+03. Quotations [06:38]
+04. Der Gast [04:16](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415B9D1A5EAAF8514A7D28BF46E20F062880D3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560180   (520736) от 29.06.2022
 
 Charles Walker & the New York City Blues Band - Best Blues from the Apple (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -668,33 +695,6 @@ Eric's Bluesband - Rolling Avenue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3F113635DB10D5308537E980D4F3644709693B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559808   (522581) от 27.06.2022
-
-Matt Lomeo - When You Call (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More 1&1 (3:42)
-02. Unsentimental You (2:53)
-03. Accepting Applications (3:35)
-04. She Was the Best (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EB685F47E6C2BA371ADA3E998878582A874121
 ```
 
 

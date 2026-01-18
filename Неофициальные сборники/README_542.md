@@ -1,3 +1,30 @@
+###  Публикация: 1008619   (815925) от 18.04.2016
+
+VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristiano Pomante Quartet - Maybe
+02. Guido Russo - Antigua
+03. Overflow - Sunny
+04. Frank Tayla - Tropez(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CB91FE4548C772DED474AD6A041EF057DBF5AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008380   (815930) от 18.04.2016
 
 Александр Торчилин - Военный альбом (2004) [MP3|320 кб/с] <Военная песня>
@@ -668,33 +695,6 @@ VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194626   (817125) от 06.01.2018
-
-Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hollywood Bowl 27.10.2017 [MP3|320 Kbps] <Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Robot Boy/The Messenger/Iridescent [5:47]
-02 - Roads Untraveled [3:24]
-03 - Numb [3:12]
-04 - Shadow Of The Day/With or Without you [7:53](   Читать дальше...   )Жанр: Alternative rock, Nu metal, Alternative metalПродолжительность: 02:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
 ```
 
 

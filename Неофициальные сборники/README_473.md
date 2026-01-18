@@ -1,3 +1,30 @@
+###  Публикация: 1020903   (743885) от 27.05.2016
+
+VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Allen Belg - The Other Side (Original Mix) 08:04
+002. Ex-Driver ft. Julie Harrington - Aurora (Original Mix) 06:46
+003. Sean Mathews - Paradise (Andy Tau Remix) 07:08
+004. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4077F74E984221F7DA621089357A1966B69780F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020724   (743891) от 27.05.2016
 
 VA - Sweet Supernova: Ibiza Deep House Mix (2016) [MP3|320 кб/с] <Deep House, Electro>
@@ -662,33 +689,6 @@ VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:789423FE5647BCF96DEC6F28470F6065EA6EBB8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282324   (745405) от 12.02.2019
-
-VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Maite Kelly - Heute Nacht für immer
-03. Kerstin Ott - Regenbogenfarben
-04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A627907922B5E857E1F31EDA75BA611552C0D6
 ```
 
 

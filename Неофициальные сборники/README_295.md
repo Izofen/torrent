@@ -480,6 +480,30 @@ magnet:?xt=urn:btih:3C1B5C178F3A370FF7A7771918B6C7C60F6168E0
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190660   (497145) от 10.09.2015
+
+VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_497145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop | Club | DanceПродолжительность: 05:58:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935914   (497267) от 10.09.2015
 
 VA - Лучшая Музыка прямиком из Клубов (2015) [MP3|320 кб/с]<Club, Dance, Trap, House, Electro House>
@@ -697,33 +721,6 @@ VA - Italo Disco & Old Funky (2022) [MP3|320 Kbps] <Disco, Dance, Remixes>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E5D1F1E139C7B639A7EE3951CA8A8AA26961DF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936100   (497658) от 10.09.2015
-
-VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497658.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.SWIFT - Weekend Day (Bee Hunter Remix)
-002. Catrina Davies, Danny Jr Crash - Dick (Extended Mix)
-003. Coraz Feat. Chris Lago - With My Love Again (Dan Chase Remix)
-004. Christopher Hermann - Dilemma(   Читать дальше...   )Жанр: Progressive, Club HouseПродолжительность: 10:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6960223356D24890BE157A5B59009326CCCF1DF
 ```
 
 

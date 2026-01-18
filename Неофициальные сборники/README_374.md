@@ -1,3 +1,36 @@
+###  Публикация: 523964   (615397) от 17.07.2012
+
+VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.21 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Бурановские Бабушки feat. DJ Slon & Faktor-2 - Гимн Молодости
+02.Let's Go Project - Le Le Ley (Radio Edit)
+03.Горячий Шоколад - Ты Обними
+04.Bros Project feat. Denise - My Life (Original Mix)
+05.Жанна Фриске - Навсегда (ChinKong Production Mix)
+06.Celia feat. Mohombi - Love 2 Party (Radio Edit)
+07.Юрий Шатунов - Не Хочу
+08.R.I.O. feat. U-Jean - Summer Jam
+09.Егор Сесарев - Громче Музыка
+10.DJ Assad feat. Mohombi, Craig David & Greg Parys - Addicted(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7205908DDEB93544650AFE9968582A392DD3A30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230468   (615415) от 12.06.2018
 
 Ebony - The Singles Collection (2018) [MP3|320 Kbps] <Electronic, Pop, Disco>
@@ -719,39 +752,6 @@ VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523350   (617222) от 16.07.2012
-
-VA - Esthetics Lounge Vol. 4 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opal Feat. Querubyna - Loving You (4:18)
-2. Loco Dice - Pimp Jackson Is Talkin' Now!!! (5:59)
-3. Phil Thurston - Suveo (3:49)
-4. Mimi Page - Mimi Page - All I Need (4:23)
-5. Pempi Arroyo - You Really Got Me (5:21)
-6. Goloka - Tobacco Slide (4:03)
-7. Sunpeople - Above & Beyond (Come Around Sundown Mix) (5:38)
-8. Jazzamor - Cherish (The Night, The Life, The Moon) (4:01)
-9. Smoma - Secret (4:15)
-10. Arnold T - Just The Way You Are (4:29)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6522DEF48932186DA9CF80F914BA1D657336D46B
 ```
 
 

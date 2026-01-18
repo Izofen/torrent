@@ -1,3 +1,36 @@
+###  Публикация: 617357   (971942) от 12.02.2013
+
+VA - Romantic Blues Collection Vol.3 (2013) [MP3|320 кб/с]<Pop,Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santana - Flor D'Luna (Moonflower)
+ 02. Grand Funk Railroad - It's A Man's World
+ 03. Preachers Keen - Its A Shame
+ 04. Preston Shannon - Jail Of Love
+ 05. Robert Cray - Move A Mountain
+ 06. E.Iglesias & W.Houston - Could I Have This Kiss Forever
+ 07. Lucky Peterson - Who's been talking
+ 08. Stan Webb's Chicken Shack - Don't You Worry About A Thing
+ 09. Spice Girls - Vivat Forever
+ 10. Colin James - Standing On The Edge(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0DB107094DA64F676FCC1FA78A05C3D6DCD5EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357890   (971982) от 05.02.2020
 
 VA - Beatport Electro House: Pack #06 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
@@ -698,33 +731,6 @@ VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC3B603A77FD812156A7A7048802780F80339AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974962   (974468) от 13.01.2016
-
-VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса Кожикина - Белые Снежинки
-02. Krewella - Somewhere To Run
-03. Чи - Ли - Моя Религия
-04. Karl Wolf Feat. Classified - Grown Man(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2BCAAD51AFFDE67F77D5FD8EB3EF92FC592C49E
 ```
 
 

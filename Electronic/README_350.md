@@ -1,3 +1,57 @@
+###  Публикация: 1133757   (693329) от 13.05.2017
+
+VA - David Gravell - Discover (Mixed By David Gravell) (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  David Gravell - Discover (Original Mix)  1:43
+02.  Naian - Colossus (Melodic Mix)  3:05
+03.  Paris Blohm & Taylr Renee - Left Behinds (Original Mix)  3:00
+04.  David Gravell - Battlefront (Original Mix)  3:30(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 02:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF84B545BF9A94A0C095AC0334C9CA985D78A5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133799   (693422) от 13.05.2017
+
+VA - Laid-Back Lounge Vibes Vol.8 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twentyeight - Make People Happy (Original Mix)  4:54
+02.  Charly McLion - Nights Of Rain (Original Mix)  3:55
+03.  Lazy Hammock - One Of Those Days (Original Mix)  5:34
+04.  Mindel - In Your Arms (Original Mix)  3:57(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C0FC3786ADB71CD2DF1EF3D073A2D62912124F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133636   (693425) от 13.05.2017
 
 Nite Jewel - Real High (2017) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Chillwave, Neo Soul>
@@ -638,60 +692,6 @@ VA - Max Freegrant - Wonderful Life (2017) [MP3|320 Kbps] <House, Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14DF05CAD3AA84482659C20C4AD1069FD64D0488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133060   (695189) от 12.05.2017
-
-VA - Big City Beats Vol. 26 (World Club Dome 2017 Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big City Beats - Take Off Vol. 26 (Intro)  2:24
-02.  Le Shuuk - Heartbeat  4:07
-03.  The Chainsmokers - Setting Fires (feat. XYLO) (Blasterjaxx Extended Remix)  4:50
-04.  Hardwell & Quintino - Baldadig (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C937336D59667E77F778D68C2DAC519EAAF858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133337   (695194) от 12.05.2017
-
-VA - Meteor Trance Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alizera - Fairy (Radio Edit)  3:30
-02.  Skyvol - Werewolf's Heart (Radio Cut)  3:55
-03.  Michael Milov - Voice Of An Angel (Radio Cut)  3:37
-04.  Ilya Chupriy - Foggy Morning (Radio Cut)  4:07(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 02:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A0717DDA13DFB056D16C452C2E0DA5C9CED374
 ```
 
 

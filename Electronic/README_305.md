@@ -1,3 +1,57 @@
+###  Публикация: 913349   (601144) от 30.06.2015
+
+Kid Loco - A Grand Love Story (1998) [FLAC|tracks +.cue]<Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601144.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Grand Love Theme (4:03)
+02. Relaxin' With Cherry (5:39)
+03. Love Me Sweet (4:50)(   Читать дальше...   )Жанр: Trip-Hop, DowntempoПродолжительность: 00:55:17 + 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED97EF7CC0DFF25E4D9E4B67F2F32B9A68207592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149247   (601150) от 10.07.2017
+
+Oil 10 - Discography 9 Releases (1998-2014) Divine Comedy Records, Ant-Zen [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Abstract, Ambient, Techno, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Sunshine (05:49)
+ 02. Moonstone (04:41)
+ 03. Missing Future (06:53)
+ 04. Human Decision Required (05:24)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: IDM, Electro, Abstract, Ambient, Techno, Industrial •Продолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF5E4B50E6D648A9089C52C26A7856E3BCEA7D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149322   (601155) от 10.07.2017
 
 VA - Bodybuilding Music: No More Words Needed (2017) [MP3|320 Kbps] <Progressive House>
@@ -641,60 +695,6 @@ VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) 2CD [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C8F9C259255703570574682196D9E43018071D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232295   (602387) от 23.06.2018
-
-VA - Ferry Corsten Presents Corsten's Countdown June (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION - Write Your Story (A Summer Story Anthem 2018)
-02. Solarstone - Thank You (Original Mix)
-03. Sied Van Riel - Atomic Blonde (Original Mix)
-04. Andy Moor & Somna & Diana Leah - There Is Light (Matt Fax Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39CDC7662A2A262668FFDD1FF4F2A40ED652FAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232272   (602390) от 23.06.2018
-
-VA - Uplifting Summer (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unix SL - Long Dark Days (Original Mix)
-02. Andrey Gaydukov - An Ocean Call (Original Mix)
-03. Stas-Dsi - Remember DI FM (Iz-Rem-Records Hipnozis Remix)
-04. Stas-Dsi - Internet Natura (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA9B7AD2C07EF0AAA93EA577003D8C25BB180E5
 ```
 
 

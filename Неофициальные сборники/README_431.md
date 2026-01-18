@@ -1,3 +1,30 @@
+###  Публикация: 1134649   (687575) от 16.05.2017
+
+VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Davu - Sociopath (Original Mix)
+002. Tommy Harmond - Stay Together Forever (Extended Mix)
+003. Archi Nova - At A Depth (Original Mix)
+004. Esra Kahraman - Ex Love (Regard Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506473   (687703) от 06.06.2012
 
 VA - Инструментальная музыка (2012) vol. № 66 [MP3|320 кб/с]<Instrumental>
@@ -697,33 +724,6 @@ VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134302   (689371) от 15.05.2017
-
-VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & David Guetta Ft Ester Dean – Another Life (Intro Outro) 06:02
-02. Clean Bandit Ft. Zara Larsson – Symphony (Cloudnine Short Edit) (Clean) 02:14
-03. Future – Mask Off (Mr. Collipark Remix) (Dj Rukus Quickhitter) (Clean) 02:57
-04. Yaz – Dont Go (Dj Jay Mmp Intro) (Clean) 03:13(   Читать дальше...   )Жанр: R&B, New Jack Swing, Latin, Future House, Reggae, TrapПродолжительность: 05:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
 ```
 
 

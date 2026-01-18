@@ -1,3 +1,54 @@
+###  Публикация: 1200249   (796410) от 20.01.2018
+
+VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sl4tch feat. Doris Stadler - In a Game 02:37
+02. The Boogeyman - Be Free (Radio Edit) 03:03
+03. Mr. Groove - Mouraria (Radio Edit) 03:20
+04. Dr. Beat - How About You (Radio Edit) 03:02(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3800EB9FCABDCBFBA77AE66167B7A7481A222E6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200284   (796424) от 20.01.2018
+
+VA - Dance Hits (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200459   (796427) от 20.01.2018
 
 Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
@@ -641,60 +692,6 @@ VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199985   (797010) от 19.01.2018
-
-VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tuccillo - Lovery (feat Amor - D.Y.a & Kalyma remix) (08:13)
-02. Alex Ranerro - Endless (06:18)
-03. Lonya - Achromatic (Breky remix) (07:25)
-04. Tiger Stripes - Song For Edit (feat Kerri Chandler - Black Loops remix) (07:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280F2ECFA6C0F702EEA019457A2B90176FEAF78C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199903   (797012) от 19.01.2018
-
-VA - Club House - Selected Works Vol.01 (2008) [FLAC|Lossless|tracks] <House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Axwell/Dirty South - Open Your Hear (Vocal Mix) (8:57)
-02.John Claudes Ades; Vincent Thomas - Shingaling (7:04)
-03.Style of Eye - Girls (7:04)
-04.Franky Rizardo - Flutetest (Tony Chacha & Paco Ramon 'Put It in the Air' Mix) (5:41)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E00251411702A5EF92CA6682CF85D6A148B6BB
 ```
 
 

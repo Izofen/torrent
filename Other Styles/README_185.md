@@ -1,3 +1,30 @@
+###  Публикация: 1356271   (980489) от 29.01.2020
+
+Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the Netflix Original Series) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980489.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sonya Belousova, Giona Ostinelli, Joey Batey - Geralt of Rivia (01:52)
+02. Sonya Belousova, Giona Ostinelli - Toss A Coin To Your Witcher (03:10)
+03. Sonya Belousova, Giona Ostinelli, Rodion Belousov - Happy Childhoods Make For Dull Company (03:17)
+04. Sonya Belousova, Giona Ostinelli, Declan de Barra, Lindsay Deutsch - The Time of Axe and Sword Is Now (04:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356231   (980497) от 29.01.2020
 
 Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Motion Picture Score) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
@@ -726,39 +753,6 @@ Ratnabali Adhikari - Shiva Lounge (2005) [MP3|256 кб/с]<World, New age, Medit
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740081   (983418) от 03.01.2014
-
-David West Band - Pickin' On Creedence Clearwater Revival. A Tribute (1999) [MP3|320 кб/с]<Instrumental Country>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(4:11) 01. Born On The Bayou
-(3:23) 02. I Heard It Through The Grapevine
-(3:22) 03. Bad Moon Risin'
-(3:16) 04. Who'll Stop The Rain
-(3:20) 05. Susie Q
-(3:13) 06. Proud Mary
-(2:57) 07. Green River
-(3:17) 08. Travelin' Band
-(3:13) 09. Have You Ever Seen The Rain?
-(3:29) 10. Lodi(   Читать дальше...   )Жанр: Instrumental CountryПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98A518FC5DEB4FEB03D86F623BD10C2E520B55F
 ```
 
 

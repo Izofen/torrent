@@ -1,3 +1,300 @@
+###  Публикация: 1609576   (1043177) от 04.02.2023
+
+Mod Sun - God Save The Teen (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop-Punk, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyelids [00:02:46]
+02. Revenge [00:02:37]
+03. Avril's Song [00:02:45]
+04. Shelter (feat. Avril Lavigne) [00:03:10](   Читать дальше...   )Жанр: Alternative, Pop-Punk, Pop-RockПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAC7AB44B227FD1151C88AEC32290FBC70E28F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609737   (1043182) от 04.02.2023
+
+Страна Идиотов - 27 пустоты. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Помолчим [00:02:53]
+02. Города [00:02:37]
+03. Шаг за шагом [00:03:38]
+04. Новое время [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E864A5E1015B49CA8A83BDFAB1373E093475F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609693   (1043184) от 04.02.2023
+
+zopp - Dominion (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Canterbury Scene>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amor Fati [00:02:10]
+02. You [00:10:56]
+03. Bushnell Keeler [00:05:06]
+04. Uppmärksamhet [00:03:13](   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1955C7933F62F036DF7CF001CB26EBBC5E34B158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609592   (1043188) от 04.02.2023
+
+Blackwulf - Thieves And Liars (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow [00:05:09]
+02. Seems To Me [00:04:38]
+03. Killing Kind [00:04:57]
+04. Thieves And Liars [00:03:21](   Читать дальше...   )Жанр: Stoner, Doom, MetalПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D739961B89923EF19C1F503C9F6D3C62595397DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609704   (1043189) от 04.02.2023
+
+DeadBlondeStars - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <90s rock, rock, grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Ahead [00:00:38]
+02. 11 Teeth [00:03:57]
+03. This Tree [00:05:04]
+04. Worlds Apart [00:04:06](   Читать дальше...   )Жанр: 90s rock, rock, grungeПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AE422071A04A9ADAAFAA433606C24EFAB7AD4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609735   (1043190) от 04.02.2023
+
+Азбука Борзых - Дартс (2023) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слава селу [00:04:21]
+02 - Примочка [00:03:45]
+03 - Дартс [00:03:56]
+04 - Приют [00:03:20](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11635BB882602A28B594810B2E12B62ECEE0B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609292   (1043237) от 03.02.2023
+
+Xandria - The Wonders Still Awaiting (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Worlds (7:08)
+02. Reborn (5:13)
+03. You Will Never Be Our God (feat. Ralf Scheepers) (5:11)
+04. The Wonders Still Awaiting (4:59)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB848DF2598DA2D697D47E6D57EA9AD2AC525B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608930   (1043247) от 03.02.2023
+
+Nightwish - Wishmaster (2000) Reissue, 2004, Back On Black [OGG Vorbis|700 Kbps] <Rock, Symphonic Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Is My Sin
+02. The Kinslayer
+03. Come Cover Me
+04. Wanderlust(   Читать дальше...   )Жанр: Rock, Symphonic Metal, Power MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E60B228345DFC08C5BA36E397F9D1D6A9CDA79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609547   (1043249) от 03.02.2023
+
+Russkaja - Turbo Polka Party (2023) [FLAC|Lossless|WEB-DL|tracks] <ska punk, gypsy punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Borders [00:02:35]
+02. Russki Style [00:03:31]
+03. Shapka [00:04:05]
+04. Olga von der Wolga (feat. Micha Rhein) [00:04:54](   Читать дальше...   )Жанр: ska punk, gypsy punkПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B5F7523204BAE21B6B0B0CD76F572ECABEA9C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609255   (1043264) от 03.02.2023
+
+Xandria - The Wonders Still Awaiting (2023) [MP3|320 Kbps] <Symphonic, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Two Worlds [00:07:08]
+02 - Reborn [00:05:12]
+03 - You Will Never Be Our God Feat. Ralf Scheepers [00:05:11]
+04 - The Wonders Still Awaiting [00:04:59](   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BCF3489B0A617FD3255B1DE5B7CA79C3F1B7201
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609403   (1043267) от 03.02.2023
+
+Дядя Миша - Тоська-Сука И Другие Песни (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тоська-Сука [00:02:57]
+02 - Зараза [00:01:59]
+03 - Отелло [00:04:09]
+04 - Восточная [00:01:37](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC40D9AA6E0F4E8497088C4578ED34FDF8C38C4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609208   (1043324) от 02.02.2023
 
 Сектор Газовой Атаки - Классика (2023) [FLAC|Lossless|tracks] <Punk Rock>
@@ -397,303 +694,6 @@ Arctic Rain - 2 Albums (2020-2023) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27753FB1A255C1F7873BA3B1B3746D4D48615A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608531   (1043604) от 30.01.2023
-
-The Runaway Wild - The Runaway Wild (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Synthwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Night I Died (00:00:30)
-02 - Wake Up (00:03:14)
-03 - God Rest the Youth (00:03:52)
-04 - Into the Mirror (We'll Now Unite) (00:04:27)(   Читать дальше...   )Жанр: Melodic Rock, SynthwaveПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA9DAFAD40A68328F5E9886FD0EB0AB383A6129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608216   (1043622) от 30.01.2023
-
-Ken Hensley - Cold Autumn Sunday (Expanded Edition) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me an Angel (4:42)
-02. Inside The Mystery (2005 Version) (4:42)
-03. When (2005 Version) (3:03)
-04. Longer Shadows (3:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319E336A23EA83E1C0290673F4FFBA5E5DC53A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608517   (1043637) от 30.01.2023
-
-Seven Black Owls - From Rooster to the Donkey (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wind of Apathy (00:05:21)
-02 - Revolution (00:02:18)
-03 - When Time Leaves Break (00:04:32)
-04 - Dream Theater (00:04:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E8207981D6B8DD13828FC8627FA43C0FEE9775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608470   (1043641) от 30.01.2023
-
-Crowne - Operation Phoenix (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Operation Phoenix (00:05:55)
-02 - Champions (00:03:22)
-03 - In the Name of the Fallen (00:03:28)
-04 - Super Trooper (00:03:33)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13855E1FFCFBCDB79F245993241E5D76EADFD4AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608380   (1043648) от 30.01.2023
-
-Starspawn of Cthulhu - The Cursed Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iranon [00:04:29]
-02. The Last Raft [00:04:24]
-03. Black Lotus [00:08:16]
-04. Blind God [00:04:04](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2C9DF6CCC25B44554388EB9E595EA844B36C96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608524   (1043649) от 30.01.2023
-
-Freeroad - Do What You Feel! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Do What You Feel! (00:04:24)
-02 - Rock Chaser (00:03:48)
-03 - Pray for the King (00:04:17)
-04 - Movin' On (00:03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A35ED739D2B4281CD477EE7D82988C6F673F0AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608506   (1043650) от 30.01.2023
-
-Malice Divine - Everlasting Ascendancy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Silenced Judgement 04:10
-2. Apparitions of Conquest 08:22
-3. Usurping the Paragon 06:07
-4. At One With Infinity 06:06(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBB6D451E0FF52D8AEE5900B3D15EF893B61006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608373   (1043657) от 30.01.2023
-
-Одиссея - Эра Героев (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Разбитый Трон
-03. Эра Героев
-04. Ведьмы Привыкли К Огню(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7518AA7F307081B195E78C0A79FB3FA4C062EE89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608214   (1043658) от 30.01.2023
-
-KLEE Project - Living in Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Break it Down (2:56)
-02. I Believe in You (2:59)
-03. Still Waiting (4:07)
-04. What Can I Do (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FAB6B6DC4396F9E2B355F66EB001ACE222C9EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608228   (1043660) от 30.01.2023
-
-Jimmy B and the Death Rattles - The Great Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Run (3:45)
-02. Welcome to the Storm (2:46)
-03. The Great Beyond (5:30)
-04. Ginny (1:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE7D35BFD575FA5A432BB044752C699FE167240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608458   (1043662) от 30.01.2023
-
-Velian - Spectacle of Tragedy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spectacle of Tragedy (00:04:08)
-02 - For Eternity (00:03:36)
-03 - Sin Eater (00:04:39)
-04 - Waiting in Silence (00:03:34)(   Читать дальше...   )Жанр: Melodic Gothic, Death MetalПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F119723CC22DCBD49A3BBC4CB36395FB61474E6
 ```
 
 

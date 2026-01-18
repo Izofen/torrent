@@ -1,3 +1,30 @@
+###  Публикация: 1242172   (515057) от 22.08.2018
+
+VA - Summer Beach Party Vol. 01 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515057.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta - Flames
+002. Jax Jones, Ina Wroldsen - Breathe
+003. Louane - Immobile
+004. Basada - Good Vibes(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 11:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6BC55DF5605FBE9D4C6C1E9CF5A61226955B503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314979   (515075) от 18.07.2019
 
 VA - Black & Red: Dedication To R&B (2019) [MP3|320 Kbps] <R&B, Soul>
@@ -675,39 +702,6 @@ VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374255   (516555) от 11.08.2011
-
-VA - Пиратская Станция Часть 10 (2011) [MP3|256 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Карась - Гостья Из Будущего
-02. Dj Smash - Blueberry Hill (Extended Mix)
-03. Dj Andrew S.Mile & Syntheticsax - Лезгинка (House Style)
-04. Kazaky - Love (Dj Sebastien & Vengerov Remix)
-05. Mc Zali & Dj Dima Molotov - Дави Танцпол (Bizz Nizz Feat. George Arrendell)
-06. Don Omar Feat. Lucenzo - Danza Kuduro (Ivan Flash Remix)
-07. Ку-Ку - Анжелина Джоли (Рома Лейтенант Remix)
-08. Stromae - Peace Or Violence (Glen N Mix)
-09. Ural Djs & Katrin Queen - Что За Нах
-10. Dan Balan - Freedom (Dj Nejtrino & Dj Stranger Club Mix)(   Читать дальше...   )2011Жанр: ClubПродолжительность: 12:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0A02F73B03823AE01F60ECCE6730E9CC21163C
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1275193   (791162) от 10.01.2019
+
+VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louie Vega Ft. Jocelyn Brown-You Are Everything (Morales Tribute To Frankie Knuckles Mix)
+02. Marc Dennis-Storm (Original Mix)
+03. Secret Sinz-The Fool (Original Mix)
+04. Soulbridge Ft. Ms Onyie-Perceptions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CF7DB8DF1FA257C3F73D3241D1475C8DA21483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387531   (791196) от 02.06.2020
+
+Sash! - The Best Of (2008) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Trance, Euro-House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecuador (Javi Mula & Joan Reyes Remix) (6:17)
+02. Ecuador (Will Bailey & Calvertron Remix) (6:14)
+03. Ecuador (Bad Behaviour Remix) (6:23)
+04. Stay (Cedric Gervais Vocal Remix) (7:05)(   Читать дальше...   )Жанр: Electronic, Trance, Euro-HouseПродолжительность: 02:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2A4F6F448F02BBAE3C3CC62BA53E52EDB5FA46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387502   (791200) от 02.06.2020
 
 Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks] <House, Ambient, Dance-pop, Leftfield>
@@ -639,59 +693,6 @@ Eusebeia, Atiq & Arlow - Transfiguration EP (2020) Mindtrick Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5E0CC698E84955FC6A17DD5AC41077352B52A5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387283   (791838) от 01.06.2020
-
-VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speed Master DJ - Indian (Radio Edit)
-02. M4RO and J'N'D - Sleepless
-03. Djschluetex - Hype the EDM
-04. Ras Martin - Stay with You(   Читать дальше...   )Жанр: House, Dance & ElectronicПродолжительность: 02:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4153AD1139D5D6538B95CB15191B9AD178396DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387259   (791846) от 01.06.2020
-
-Resoe - Discography 15 Releases (2007-2020) Baum Records, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larm (07:06)
- 02. Larm (Joey Anderson Remix) (05:40)
- 03. Low Identity (08:48)Тип издания: CD, WebЖанр: Dub Techno/TechnoПродолжительность: 06:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E518EEAA61E906ACAB2EA696349EF089478385EB
 ```
 
 

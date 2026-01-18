@@ -1,3 +1,57 @@
+###  Публикация: 1142451   (641173) от 15.06.2017
+
+Relaxed - Relaxed (2017) [MP3|320 Kbps] <Ambient, Drone>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641173.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mystic (03:44)
+2. Peace (05:00)
+3. Remember (04:49)
+4. Concentration (04:49)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC92D534FE298FD615F934960A39CABC9FC416BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142490   (641174) от 15.06.2017
+
+VA - Maxxx Power Tunes Vol 1 (Maximum Music for Maximum Power) (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Sunrise - Sunset 06:41
+02. Lory Albano, Sebastian Gonzales - Barcelona Vibes (Club Mix) 05:25
+03. Afrotronix, Teknobrat - Ca Fait Mal (Mikael Klasson Remix) 06:23
+04. Project Weekend Sound - Some Kind Of Way 04:56(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D6566850869126EB5137571F10F230904C6C86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142637   (641178) от 15.06.2017
 
 VA - Relaxing Vol.1 not Only Chill Out (2017) [MP3|320 Kbps] <Downtempo, Lounge, Pop Dance>
@@ -638,59 +692,6 @@ Kayatma - Ambivalence (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA5019C9BFAC3F732DD9853136B2EBA2CEA112C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292817   (643291) от 31.03.2019
-
-Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mutant Disco (7:00)
- 02. Mutant DX (5:40)
- 03. Mutant Romance (6:45)
- 04. Mutant Pulse (8:45)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB43C79372C4B53C2D247401659E4E7005F4CC89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906529   (643491) от 09.06.2015
-
-The Glitch Mob - Piece of the Indestructible EP (2015) [MP3|320 кб/с]<ElectroHouse, Drumstep>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Full of Shadows
-02. Better Hide, Better Run (feat. Mark Johns)
-03. The Clouds Breathe for YouЖанр: ElectroHouse, DrumstepПродолжительность: 00:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422E2A9F0AD84D9E1905400AED134128F7F64990
 ```
 
 

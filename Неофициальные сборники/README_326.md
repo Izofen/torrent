@@ -1,3 +1,30 @@
+###  Публикация: 1309453   (550347) от 20.06.2019
+
+VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inglorious - Queen
+002. Ashley Cleveland - Up From The Ether
+003. Passcode - Bite The Bullet
+004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309588   (550353) от 20.06.2019
 
 VA - Night Dreams (2019) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237281   (552232) от 23.07.2018
-
-VA - Reggaeton Hits (2018) [MP3|320 Kbps] <Latin, Hip-House, Salsa>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Family Dejavu - Si Tu Quieres (Original Mix) 3:26
-02. Ruddy Norona - Ensename (Original Mix) 3:31
-03. Big Yamo, Area 3 - Cuando Nadie Nos Ve (Original Mix) 3:29
-04. Lester - Apretaita (Original Mix) 3:21(   Читать дальше...   )Жанр: Latin, Hip-House, SalsaПродолжительность: 01:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8E717016EBC2D62BB6F6EB156499E2E68E1A5D
 ```
 
 

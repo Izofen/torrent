@@ -1,3 +1,57 @@
+###  Публикация: 1451207   (1028356) от 02.03.2021
+
+VA - Pure Aerobic Hits 2021 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - Edge Of Midnight (Fitness Version 135 Bpm) (04:16)
+02. D'Mixmasters - Matches (Fitness Version 135 Bpm) (04:01)
+03. D'Mixmasters - Girl Like Me (Fitness Version 135 Bpm) (04:01)
+04. D'Mixmasters - Save Tonight (Fitness Version 135 Bpm) (03:47)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE674F6FFE426D8EAAE51C3DCFDB9F2589A2B2FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451322   (1028363) от 02.03.2021
+
+VA - Feeling Warm & Cozy: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Roberto Sol & Nera - Sensuality (Ballad mix)
+02 Mission Brown - Your Smile (Original Mix)
+03 Michael E - Conversations (Chill Mix)
+04 Klangstein - Deep Dive (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81834B82985423446A18070CB3DE1D1DCE97C780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450295   (1028364) от 02.03.2021
 
 VA - Powersynth Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave, Cyberpunk>
@@ -634,60 +688,6 @@ Comaduster | Underfelt - Discography 21 Releases (2009-2020) Tympanik Audio | Fi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590175649F4D09E49FED704F0F2BD923F5102629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222853   (1028955) от 26.02.2021
-
-Nu:Tone - 5 альбомов (2005; 2007; 2011; 2014; 2021) [FLAC|Lossless]<Drum'n'Base>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Seven Years ft Natalie Williams
-02 Right Now
-03 Heaven Sent ft SP MC
-04 Can We? ft London Elektricity(   Читать дальше...   )Жанр: Drum'n'BaseПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABBA27CCDD6620BAF11BB1A15C242BF11EDA68A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087585   (1028968) от 26.02.2021
-
-Mouse On Mars - Discography 31 Releases (1994-2021) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Techno, Leftfield, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frosch (04:22)
- 02. Bib (04:23)
- 03. Maus Mobil (06:32)
- 04. Saturday Night (DJ Crack Mix) (04:22)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: IDM, Downtempo, Ambient, Techno, Experimental, Leftfield, Electro •Продолжительность: 23:55:05 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AA8C2B747F26E72A232973B99468B478563AB4
 ```
 
 

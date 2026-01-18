@@ -1,3 +1,55 @@
+###  Публикация: 1226222   (657072) от 19.05.2018
+
+VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
+02. Darin Epsilon - Niflheim (Original Mix)
+03. Matter - Star. Rock. (Lanvary Remix)
+04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226198   (657073) от 19.05.2018
+
+VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226153   (657075) от 19.05.2018
 
 VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
@@ -650,60 +702,6 @@ VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140010   (658272) от 04.06.2017
-
-VA - Monaco Night Tales - The Best Of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Santo Smokes - Sunset Surf 5:54
-02.  Amakipkip - Royal Summer Lounge 5:28
-03.  Ambient Grooves - Marina Cruise 5:39
-04.  Dragonfly - Rue Des Fleurs 3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF3413835671A293BF8B8B34F09DBE2682F4B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139989   (658275) от 04.06.2017
-
-VA - Endless Music - Balearic Ibiza Grooves Vol.2 (Compiled By Paul Lomax) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oceanvs Orientalis - Revenge Of The Wankers 9:04
-02.  Matt Correa - Euphony (feat. Alexey) 6:46
-03.  Mika Olson - What I Need (feat. Jermaine Fleur) 7:35
-04.  Popart - Florescent Love (Miguel Campbell Remix) 5:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEDE6973BF019D5D55384FA856C9077C1856141
 ```
 
 

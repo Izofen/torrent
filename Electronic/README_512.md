@@ -1,3 +1,57 @@
+###  Публикация: 1455236   (1025821) от 18.03.2021
+
+Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recondite - Petrichor (Tin Man Remix) (08:00)
+ 02. Palm Trax - Houses in Motion (Tin Man Remix) (07:24)
+ 03. Tin Man - Sexy (Igor Vicente Remix) (11:45)
+ 04. Erol Alkan - Subconcious (Tin Man Remix) (05:57)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FCECF543F0E9F9846BD7364731E3555F5EB839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455049   (1025827) от 18.03.2021
+
+Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Frankey & Sandrino - Xrain
+03. ID - ID
+04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118236   (1025865) от 17.03.2021
 
 Grad_U (Re_Grad) - Discography 32 Releases (2010-2021) Redscale, Greyscale [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
@@ -641,60 +695,6 @@ VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D97766DE76ACFEBFE026FEA8BD18A99343F3DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454057   (1026437) от 14.03.2021
-
-Tricky - Fall to Pieces (Remixes) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, E﻿lectronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Stone (trentemøller Remix) [00:03:40]
-02. Fall Please (Kahn Remix) [00:05:38]
-03. I'm in the Doorway (LA Timpa Remix) [00:05:12]
-04. Vietnam (Lafawndah Remix) [00:03:25]Жанр: Trip-Hop, E﻿lectronicПродолжительность: 00:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C14DA995621AFAFC5AB6C518C6A30A691919EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453892   (1026623) от 13.03.2021
-
-Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Stranger
-02. Alex O’Rion - Cuprum
-03. Emil Berliner - Aoede
-04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
 ```
 
 

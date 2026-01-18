@@ -1,3 +1,55 @@
+###  Публикация: 1145155   (623897) от 24.06.2017
+
+2raumwohnung - Achtung Fertig (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euphonia (0:44)
+ 02. Ich mag's genau so (3:46)
+ 03. Ein neues Gefühl (3:50)
+ 04. Bei Dir bin ich schön (3:15)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0175D92ACED0AF107097B059F050BE503F25033A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145307   (623900) от 24.06.2017
+
+Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Castle (04:30)
+ 02. Recovery (05:00)Жанр: Deep Drum & BassПродолжительность: 00:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145116   (623914) от 24.06.2017
 
 VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -638,60 +690,6 @@ Martins Garden & Friends - Horizon (2017) [MP3|320 Kbps] <Psydub, Ambient, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CBA4AF7541DC3CA00B7C6D1F2E215A037627D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144425   (625937) от 23.06.2017
-
-VA - Ostentatious Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atelier Francesco - The Moon's Landing (07:28)
-2. Javier Carballo - Deeper World (07:37)
-3. Sierra Sam - Per Aspera Ad Astra (05:58)
-4. Cesare vs Disorder - Redshift 7 (07:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6E2CC1B2D3AA5A12EC3CCA5335A5D89F5BAD2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294877   (626099) от 09.04.2019
-
-Алина Секвенция - Лучшие ремиксы (2003) [FLAC|Lossless|image + .cue] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon – Give Me Tonight ‘2003 (Sequence Radio Edit) (4:28)
-02. Alina Sequence – Stars (Freedom ‘2001 Sequence Mix) (6:59)
-03. Лика Star – Я вспоминаю тебя, как снег (Sequence Remix) (3:55)
-04. Melo-Dy – Облака (Sequence Tandem Remix) (8:17)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:13:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D2A9FF442718F6AF83C0704E0F0C6D34A4B1A2
 ```
 
 

@@ -1,3 +1,292 @@
+###  Публикация: 1274354   (793052) от 07.01.2019
+
+The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Progressive, Atmospheric Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793052.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Phanerozoic I Palaeozoic
+CD2 - Phanerozoic I: Palaeozoic (Instrumental)Жанр: Progressive, Atmospheric Sludge MetalПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0531A2843F498DA1770AB1D79AF4C640C89257E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274424   (793057) от 07.01.2019
+
+Xilphide - Secretos del Viento (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secretos del Viento
+02. Extinción
+03. Brujas y Hechiceras
+04. Lamento del Desierto(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B5C2D2DC37806ADD8D735D49FC37D54501C02F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274433   (793063) от 07.01.2019
+
+Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless|image + .cue] <Indie, Folk, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793063.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "Hitting the Ground" (PJ Harvey - vocals and guitar solo)
+2. "Oh Wonder" (Mary Lou Lord - acoustic guitar and vocals)
+3. "Make It Happen" (Gordon Gano - vocals)
+4. "Don't Pretend" (John Cale - piano and vocals)(   Читать дальше...   )Жанр: Indie, Folk, AlternativeПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587740   (793104) от 06.04.2017
+
+Dead by April - 3 альбома (2009-2014) Дискография [FLAC|image+.cue]<Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Melodic MetalcoreПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F7F7C4BB4AB14CD6D071DC1DF8AB92BBEF691B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121587   (793133) от 06.04.2017
+
+Motley Crue, Vince Neil, Sixx:A.M., Tommy Lee - 44 albums and 11 singles (1981-2016) [MP3|320 Kbps] <Heavy metal, Glam metal, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году, является ярчайшим представителем этого жанра и одним из его стержней. Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, впоследствии к которым присоединились гитарист Мик Марс и вокалист Винс Нил. За историю Mötley Crüe было продано более 80 миллионов копий альбомов (   Читать дальше...   )1981 - Too Fast For Love
+1983 - Shout At The Devil
+1985 - Theatre Of Pain
+1987 - Girls, Girls, GirlsЖанр: Heavy metal, Glam metal, Hard rockПродолжительность: 53:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4498BD60828AF18AA8AD718CB2516F4551351B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123043   (793145) от 06.04.2017
+
+Smokie - Greatest Hits vol.1 & vol.2 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Back In The Arms of Someone
+02. Something's Been Making Me Blue
+03. If You Think You Know How To Love Me
+04. Looking Daggers  *(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EE95F26431BE5FDE56EF8189D4AD49449A32B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122876   (793172) от 06.04.2017
+
+Smokie - Greatest Hits vol.1 & vol.2 (2017) New Extended Version [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист Vol.1:
+01. Lay Back In The Arms of Someone
+02. Something's Been Making Me Blue
+03. If You Think You Know How To Love Me(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 02:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201B0425684EDD87372DB8BAEB93C1AD41814A34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122681   (793182) от 06.04.2017
+
+Адаптация - Radio Resistance (2017) [FLAC|lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Живой (03:58)
+02. Бищара-рай (04:07)
+03. Мой город будет стоять (03:45)
+04. Маяк над соломенным городом (03:12)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE605C7B10D51E02D0D12E28EEC0AF1E6B64F79E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051993   (793219) от 30.05.2020
+
+Geordie - 8 Albums, 1 Box Set (1973 -2016) 19 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Geordie - одна из немногих выдающихся рок-групп 70-х годов, которая за сравнительно короткий период своей творческой деятельности создала немало шедевров мировой рок-музыки, достойных внимания. Geordie вспоминают главным образом благодаря тому, что в её рядах начинал своё восхождение к славе нынешний вокалист AC/DC Brian Johnson, хотя банда изрядно пошумела (   Читать дальше...   )Список альбомов:
+1973 - Hope You Like It
+1974 - Don't Be Fooled By The Name
+1976- Save The WorldЖанр: Hard RockПродолжительность: 14:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E64B01A3A0C484CAC6D3DAC9339162F3C00A860D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123028   (793244) от 06.04.2017
+
+Dead By April - Worlds Collide (2017) [MP3|320 Kbps] <Melodic Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Over You
+02. I Can't Breathe
+03. Playing With Fire
+04. Warrior(   Читать дальше...   )Жанр: Melodic Modern MetalПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECD4FB9F2FDF63DBBB4D283910293E051EE9472
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123039   (793304) от 06.04.2017
+
+Вадим Самойлов - Слова закончились (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793304.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Слова закончилисьЖанр: RockПродолжительность: 00:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15749E89EEDA068B43B7DE9FDD5265D22155327
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122494   (793312) от 06.04.2017
 
 The Stone Foxes - Twelve Spells (2015) [MP3|320 Kbps] <Rock>
@@ -398,301 +687,6 @@ Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FD4CD0B73DBB718229F93AE842114DB06B4F252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386803   (793636) от 30.05.2020
-
-The Young Rascals - Groovin' (1967) Reissue, 2007, Collectors' Choice Music [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «The Young Rascals» запомнилась как одна из относительно немногочисленных белых групп середины 1960-х годов, которая исполняла жизнерадостную смесь задушевного ритм-энд-блюза и рок-н-ролла и при этом могла выдержать сравнение со своими афро-американскими соперниками. (Примечательно, что «The Young Rascals» была первой рок-группой на лэйбле «Atlantic».) К середине (   Читать дальше...   )Жанр: Rock, Pop Rock, SoulПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329317BC83D9F623C183A6ACABB799DB9F60F907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012506   (793638) от 01.05.2016
-
-Christie - Christie (1970) Reissue 1996 [APE|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow River
-02. Gotta Be Free
-03. I've Got A Feeling
-04. New York City(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D79EC2435E5C069BDF7E072D43690C30E0E2825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386356   (793641) от 30.05.2020
-
-Fats Domino - This Is Fats Domino! (1957) [FLAC|Lossless|tracks] <Rock, Blues, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueberry Hill (2:37)
-02. Honey Chile (2:00)
-03. What's The Reason (I'm Not Pleasing You) (2:15)
-04. Blue Monday (2:33)(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 00:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAB71C837A5724097141DE358C575F3799D5C92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386851   (793659) от 30.05.2020
-
-The Electric Prunes - I Had Too Much To Dream (Last Night) (1967) Reissue, 2000, Rhino Special Products [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793659.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Electric Prunes — американская группа, образовавшаяся в Лос-Анджелесе в 1965 году, исполнявшая экспериментальный гаражный/психоделический рок и считавшаяся в 1966—1970 годах важной частью калифорнийского андеграунда.
-Основными участниками первого состава были гитарист Кен Уильямс, певец Джеймс Лоу, барабанщик Майкл Уикли и бас-гитарист Мак Тьюлин (в числе музыкантов, (   Читать дальше...   )01. I Had Too Much To Dream (Last Night) (2:59)
-02. Bangles (2:29)
-03. Onie (2:43)
-04. Are You Lovin' Me More (But Enjoy It Less) (2:25)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EE08C34E171A99AE4839E61DA3130CF5085195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201075   (793702) от 23.01.2018
-
-Metallica - Load (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Load — вышел в 1996 г, за год ранее альбома01. Ain't My Bitch (5:04)
- 02. 2 X 4 (5:28)
- 03. The House Jack Built (6:39)
- 04. Until It Sleeps (4:28)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0038588459708516CDEB3FE4936A3CB4FDD92DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122875   (793707) от 06.04.2017
-
-SIG:AR:TYR - Beyond The North Winds (2008) [APE|Lossless|image + .cue] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793707.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. King Of The World (09:33)
-2. Beyond The North Winds (08:21)
-3. Pale Autumnal Moon (03:08)
-4. Under The Mountain (09:16)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E1A647190293E16291FE89DEBAEBF06CE06DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122873   (793708) от 06.04.2017
-
-SIG:AR:TYR - Godsaga (2010) [FLAC|Lossless|image + .cue] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793708.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nights All Nine (02:37)
-2. Midwinter Sacrifice (05:37)
-3. Blood of the North (07:35)
-4. Black Sun's Bane (05:02)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7772AE1C5637DBDDB1A4B64AC7525460733976E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122632   (793709) от 06.04.2017
-
-The Crest - Vain City Chronicles (2005) [WavPack|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Like Blazes (04:09)
-02. My War (04:00)
-03. Silent (04:19)
-04. Another Life (04:22)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8287649BF8BEC69C234B5F3C173FC5C01A039071
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122767   (793710) от 06.04.2017
-
-Cephalic Carnage - Misled by Certainty (2010) [FLAC|Lossless|image + .cue] <Technical Grindcore, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Incorrigible Flame 04:30
-02. Warbots A.M. 04:38
-03. Abraxas Of Filth 03:44
-04. Pure Horses 00:37(   Читать дальше...   )Жанр: Technical Grindcore, Death MetalПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F373A5A3683F460F4ACFDBACB51989F0E31DCE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122885   (793711) от 06.04.2017
-
-SIG:AR:TYR - Sailing The Seas Of Fate (2005) [WavPack|Lossless|image + .cue] <Epic Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dreaming of the Dawn (09:11)
-2. Frost on Dead Leaves (03:56)
-3. Under the Dragon Star (04:42)
-4. Snowborne (04:20)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9186D4B116EF3769DE06F192848600388ACFEA9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012435   (793730) от 01.05.2016
-
-YOAV - A Foolproof Escape Plan (2010) [FLAC|Lossless|tracks + .cue] <Indie, Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greed (04:33)
-02. Moonbike (03:38)
-03. Safety In Numbers (03:36)
-04. Yellowbrite Smile (03:46)(   Читать дальше...   )Жанр: Alternative, Indie, Pop, RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA833F246FDAE918C96C7E4C0C4C0D58265554E0
 ```
 
 

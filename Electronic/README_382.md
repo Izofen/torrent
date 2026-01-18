@@ -1,3 +1,57 @@
+###  Публикация: 1279871   (764542) от 31.01.2019
+
+Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Moments Pt. 1 (11:12)
+ 02. Infinite Moments Pt. 2 (11:24)
+ 03. Infinite Moments Pt. 3 (09:49)
+ 04. Infinite Moments Pt. 4 (05:50)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22DEC6273A3936A326F1E0FB50DB9C6541BB7E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126673   (764563) от 19.04.2017
+
+VA - Beautiful Lounge Collection Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loris Piron - Vibrant Offshore (Original Mix) 03:05
+02. L Like Lounge - Bun (Original Mix) 02:39
+03. The Channel - Casta (Original Mix) 04:09
+04. Behind The Trees - Send Me A Letter (Original Mix) 03:24(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2BBB688A245F3F84945BE5C85B5CDAE76AC36E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279749   (764591) от 31.01.2019
 
 Manet - Devour (2017) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Dark Jazz, Post Rock>
@@ -638,60 +692,6 @@ VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3440E4752ED92AB728327232152EA64EA1E308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126564   (765548) от 18.04.2017
-
-VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coxswain & Jane Fox - Everybody's Free (Jane Fox vocal mix)
-02. Tall, Handsome & Bubble Jack - See U
-03. Terry Lex - House Is My Passion
-04. Esteban De Urbina - Caminando Por Las Nubes(   Читать дальше...   )Жанр: HouseПродолжительность: 04:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9D80A9D725C4E2A8AD3635E52823BEBBED32C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126157   (765549) от 18.04.2017
-
-VA - Suanda Spring Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Attila Syah & LTN - Bromo (Original Mix)  6:30
-02.  Bogdan Vix & Lucid Blue - I Am Now (Original Mix)  6:24
-03.  Photographer - Infinity (Roman Messer Radio Edit)  3:29
-04.  Eranga & Mino Safy - Up To You (feat. Maria Milewska) (CubeTonic Remix)  5:19(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3354D83F5CD73B375AC48B508F4A71DDB4FB1859
 ```
 
 

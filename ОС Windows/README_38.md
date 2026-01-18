@@ -194,3 +194,111 @@ magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847839   (1052492) от 
+
+Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.7623 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Используется лаунчер от ФБ
+ru-ru_windows_11_business_editions_version_25h2_updated_dec_2025_x64_dvd_a8801117
+Установлены обновления по 14.01.2026(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E7556BC11CA314717BC0E02887CAF1BD55A8EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847837   (1052493) от 
+
+Windows 10 Pro/Ent by OneSmiLe 22H2 build 19045.6809 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Используется лаунчер от ФБ
+ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62c
+Установлены обновления по 14.01.2026 года включительно(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2084C44568719A002C1C6432D07490E898F22D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848259   (1052743) от 
+
+Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26] [Ru/En]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка создана на основе оригинальных файлов UUP.
+Магазин и Защитник не удален.
+Remote Desktop Server. Microsoft OneDrive удалено.
+DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5607D54DE560A3F44BCA1784CD4F2A86FA8188C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848391   (1052745) от 
+
+Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
+• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
+• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

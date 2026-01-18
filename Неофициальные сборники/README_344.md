@@ -1,3 +1,30 @@
+###  Публикация: 1302919   (575637) от 19.05.2019
+
+VA - Shazam Хит-парад Russia Top 200 Май (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billie Eilish - Bad Guy 3:14
+002. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17
+003. Ilkay Sencan - Do It 3:51
+004. Havana feat. Yaar - I Lost You 3:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06715D10546FCB93CDEA02439C029BBC176BD35D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 816186   (575645) от 19.05.2019
 
 VA - Blues and Rock Ballads (2014) [MP3|320 кб/с]<Rock, Blues>
@@ -662,33 +689,6 @@ VA - German Top 50 Official Dance Charts (22.08.) (2016) [MP3|320 Kbps] <House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2ABBB12771D0E9673C48F5844C43CF90F0E2266
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920520   (576789) от 24.07.2015
-
-VA - Best Of Rock 100 Hits (2015) [MP3|320 кб/с]<Thrash Metal, Funk Metal, Britpop, Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Colours Red - Nuclear Holiday
-02. 3 Colours Red - Sixty Mile Smile
-03. Alice Cooper - Hey Stoopid
-04. Alice Cooper - Poison(   Читать дальше...   )Жанр: Thrash Metal, Funk Metal, Britpop, Alternative RockПродолжительность: 06:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245C24DDA372497D34D180AEB107E5FC097ADED7
 ```
 
 

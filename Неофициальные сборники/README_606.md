@@ -1,3 +1,30 @@
+###  Публикация: 990390   (912325) от 25.02.2016
+
+VA - Avantgarde Chillout Vol 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slomo - Love on Twenty Three - Slow Mix [04:15]
+02. Bobsmithband - Lounge Up [05:10]
+03. Woltrax - Inside the Storm [01:33]
+04. The Soul Elephant - Fragile [04:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFC0CD4A1AEFB0D1990763DE32F5AF83F318610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990378   (912336) от 25.02.2016
 
 VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -688,33 +715,6 @@ VA - Beatport Vocal House: Electro Sound Pack #25 (2020) [MP3|320 Kbps] <Vocal H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1FA1F7965BCE9D34FA7D5FC19E20EB4316140C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367716   (914004) от 17.03.2020
-
-VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914004.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic Feat. Cathy Burton - Eternal (Original Mix)
-002. Danny Stephen & Astony - Piccadilly (Mbx Remix)
-003. Dj T.H. Ft Andromeda - Sands Of Time Feat. Andromeda
-004. Morgan Page & Matt - The Longest Road To The Ground(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 09:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D05F49767A8478817ABF09A194C21093E8680EF
 ```
 
 

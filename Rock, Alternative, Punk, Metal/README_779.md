@@ -1,3 +1,30 @@
+###  Публикация: 1560549   (517715) от 02.07.2022
+
+Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbps] <Progressive Rock, Experimental, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Population Three [06:51]
+02. Never Have [05:07]
+03. Love In The Past Tense [05:49]
+04. Harridan (Instrumental) [08:07](   Читать дальше...   )Жанр: Progressive Rock, Experimental, AmbientПродолжительность: 2 CD, 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01847CD59D9CF54E6721ADA74CC96AD0A112FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560748   (517719) от 02.07.2022
 
 Seether - Si Vis Pacem, Para Bellum (2020) 2CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Alt. Rock, Post-Grunge, Nu-Metal>
@@ -667,33 +694,6 @@ The Guess Who - The Future Is What It Used To Be (2018) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0613F60585E55E92690E15BF50819F04A80F7EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929711   (518398) от 20.08.2015
-
-P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am I Awake
- 02. This Goes Out To You
- 03. Rise Of NWO
- 04. Criminal Conversations (Feat. Maria Brink)(   Читать дальше...   )Жанр: Rap Metal, Nu MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E716275445F2E1253323475CDE980AFF370AE4DD
 ```
 
 

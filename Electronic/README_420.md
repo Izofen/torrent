@@ -1,3 +1,57 @@
+###  Публикация: 1385131   (797763) от 24.05.2020
+
+Deep Erotica - Love is in the Air. Making Love Music Background (2020) [MP3|320 Kbps] <Ambient, Easy Listening, Relax>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Purpose
+02. Faster Breathing
+03. All Night
+04. Beautiful & Sensual(   Читать дальше...   )Жанр: Ambient, Easy Listening, RelaxПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF47A5F5806787D9EFFA6F3966ABD1AF0C717320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385448   (797801) от 24.05.2020
+
+VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hajime Yoshizawa - Endless Bow (Jimpster Remix).flac
+02.Onda - Happiness Is Free.flac
+03.Blue Six - Love Yourself (Vincenzo & Basti Remix).flac
+04.Fusion Groove Orchestra - The Dream (Deep Dreamer Dub).flac(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385336   (797803) от 24.05.2020
 
 VA - Erotic Lounge Essential Summer (2020) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -639,60 +693,6 @@ VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122535   (798846) от 05.04.2017
-
-VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Karizma Duo - Stay With Me  3:48
-02.  Thom Cooper - Use Somebody  3:47
-03.  Shannon & Keast - Toxic  3:36
-04.  Meg Birch - Rude (Acoustic Version)  3:46(   Читать дальше...   )Жанр: Downtempo, Acoustic, InstrumentalПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE74843A48C69C4527148EE2B691E9F20000FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122591   (798847) от 05.04.2017
-
-Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Boy (3:28)
-02. Valley Of Kings (3:44)
-03. Midnight Rider (3:49)
-04. The Early Train (3:23)(   Читать дальше...   )Жанр: Electronic, New BeatПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DAF97D2F99C5160A13F6BFAAC60EF71C4A416F
 ```
 
 

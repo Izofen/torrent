@@ -1,3 +1,30 @@
+###  Публикация: 1295052   (624108) от 10.04.2019
+
+VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rammstein - DEUTSCHLAND
+002. Capital Bra - Cherry Lady
+003. Shindy - Affalterbach
+004. Eno - Blackberry Sky(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035890   (624378) от 18.07.2016
 
 VA - Любимая Музыка Для Твоей Тачки 50x50 (2016) [MP3|256 Kbps] <Рор>
@@ -698,39 +725,6 @@ VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B6596F613FBB962805496BA62C362B7DD0A152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461747   (630369) от 04.07.2014
-
-Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe - The Drunken Sailor
-02. Theo Vaness - Bad Bad Boys
-03. Ottawan - You're OK
-04. T.H.P. - Good To Me
-05. Doris D. & The Pins - Shine Up
-06. A La Carte - Ring Me, Honey
-07. Methusalem - The Black Hole
-08. Gepy & Gepy - Body To Body
-09. Gilla - Tom Cat
-10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 

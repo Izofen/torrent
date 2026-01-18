@@ -1,3 +1,30 @@
+###  Публикация: 56825   (587494) от 20.05.2022
+
+Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ванге́лис (греч. Βαγγέλης, англ. Vangelis, полное имя Эва́нгелос Одиссе́ас Папатанаси́у, греч. Ευάγγελος Οδυσσέας Παπαθανασίου; род. 29 марта 1943, Волос) — греческий (   Читать дальше...   )Список альбомов:
+1971 - Fais Que Ton Reve Soit plus Long Que La Nuit
+1971 - The Dragon
+1977 - Ignacio(   Читать дальше...   )Жанр: New AgeПродолжительность: 09:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F22EFD9E261483613E0B2C2ECE5CD70243214F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552255   (587626) от 20.05.2022
 
 Giovanni Marradi - The Best of Giovanni (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
@@ -668,33 +695,6 @@ Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548349   (594731) от 05.05.2022
-
-Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasteland [00:03:40]
-02. Ship Will Sail [00:03:40]
-03. Party Like a Pirate [00:02:43]
-04. After the Rain [00:03:27](   Читать дальше...   )Жанр: Folk Punk, Sailor Punk, CelticПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F1EE339740FB671B46B4DBB47D271B2E777197
 ```
 
 

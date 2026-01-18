@@ -1,3 +1,111 @@
+###  Публикация: 1151762   (570751) от 20.07.2017
+
+Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Friends [04:21]
+02. How About You? [05:21]
+03. Darn That Dream [05:00]
+04. Anthropology [04:04](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE86B081B30CD93F8E101654355EA5B3924CAEF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303644   (570829) от 22.05.2019
+
+Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570829.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dancin' on My Own (03:35)
+2. Someday My Prince Will Come (03:30)
+3. Cara Valente (04:13)
+4. Like That (04:40)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67256B931BECBC9ECDE1974D1106962D6FAC4342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151760   (570832) от 20.07.2017
+
+The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is There To Say [04:08]
+02. Just In Time [04:15]
+03. News From Blueport [05:08]
+04. Festive Minor [06:18](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B152453A894C4641B1C251F13025185030D6DAEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151773   (570834) от 20.07.2017
+
+Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises [03:35]
+02. Parting Is Such [07:26]
+03. I've Got Rhythm [03:35]
+04. A Thing of Beauty [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE6D08F25A87CD1649E2644A3CB403F40EF4B98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303680   (570963) от 22.05.2019
 
 Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -612,114 +720,6 @@ Nina Lynn - 2am Kinda Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DF34D595756A7DBA9BF666CD061EEF33A8C7F06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234232   (572814) от 04.07.2018
-
-Bill Charlap Trio - Uptown, Downtown (2017) Impulse [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curtains [7:00]
-02. Spring Can Really Hang You Up the Most [7:55]
-03. Uptown Downtown [6:00]
-04. The One I Love Belongs to Somebody Else [5:01](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD2D695ABDDFB8D61B250741C88F82663771476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043292   (572843) от 16.08.2016
-
-Andrea De Luca - Andrea De Luca Blues Trio (2016) [FLAC|Lossless|image + .cue] <Guitar Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow Wind Blow - 2:50
-02. Good Morning Little Schoolgirl - 3:30
-03. Back to Life - 4:21
-04. Alone - 3:18(   Читать дальше...   )Жанр: Guitar BluesПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FD88E69C91E39E261DEEF7F5CC47A83688C8A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303444   (572856) от 21.05.2019
-
-Vivian Vance Kelly - Chicago Here I Come (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Blues Woman
-2 - People In My Business
-3 - Four Corner Room
-4 - Husband Cheating On Us(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68E6300087C7FC36E602BB7B3BDFDD15444F3D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303525   (572883) от 21.05.2019
-
-Marc Cohn - Walking in Memphis (2019) [MP3|320 Kbps] <Soft-Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Walking In Memphis
-02 – True Companion
-03 – Far Away Nearby
-04 – Blow On Chillywind(   Читать дальше...   )Жанр: Soft-Rock, SoulПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F0AE2D5CCB2CB8AA31ADEEFE9D030BD1728CA64
 ```
 
 

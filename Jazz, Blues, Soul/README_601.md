@@ -1,3 +1,246 @@
+###  Публикация: 1453351   (1026911) от 11.03.2021
+
+VA - Swamp Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Hooper - City Blues - [3:53]
+ 02. Patrick Mcmanus, Essey Smith - Too Good - [2:16]
+ 03. Robert Styles - Swampy - [2:22]
+ 04. Sergey Kolosov, Ross Gidney - Soul Sister - [2:10](   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A9306D749F907A9F12071652D812B7410F565C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453553   (1026977) от 11.03.2021
+
+Willie ''The Lion'' Smith - 1950 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between the Devil and the Deep Blue Sea [2:47]
+02. I Can't Give You Anything But Love [2:42]
+03. Just One of Those Things [2:51]
+04. Madelon [2:51](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5E602183CF02C4E54D5ADE0D35913C8D39CDA85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453177   (1027043) от 10.03.2021
+
+Harvey Mandel (Snake) - Best of the Janus Years (2020) [MP3|320 Kbps] <Blues Rock, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Batter (03:41)
+ 02. Shangrenade (04:15)
+ 03. Feel the Sound (06:01)
+ 04. What the Funk (03:05)(   Читать дальше...   )Жанр: Blues Rock, Jazz RockПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:125DFBE5101A60DD159EBF524B59CBBD36575C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453251   (1027114) от 10.03.2021
+
+Bud Powell - How High The Moon (1992) Pigeon [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon [3:58]
+02. Body and Soul [6:07]
+03. Satin Doll [4:46]
+04. Parisian Thoroughfare [1:58](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A972E8C39EC3A6ACCDDBD3786F4996CD2E589277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453089   (1027115) от 10.03.2021
+
+Willie ''The Lion'' Smith - 1944 - 1949 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woodland Fantasy [2:53]
+02. Let's Mop It [2:53]
+03. Muskrat Ramble [2:46]
+04. Bugle Call Rag [2:52](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD71F219C2891B7887F4295D26CF7ED6E77227F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452882   (1027233) от 09.03.2021
+
+Angelo Comincini - Misteri Architettonici (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock,  Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027233.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nessuno sa cosa c'è in tutte le case del mondo. 5:11
+2. Le dinamiche dei sentimenti. 3:51
+3. Profondità marine. 3:11
+4. Deformazioni razionali. 3:02(   Читать дальше...   )Жанр: Fusion, Jazz-Rock,  Nu JazzПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9C74B97A1A69FC543E4DFF748490AA71CA382A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452688   (1027343) от 08.03.2021
+
+Mojo Mafia - Looking for Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking for Redemption (3:35)
+02. You Better Be Gone (3:43)
+03. Don't Leave Me This Way (4:59)
+04. Ten Miles (3:45)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F920C8D85C8EA3CE4A66955B36F8A4FAC93983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452687   (1027347) от 08.03.2021
+
+Georgia Van Etten - Deep Black Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - Take Me Down (1:20)
+02. Deep Black Water (4:31)
+03. Emma Lee (4:08)
+04. Oh Mother (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3F29CC755DCFB1CA603E9A2839264535CDD098
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452692   (1027355) от 08.03.2021
+
+Sea Mouse - Tropical Fish (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rutherfords (3:13)
+02. Vogons (3:50)
+03. Kickin' (5:06)
+04. Car Smasher (2:56)(   Читать дальше...   )Жанр: Modern Blues RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A7A8206EF8587AEA41DD0804B0BC36CDD997C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452684   (1027410) от 08.03.2021
 
 Earl Thomas and Moligan - Cold Ghetto (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -452,249 +695,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7CA7E4D007AAF627561F800F6571B334425E576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451674   (1028251) от 03.03.2021
-
-Tony Coleman - Out In The Open (1996) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is The Life (4:39)
-02. Why You Wanna Do Me Like That (3:54)
-03. Out In The Open (3:54)
-04. Talkin' 'Bout The Blues (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51447FD0AEB7FAA029211D8064EEA1CF2B3ABF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451462   (1028384) от 02.03.2021
-
-Ricky Ford - Ebony Rhapsody (1990) Candid [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebony Rhapsody [9:19]
-02. Mon Amour [6:47]
-03. Indeoendence Blues [7:37]
-04. Mirror Man [5:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7DA1C7BDA2A9A87F165A1C87DC1DA1FCA573C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451258   (1028474) от 01.03.2021
-
-The Blues Side - The Blues Side (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake My Head (3:13)
-02. Got a Beautiful House (2:31)
-03. Put the Phone Down (3:05)
-04. You Don't Know What You've Got (3:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF11FADFF26F6E8DF6C715422CCD17992F2CA69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451259   (1028481) от 01.03.2021
-
-The Nova Hawks - Redemption - Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (4:03)
-02. Redemption (4:53)
-03. Dusty Heart (3:55)
-04. Witxh (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E938D8628455DC558922E5F1DBEEB24AD895224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451264   (1028482) от 01.03.2021
-
-Uncle Albert - Slip in Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Roses (3:04)
-02. In the Middle of the Night (3:34)
-03. Who's Cryin' Now (3:11)
-04. Telephone (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66680EC23F8BE9A8D57BD7FCD57645FC2373AA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451262   (1028483) от 01.03.2021
-
-The Peanuts - There Will Be Blues - There Will Be Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery (5:33)
-02. Such a Loon (6:59)
-03. Words Untold (5:23)
-04. Brittany (8:27)Жанр: Blues RockПродолжительность: 00:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE47BE24DB23591C292B2B682E5ECCD80F03E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451265   (1028491) от 01.03.2021
-
-Will James & The Boots - The Age of Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Q Blues (5:46)
-02. 6 UP (5:29)
-03. Caution (4:29)
-04. Gone Express (5:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D4A56C5629315B9D38942CD24EF3D0E93EB7CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451266   (1028542) от 01.03.2021
-
-VA - Harmonica Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonny Terry - Crow Jane - [3:51]
- 02. Buddy Guy and Junior Wells, Buddy Guy, Junior Wells - Checking up On My Baby - [5:39]
- 03. Big Walter Horton - Can't Hold Out Much Longer - [2:52]
- 04. The Paul Butterfield Blues Band - Screamin' - [4:37](   Читать дальше...   )Жанр: BluesПродолжительность: 01:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BBBC602C1E56AFD38527B71DB9B53624D2EF12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451192   (1028569) от 01.03.2021
-
-Red Nichols - 1930 - 1931 (2008) Classics [FLAC|Lossless|tracks + .cue] <Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Revival Day - Part 1 [2:40]
-02. On Revival Day - Part 2 [2:39]
-03. Embraceable You [3:09]
-04. I Got Rhythm [2:56](   Читать дальше...   )Жанр: Swing, New Orleans JazzПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1D0BA95B87DA81CECC84EC71A879209842BEB0
 ```
 
 

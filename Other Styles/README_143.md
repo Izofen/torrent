@@ -1,3 +1,30 @@
+###  Публикация: 1007836   (814834) от 18.04.2016
+
+Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #1 11:21
+2. #2 04:09
+3. #3 07:28
+4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117860   (814918) от 24.03.2017
 
 John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
@@ -663,33 +690,6 @@ Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3458B877352BB3B8044DDFF4DAF1F745B0A0A3F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382495   (818687) от 11.05.2020
-
-Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Fingerstyle, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Road
-02. Song for a Rainy Morning
-03. Angelina
-04. Luttrell(   Читать дальше...   )Жанр: Fingerstyle, Acoustic GuitarПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
 ```
 
 

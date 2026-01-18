@@ -1,3 +1,294 @@
+###  Публикация: 1205390   (783771) от 09.02.2018
+
+Sixgun Renegades - Sixgun Renegades (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Renegade (4:59)
+ 2. My Way or the Highway (3:23)
+ 3. Unbreakable (4:12)
+ 4. Lost and Found (6:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E4DF4CD781C3CCF507B293897AE8A6B55C0B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389763   (783894) от 12.06.2020
+
+Мумий Тролль - Лето без интернета (2020) Maxi-Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мумий Тролль - Лето без интернета
+2. iX - Off the Grid
+3. SHEEP - Summer
+4. Carnaval Youth - Vasara bez internetiem(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FD33AEB90FB5ACD0949B9CC3249F9A465EB395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389654   (783902) от 12.06.2020
+
+Найк Борзов - Капля Крови Создателя (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не предел
+02. Слышу тьму
+03. Фрагмент
+04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4838D63D2A18CE1A1AE69956E14F2F00395A269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389765   (783909) от 12.06.2020
+
+Найк Борзов - Капля Крови Создателя (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не предел
+02. Слышу тьму
+03. Фрагмент
+04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD62684E7B52AFB29FA8207DADAA8E27E6D45F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389796   (783920) от 12.06.2020
+
+Chris De Burgh - The Getaway (1982) A&M 394929-2 [FLAC|Lossless|image + .cue]<Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pay The Ferryman (3:49)
+ 02. Living On The Island (3:31)
+ 03. Crying And Laughing (4:34)
+ 04. I'm Counting On You (4:28)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3E5ED7193F4A17F745C16484AD01DA8E512FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389773   (783926) от 12.06.2020
+
+Гнилой Район - Эпоха Возрождения (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783926.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новая сага
+2. Безответная любовь
+3. Прощание с любимой
+4. Девушка моей мечты(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151072C0CE9440762CB37000D7B6672702CE3FB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389648   (783934) от 12.06.2020
+
+Echo & The Bunnymen - Ocean Rain (1984) Remastered, 2003, Warner Strategic Marketing [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Echo & the Bunnymen (Эхо-энд-зэ-Баннимэн) — британская рок-группа, образовавшаяся в 1978 году в Ливерпуле, Англия, и исполнявшая мрачный постпанк с психоделическими мотивами, отмеченный чувственным вокалом фронтмена Иэна Маккаллоха, его же поэтическими экспериментами, а также гитарным минимализмом Уилла Сарджента, обладавшего способностью из минимума составляющих (   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18C5F29136296004B6AA95735189C6C6EF7A3BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193699   (784005) от 08.02.2018
+
+Агата Кристи - Где-то между (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Где-то междуЖанр: RockПродолжительность: 00:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44CE592C1DF04FCD6287694CF117F2E4976C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205166   (784035) от 08.02.2018
+
+Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn From Heaven
+02. Where Will You Go?
+03. Through Dust, Through Rain
+04. Signs Are Here(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204917   (784045) от 08.02.2018
+
+Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский бас-гитарист, гитарист, вокалист, автор песен и продюсер, наиболее известный как участник King Crimson и супергруппы Emerson, Lake and Palmer. Грег Лэйк (Greg Lake) родился 10 ноября 1947-го года в городе Борнемут. У него характерный тембр голоса и свой стиль игры на гитаре. Лейка считают одним из крупнейших талантов британской сцены прогрессивного рока (   Читать дальше...   )--------------------------
+
+01. Money Talks  (3:34)
+02. Love Under Fire (5:21)(   Читать дальше...   )Жанр: Rock, Hard Rock, Progressive Rock, Art Rock |Продолжительность: 08:49:24 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16F02F83591FDAC93A66B24EE22C65C9FB2A07D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205115   (784048) от 08.02.2018
+
+David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Life
+02. Every Third Thought
+03. Maybe I Can’t
+04. Stranger in the Sacred Heart(   Читать дальше...   )Жанр: Rock, Singer-SongwriterПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA421909A540A5F28D2F1F119D5D356CE5F758F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204930   (784051) от 08.02.2018
 
 MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie, Electronic>
@@ -398,303 +689,6 @@ Mary Magdelena and the Crimes of Passion - Set the Controls - A Unique Tribute t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BD5D4CEFC1FEC49252EE9AFEA7FF5410C38156D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389265   (784496) от 10.06.2020
-
-Think Floyd - 2 альбома (1997-2013) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Brain Rape
-03. The Circle
-04. If I Had Power(   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0144440A12825379A9D4B3201B2F8E550239FFE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389220   (784581) от 10.06.2020
-
-The Dears - Lovers Rock (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of An Animal (04:53)
-02. I Know What You're Thinking And It's Awful (03:50)
-03. Instant Nightmare! (03:38)
-04. Is This What You Really Want? (03:30)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26154DE220634DF3BA8B40059A41CB3BD005217C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389285   (784591) от 10.06.2020
-
-BPMD - American Made (2020) [MP3|320 Kbps] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wang Dang Sweet Poontang (03:35)
- 02. Toys in the Attic (03:20)
- 03. Evil (03:13)
- 04. Beer Drinkers & Hell Raisers (03:44)(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC1F38578D7306A2FDC2517BEF238ED4FB3AEE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204440   (784609) от 06.02.2018
-
-Гарик Сукачев и Неприкасаемые - Фронтовой альбом (2001) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Солнечный зайчик (П.Тодоровский)
-02. Вторжение (П.Тодоровский)
-03. 22 июня (Е.Петерсбургский - сл.народные)
-04. Intro (П.Тодоровский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1504E0CB190D8301BB478C367E705218FD1B320B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204461   (784628) от 06.02.2018
-
-VA - Rock Around The Clock (2008) Box Set, Limited Edition [FLAC|Lossless|image + .cue] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784628.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1.	Bill Haley And His Comets -	Rock Around The Clock
-2.	Buddy Holly -Peggy Sue
-3.	Carl Perkins -Roll Over Beethoven(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 02:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B2CA2B706A900A7A3D77A15750DD830287BA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204594   (784643) от 06.02.2018
-
-Black Label Society - Grimmest Hits (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trampled Down Below (5:02)
-02. Seasons Of Falter (4:01)
-03. The Betrayal (3:48)
-04. All That Once Shined (3:55)(   Читать дальше...   )Жанр: Heavy Metal, Southern RockПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCBA43DDBDC0B8E460C04309C7A804BBBB8CF97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204652   (784665) от 06.02.2018
-
-Behemoth - Amen (2017) Promo CD [MP3|320 Kbps] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludzie Wschodu (Siekiera-Cover)
-02. Chant For Ezkaton 2000 E.V. (2008 version)
-03. Qadosh
-04. Furor Divinus (Live)(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6577BF58B6D787611819DD660EB1C2CB01D1AA30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389102   (784758) от 09.06.2020
-
-THINK PINK! - A Saucerful Of Pink Floyd Songs .... And A Little Bit More! (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money
-02. Another Brick In The Wall (Part 2)
-03. Wish You Were Here
-04. Shakin’ Hands(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC482F8FD2C6C89FC21B722CE910BC082E583CBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388925   (784779) от 09.06.2020
-
-Palaye Royale - The Bastards (2020) [MP3|320 Kbps] <Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Bastards (03:38)
- 02. Massacre The New American Dream (03:06)
- 03. Anxiety (03:15)
- 04. Tonight Is The Night I Die (02:52)(   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C80B897C21777D6CBE2407DFD3EEF2D56B490D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204356   (784837) от 05.02.2018
-
-Fleetwood Mac - Fleetwood Mac (1975) 3CD + DVD + 1LP Box Set, Super Deluxe Edition, 2018, Reprise Records [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monday Morning (2:49)
-02. Warm Ways (3:54)
-03. Blue Letter (2:41)
-04. Rhiannon (4:10)(   Читать дальше...   )Жанр: Rock |Продолжительность: 03:27:05 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC8E61B8E969BA814F017E3EA1B3ED5A6429E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204326   (784861) от 05.02.2018
-
-Stone The Crows & Maggie Bell - 9 альбомов, 11 CD (1969-2009) [FLAC|Lossless|image + .cue | tracks + .cue] <Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone the Crows - незаслуженно забытая сильнейшая блюз-роковая группа начала 70-х, была создана в конце 60-х в Глазго (Шотландия) гитаристом Лесом Харви (младшим братом Алекса Харви) и певицей Мэгги Белл, к которым присоединились поющий бассист Джимми Дьюар, клавишник Джон МакГиннис и ударник Колин Аллен (игравший до этого у Джона Мэйолла). Эта группа называлась (   Читать дальше...   )Список альбомов:
-1969 | Stone The Crows
-1970 | Ode To John Law
-1971 | Teenage Licks(   Читать дальше...   )Жанр: Rock, Classic Rock, Rhythm and Blues, Blues Rock |Продолжительность: 08:41:20 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A096050A6A7816D5200703BA220CBB00134C44
 ```
 
 

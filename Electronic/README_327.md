@@ -1,3 +1,57 @@
+###  Публикация: 1291455   (646808) от 29.03.2019
+
+VA - Finest Luxury Spa Music (2019) [MP3|320 Kbps] <Chillout, Relax, Smooth Jazz, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - The Flow (Pearldiver Ambient Chill) 3:49
+02. Lemongrass - River Of Life 6:20
+03. Alex Cortiz - And Rising 2:49
+04. Schwarz & Funk - Caribean Sunset 5:28(   Читать дальше...   )Жанр: Chillout, Relax, Smooth Jazz, LoungeПродолжительность: 01:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E30B3D1A9CB756A4AEF5DC4B05FA5A3DCE33B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292371   (646817) от 29.03.2019
+
+VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Full Fire Mix) 5:38
+02. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Club Mix) 6:01
+03. Photographer & Abstract Vision - Zero Gravity (Roman Messer Extended Remix) 6:00
+04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix) 5:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3997BE5DFC972842C9838AC6313C4418C118334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141777   (646840) от 12.06.2017
 
 VA - Chill Out Selectionc Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -644,60 +698,6 @@ Her - Her (2018) [MP3|320 Kbps] <House, Alternative Rock, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926A949EF5560E8F78069D1F965E3FC471FCBB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291954   (648636) от 28.03.2019
-
-Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostromosis - Challenging Evil (09:57)
-02. Nostromosis - Liel (09:28)
-03. Nostromosis - Through The Thorns To The Stars (09:00)
-04. Nostromosis - Space Shuttle Nostromo (08:04)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DD0D1FAF07286B8B7199F95E26ACBF5B427891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292176   (648640) от 28.03.2019
-
-Bella Technika - Section (2019) PDV Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave, Dub, Psychedelic Rock>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Control (5:17)
- 02. Perhaps (3:58)
- 03. Flowers (3:43)
- 04. Rocking Chair (4:08)(   Читать дальше...   )Жанр: Electronic, Synthwave, Dub, Psychedelic RockПродолжительность: 00:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED91AE044E3D3BFA27388AECCCB1E84D088EAB00
 ```
 
 

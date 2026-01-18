@@ -1,3 +1,30 @@
+###  Публикация: 1237137   (552521) от 23.07.2018
+
+Brother Jack McDuff - The Best Of The Concord Years (1992 - 2001) 2CD, 2003, Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552521.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cold Duck Time [5:18]
+02. Blooze in G [8:50]
+03. Pork Chops & Pasta [7:16](   Читать дальше...   )Жанр: Soul Jazz, Hard BopПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A67FAAD3C133798F24368778DBBBAF31C44597
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236977   (552522) от 23.07.2018
 
 Christian McBride Trio - Out Here (2013) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -666,33 +693,6 @@ Travis Bowlin - Secundus (2018) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16EBFCF84A8E30599B1010E413E911A4E9866934
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307813   (554517) от 12.06.2019
-
-Horace Tapscott Quintet - The Giant Is Awakened (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Giant Is Awakened [17:28]
-02. For Fats [2:24]
-03. The Dark Tree [7:04]
-04. Niger's Theme [11:58]Жанр: Avant-Garde JazzПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DC8A226F8EFD1DA6827BDA1AF13B72867A892C
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1122111   (799259) от 04.04.2017
+
+VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vintage & Morelli ft. Arielle Maren - Awaken (Extended Mix)  7:49
+02.  Shingo Nakamura - The Four (Yuji Ono Remix)  5:53
+03.  LTN & Roni Joni - In Between (Sound Quelle Remix)  5:48
+04.  Gregory Esayan - Make a Wish (eleven.five Remix)  7:18(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B277A1D774C38BC7DE6785E70353EA0F6916E57E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121972   (799260) от 04.04.2017
+
+VA - Relaxing Beach Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ronner T - Belfast  5:44
+02.  Rudegroove - Sinergy  5:16
+03.  Rico Bonetti - Just Chillin'  3:08
+04.  Steven Moses - Call Me Now (Fresh & Martin's Chillout Mix)  2:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30045D7CE016CEC65EA44AD087B53AF8E2CC599D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273663   (799346) от 03.01.2019
 
 VA - Psychedelic Goa Trance 2019: Best of Top 40 Electronic Dance Acid Techno Hard House Rave (2018) [MP3|320 Kbps] <Psy-Trance, Psychedelic, GOA>
@@ -641,60 +695,6 @@ VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199735   (800417) от 17.01.2018
-
-VA - Electronic Bliss (25 Beautiful Relaxed Anthems) Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  George Vougioukas  -  Koi-961 (Original Mix)  3:26
-02.  Jazzamor  -  Lullaby (Original Mix)  5:27
-03.  Peter Pearson  -  Moonlight Reflections (Original Mix)  6:08
-04.  Marcus Koch  -  Space Walk (Original Mix)  4:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A11C74328DE2F54FE05813458062407F459D8B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199790   (800418) от 17.01.2018
-
-Patrick Bernard - Divine Grace Divine (2017) [MP3|320 Kbps] <New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiva Shakti Mantra 07:19
-02. Moksha Dharma Mantra 06:51
-03. Namaste Gita Mantra 07:16
-04. Sita Ram Hanuman Mantra 07:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB25F0851011E207D0BD932E24691CAB9E816769
 ```
 
 

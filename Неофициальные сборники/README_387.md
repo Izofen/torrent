@@ -1,3 +1,30 @@
+###  Публикация: 1033793   (634238) от 13.07.2016
+
+VA - The Best - In Music We Trust Vol.2 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. W&W & Hardwell feat. Lil Jon -  Live The Night (Extended Mix) 4:34
+002. Scooter -  Mary Got No Lamb (Extended Mix) 4:24
+003. Armin Van Buuren ft. BullySongs -  Freefall (Extended Mix) 4:03
+004. Armand Voltage -  Go!! (Original Mix) 5:08(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C55B3A92EF18C93D8C141F7522BE7D0CE21092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034330   (634305) от 13.07.2016
 
 VA - Velvet Moonlight: Relax Partiture (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -683,33 +710,6 @@ VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293681   (635662) от 04.04.2019
-
-VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies feat. James Blunt - Melody (Ofenbach Remix) (2:48)
-02. Embody - I Miss You (2:56)
-03. LUxCA - Little Girls (3:11)
-04. Stereoact & Jaques Raupe feat. Peter Schilling - Terra Titanic (Anstandslos & Durchgeknallt Remix) (2:59)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBA6A681EBC1CFCCDEFAFB3157ED44934D6944C
 ```
 
 

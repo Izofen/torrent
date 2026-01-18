@@ -1,3 +1,57 @@
+###  Публикация: 1396121   (748408) от 14.07.2020
+
+The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years (prologue) (6:09)
+02. Gloria (4:50)
+03. WeMoveForward (8:08)
+04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 11:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFCC64AA2E4344A8F7188E494372AB659753883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281936   (748424) от 10.02.2019
+
+VA - I Love Chill Vol. 4 (Finest Ambient Lounge And Chillout Music) (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Mystic Love 4:43
+02. Jean Mare - Moments In Paradise (Morphing Thru Time Mix) 4:49
+03. Buddhatronic - Human (Whispering Cut) 3:46
+04. Aqualuna - New Love (Spheric Chillout Mix) 4:44(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578E1D85D1ED454F4A3510C7F1AFE795DEDDC172
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281961   (748430) от 10.02.2019
 
 Côte Déserte (Cote Deserte) - Strange To Look At Her. It Seems That... (2014) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Soundscapes, Experimental>
@@ -638,60 +692,6 @@ VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216439   (751362) от 30.03.2018
-
-VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)
-02. Tranceye - When The Sun Goes Down (Miroslav Vrlik Radio Cut)
-03. Cold Rush - Bullet (Radio Edit)
-04. Rene Ablaze - Autumn 2015 (Miroslav Vrlik Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26770F36F868C16A140575D0EF8C829CA87C2B99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281491   (751492) от 08.02.2019
-
-Нейромонах Феофан - Ивушка (2019) EP [MP3|320 Kbps] <Drum & Bass, Electronic>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751492.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ивушка
-2. Намело
-3. Красна девица
-4. ДурьЖанр: Drum & Bass, ElectronicПродолжительность: 00:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC9FDFF9413967A5A910F8FB52945CAB1EA178F
 ```
 
 

@@ -1,3 +1,246 @@
+###  Публикация: 1615491   (1037598) от 26.02.2023
+
+Freddie Hubbard & The New Jazz Composers Octet - On The Real Side (2008) Four Quarters [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifeflight [8:44]
+02. Up Jumped Spring [7:08]
+03. Theme for Kareem [6:35]
+04. On the Real Side [6:26](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BCCDCF9EF3BF674FB82ABE5A35DA9339654EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441364   (1037821) от 21.01.2021
+
+Junior Mance - Straight Ahead! (1964) 2011, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In a Mellow Tone [2:33]
+02. Hannah Strikes Again [1:46]
+03. Li'l Darlin' [4:55]
+04. Diane [2:47](   Читать дальше...   )Жанр: Hard Bop, Big Band, Piano JazzПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D21422DF6859BC77E0782DBDAEA1A6B2AE95E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441103   (1037947) от 20.01.2021
+
+Bonny B - Bonny B. & the Jukes (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Going Home (5:49)
+02. One String Is Enough (5:11)
+03. Trust Yourself (5:33)
+04. Father (7:57)(   Читать дальше...   )Жанр: Blues HarmonicaПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EAD0FD05A3B76445A37BAC601E39AD6D1CFEFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441105   (1037970) от 20.01.2021
+
+Brandon Trickey - Ruby Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruby Meredith (3:43)
+02. Drama Queen (3:32)
+03. Telephone (3:40)
+04. More Than Friends (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D005CEF6EA8282A3B04D9C4BEDED56B1BD85000C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441107   (1037973) от 20.01.2021
+
+Kung Botes Kapell - Botemedel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On A Roll (3:30)
+02. Reminder (2:48)
+03. Countryside Sunrise (2:43)
+04. Cool Organ (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C8C962D6E27449B6887D69B421D78EC3021E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441098   (1037975) от 20.01.2021
+
+Morblus - I Feel Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Electricblues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle Night (4:31)
+02. I play my blues (4:53)
+03. Guitar's Talking (4:16)
+04. Lump Sugar (2:43)(   Читать дальше...   )Жанр: ElectricbluesПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA47B3353B06CEABACB5D94D0AC40769CB76FAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441099   (1037977) от 20.01.2021
+
+Alan Arena - Fortune Wheel (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Crossroad (3:32)
+02. Flower Girl (3:22)
+03. Fortune Wheel (2:59)
+04. Rise and Shine (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9D021753EDF8953623D1689E3AFCE0BD0D785D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441113   (1038022) от 20.01.2021
+
+The Steepwater Band - Turn of the Wheel (2020) [MP3|320 Kbps] <Вlues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn of the Wheel (03:38)
+ 02. Trance (04:29)
+ 03. Running from the Storm (03:14)
+ 04. In the Dust Behind (03:37)(   Читать дальше...   )Жанр: Вlues Rock, RockПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582ABFF8DD228AAB83732465B4A4BF1835FD4629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441109   (1038025) от 20.01.2021
+
+Leon Laudenbach - Split N Half (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried My Guitar (4:04)
+02. Jungle Gym (4:52)
+03. Lepers and Jelly Beans (6:04)
+04. One Hundred Different Ways (3:05)Жанр: BluesПродолжительность: 00:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E742B5DBB1E451FD2D280935ED0F65B51ECF55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441008   (1038049) от 20.01.2021
 
 The Hot Sardines - Shanghai'd (2011) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Oldies>
@@ -452,249 +695,6 @@ Tony Brook - Alabama Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54F6952D960C485922EF8F77EC5ECF4820D3FAF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614436   (1038605) от 22.02.2023
-
-Jeremy Pelt - Men Of Honor (2010) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backroad [6:47]
-02. Milo Hayward [4:52]
-03. Brooklyn Bound [5:40]
-04. Danny Mack [6:57](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035639A5F3CD7F71A97FA5E9811765978A7DDEA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614438   (1038608) от 22.02.2023
-
-Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly as in a Morning Sunrise [17:51]
-02. I Love You [9:18]
-03. Thermo [12:57]
-04. Little Sunflower [16:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C615F642CF881F8CB3FEF878A7B92DDFA7AF4F3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614437   (1038609) от 22.02.2023
-
-Charles Mingus - East Coasting (1957) 1986, Bethlehem Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of You [4:28]
-02. East Coasting [5:14]
-03. West Coast Ghost [10:34]
-04. Celia [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50AA8578A34612F94297D87BF7CE0335F5B6EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440227   (1038737) от 17.01.2021
-
-Andy Lindquist - Blues Soul Groove (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By the Foot of John Lee (4:23)
-02. Blues Soul Groove (3:23)
-03. That's Where I Born My Blues (3:09)
-04. Bygone Blues (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659FA55497466FB4244886B3E77B23EEC59A2337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102477   (1038817) от 21.02.2023
-
-Ray Brown - I'm Walking (1998) JVC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm Walking [05:16]
- 02.Couch Potate Blues [02:46]
- 03.Time After Time [06:31]
- 04.Drum Feature [04:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE9271EE8274303B008D754F10065E6A024533D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976236   (1038818) от 21.02.2023
-
-Helen Merrill - Sings Screen Favorites (1968) 2004, JVC[FLAC|image+.cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Three Coins In The Fountain [03:27]
- 02.To Love Again [03:19]
- 03.Theme From 'Picnic' [03:24]
- 04.The Third Man Theme [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0724FC8997D475CF10FC7877F3DC11415B0719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614317   (1038825) от 21.02.2023
-
-Imperial Crowns - The Calling (2016) [FLAC|Lossless|image + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Right (3:16)
-02. The Calling (3:41)
-03. Grace Under Pressure (5:04)
-04. Wasn't Love At First Sight (4:37)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425955931A5E36BDF1E5ECD42F4DD272497E9110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440419   (1038855) от 17.01.2021
-
-Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Your Lover Has Gone (stereo) [2:32]
-02. A Cottage for Sale (stereo) [2:59]
-03. Who's Sorry Now? (stereo) [2:59]
-04. Once in a While (stereo) [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDB8B211C330F2B4286DB3854D4FCF8BB357890
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440233   (1038992) от 16.01.2021
-
-Brad Palmer - Street Sessions Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risin' Moon (5:04)
-02. 'Bout the Break of Day (6:26)
-03. Catalina (6:32)
-04. Won't Let the Blues (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4544D69B91E6296BC10573F62E48C4BFEBE60476
 ```
 
 

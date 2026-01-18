@@ -1,3 +1,30 @@
+###  Публикация: 1047413   (549251) от 30.08.2016
+
+VA - 100 Dance Vol.2 (2016) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549251.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flechette - Fallback
+002. Ostblockschlampen feat. Abaz & Talina Rae - Echo
+003. Wlady - Ginevra (Radio Edit)
+004. Bassjackers feat. Luciana - Fireflies (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28EBE4798AB0751244310BD6F33A7FB39B3BFB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047559   (549256) от 30.08.2016
 
 VA - Groove Moonshine Lightings (2016) [MP3|251-320 Kbps] <Club, Funky, Tech, Soulful, UK Garage>
@@ -668,33 +695,6 @@ VA - Body Control: Fitness Mix (2016) [MP3|320 Kbps] <Dance, Club, Pop, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C2DA29921986CA5CB27EC9E9ABFE82531E6D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309453   (550347) от 20.06.2019
-
-VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550347.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inglorious - Queen
-002. Ashley Cleveland - Up From The Ether
-003. Passcode - Bite The Bullet
-004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
 ```
 
 

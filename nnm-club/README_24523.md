@@ -1,21 +1,47 @@
-###  Публикация: 1475855   (1012010) от 09.06.2021
+###  Публикация: 1483602   (1006756) от 14.07.2021
 
-Dezza - 44° North, 63° West (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Melodic House>
+Fancy - Masquerade (Les Marionnettes) (2021) [MP3|320 Kbps] <Pop ,  Eurodisco>
 
->>
->>
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012010.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Real Love (5:16)
- 02. Lost In You (Falling In Love) (3:18)
- 03. Settle (ft. Lauren L'aimant) (4:12)
- 04. My Breath (ft. Dan Soleil) (3:01)(   Читать дальше...   )Жанр: Progressive House, Deep House, Melodic HouseПродолжительность: 01:12:16
+01. I Like Your Smile (3:14)
+02. Rockabye Me (3:53)
+03. I’m Still A Fool (3:32)
+04. Lovers (3:26)(   Читать дальше...   )Жанр: Pop ,  EurodiscoПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A46426BFD03470E943912FC0BF240812F29666E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483554   (1006757) от 14.07.2021
+
+Юсси Адлер-Ольсен | Отдел Q (Книга 3). Тьма в бутылке (2021) [MP3, Юрий Титов]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Департаменту «Q» полиции Копенгагена поручено расследование весьма необычного дела.
+Полиция Шотландии переслала датским сыщикам небольшую бутылку, выброшенную морем на пустынный берег: в ней обнаружилось истлевшее послание на датском языке, написанное кровью. Текст плохо сохранился – время и морская вода сделали свое дело.
+Приступив к расшифровке, детектив Карл Мёрк (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 17:21:50
 
 ## Скачать торент
 ```bash
@@ -25,558 +51,381 @@ Dezza - 44° North, 63° West (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475851   (1012011) от 09.06.2021
+###  Публикация: 1483536   (1006758) от 14.07.2021
 
-VA - Chill House: Electro Sound Pack #294 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
+Emurasoft EmEditor Professional 20.9.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012011.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mansionair - Astronaut
-002. Turu Anasi - Baabaa
-003. Dennis Lloyd - Nevermind
-004. Luka Sambe - Fry Dimension(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:56:13
+EmEditor Professional - профессиональная версия мощного текстового редактора для программистов, веб-разработчиков и простых пользователей с подсветкой синтаксиса и поддержкой юникода.
+Редактор обладает такими функциями, как поиск и замена в файлах с использованием регулярных выражений, автоопределением кодировок, подсветка ссылок и адресов электронной почты, блочный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A749AD2810F56032FD78156034ED6ECD6B8BFC65
+magnet:?xt=urn:btih:170A3CA343BA0FC990DB9F1D5B50E81A608FDFD3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476051   (1012012) от 09.06.2021
+###  Публикация: 1483545   (1006759) от 14.07.2021
 
-Леонс Перре. Андре Шенье / Andre Chenier (1910) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о судьбе французского поэта восемнадцатого века Андре Шенье, предшественника романтического движения, во время Великой французской революции. Несмотря на небольшой объем, авторы фильма умудрились коснуться почти всех основных событий этого периода его жизни. Андре Шенье был гильотинирован в возрасте 31 года.Производство: Франция, GaumontЖанр: Драма, короткометражный, немое киноРежиссер: Этьен Арно, Луи ФейадАктеры: Рене Александр, Эдмунд Бреон, Рени Карл, Рене Наваро, Леонс Перре, Алис Тиссо, Марта Винот, Морис Винот, Georges WagueПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05C1D1DDE3B1935CE59A74E0D53D6BF719515AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475832   (1012013) от 09.06.2021
-
-Чёрная Ленточка - Правда (2021) [MP3|256 Kbps] <Psychedelic Rock,  Punk Rock>
+ChiefTaza - Collection 2 Albums (2017-2019) [MP3|320 Kbps] <Instrumental Hip-Hop, Beats, Native American>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012013.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Правда [00:00:48]
-02 - Десант штурмует небеса [00:03:47]
-03 - Невыносимые потери [00:03:12]
-04 - Всё что я нарисовал [00:05:42](   Читать дальше...   )Жанр: Psychedelic Rock,  Punk RockПродолжительность: 00:46:49
+01. I See
+02. ZedFed
+03. Inhale Deep
+04. The Harvest(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Beats, Native AmericanПродолжительность: 01:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BC1CCB189D4564F4943EB244E0BE99422D0F298
+magnet:?xt=urn:btih:38AA2E9624C3D9EF79FAC30950CB26C73F67E8B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475834   (1012014) от 09.06.2021
+###  Публикация: 1483438   (1006760) от 14.07.2021
 
-VA - Classy Psy Trance: White Session (2021) [MP3|320 Kbps] <Psy, Goa Trance, Electro>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sixsense - Psycho Machines
-002. At Mind - They-Re Here
-003. Median Project - Human Error
-004. Duologic - Orgasmologic(   Читать дальше...   )Жанр: Psy, Goa Trance, ElectroПродолжительность: 12:28:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473157   (1012015) от 09.06.2021
-
-Eden Shadow - 3 Albums (2012 - 2016) [FLAC|Lossless|image + .cue | tracks + .cue]<Neo-Progressive>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ventriloquist
-02. False Prophet
-03. Burden of Power
-04. Introspect Part 1(   Читать дальше...   )Жанр: Neo-ProgressiveПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476040   (1012016) от 09.06.2021
-
-Мэйбл Норманд. Новый герой Мэйбл / Mabel's New Hero (1913) WEBRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мэйбл с подругами собралась на пляж, а Фатти хочет, чтобы она пошла с ним. Мэйбл ссорится с Фатти. На пляже некий «волокита» подсматривает за Мэйбл в раздевалке и пристаёт к ней. Видя такое безобразие, Фатти устраивает драку. Мэйбл убегает и прячется в корзине «припаркованного» тут же на пляже воздушного шара. Волокита от злобности отвязывает верёвку, удерживающую (   Читать дальше...   )Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Роско Арбакл, Чарльз Инсли, Вирджиния Кёртли, Чарльз Эйвери, Эдгар Кеннеди, Хэнк МаннПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:08:30 / 00:10:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475876   (1012017) от 09.06.2021
-
-Demon's Eye - The Stranger Within (2011) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unknown Stranger
-02. Sins Of The Father
-03. The Best Of Times
-04. Ain't Nothing Better(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475758   (1012018) от 09.06.2021
-
-Rancor - Evilization (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Idolize Your Demons
-02. Cruelty
-03. Blue Depths...
-04. ...Black Devil Bites(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475817   (1012019) от 09.06.2021
-
-Eyes - Perfect Vision 20/20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playing To Win
-02. Turn Of Your Life
-03. Get Out Of My Head
-04. This Is Us(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476018   (1012020) от 09.06.2021
-
-Stephan Thelen - Fractal Guitar 2 (2021) [FLAC|Lossless|tracks + .cue] <Jazz Rock, Prog Rock, Fusion>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012020.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Krautrock - 14:08
-2. Fractal Guitar 2 - 07:58
-3. Mercury Transit - 12:03
-4. Ladder To The Stars - 14:54(   Читать дальше...   )Жанр: Jazz Rock, Prog Rock, FusionПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475933   (1012021) от 09.06.2021
-
-Ella Fitzgerald - The Best Of Twelve Nights In Hollywood (1961) 2010, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover Come Back to Me [1:57]
-02. Ac-Cent-Tchu-Ate the Positive [2:48]
-03. On a Slow Boat to China [2:25]
-04. I'm Glad There Is You [3:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475830   (1012022) от 09.06.2021
-
-VA - Inter Galactic: Synth Electronic Mixtape (2021) [MP3|320 Kbps] <Synthetic, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012022.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4handz - Been Around
-002. Wenping Monkeys - Oil
-003. Rush Hours - Free Dropping
-004. Moullinex - Minina Di Céu(   Читать дальше...   )Жанр: Synthetic, Dance, ClubПродолжительность: 11:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEAAE1D73605036FD3E6300A7F08E084FFCC391
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475805   (1012023) от 09.06.2021
-
-Liima Inui - Testament (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Progressive Metal,Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apostel [00:04:59]
-02. Crazy Law [00:04:41]
-03. Testament [00:06:03]
-04. Mortify [00:05:01](   Читать дальше...   )Жанр: Symphonic Metal, Progressive Metal,Female VocalПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6F30C2D94A1870127571844A48A373C4FBA31C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475795   (1012024) от 09.06.2021
-
-Wyatt Olney & The Wreckage - Silver Bullet (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Within 03:43
-02. Allegory 03:03
-03. Get Haunted 03:33
-04. TraumaQueen 04:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6712D5648B49210C384DF64418EF9C393079C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475929   (1012025) от 09.06.2021
-
-Rodney Whitaker - Outrospection: The Music of Gregg Hill (2021) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outrospection [6:28]
-02. New Sunday [4:12]
-03. Dollah Hollah [3:31]
-04. Bridge to Nashua [7:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10867BA08B170D02C662AF5440AAD166986CE68B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475828   (1012026) от 09.06.2021
-
-The Ogre - Aeon Zero (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Ride with Demons [00:04:47]
-02. Polybius [00:01:26]
-03. Crawling Chaos Underground [00:05:25]
-04. The Horrible [00:04:55](   Читать дальше...   )Жанр: Progressive Metal, Black Metal, Heavy MetalПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C8179A9A115C176D8790C7E63EE0789B1B2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475926   (1012027) от 09.06.2021
-
-Chico Hamilton - Believe (2006) Joyous Shout! [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evan's-ville [6:28]
-02. Love Me a Long, Long Time [2:51]
-03. My Brother Don [5:50]
-04. Christina [7:44](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374CCBC6FDA35072E2C5F2AEDD7FE9BCD34625EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475824   (1012028) от 09.06.2021
-
-Caliban - Gravity (2016) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralyzed (4:29)
-02. Mein Schwarzes Herz (3:01)
-03. Who I Am (4:12)
-04. Left For Dead (3:24)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B7FBDBE86EF89DCE1DB7F1A84540D48AD7955E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475937   (1012029) от 09.06.2021
-
-Lalle Larsson's Weaveworld - Infinity Of Worlds (2010) [FLAC|Lossless|tracks + .cue]<Eclectic Prog>
+King Weed - Conquerors Of The Light "Collection Part IV" (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012029.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Demon's Kiss 06:10
-02. Otherworldly 06:20
-03. City Of Lost Souls 11:10
-04. Beyond Shadows 08:52(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:51:23
+01. Conquerors Of The Light - 06:27
+02. Envy - 05:32
+03. Spirits Over Us - 07:18
+04. Bounded By Chains - 04:45(   Читать дальше...   )Жанр: Psychedelic, Stoner RockПродолжительность: 00:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7C6C013E6C210D44FFA901A314091533439EA2F
+magnet:?xt=urn:btih:B23D095B1F5E9E2BA9FB7A1F142F4FEB1BAAEDD4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475763   (1012030) от 09.06.2021
+###  Публикация: 1483584   (1006761) от 14.07.2021
 
-Rancor - Release The Rancor (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Sandboxie 5.50.8 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483557   (1006762) от 14.07.2021
+
+Роберт Дж. Маккензи | Упрямый ребенок: как установить границы дозволенного (2021) [MP3, Антон Макаров]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006762.jpg" />
+</div>
+
+
+###  Подробнее
+
+С детским упрямством и своеволием так или иначе сталкиваются все родители. Как быть, если ребенок ведет себя плохо, игнорируя или отвергая ваши требования? Что делать, если вы исчерпали все средства, чтобы добиться послушания, или если «конфликт поколений» так вас утомил, что кажется: проще махнуть на все рукой, чем добиваться своего? Читать эту книгу! С помощью (   Читать дальше...   )Жанр: Психология, Воспитание детейПродолжительность: 07:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D49447258722E7CCA9EDACBF11BAE0DF2CD1F02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483565   (1006763) от 14.07.2021
+
+SIV (System Information Viewer) 5.60 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006763.jpg" />
+</div>
+
+
+###  Подробнее
+
+SIV (System Information Viewer) - мощнейшая утилита, показывающая всевозможную информацию о системе. Программа SIV (System Information Viewer) отображает в наглядном виде следующие данные: сведения о процессоре, памяти, видеокарте, жестких дисках, приводах, модемах, USB-устройствах и т.д. При помощи программы можно наблюдать за тем, как расходуются системные ресурсы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B9BA0D2252D1F3DB4735DE0500FE965EEBA425
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483606   (1006764) от 14.07.2021
+
+Opera 77.0.4054.254 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9D1FC504AE261A8799AE4EDB691BB8D2D469B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483560   (1006765) от 14.07.2021
+
+CodeLobster IDE 1.12.0 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006765.jpg" />
+</div>
+
+
+###  Подробнее
+
+CodeLobster IDE – данный продукт является продолжением известного программного обеспечения у web разработчиков CodeLobster PHP Edition (который теперь платный).
+   Изменения не коснулись условий использования CodeLobster IDE. Программа так и осталась бесплатной в стандартной редакции (профессиональная версия программы поддерживает большее количество плагинов).
+   Свободно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483573   (1006766) от 14.07.2021
+
+IObit Uninstaller 11.0.0.40 RC [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006766.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F22CE2D05015325FB15313337BE84FE275B294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483585   (1006767) от 14.07.2021
+
+Mozilla Thunderbird 78.12.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43562F00524A0380602EFB855CD680160D67B5F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483436   (1006768) от 14.07.2021
+
+Goad - La Belle Dame (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012030.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wounded Wolf
-02. Violent Dreams
-03. Soul Chamber
-04. From Warrior To God(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:12
+01. The Haunted Palace In The Poe' Land
+02. The Queen Of The Valley
+03. The Man In The Dreamland
+04. Magic Stairway pt. 1(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 00:58:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A76DD535ECF0B363C3D5B60EE03B720EDCBBEA22
+magnet:?xt=urn:btih:9CFB0ADC653CAA745F7571FF8CC14638703D1154
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475761   (1012031) от 09.06.2021
+###  Публикация: 1483352   (1006769) от 14.07.2021
 
-Rancor - Dark Future (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+VA - Guido's Lounge Cafe, Vol. 8 (2021) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012031.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Last Drop Of Blood
-02. Addicted To Hate
-03. Knocking At The Gates Of Hell
-04. Deaf People(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:35
+01. Weber & Weber - Frozen in Time (4:32)
+02. Simply Chill - Fire (Costa del Mar edit) (5:22)
+03. Patiotic - Timeless (Original Mix) (4:06)
+04. J. R. Haim - Wanderlust (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3E7347E800A1A8E26EE1CD7A47A8C0ABCEC865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483328   (1006770) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 1 (2019) [AAC|~348 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Ibiza Blue (Original Mix) (5:02)
+02. Solar Music Club - It's All Right (Original Mix) (5:04)
+03. Marga Sol - Butterflies (Project Blue Sun Rmx) (7:30)
+04. Sky Spirit - Beautiful Day (Original Mix) (4:58)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75041E6DD28FC5BAB2090BA839FB0068D8006652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483485   (1006771) от 14.07.2021
+
+Jess & Matt - Wildflowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sliding Doors (00:03:10)
+02 - 1961 (00:03:42)
+03. Aftermath (00:03:46)
+04. Wildflowers (00:03:04)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C5F89E8C1BEE6181DB953029B7D955A243AC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483439   (1006772) от 14.07.2021
+
+41 South - Are We There Yet? (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rocks 07:14
+02. Night Creatures (It Is Time!) 02:31
+03. Night Creatures - Come On My Children (Let's Dance) 08:30
+04. Who Left The Gate Open? 04:32(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:36:59
 
 ## Скачать торент
 ```bash
@@ -586,69 +435,51 @@ Rancor - Dark Future (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297368   (1012032) от 08.06.2021
+###  Публикация: 1483334   (1006773) от 14.07.2021
 
-Цифровое ТВ v2.2.1 [Ru]
+VA - Guido's Lounge Cafe, Vol. 2 (2019) [AAC|~325 Kbps] <Chillout, Lounge, Downtempo>
 
->>3
->>След.
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012032.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение позволяет смотреть 20 цифровых общероссийских ТВ каналов на любом устройстве в отличном качестве после отключения аналогового ТВ. Цифровые общероссйские ТВ каналы: Первый канал, Россия 1, Матч ТВ, НТВ, Пятый канал, Россия К, Россия 24, Карусель, ОТР, ТВ Центр,РЕН-ТВ, Спас, СТС, Домашний, ТВ-3, Пятница, Звезда, Мир, ТНТ, Муз-ТВ. Каналы цифровых мультиплексов (   Читать дальше...   )Тип издания: Mod (удалён гуглохлам и добавлены каналы)Релиз состоялся: 06.06.2021Разработчик: Лайм Эйч ДиПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский
+01. Gary B - I Did You Wrong (Original Mix) (3:26)
+02. Dreamhunter - Boarding Gate (Original MIx) (4:27)
+03. Marc Hartman - Leave the World Behind (Original Mix) (5:30)
+04. Pier-O - Lady Fantasy (The Next Summer) (5:37)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:15:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00129C8A175C6A68FCC1D7DEC6561A5A14208503
+magnet:?xt=urn:btih:86BE3D545334FCBACC805E36F46E4A0CF477DD0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276949   (1012033) от 08.06.2021
+###  Публикация: 1483648   (1006774) от 14.07.2021
 
-DESOLATE (2019) [Ru/Multi] (1.3.5) Repack Other s
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года назад остров Граничный оказался в эпицентре крупномасштабной катастрофы. Конгломерат «Новый свет» скрыл информацию о трагедии и теперь пытается исправить последствия. В рамках этой кампании многочисленных Добровольцев — многие из которых ни разу не держали оружие — отправляют на Граничный, чтобы исследовать паранормальное воздействие катастрофы, собирать (   Читать дальше...   )Тип издания: RepackРазработчик: NeargaЖанр: Adventure, Action (Survival horror), RPG, 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF296224E44DBF433DEC3A74E371F9D01CBC477
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 148788   (1012034) от 08.06.2021
-
-Princess Lover! / Любимец принцесс! [2009, TV, 12 из 12] BDrip 480p raw
+Blochemy - Aithem (2021) whitelabrecs [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Field Recording>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012034.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старшеклассник Тэппэй Кобаяси потерял родителей в автокатастрофе. Из родственников остался дед, про которого в семье в основном помалкивали. И было отчего - Иссин Арима, дед по матери, крепко держит рычаги японской экономики, являясь одним из мировых финансовых магнатов. Мать Тэппэя вышла замуж против воли отца, но Иссин смирился с решением дочери и не вмешивался (   Читать дальше...   )Жанр: романтика, этти, школаРежиссер: Канадзава ХиромицуПеревод: Primera CuadrillaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ, 12 серий по 25 мин.
+01. Guis (04:54)
+ 02. Feal (04:31)
+ 03. Ange (04:52)
+ 04. Lues (04:18)(   Читать дальше...   )Жанр: Ambient, Field RecordingПродолжительность: 00:40:20
 
 ## Скачать торент
 ```bash
@@ -658,25 +489,187 @@ Princess Lover! / Любимец принцесс! [2009, TV, 12 из 12] BDrip 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157058   (1012035) от 08.06.2021
+###  Публикация: 1483347   (1006775) от 14.07.2021
 
-Hollow Knight (2017) [Ru/Multi] (1.5.68.11808/dlc) Repack Other s
+VA - Guido's Lounge Cafe, Vol. 6 (2020) [AAC|~326 Kbps] <Chillout, Lounge, Downtempo>
 
->>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012035.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Глубоко под умирающим городом Грязное Устье лежат руины древнего королевства. Многих влечет под землю тяга к богатству, славе или ответам на старинные загадки. «Hollow Knight» – классическое двухмерное приключение в огромном взаимосвязанном мире. Исследуйте извилистые пещеры, древние города и смертоносные пустоши, сражайтесь с порчеными тварями и заводите дружбу (   Читать дальше...   )Тип издания: RepackРазработчик: Team CherryЖанр: Action, Adventure, ArcadeЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+01. Mirage Of Deep - Forbidden Perfume (5:28)
+02. Dellasollounge - Show Me the Stars (Original Mix) (4:47)
+03. Chillson, Marc Hartman - Crash & Burn (4:08)
+04. Peter Pearson - Lead Me On (Original Mix) (4:27)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:49:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE725946F57F2DF2F96933399A0F92B1E0589B69
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483349   (1006776) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 7 (2020) [AAC|~327 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk, Storm Marrero - On the Line (Main Mix) (5:08)
+02. Roberto Bronco, The One Lavic - Day After Day (Original Mix) (3:42)
+03. Chillson, Marc Hartman - With You (4:36)
+04. Roberto Bronco - Come Together (Original Mix) (4:47)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483341   (1006777) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 3 (2019) [AAC|~338 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vincent Boot - Code (Original Mix) (6:00)
+02. Weathertunes - Take It Easy (Original Mix) (4:08)
+03. Marga Sol - Night Sky (Original Mix) (4:17)
+04. Michael e - With Each Passing Moment (Guitar Mix) (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 03:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C529261DA3619FBBCD05FA6521E656B102E90579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483456   (1006778) от 14.07.2021
+
+VA - Electro Town (2021) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006778.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peetu S - Afterlife
+002. Human Force - Sun Rising High
+003. Green Court - Silent Heart
+004. Wavetraxx - Lost Transition(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:29:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15575E00776F7C701B1013DD65AF3A8D40B4CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483476   (1006779) от 14.07.2021
+
+Истоки анимации. Басня о полной женщине. Басня о неудавшемся романе / The Phable of the Phat Woman. The Phable of a Busted Romance (1916) DVDRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две коротенькие мультипликационные басни. Ничего особенного, просто две незатейливые шутки, типичный пример анимации тех лет.Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражныйРежиссер: Том Э. Пауэрс, Рауль БаррПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:20 - часть (2 части)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483344   (1006780) от 14.07.2021
+
+VA - Guido's Lounge Cafe, Vol. 5 (2020) [AAC|~330 Kbps] <Chillout, Lounge, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patiotic - Late Night Neon (Original Mix) (3:39)
+02. CaPa - Time Is All We've Got (4:32)
+03. Tigerforest - Azure (4:02)
+04. Kevin Paczesny, Jani R. - Winter Lights (5:33)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483640   (1006781) от 14.07.2021
+
+Potlatch - On The Cloud (2021) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Cloud (02:25)
+ 02. The Old Mirrorball (02:32)
+ 03. Glass Shoes (02:21)
+ 04. Water Trip (02:18)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:19:30
+
+## Скачать торент
+```bash
+нет
 ```
 
 

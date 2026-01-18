@@ -1,3 +1,30 @@
+###  Публикация: 1093537   (933890) от 15.01.2017
+
+VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen & Envy Ft. Victoriya - Dont Say (Extended Mix)  6:39
+02.  Elite Electronic - The Other Side (Ikerya Project Remix)  7:22
+03.  Chris Schweizer & Heatbeat - Samurai (Extended Mix)  5:10
+04.  David Gravell - The Road (Extended Mix)  4:49(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 09:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E808D67B016BC329467513256832143E83C2AEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093636   (933893) от 15.01.2017
 
 VA - Club Dance Ambience Vol.98 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House, Electro House, Electro>
@@ -663,33 +690,6 @@ VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364400   (935677) от 03.03.2020
-
-VA - не Громкие новинки недели 57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Anfisa Ibadova - Одна (3:14)
-2.Anthony El Mejor - Давай (2:41)
-3.Bolshevseh - Давай Покинем Этот Город (3:12)
-4.Ic3peak - Марш (2:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3E9057A07A9799909A0050BBDE1D84909A4114
 ```
 
 

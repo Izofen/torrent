@@ -1,3 +1,30 @@
+###  Публикация: 1290857   (672350) от 23.03.2019
+
+The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline (03:33)
+02. Get It While the Gettin's Good (03:03)
+03. New America (03:56)
+04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136756   (672537) от 23.05.2017
 
 VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -702,33 +729,6 @@ Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02D0CC38211E4CDE929DA6E3C3CD8108E05BC056
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290052   (680232) от 19.03.2019
-
-Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. f l o w e r (3:54)
- 02/12. Walking In The Forest / 숲을 걷다 (3:07)
- 03/12. f r a m e d (Piano Ver.) (3:53)
- 04/12. Autumn Finds Winter (4:02)(   Читать дальше...   )Жанр: New Age, Piano, Modern ClassicalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
 ```
 
 

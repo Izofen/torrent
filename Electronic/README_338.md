@@ -1,3 +1,57 @@
+###  Публикация: 1224324   (667184) от 09.05.2018
+
+VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Vicent Ballester - The Sound Of Nylo (Non Stop DJ Mix) [01:07:55]
+02 Studio Deep - Happy End (ft. Oli Head) (Original Mix) [04:57]
+03 DJ Ixsxi - Chasing Sunrise (Misharev Remix) [03:30]
+04 Medsound - I Dont Wanna Be In Love (Original Mix) [05:03](   Читать дальше...   )Жанр: Deep House, Nu Disco, DowntempoПродолжительность: 05:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79592B2F750F7A69E57AEAC92DC9D5128BE7244
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224217   (667236) от 09.05.2018
+
+VA - Selected Moments I (2008) Shoreless Recordings [FLAC|Lossless|tracks+.cue] <Ambient, Dub Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. bvdub - Glimpse Of Infinity (08:02)
+ 02. Quantec - Interlude  (03:02)
+ 03. Atheus - Adagio For Drone (08:35)
+ 04. Quantec - The Rising Tide (06:40)(   Читать дальше...   )Жанр: Ambient, Dub TechnoПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655F16BEEB427299916DE5017AC6BE9D7C976A16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339069   (667412) от 20.05.2011
 
 Class B Band - Movie T (2011) /WRL005CD/ [FLAC|Lossless]<Tech House, Nu-Disco, Techno, Electronic>
@@ -649,60 +703,6 @@ VA - Chill Out Paradise Vol.1 Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3EC217F5E740913565FA30137F3A8D9A9E0BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137318   (669404) от 25.05.2017
-
-VA - Evening Acoustic Playlist: 14 Relaxing and Chilled Acoustic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Say Something
-02. Meg Birch - Your Song
-03. Shannon & Keast - Promise This
-04. Nora & Will - Shape of You(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1F558B9DA854FB3B1097EDBA9A38FF40558533
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136843   (669405) от 25.05.2017
-
-Keosz - Seclusion (2015) EP [MP3|320 Kbps] <Ambient, Atmospheric Bass, Drone>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glib (03:03)
-02. Intention (05:43)
-03. All come back (04:18)
-04. Inside (01:32)(   Читать дальше...   )Жанр: Ambient, Atmospheric Bass, DroneПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A094B440CFB199FC9386CC6A4D46D55244E93DE
 ```
 
 

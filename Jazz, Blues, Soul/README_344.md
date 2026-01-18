@@ -1,3 +1,30 @@
+###  Публикация: 1239398   (538987) от 05.08.2018
+
+Flora Purim - That's What She Said (1976) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Into His Eyes [4:35]
+02. Juicy [4:32]
+03. Hidden Within [5:09]
+04. You On My Mind [3:32](   Читать дальше...   )Жанр: Vocal Jazz, Jazz Fusion, Latin JazzПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1328F97D895C23DBA87B4498743C1CBDACAB0C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154505   (539077) от 31.07.2017
 
 Grainne Duffy - Test Of Time (2011) [FLAC|Lossless|tracks + .cue] <Blues Rock>
@@ -676,33 +703,6 @@ Richard Galliano Septet - Piazzolla forever (2003) [FLAC|Lossless]<Contemporary 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049773   (542242) от 06.09.2016
-
-John Mayall - USA Union (1970) [WavPack|Lossless|image + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature's Disappearing (5:59)
-02. You Must Be Crazy (3:58)
-03. Night Flyer (5:36)
-04. Off The Road (2:51)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769620446F699528F0C0C041F102EA82330B6FD9
 ```
 
 

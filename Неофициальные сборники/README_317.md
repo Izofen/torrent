@@ -1,3 +1,30 @@
+###  Публикация: 1155145   (534732) от 02.08.2017
+
+VA - DEEP'КАЧ 90-х Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ace of Base - Cruel Summer (Mr.Nu & Deepjack Remix)  5:30
+002.  Ennio Morricone - Chi Mai (Micheletto Remix) (Deep Immersion)  6:26
+003.  Lika Morgan - Hit Me (Original Mix)  6:08
+004.  Sash! - Ecuador (DJ Sharapoff & Dmitriy RS Remix Radio Mix)  3:31(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B48BFB880DEC05B6A4C2DC242E20545CE08FA6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532909   (534778) от 09.08.2012
 
 VA - Mega Dance Party Summer Vol.5 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -680,33 +707,6 @@ VA - Sexy Jazz Guitar Sexy Jazz Lounge Chillout Music for Intimate Erotic Moment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4B46D79CE7186740F57158D6141C4B62E52A0B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155248   (535418) от 02.08.2017
-
-VA - DJezzy Sweet Sixteen (2017) [MP3|320 Kbps] <Club House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. United States Of Dance - We Are The Night (Extended Mix) 4:57
-002. CamelPhat - Siren Song - Radio Edit 3:28
-003. Raviv - Good Together - Luca Minoli Suite Remix 12:09
-004. Michael Ruland - Dreamer (Ibiza Dub Mix) 6:39(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 08 :35 :41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D79BA8BAC6B83C53C7380C2255F6FDC3CEEE5B8
 ```
 
 

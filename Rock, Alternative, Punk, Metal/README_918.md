@@ -1,3 +1,318 @@
+###  Публикация: 903256   (659316) от 30.05.2015
+
+Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Of Infinity
+2. We've Had Enough
+3. Bring Us More
+4. Snax & Violence(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB19A4AE6328B807DA8814A21684A651174F93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514183   (659349) от 23.06.2012
+
+СВ - Московское время (1984) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот начало
+ 02. Лето
+ 03. Вот и лето прошло
+ 04. Осень
+ 05. День продолжается
+ 06. Когда на улице темно
+ 07. Песочные часы (зима)
+ 08. Пили и курили
+ 09. Я выдохся
+ 10. Весна(   Читать дальше...   )1984Жанр: RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51AA12AF0D8E31D6DECFF91FB838BC303895B806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514323   (659351) от 23.06.2012
+
+Luca Turilli`s Dreamquest - Lost Horizons (2006) [MP3|320 кб/с]<Electro-Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introspection
+ 02. Virus
+ 03. Dreamquest
+ 04. Black Rose
+ 05. Lost Horizons
+ 06. Sospiro Divino
+ 07. Shades Of Eternity
+ 08. Energy
+ 09. Frozen Star
+ 10. Kyoto`s Romance(   Читать дальше...   )2006Жанр: Electro-Symphonic Power MetalПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB7000D10ED4466DEE0E7B20C303B9DB134BF7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514290   (659359) от 23.06.2012
+
+Cripper - Antagonist (2012) [MP3|320 кб/с]<Thrash Metal / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Shadow (3:38)
+2. Not Dead Yet (3:31)
+3. Animal of Prey (2:51)
+4. Totmann (4:39)
+5. Hegemony (3:04)
+6. Clean (4:00)
+7. General Routine (4:06)
+8. Dogbite (4:20)
+9. Another Lesson in Pain (3:18)
+10. Damocles (3:56)(   Читать дальше...   )Жанр: Thrash Metal / Female VocalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F70DA3702DCE6D2AA0817C55EA59F42E781EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902733   (659734) от 29.05.2015
+
+Lindemann - Praise Abort (2015) Single & EP [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659734.jpg" />
+</div>
+
+
+###  Подробнее
+
+EP к новому альбому фронтмена RAMMSTEIN Тилля Линдеманна и шведского легендарного метал-продюсера и музыканта Петера Тагтгрена (HYPOCRISY, PAIN).1. Praise Abort
+2. Praise Abort (Clemens Wijers Remix)
+3. Praise Abort (Ostblockschlampen Remix)
+4. Praise Abort (Hedberg & Larsson Remix)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17C5E1A3C8CAF79919740C1DA6AC4EE01CE48CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902945   (659736) от 29.05.2015
+
+Helloween - My God-Given Right (2015) Mailorder Edition [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Were There
+02. Wicked Game
+03. Nightmare
+04. More Than A LifetimeЖанр: Power MetalПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830A56DE6E3A70FC06177A295CB7B356B785B6D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225547   (659752) от 16.05.2018
+
+New England - New England (1979) Reissue, 1993, MCA Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659752.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello, Hello, Hello
+2. Don't Ever Wanna Lose Ya
+3. P.U.N.K. (Puny Undernourished Kid)
+4. Shall I Run Away(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD72CCA5BEF9D19183DD835B38A091AA02DC3174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225570   (659753) от 16.05.2018
+
+New England - Walking Wild (1981) Reissue, 1998, GB Music [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659753.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Walking Wild
+2. Holdin' Out On Me
+3. Don't Ever Let Me Go
+4. Love's Up In The Air(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD87A396F815F5E679B730D539C1DD06AB27E8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225551   (659755) от 16.05.2018
+
+New England - Explorer Suite (1980) Reissue, 2009,  Wounded Bird Records [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Honey Money
+2. Livin' In The Eighties
+3. Conversation
+4. It's Never Too Late(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ACD00C2F43AC499EBB4B562C534110F37F3183
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902868   (659824) от 29.05.2015
+
+Фактор Страха - Выше Сил (2015) [MP3|320 кб/с]<Modern Metal / Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Проси
+02. Отречься От Себя
+03. Мир Иллюзий
+04. Вернуть Всё Назад(   Читать дальше...   )Жанр: Modern Metal / Melodic Death MetalПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC69A96495EAB15F0B2D04F954A038CC6DD52FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902639   (659839) от 29.05.2015
+
+Tarja - Luna Park Ride (2015) [MP3|320 кб/с]<Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Star
+02. My Little Phoenix
+03. The Crying Moon
+04. I Walk Alone(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 02:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50E78629A61B586117213CEBD60D1D7C24939B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139399   (659911) от 02.06.2017
 
 U2 - The Joshua Tree: 30th Anniversary [Super Deluxe 4CD Box Set] (2017) [MP3|320 Kbps] <Rock>
@@ -395,315 +710,6 @@ Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539043   (660278) от 23.03.2022
-
-Tristitia - Doomystic (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Withering (00:00:48)
-02 - Doomystic (00:05:44)
-03 - The Crosses (00:05:33)
-04 - Witches Dawn (00:06:32)(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF02CCE87332A0B50103F8F09C5E3D245213878B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902877   (660287) от 29.05.2015
-
-Fall Of Carthage - Behold (2015) [MP3|320 кб/с]<Modern Thrash/Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upon The Small Things
-02. Degeneration
-03. Dawn Of The Enemy
-04. Imperfection(   Читать дальше...   )Жанр: Modern Thrash/Groove MetalПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00689FF9592A1A5E8A006570E14434A09CAAA71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902781   (660304) от 29.05.2015
-
-Isvind - Gud (2015) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660304.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flommen
-2. Ordet
-3. Himmelen
-4. Daren(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF37853266967CA0467254693B880ECFCB01E664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513485   (660311) от 22.06.2012
-
-Anti-Flag - PUNK-PRAYER “Virgin Mary, Redeem Us Of Putin” (Pussy Riot Cover) (2012) [MP3|320 кб/с]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PUNK-PRAYER “Virgin Mary, Redeem Us Of Putin” (Pussy Riot Cover)2012Жанр: Punk RockПродолжительность: 00:02:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577B2707F7E23A60DB0E92FB0ABE569F09EF42B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513837   (660316) от 22.06.2012
-
-Garbage - Best Of Garbage (3CD) [BOOTLEG] (2007) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660316.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01. Supervixen
- 02. Queer
- 03. Only Happy When It Rains
- 04. Not My Idea
- 05. Vow
- 06. Stupid Girl
- 07. Milk
- 08. Temptation Waits
- 09. I Think I'm Paranoid(   Читать дальше...   )2007Жанр: Alternative Rock / Post-Grunge / Industrial RockПродолжительность: 01:18:43
- 01. Butterfly Collector
- 02. Sleep
- 03. 13 Xforever
- 04. Can't Seem To Make You Mine
- 05. Deadwood
- 06. Tornado
- 07. Get Busy With The Fizzy
- 08. Soldier Through This
- 09. The World Is Not Enough(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6E0526F71AAAA0B5F17DD75865E236953DA284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539054   (660322) от 23.03.2022
-
-Final Cry - The Ever-Rest (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood Of The Rope
-02. The Ever-Rest
-03. Down The Icefall
-04. The Beckoning Silence(   Читать дальше...   )Жанр: Melodic Thrash Metal, Death MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC44C33F741858E0735FE1E07E2A34DA03FE6D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539050   (660323) от 23.03.2022
-
-Hyperia - Silhouettes Of Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Thrash Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnagogia
-02. Intoxication Therapy
-03. Experiment 77
-04. Severed(   Читать дальше...   )Жанр: Melodic Thrash Metal, Death MetalПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C94385B031AEAFEFEE062F07EA9B24C120855F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539047   (660324) от 23.03.2022
-
-Tristitia - Burial Of The Sad (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introitus
-02. River Of The Cross
-03. Doomdaze
-04. Autumn Leaves(   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB6C1F344FF4664D87173BA3A3D6D01DFC546CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902803   (660358) от 29.05.2015
-
-Sterbhaus - New Level of Malevolence (2015) [MP3|320 кб/с]<Blackened Thrash/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grudgeholder + Hatemonger
-02. El Giftus Satanus
-03. Necrostabbing the Corpsefinder
-04. Bloodbarf(   Читать дальше...   )Жанр: Blackened Thrash/Death MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C558186D4BD9B43EB72D82CDA3BA239AC45065DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902667   (660360) от 29.05.2015
-
-Diminished 7 - The Regal Chapters (2014) [FLAC|Lossless]<Melodic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Heart Consumes The Soul
-02. Love Erased
-03. Malice Gloom
-04. El Ayo Ri La(   Читать дальше...   )Жанр: Melodic Gothic MetalПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93769362409E8B1A02C14F63603514074BF65488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902605   (660363) от 29.05.2015
-
-Ohmwork - Ohmwork (2015) [MP3|320 кб/с]<Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Question
-02. Psycho Reversed
-03. Treading Water
-04. Reptile(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F83D044D638D3787289E817C300271A7532097
 ```
 
 

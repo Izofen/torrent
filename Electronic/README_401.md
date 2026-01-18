@@ -1,3 +1,57 @@
+###  Публикация: 1204803   (784409) от 07.02.2018
+
+VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Antolini & Eddy Rave - Your Soul (Intrance Wom Cut)
+02. Anton Greco - Around The Angels (Wom Cut)
+03. Mazza - In The Sky (Wom Cut)
+04. Rohma - Survive (Wom Cut)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FFC1BB9EDB4950E6222DBCF4533363D6A60C62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204732   (784412) от 07.02.2018
+
+VA - Futuresque - The Future House Collection Vol.7 (2018) [MP3|320 Kbps] <House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bobby Rock  -  Move On (Radio Edit)  3:28
+02.  Lunde Bros  -  Boomba (Radio Edit)  2:59
+03.  Richard Grey feat. Katty Q & Bodhi Jones  -  My Love (Future House Remix)  4:29
+04.  Joachim Garraud & Ridwello  -  Come On Let's Go (feat. Charlie Sputnik) (DBN Radio Edit)  2:19(   Читать дальше...   )Жанр: House, Future HouseПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19884D5492D396325D4A7E184D2D682B429A50B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389257   (784583) от 10.06.2020
 
 Maks Henning - Spring Dub 2 (2020) 7th Cloud [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno>
@@ -641,60 +695,6 @@ Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DBE1B3D70680A1ACE7531F8ECDFEBED7CD058CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204363   (784989) от 05.02.2018
-
-VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gai Barone – Tanita (Intro Mix) (06:32)
-02. Tannura – Halfway (07:54)
-03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
-04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D035FC7092744EA435C279F9E39D37A1720BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204396   (784990) от 05.02.2018
-
-VA - United Colours Of Trance Vol.10 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Lemmer - Dive (feat Naemi Joy - Seenay remix)
-02. Jacob Singer - Tiahuanaco Returns
-03. Carter & Funk - Make Some Noise (Vince Tayler remix edit)
-04. Jericho Frequency - Vegas(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61821A1B325855524EFC295A8E78179DF3693F4C
 ```
 
 

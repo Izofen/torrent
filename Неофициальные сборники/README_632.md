@@ -1,3 +1,30 @@
+###  Публикация: 1361552   (954194) от 20.02.2020
+
+VA - Caola: Rythm And Blues Mix (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954194.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Doc 9 - Dirty Bird
+002. Rotimi - All Night
+003. Elujay - Tings Come N Go
+004. Rahwa - Midnight(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 05:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47DD745234014D3BF6D97265C9DEA6A5D8D40F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361542   (954199) от 20.02.2020
 
 VA - American Country Session (2020) [MP3|320 Kbps] <Country, Folk>
@@ -677,33 +704,6 @@ The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980482   (955958) от 29.01.2016
-
-VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Witherspoon. Jack McDuff – Good Rocking Tonight (02:15)
-02. B.B. King. Ruth Brown – You’re the Boss (04:05)
-03. Nina Simone – My Baby Just Cares For Me (03:02)
-04. Charlie Barnet & His Orchestra – The Great Lie (03:06)(   Читать дальше...   )Жанр: Blues, Rock, SoulПродолжительность: 02:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EAC56E52BCA25E46C4C9E1F7E900DF050495189
 ```
 
 

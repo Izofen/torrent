@@ -1,3 +1,30 @@
+###  Публикация: 1216507   (749327) от 31.03.2018
+
+VA - Hits Cocktail Vol.17 (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tungevaag & Raaban - All For Love
+02. Darius & Finlay x Last Night feat. Max Landry - Close My Eyes
+03. Odyssey feat. Breana Marin - Fire
+04. Foxa x Bazzflow Ft. Jex - Find You (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6CBD4533AFBB07A401323CE57278FBE4D662BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216512   (749432) от 31.03.2018
 
 VA - Cosmic Party (2018) [MP3|320 Kbps] <SpaceDisco , SpaceSynth , Electronic>
@@ -665,33 +692,6 @@ VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216314   (751361) от 30.03.2018
-
-VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shingo Nakamura - Memory Of The Sea (2011 Mix) 7:35
-02. Talamanca - When The Sun Goes Down (Extended Mix) 7:15
-03. Bleedin Neutron - Steel Pillars Of Dawn (Eyal Cohen Remix) 8:12
-04. Vintage & Morelli - Aurora (Extended Mix) 7:23(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 05:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
 ```
 
 

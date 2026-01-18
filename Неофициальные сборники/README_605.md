@@ -1,3 +1,30 @@
+###  Публикация: 1097932   (910796) от 29.01.2017
+
+VA - Club Dance Ambience Vol.100 (2017) [MP3|320 Kbps] <Dance, Club, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910796.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 9lives & Matt Hart feat. Philip Matta - Just Let Go (Original mix) 5:19
+002. Alex Scandi - Get Down (Original Mix) 4:07
+003. Alisha Pillay vs Kolya Funk & Eddie G - Mayday (Vincent & Diaz Mash-Up) 4:12
+004. Alok  Fractal System feat. Bea Jourdan vs. Kolya Funk & Eddie G - Don't Ya (Joy Vega Mash Up) 5:16(   Читать дальше...   )Жанр: Dance, Club, Club HouseПродолжительность: 07:14:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C10ABEF73D33469D2DDB3A48A52A07F1FFA7585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097969   (910876) от 29.01.2017
 
 VA - Зимние блатные песни в десяточку. Выпуск № 5 (2017) [MP3|256 Kbps] <Шансон>
@@ -669,33 +696,6 @@ VA - Collection (2016) [MP3|320 кб/с] <Electronic, Lounge, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257DC35A45A3EC1E140355C4E1A85BE50DECD25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990390   (912325) от 25.02.2016
-
-VA - Avantgarde Chillout Vol 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slomo - Love on Twenty Three - Slow Mix [04:15]
-02. Bobsmithband - Lounge Up [05:10]
-03. Woltrax - Inside the Storm [01:33]
-04. The Soul Elephant - Fragile [04:37](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BFC0CD4A1AEFB0D1990763DE32F5AF83F318610
 ```
 
 

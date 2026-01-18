@@ -1,3 +1,57 @@
+###  Публикация: 994082   (893308) от 06.03.2016
+
+VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque, Romantic>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете, у ВУЗовских преподавателей есть такое понятие - учебник для домохозяек. Это когда в тонюсенькой книжечке излагается многотомный курс предмета. Кто-то предпочитает учиться по таким учебникам "для домохозяек". Этот бокссет из разряда - одним взглядом объять всю классическую музыку. Наверное, если хоть один человек для себя откроет здесь то, что потом (   Читать дальше...   )CD1
+01. Mozart - The magic flute  (3:52)
+02. Orff - Carmina burana, o fortuna  (2:36)
+03. Bizet - Carmen suite no.1, aragonaise  (2:19)(   Читать дальше...   )Жанр: Classical, Baroque, RomanticПродолжительность: 06:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDDA9EFBD549E1AB2472CAEFED8D2C8663119C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371150   (893350) от 29.03.2020
+
+Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Classical Crossover>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape of You (Piano Cover)
+02. Smells Like Teen Spirit (Piano Cover)
+03. December Song
+04. Ode to Joy / Happy (Piano Cover)(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D45B76E4A4CCACB7BDFE5E0FD0216387EFE9893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993611   (893368) от 06.03.2016
 
 Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (Ormandy, Entremont, Power Biggs) (2009) [MP3|320 кб/с] <Классическая музыка, Romanticism, Symphony>
@@ -644,60 +698,6 @@ The Royal Philharmonic Orchestra - Symphonic Rock (2004) Box Set, 2CD [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBAA9D45C45D5573BC502D253082472843079A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492222   (898917) от 01.09.2021
-
-The New London Chorale - The Young Mendelssohn (2003) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Ballad>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Italia - 3:09
-2. What I Need Tonight - 4:02
-3. Now, More Than Ever - 3:43
-4. Hear My Song - 3:45(   Читать дальше...   )Жанр: Classical Crossover, Pop, BalladПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BCE2B06BF051F5123DE1E245A4324B28E24423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100406   (899355) от 04.02.2017
-
-De Monte - Laudate Dominum (Currende, Erik Van Nevel) (2001) [FLAC|Lossless|image + .cue] <Classical sacred>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Benedictio et claritas
-02. - Cirumdederunt me
-03. - Dulcis et rectus Dominus
-04. - Asperges me(   Читать дальше...   )Жанр: Classical sacredПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FAC6B7591E86A025D0953DA154AA25E9CE3EF5
 ```
 
 

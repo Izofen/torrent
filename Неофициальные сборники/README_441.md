@@ -1,3 +1,30 @@
+###  Публикация: 793589   (702564) от 06.06.2014
+
+VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spring Lounge Club - An Irish Breeze
+002. Urselle - Beautiful Life
+003. Auditive Escape - Blue Minds Boulevard
+004. Sannan - Bluetone(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843657BB6B112EE9095F882175B51092081C318A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132208   (702575) от 08.05.2017
 
 VA - 90's Eurodance (2017) [MP3|320 Kbps] <Eurodance>
@@ -670,33 +697,6 @@ VA - Instrumental Chill Sound (2016) [MP3|320 кб/с] <Instrumental, Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3559FE6051B390BBDACB9C05F5AC69FB016F5A0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026319   (704066) от 15.06.2016
-
-VA - Молодежная тусовка. Летнее настроение (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дмитрий Прасковьин - Между Нами
-02. Инфинити - Я Тебя Знаю
-03. Nastika - Че Качок
-04. Ramona - Je M'en Vais(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C4D8015C608E25088BF452C53361783E417C0B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1545588   (607556) от 23.04.2022
+
+VA - Beatport Electro House: Sound Pack #513 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный 513-й сборник самых актуальных треков в стиле Electro House от Beatport, который можно не только слушать дома или где-либо еще, но и который будет пользоваться успехом на танцполе, клубе или вечеринке узкого круга друзей.001. Mad Rey - Hardwork
+002. Habbo Foxx - Giving Me
+003. Austin Ato - What You Want
+004. Shingo Nakamura - The Longest Hour(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3932E3F36E5B74600F222F68C28EAF820268D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525540   (607591) от 21.07.2012
 
 VA - Волчьи песни (2012) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
@@ -689,33 +716,6 @@ VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36A93B5745D018367D2452F884AFF5E0E778872C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038344   (608711) от 27.07.2016
-
-VA - Zen Sounds Music For Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608711.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic & Denis Karpinskiy - They Wait For Us (Chillout Mix)
-002. Regression - When We Leave
-003. Seefeld Avec Mady - Ride On
-004. Chris Metcalfe & Jo Cartwright - Winter Sun (Moonnight Remix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58E63BBF92E4FDB4D5623B8FBF503127DE2C692
 ```
 
 

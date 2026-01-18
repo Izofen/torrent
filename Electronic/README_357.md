@@ -1,3 +1,57 @@
+###  Публикация: 1401190   (711338) от 09.08.2020
+
+Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strings of Boredom [00:03:40]
+02. Anaesthetic Age [00:03:54]
+03. Preasure Move [00:04:53]
+04. Klaustrophobia [00:04:12](   Читать дальше...   )Жанр: EBM, ElectroПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B83DC9BD761717236573CF2CB51411DFD36E4CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219664   (711906) от 15.04.2018
+
+Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downtempo, Nu-Disco, House>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downfall (Overture) (6:12)
+ 02. Haven (Lanzarote, Canary Islands) (7:44)
+ 03. Ghosts (Australia) (5:01)
+ 04. The Golden Cage (Dubai) (6:02)(   Читать дальше...   )Жанр: Synthpop, Downtempo, Nu-Disco, HouseПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8305230B7621A1CA375CC9F06CC0A58A8B509FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219692   (711916) от 15.04.2018
 
 Monolink and Acid Pauli - The End (2015) 3000° Grad Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
@@ -638,60 +692,6 @@ Kedr Livanskiy - Your Need (2019) [FLAC|Lossless|image + .cue] <House, Synth Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6462715EEA4A655EB15537A3C5734471BD69753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024890   (713420) от 10.06.2016
-
-FM-84 - Atlas (2016) [MP3|320 кб/с] <Electronic, Synthwave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything (4:20)
-02. Running In The Night (feat. Ollie Wride) (4:30)
-03. Tears (5:35)
-04. Chasing Yesterday (3:56)(   Читать дальше...   )Жанр: Electronic, Synthwave, Synth-popПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062B0EE9F039EC704EADBB2784B91EBB96659F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219491   (713911) от 14.04.2018
-
-Sergey Cheremisinov - Hibernation (2017) [MP3|320 Kbps] <Ambient, Neoclassical>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Future 2:50
-02. Comets and Sparks 4:11
-03. United Voyagers 6:24
-04. Sleepers 8:00(   Читать дальше...   )Жанр: Ambient, NeoclassicalПродолжительность: 00:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BA2EAFC3AA0AA8AF9610C1F31B7E67EACD80B4
 ```
 
 

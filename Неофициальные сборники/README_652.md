@@ -1,3 +1,30 @@
+###  Публикация: 1488879   (1001452) от 13.08.2021
+
+VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001452.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Riddler - Riddle Me This
+002. Killshot & The Straikerz - Here We Go Again
+003. Bicipay feat Yumi - Dance All Day
+004. Hypnose - You & Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488680   (1001617) от 12.08.2021
 
 VA - 100 Greatest Heavy Metal Songs (2021) [MP3|320 Kbps] <Metal, Rock>
@@ -668,33 +695,6 @@ VA - Ремиксы 2К20 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB31BDFD870072A08BF04A8D637E4DFF64E37B2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350789   (1002907) от 07.01.2020
-
-VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.A. Guns - Merry Xmas Everybody
-02. Ohsama - Instrumental
-03. Jimi Hendrix - Message To Love (Live at the Fillmore East, NY - 1/1/70 - 2nd Set)
-04. John Fogerty - Rock and Roll Girls (Live at Red Rocks)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 08:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F4E80E40C05509609640A016F4E108D99793914
 ```
 
 

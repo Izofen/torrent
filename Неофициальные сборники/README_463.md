@@ -1,3 +1,30 @@
+###  Публикация: 1128008   (729616) от 23.04.2017
+
+VA - Rock Blues Ballads Story 12 (2017) [MP3|320 Kbps] <Rock Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729616.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Walter Trout - Fly Away
+002. Cactus - Black Dawn
+003. The Rippingtons - Wild Tales
+004. Deb Ryder - Get A Little Steam Up(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 10:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C382CF0D2FFAF39E1CF722AFC0BF15F7EA5386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530223   (729681) от 10.02.2022
 
 VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -677,33 +704,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC6860190FE00D3CEBA11E52EC9B7A1589693783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127713   (730603) от 22.04.2017
-
-VA - Автозвук. Лучшее в Дорогу. (Sound Clinic - Bass Overdose Edition) (2017) [MP3|320 Kbps] <House, Techno, Progressive, Electro, Trance, Trap, DubStep, Chill>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Side:
-01. Audiofly, Georgia Lewis - In The (Last) Moment (Original Mix)
-02. Florian Kaltstrom - E1 (Original Mix)
-03. Johannes Brecht, Christian Prommer - Voix Grave (Johannes Brecht Version)(   Читать дальше...   )Жанр: House, Techno, Progressive, Electro, Trance, Trap, DubStep, ChillПродолжительность: 35:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06EC63688D6350F1B1CBA9F466F77FE442BDF0A
 ```
 
 

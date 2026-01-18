@@ -1,3 +1,57 @@
+###  Публикация: 1024333   (718160) от 08.06.2016
+
+VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aldo Moraes - Aria de Rio (Ipanema Beach Mix) (feat. Tony Trumpetta) (5:48)
+02. Mark Moragui - The Oath and the Man (Long Groove Mix) (5:43)
+03. Tommy Angel - Glitter Harmony (Sound of Essence Mix) (5:42)
+04. AS Trax - Remember New York (Lovers Mix) (5:49)(   Читать дальше...   )Жанр: Dance, Electro House, Progressive HouseПродолжительность: 10:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D82DF846934688799C9008A5A679DFD72BA33B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129947   (718432) от 30.04.2017
+
+VA - Mysteries of Psytrance Vol. 6 (Compiled By Ovnimoon)(2017) [FLAC|Lossless|tracks] <Psy-Trance, Goa-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ovnimoon – The Source (The Digital Blonde Remix) (08:57)
+02. Spiritual Mode – Universe Inside You (08:51)
+03. Egoflame – Breath of Life (07:53)
+04. Isralienn & FLuXusS – The Human Centipede X Nozomi Shirayuki (07:31)(   Читать дальше...   )Жанр: Psy-Trance, Goa-TranceПродолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B278DCD91777AF7AB8AA0FB47D2C528E9DEA757A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129852   (718709) от 30.04.2017
 
 Sverre Knut Johansen - Contact (2017) [MP3|320 Kbps] <Electronic, Ambient>
@@ -638,60 +692,6 @@ VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE97D8EF443555EADE3CC9D4D8236910D693189
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400426   (719143) от 05.08.2020
-
-Модель Поведения - Признаки прошлого (2020) [MP3|320 Kbps] <New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрный завет [00:03:16]
-02. Советский ньювейв [00:03:23]
-03. Форд Эскорт [00:03:15]
-04. Насквозь [00:02:43](   Читать дальше...   )Жанр: New WaveПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57FDE40DCDB1A2E23074DAE6DB1A5B0A0C50C41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400364   (719144) от 05.08.2020
-
-VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
-02. Housework - Culture Vibes (Drumflow Cut) (6:12)
-03. Clublife - Different Things (Poolside Mix) (6:17)
-04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 05:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
 ```
 
 

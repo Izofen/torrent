@@ -1,3 +1,30 @@
+###  Публикация: 992678   (897582) от 04.03.2016
+
+VA - Vocal Trance Seduction Vol 7 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radion6 & Neev Kennedy - Nothing Here But Goodbye (Ron Alperin Remix) (07:10)
+02. Kaimo K - Love Will Never Leave (Radio Edit) (02:55)
+03. Ruslan-set, Chiba & Victoria RAY - Eternal Beauty (06:36)
+04. Cathy Burton - Torn (F.G. Noise Edit) (03:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A54777F19EE79114E48A1D8EB25DFDFC503894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993144   (897585) от 04.03.2016
 
 Леонид Азбель и Катенька Дроздовская - Старая Одесса (2001) [MP3|320 кб/с] <Шансон>
@@ -662,33 +689,6 @@ VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370151   (898451) от 26.03.2020
-
-VA - Hear My Soul: Deep House Fashion Mix (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giuliano Rodrigues - Volta
-002. The Godfathers - Same Kind
-003. Shawanna - Turn Around
-004. Seaman - Hymalaya(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
 ```
 
 

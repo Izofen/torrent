@@ -349,6 +349,30 @@ magnet:?xt=urn:btih:23B94497DDA915A31A52C6817F121E60CBACC542
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528741   (569998) от 29.07.2012
+
+Катя Чехова (Катя First) + Вариант К - Дискография (2003-2009) 6 Альбомов [FLAC|Lossless]<Vocal House, Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_569998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катя Чехова (Екатерина Медведева (Губенко)) - культовая клубная певица. Родоначальница русской вокальной хаус-музыки. Продюсеры проекта — Сергей Пименов, Николай Лебедев, Роман Галушкин, продюсерский центр UPLIFTO. 13 декабря 2008 года проект был закрыт, а в январе 2011 стартовал заново, в оригинальном составе.Жанр: Vocal House, Drum n BassФормат: CD, Albums, Maxi-SingleПродолжительность: 06:54:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303762   (570082) от 22.05.2019
 
 VA - Deep House Hits: Ibiza 2019 – Armada Music (2019) [MP3|320 Kbps] <House, DeepHouse, ClubHouse, ProgressiveHouse>
@@ -668,33 +692,6 @@ VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580CA89F6B75F5EC6752571CF64C88C279D590EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043855   (571073) от 17.08.2016
-
-VA - Radio Charts - Gold Collection (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eduardo Espada  -  We Will Together  4:15
-02. Foxmelody  -  Be Junior  2:46
-03. Solovey  -  Vacuum  4:18
-04. Milena  -  One, Two, Three  3:32(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 05:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D6F34C97CAA9DA981B9194737A9C8004DBD854
 ```
 
 

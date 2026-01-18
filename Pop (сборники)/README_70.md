@@ -1,3 +1,30 @@
+###  Публикация: 1037436   (613666) от 24.07.2016
+
+VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love
+02. Stevie B. - Because I Love You (The Postman Song)
+03. Chris Rea - Ace Of Hearts
+04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911820   (614081) от 24.06.2015
 
 Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
@@ -731,33 +758,6 @@ VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35A57CBA922182BF7D63A828CB3408B76F97920F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295052   (624108) от 10.04.2019
-
-VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rammstein - DEUTSCHLAND
-002. Capital Bra - Cherry Lady
-003. Shindy - Affalterbach
-004. Eno - Blackberry Sky(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
 ```
 
 

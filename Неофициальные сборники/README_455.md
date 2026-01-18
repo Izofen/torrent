@@ -1,3 +1,30 @@
+###  Публикация: 1024104   (720197) от 07.06.2016
+
+VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <Tech House, Tribal, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endorphine - Our Night (Tanya Aura Remix) 07:15
+02. Dennis GRKN - Winner (Original Mix) 05:21
+03. DJ Sandro Mix - The Sick (Original Mix) 05:00
+04. Abel Ramos & Hurt - Believe (Extended Mix) 04:42(   Читать дальше...   )Жанр: Tech House, Tribal, Electro, ProgressiveПродолжительность: 09:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023978   (720307) от 07.06.2016
 
 VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Listening>
@@ -671,33 +698,6 @@ VA - My Favourite Hits of 1982 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B8EA8F068C6D45D61542073E7186DE1E24E79C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023785   (722137) от 06.06.2016
-
-VA - 100 Hits Car Songs (5СD) (2016) [MP3|320 кб/с] <Electronica, Euro House, R&B, Hip Hop, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722137.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Toxic - Britney Spears 03:20
-02. These Words - Natasha Bedingfield 03:36(   Читать дальше...   )Жанр: Electronica, Euro House, R&B, Hip Hop, PopПродолжительность: 06:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6074D884A95F66F4720672BDDCAD20EA9026F7B0
 ```
 
 

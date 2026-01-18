@@ -1,3 +1,30 @@
+###  Публикация: 1438874   (1040640) от 10.01.2021
+
+VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Someone Like You (4:45)
+02. Alessia Cara - Scars To Your Beautiful (3:50)
+03. Alicia Keys - Underdog (3:28)
+04. Anitta, Myke Towers, Cardi B - Me Gusta (3:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477A98FC1E45A03B995EB1CFAAFF6D1F6F6B676A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611945   (1040787) от 13.02.2023
 
 VA - I'm Listening Now 3 (2023) [MP3|320 Kbps] <Club, House, Other>
@@ -668,33 +695,6 @@ VA - Amusement Park: Pop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:561D776130EA9AACAA7B2AB3108A86E7AB4CCF85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437161   (1042281) от 04.01.2021
-
-VA - Hard Fitness Dance Music (2020) [MP3|320 Kbps] <Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляетесь на пробежку или в тренажерный зал? Закиньте этот плейлист в плеер, и вы сами поразитесь успехам, которые будут достигнуты на спортивном поприще!001. Exagon & The Unknown - Fight Back
-002. Hypnose - Phoenix
-003. Unifire - Generation Z
-004. N-Vitral - I'm A Rebel(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C06AE8C847D9F967D5F3E5F3B085E52448A1780
 ```
 
 

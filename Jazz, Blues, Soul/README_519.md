@@ -1,3 +1,282 @@
+###  Публикация: 1495993   (874483) от 16.09.2021
+
+Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meister Igel (Remaster) (3:58)
+02. Du gabst mir 7 Kinder (3:11)
+03. Ich hab Scheiß gebaut (5:50)
+04. Dein Herz schlägt wie es schlägt (Remastered) (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496201   (874640) от 16.09.2021
+
+V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cindy Bradley - Exhale
+02. Kayla Waters - Open Portals
+03. Nick Colionne - Right Around The Corner
+04. Oli Silk - Just Can't Resist(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99591B148E81442E4765BE38B11E2B634C2A1094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496009   (874648) от 16.09.2021
+
+VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nat King Cole Trio - 'Tis Autumn (1993 Digital Remaster) (03:08)
+02. Sarah Vaughan - September Song (05:47)
+03. John Coltrane - Autumn Serenade (04:19)
+04. Dinah Washington - September In The Rain (02:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F0F209DBCC8843CC27E8D83EFC5E4E65012B09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300207   (874798) от 25.02.2011
+
+49 Ford - That's How We Roll (2011) [FLAC|Lossless]<Blues-Rock, Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Barricade My Love (5:41)
+02. Think It's Gonna Rain (5:44)
+03. 49 Ford (3:18)
+04. Ain't No Sunshine (3:47)
+05. Memphis (4:02)
+06. See What Love Can Do (5:44)
+07. Insurance Company Blues (4:34)
+08. I'd Rather Go Blind (5:48)
+09. Shoe Fly (5:09)
+10. Plantation Jam (11:41)Жанр: Blues-Rock, Funky BluesПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299443   (874800) от 25.02.2011
+
+Joe Beck & Ali Ryerson - Django (2001) [FLAC|Lossless]<Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. People Make The World Go 'Round (5:02)
+02. Laura (4:35)
+03. Django (4:45)
+04. Carioca Blue (4:12)
+05. When I Fall In Love (4:56)
+06. Spain (4:35)
+07. Come Together / Alone Together (4:20)
+08. Tenderly (3:51)
+09. Hobo (4:01)
+10. It Takes Two (3:03)(   Читать дальше...)Жанр: Fusion, Post-BopПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300767   (874812) от 25.02.2011
+
+Chick Corea Elektric Band - Beneath The Mask (1991) [APE|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Beneath The Mask
+02. Little Things That Count
+03. One Of Us Is Over 40
+04. A Wave Goodbye
+05. Lifescape
+06. Jammin E.Cricket
+07. Charged Particles
+08. Free Step
+09. 99 Flavors
+10. IllusionsЖанр: FusionПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765571   (874851) от 12.03.2014
+
+Nicki Parrott - Autumn Leaves (2012) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves (3:47)
+02. Early Autumn (5:12)
+03. Autumn In New York (5:24)
+04. Autumn Nocturne (5:17)
+05. Autumn Serenade (4:31)
+06. Autumn In Rome (4:13)
+07. Tis Autumn (5:14)
+08. September Song (4:30)
+09. Lullaby Of The Leaves (4:42)
+10. Willow Weep For Me (5:44)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEAB004203337519D5DB2FEECE3C9B9C22C6E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765573   (874900) от 12.03.2014
+
+Oscar Benton - All I Ever Need Is You (2004) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ever Need Is You (2:42)
+02. Everybody's telling Me (3:10)
+03. Roll On Sweet Mississipp (3:53)
+04. Bensonhurst Blues (3:38)
+05. Wooly Booly Boogie (3:13)
+06. Draggin Around (10:26)
+07. Today Is Yesterday's Tomorrow (4:08)
+08. Stop What You're doing (2:57)
+09. Took Me A Long Time (5:03)
+10. Come Back (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7A7CBE44A013EBA22FB997EBFB067AFE71B530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765580   (874907) от 12.03.2014
+
+Johnny Winter - Deluxe Edition (2001) [FLAC|Lossless]<Blues-Rock , Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Mojo Boogie (4:54)
+02. Don't Take Advantage Of Me (5:24)
+03. Murdering Blues (5:01)
+04. Georgianna (3:45)
+05. Good Time Woman (6:05)
+06. Third Degree (6:35)
+07. Broke And Lonely (4:14)
+08. Master Mechanic (3:38)
+09. Lights Out (2:35)
+10. Bad Girl Blues (4:34)(   Читать дальше...   )Жанр: Blues-Rock , BluesПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC97B85FA0969F74CEA7DA263FD7A7204000344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765761   (874972) от 12.03.2014
 
 Beegie Adair - The Nearness of You (2005) [FLAC|Lossless]<Piano Jazz>
@@ -479,250 +758,6 @@ Gabin - TAD|Replay (2012) [FLAC|Lossless]<Nu Jazz, Jazzy Lounge>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872307   (875685) от 24.02.2015
-
-Frank Sinatra - Sings His Greatest Hits (1997) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. All Of Me [02:44]
-02. I Could Write A Book [02:45]
-03. I've Got A Crush On You [03:18]
-04. Night And Day [03:42]
-05. Saturday Night (Is The Loneliest Night Of The Week) [02:46](   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A469F80BCC9A3EBC3E58F829AC191F627C7BA255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495866   (875700) от 15.09.2021
-
-Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Guitar (4:44)
-02. Electric Memphis Blue (4:17)
-03. All Night Long (4:14)
-04. Born Bad (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A1BE35AE23369376D11D5A43EB91544417F11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495954   (875706) от 15.09.2021
-
-Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treat Her Right (3:20)
-02. Lonely Mile (4:45)
-03. Secret Agent (4:50)
-04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495949   (875717) от 15.09.2021
-
-Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holler If You Hear Me (3:33)
-02. Guilty of a Good Time (3:26)
-03. If You Go Away (She Might Come Back) (3:32)
-04. Holding on with One Hand (3:56)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B7BEBDCF4E2EB835381B15915E80F1BED896DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495957   (875818) от 15.09.2021
-
-Beat brutality - A blues detour (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for the damned (3:06)
-02. Sweet little furry (2:56)
-03. First wave (2:39)
-04. Treasure that you pleasure (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E68A2158419ABB532AC2A1DD0C183E20FE7274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495988   (875824) от 15.09.2021
-
-Brad Vickers & His Vestapolitans - The Music Gets Us Thru (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumb Like A Fox (2:00)
-02. Take It Slow (4:09)
-03. Please Don't Say (3:36)
-04. Big Wind (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524C77E789E0CCD6F5DB13C10C0779A1EC9E069A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495945   (875825) от 15.09.2021
-
-Adam Schultz - Soulful Distancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Real Mother for Ya (feat. Clarence Spady) (4:34)
-02. Early in the Mornin' (feat. Clarence Spady) (4:55)
-03. Good Conversation (feat. Michael Angelo) (5:03)
-04. Harlem Tonight (feat. Michael Angelo) (3:58)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A36D4E997E4A7A59FF20650255D5C7F1FE7D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495987   (875829) от 15.09.2021
-
-Bobby Powell - Spread Your Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Love You (3:23)
-02. The Night Time Is the Right Time (4:58)
-03. Spread Your Love (3:39)
-04. I Can't Stop Loving You (4:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9119FCB2D63F03F46639F48A0C43982C58414829
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997251   (875830) от 16.03.2016
-
-Scott Henderson, Jeff Berlin, Dennis Chambers - HBC (2012) Mascot Label Group[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Actual Proof [10:17]
- 02.Mysterious Traveller [06:59]
- 03.Footprints [08:46]
- 04.D Flat Waltz [11:58](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194DC436DACB852FAF46CE5996D9313595C8F335
 ```
 
 

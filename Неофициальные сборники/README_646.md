@@ -1,3 +1,30 @@
+###  Публикация: 971281   (987658) от 02.01.2016
+
+VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De La Cream - Lovin' You [04:21]
+02. Luis Hermandez - Thru The Night [04:02]
+03. Roberto Sol - Momentos Azules - Extended Mix [04:59]
+04. Maggie Jane - A Moment With You [04:28](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA607439FFCB16FDA040AE0A2E1C3CEFF040FEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971290   (987660) от 02.01.2016
 
 VA - Suenos de California Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -719,39 +746,6 @@ N/AЖанр: Trance,Progressive Trance.Продолжительность: 06:55
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9957B47C23991DE657BE349AB6E47992EF76CC01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609373   (990509) от 29.01.2013
-
-VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SuddenDef & Wickaman - Destruct
-02. Komatic & Technicolour - Dickinson's Rocket (Original Mix)
-03. Teddy Killerz - New Drums
-04. dRamatic & dbAudio - Flex Through The Solar System
-05. The Upbeats - Undertaker
-06. Prolix - Over You
-07. Mos - Blue Moon (Original Mix)
-08. B4sstee - My Way
-09. Mob Tactics - Prang
-10. S.P.Y - Hammer In My Heart (Feat Diane Charlemagne)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67115FD23A61DDADCFB8FA81837D775E0E7F8356
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1479242   (1009547) от 24.06.2021
+
+VA - Samsara Heat (Vol.01) (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vibronics - Shine His Version
+002. Gentleman - Blessings
+003. Junior Byles - Fever
+004. Lloyd, Claudette - Queen Of The World(   Читать дальше...   )Жанр: Reggae, Riddim, DubПродолжительность: 07:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1065B75B5BAAD14663C9F34048F65340C4B3505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479247   (1009552) от 24.06.2021
 
 VA - New Latin Hot Playlist (2021) [MP3|320 Kbps] <Latin, Reggaeton, Dancehall>
@@ -668,33 +695,6 @@ VA - Confessions (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B95EA6F72EE6D38129175CB24D031503A143514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477977   (1010638) от 17.06.2021
-
-VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. blackbear - hot girl bummer (3:08)
-02. DJ Khaled, Post Malone, DaBaby, Megan Thee Stallion, Lil Baby - I DID IT (2:45)
-03. Madison Beer - Baby (3:27)
-04. Alan Walker, salem ilese - Fake A Smile (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D46331EFBBC34BB5A9A1C69EE317D1F051B6F0C
 ```
 
 

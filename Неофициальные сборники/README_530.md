@@ -1,3 +1,30 @@
+###  Публикация: 1273575   (799397) от 03.01.2019
+
+VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dan & Dan - 2+2 (D S B Remix)
+002. Leon Krasich - Level 44
+003. Oliver Smith - Foundation
+004. We Ourselves - Good Vibrations(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273665   (799399) от 03.01.2019
 
 VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, Other>
@@ -668,33 +695,6 @@ VA - Новогодний Торт (2017) [MP3|256-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A2C73C6ECE5CFB0664B2C30B9B9612BB2C35EB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384838   (800196) от 23.05.2020
-
-VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Booka Shade - Understanding
-002. François X - Absolute Therapy
-003. Benny Aims - Picture This
-004. Mojeaux - Detach (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 13:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685CAFF5B238C91154E4D24C1CEE2733FDE5A4AD
 ```
 
 

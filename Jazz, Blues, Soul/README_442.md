@@ -1,3 +1,246 @@
+###  Публикация: 1021103   (741073) от 29.05.2016
+
+Jay Gordon - Blues Infested (1994) [FLAC|Lossless|tracks] <Modern Electric Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Boogie    03:34
+02. Mississippi Mud    03:31
+03. Can't Shake This Feelin    04:15
+04. Storm In Chi Town    06:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C66653EBCF01D5A2DA211A3522C63FB6C1AAB09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021050   (741074) от 29.05.2016
+
+Marc Lelangue Trio - Lost in the Blues (2016) [MP3|320 кб/с] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empty House Blues (02:57)
+02. Forgive Me Please (03:41)
+03. Send My Body to Bourbon Street (03:52)
+04. You Missed a Good Man (03:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7F0B4FAAA6853161E2B0037B1599DB31A27853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021430   (741079) от 29.05.2016
+
+New Cool Collective & Mark Reilly - The Things You Love (2016) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Be Dancing (4:17)
+02. The Things You Love (3:33)
+03. Double Stitch (4:16)
+04. Do The Right Thing (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAD9D6569AA0FAE62382C184BB6C41C4285E95A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021434   (741080) от 29.05.2016
+
+Charlie Rouse - Yeah! (1960) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Don't Know What Love Is [06:32]
+ 02.Lil Rousin' [05:06]
+ 03.Stella By Starlight [06:22]
+ 04.Billy's Blues [08:47](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBD04764F18450D072039DD9BFBDB15D6B6BE30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021536   (741081) от 29.05.2016
+
+Dinah Washington - The Definitive Dinah Washington (2002) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evil Gal Blues (02:55)
+02. Embraceable You (02:56)
+03. New Blowtop Blues (02:38)
+04. Our Love Is Here to Stay (02:33)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B986A68C63B3557541516C4CF1CDAF25E1846D6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021356   (741084) от 29.05.2016
+
+John Patton - Boogaloo (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Boogaloo Boogie [05:29]
+ 02.Milk & Honey [08:21]
+ 03.Barefootin' [07:11]
+ 04.Shoutin' But No Poutin' [07:47](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263CBD45E752A647A5533A84628BA5DE65A7D64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282945   (741161) от 15.02.2019
+
+Ben Webster - My Romance (1965) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother John's Blues [5:03]
+02. Nancy (With the Laughing Face) [4:27]
+03. Duke's in Bed [3:02]
+04. What's I'm Gotchere [4:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63E1821B37563B3F9DDE37F3A5FFF6D36EFEB53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127125   (741204) от 20.04.2017
+
+Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Divining [13:52]
+ 02.City Snow Stories [09:21]
+ 03.For Oliver Lake [04:59]
+ 04.The Tiny Boxes Speak Her Name [02:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803641727D8D25081D48C69ABA662FBCD951334D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283099   (741229) от 15.02.2019
+
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283170   (741231) от 15.02.2019
 
 Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
@@ -452,249 +695,6 @@ VA - The D-Vine Spirituals Records Story, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:665629173282A885C4228747CAD215B919186E20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020372   (742182) от 28.05.2016
-
-Tommy Smith Sextet - Evolution (2003) [APE|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Woodstock
-02.	Easter Island
-03.	Lisbon Earthquake
-04.	Siege Of Leningrad(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAE94AB0414A3CA78B22786FB7F180B24CC148F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217079   (742263) от 05.04.2018
-
-Sam Green and the Midnight Heist - Onsette Return (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where You're From
-02. Leave It There
-03. Free
-04. Everybody Moving(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3793D483C5D16E063DEAD408536D38786F074C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020984   (742310) от 28.05.2016
-
-Ziggy Marley - Ziggy Marley (2016) [FLAC|Lossless|image + .cue] <Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start It Up (3:22)
-02. Weekend's Long (4:27)
-03. Ceceil (3:11)
-04. Amen (3:13)(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E926C0FC68B9451B6279320DE8628EAF7AA53734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524688   (742358) от 17.01.2022
-
-Dinah Washington - Blue Gardenia (1955 - 1961) 1995, Emarcy [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Winds [3:04]
-02. I'll Close My Eyes [4:00]
-03. Never Let Me Go [2:45]
-04. It Could Happen To You [2:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F663515A2D23DAC27E566B6F2ADE526F882C0485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217078   (742393) от 05.04.2018
-
-Edward Hartline - Edward Hartline - Human Nature (2015) [MP3|320 Kbps] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold glass ceilings 3:18
-02. Shepherd or the wolf 4:24
-03. The rain 4:46
-04. Im not perfect 3:50(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF470D3A1BC5F6F0377332C9DD98B948D825745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217625   (742406) от 05.04.2018
-
-Hank Mobley, Billy Root, Curtis Fuller, Lee Morgan - Monday Night At Birdland (1958) 2016, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by ‘Symphony Sid’ [00:11]
-02. Walkin' [12:27]
-03. All The Things You Are [11:28]
-04. Bag's Groove [12:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB618E6A535986FD001965B42130053F0D48C054
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217335   (742411) от 05.04.2018
-
-Chet Baker - Stella By Starlight (1964) 1989, West Wind [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine [05:32]
-02. Stella By Starlight [05:38]
-03. Short Bridge [04:55]
-04. Serpent's Tooth (take 1) [06:06](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2067D5694BA0441B6AE0E2C17BBE59003A0E2E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217337   (742412) от 05.04.2018
-
-Bud Freeman - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Town Hall Blues [03:16]
-02. Tea For Two [02:54]
-03. Honeysuckle Rose [02:52]
-04. Room With A View [03:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183D724BA552A0F3DF51ADA163312DB382C89955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020618   (742433) от 28.05.2016
-
-Lisa Mann - Hard Times, Bad Decisions (2016) [MP3|320 кб/с] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times, Bad Decisions (04:32)
-02. Two Halves of One Broken Heart (04:13)
-03. Certain Kinda Man (03:51)
-04. I Go Zoom (04:19)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BBF9BE35B11A5419A9153F57B0B81FB2FDFCBA
 ```
 
 

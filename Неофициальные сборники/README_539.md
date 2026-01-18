@@ -1,3 +1,30 @@
+###  Публикация: 1504695   (810204) от 24.10.2021
+
+VA - 30(9) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jah Khalib - Летний Снег (Winstep Radio Remix) (2:40)
+02. JONY The Limba - Босс (DJ Ramirez DMC Mansur Radio Edit) (2:32)
+03. RASA - Косички-вертолет (Temoff Remix) (2:39)
+04. Tamerlan Alena - Детка (Malevich Radio Remix) (2:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904B560A3825D8DFE2BEF2B0083F9F8160469889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383578   (810236) от 16.05.2020
 
 VA - The Official UK Top 40 Singles Chart 15.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118210   (811679) от 26.03.2017
-
-VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mojiito - Summer Love  7:51
-02.  Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria Radio Mix)  3:07
-03.  Ultramarin - The Sea (George Whyman Remix)  5:12
-04.  Boehm - Music  7:19(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 05:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA5F72A89FD886A3100A96B36641ECBBBCAC7A3
 ```
 
 

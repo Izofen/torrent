@@ -1,3 +1,57 @@
+###  Публикация: 1509019   (795483) от 11.11.2021
+
+Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Век воли не видать
+02. Черней, чем блюз
+03. Оксюморон(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508556   (796802) от 09.11.2021
+
+Gorky Park - The Best (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello My Friend (Remastering 2021) (3:45)
+ 02. Moscow Calling (Remastering 2021) (4:57)
+ 03. Stare (Remastering 2021) (4:44)
+ 04. Bang (Remastering 2021) (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B7BB4F5E9FA9BA753497C23F876B6F2ADB0F7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508646   (796806) от 09.11.2021
 
 Gorky Park - Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:6838DB4EF3A792E8A506EABCA619BF5FE0385F69
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:901F912CF16499B7A330AEC9A9852F662117C69C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119592   (807094) от 28.03.2017
-
-Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полночь
-02. Пирамида Хео
-03. Моа-моа
-04. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E84002E9D96B49DBA5CF50DE48846757A609CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009820   (807464) от 22.04.2016
-
-Агата Кристи - Позорная Звезда (1993) 1995 Extraphone [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Айлавью (4:16)
-02. Нисхождение (4:38)
-03. Сирота (4:19)
-04. Новый год (3:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737D4F6AC8376D17243968BC2E655BBCCFC978A2
 ```
 
 

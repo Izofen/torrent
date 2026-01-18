@@ -1,3 +1,30 @@
+###  Публикация: 1045714   (557845) от 24.08.2016
+
+VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Strasser - Letkiss (Letka-Enka)
+02. Chak Berry - Johny Be Good
+03. ELO. - so serios
+04. Creedence clear water reviv al - Have you ever seen the rain(   Читать дальше...   )Жанр: PopПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045751   (557939) от 24.08.2016
 
 VA - Летние новинки интернета 50+50 Август (2016) [MP3|319-320 Kbps] <Pop>
@@ -680,33 +707,6 @@ VA - ЕвроХит Топ 40 Europa Plus 06.07.2018 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CD446FFE59F90105C6A8403D680DE172BA3AC12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234523   (565843) от 08.07.2018
-
-DJ KramniK - Collection (2018) [MP3|320 Kbps] <Italo-Disco, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love The Italo Disco (3:36)
-02. New Day (Pozitivchik 2) (5:38)
-03. The Paradise (Original Version) (9:33)
-04. Winter Voyage (Radio Version) (6:24)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 04:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8B66CF6DED67CDAA3A2EAFFFC1EC982B404FA2
 ```
 
 

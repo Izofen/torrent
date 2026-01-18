@@ -1,3 +1,300 @@
+###  Публикация: 1455258   (1025482) от 20.03.2021
+
+Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Headhunter (Apr. 1983 Arista)
+
+01. Headhunter
+02. Eat The Rich(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BC5C474A83CD28752B3B4E7060293304DA6C4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455878   (1025486) от 20.03.2021
+
+Paradise Lost - Gothic Live at Roadburn (2016) 2021 [MP3|320 Kbps] <Doom Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desolate - Gothic [00:06:43]
+02. Dead Emotion [00:04:42]
+03. Shattered [00:04:36]
+04. Rapture [00:05:59](   Читать дальше...   )Жанр: Doom Metal, Gothic MetalПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A3E977CC2FEE037E371EBEFAB5E62D4CAC3DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455632   (1025488) от 20.03.2021
+
+Gothic Sky - In Search of a Lost Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven [00:05:34]
+02. Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
+03. Dark flame (feat. Arthur Berkut) [00:06:47]
+04. Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7631D90EFE9EC3DC1629B72683509658EA3E75C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455797   (1025489) от 20.03.2021
+
+Disturbed - The Vengeful One (2015) Single [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vengeful One (4:12)
+02. Immortalized (4:20)
+03. The Vengeful One (Instrumental) (4:12)
+04. Immortalized (Instrumental) (4:18)Жанр: Nu Metal, Alternative MetalПродолжительность: 00:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FF5C41A787985E12E0ECF6F5E43DE7FFEC3C0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455831   (1025495) от 20.03.2021
+
+Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Protoxidation (Ouverture) 02:08
+02. The Space Between Us 04:04
+03. No More Pain 04:50(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15ADBE6E0540A17A6C03E97D4B7FBF2CC9E76368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455677   (1025497) от 20.03.2021
+
+A Pregnant Light - Kiss Me Thru the Phone (2021) [FLAC|Lossless|WEB-DL|Tracks] <Post-Black Metal, Post-Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Me Thru the Phone (December) [00:02:44]
+02. The Power of Powers (November) [00:03:16]
+03. Song for Peaches (October) [00:04:40]
+04. The Agent & Attendant (September) [00:04:15](   Читать дальше...   )Жанр: Post-Black Metal, Post-Rock, HardcoreПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAA8A180346F214599A35E5C0344EBE1D2ECF8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455808   (1025498) от 20.03.2021
+
+Those Who Ride With Giants - Forlorn (2021) [MP3|320 Kbps] <Post-Rock, Electronic, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lure (00:43)
+ 02. The Passage of Wonder (03:54)
+ 03. The Resilience Born in Fire (04:58)
+ 04. The Cry of Silence (09:23)(   Читать дальше...   )Жанр: Post-Rock, Electronic, InstrumentalПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D279CEED5994EE277A6D6309517E906451071B2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455601   (1025583) от 19.03.2021
+
+The Blue Stones - Hidden Gems (2021) [MP3|320 Kbps] <Blues Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lights On [00:03:09]
+02 Shakin' Off The Rust [00:03:42]
+03 One By One [00:04:11]
+04 Careless [00:03:35](   Читать дальше...   )Жанр: Blues Rock, SoulПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFDFA4643B392B0F720C5B2F69DAD02BA553C2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455464   (1025619) от 19.03.2021
+
+VA - Tribute To Красная плесень (2014) 2CD [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый газовый котёл - Клава              [3:12]
+02. Мазер факер - Мы е... первый раз          [2:48]
+03. Палата № 6 - Г.Ю. Рок-н-ролл              [3:11]
+04. Зюг-Вест - Желтая подводная лодка         [2:15](   Читать дальше...   )Жанр: PunkПродолжительность: 02:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4286C4ABDCDFAC2BAFFC8B4640CB543F3CA50C80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455610   (1025637) от 19.03.2021
+
+Serj Tankian - Elasticity (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elasticity
+02. Your Mom
+03. How Many Times?
+04. Rumi(   Читать дальше...   )Жанр: Alt. Rock, Alt. Metal, ExperimentalПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09A4BC60381BC1E650DF3CFB45D86D78DA1B4D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455468   (1025641) от 19.03.2021
+
+Ringo Starr - Zoom In (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here's To The Nights
+02. Zoom In Zoom Out
+03. Teach Me To Tango
+04. Waiting For The Tide To Turn(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C75948935917DD1CE9FA8D5A336E8104EA0D06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455401   (1025643) от 19.03.2021
 
 Ken Hensley - My Book Of Answers (2021) [FLAC|Lossless|image + .cue] <Classic Rock>
@@ -395,303 +692,6 @@ magnet:?xt=urn:btih:6B86EB3F364A4A0DAD3311D81668F65625EB13CA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820FF4A1552F981175A366B4F22C7A3884BB50AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455036   (1025799) от 18.03.2021
-
-Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Make-up & Faded Blue Jeans [00:04:04]
-02 - Down to a Crawl [00:03:21]
-03 - People Like Me [00:03:39]
-04 - Kentucky Bluebird [00:03:42](   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8C9F19C04C184727CCDAB746564077617755E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455178   (1025815) от 18.03.2021
-
-Issa - Crossfire (2015) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossfire
-02. New Horizon
-03. Raintown
-04. Long Time Coming(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174C073DF50FC855F1ECC7C9BDDFCA8E5A09BDB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455174   (1025818) от 18.03.2021
-
-Issa - Run With The Pack (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Am I Losin' You
-02. Run With The Pack
-03. Sacrifice Me
-04. How Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F8BC3F56FFB15C41B4F54E88117347BC578D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455032   (1025820) от 18.03.2021
-
-Метель - Ради того, чтобы спастись (2021) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бобровская Метель [00:03:05]
-02 - Виски с сигаретой [00:03:01]
-03 - Кнопка _Стоп_ [00:03:51]
-04 - Как могла ты уйти [00:03:29](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530725B76AC4F1D899102F4927915BC491C15622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455063   (1025822) от 18.03.2021
-
-com.pass - Полюса (2021) [MP3|320 Kbps] <Russian Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вступление [00:01:22]
-02 - Ошибка [00:03:33]
-03 - Объект №0 [00:03:48]
-04 - Демон [00:03:33](   Читать дальше...   )Жанр: Russian MetalcoreПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BABD698753D23C5DD3BA5149098E3B9CFBC5755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455214   (1025825) от 18.03.2021
-
-Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025825.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Masquerade Overture (Live) (03:05)
- 02. As Good As Gold (Live) (07:18)
- 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455061   (1025829) от 18.03.2021
-
-Мышц. - Sadзвездие (2021) [MP3|320 Kbps] <Post-Punk, Shoegaze, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Цифры [00:03:34]
-02 - Федя [00:03:25]
-03 - Психосом [00:00:59]
-04 - Лавины [00:03:45](   Читать дальше...   )Жанр: Post-Punk, Shoegaze, IndieПродолжительность: 00:25:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E317F41A9EEC971A626104EB6856372BB7E9E8BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455318   (1025837) от 18.03.2021
-
-Псарня - Глэмпанк (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - собачий кайф [00:02:49]
-02 - ружьё [00:02:38]
-03 - шлюхи деньги наркота [00:02:17]
-04 - тупица [00:03:24](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0CB91258FB648160647E7F5C085625A42F8F16A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455080   (1025839) от 18.03.2021
-
-Haxmastaren - Sol i Exil (2021) [MP3|320 Kbps] <Stoner Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blood Moon [00:04:25]
-02 - Millennium Phenomenon [00:05:47]
-03 - Wavelurker [00:03:40]
-04 - Dödskult Ritual [00:04:00](   Читать дальше...   )Жанр: Stoner Rock, MetalПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF2C87A85F940C75419200D8BD383B0210E9DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455053   (1025841) от 18.03.2021
-
-FalStep - Плавучий Остров (2021) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Выйти И Сказать [00:03:38]
-02 - С Тобой [00:04:30]
-03 - Kray [00:03:40]
-04 - Горловский Туман [00:04:27](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21360849656C5A3EF7466493A7F4F5EEEE399C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455317   (1025845) от 18.03.2021
-
-FalStep - Минуты Счастья (2020) [MP3|320 Kbps] <Alternative Progressive Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ценить Сейчас [00:02:03]
-02 - Там, Где Нас Нет [00:03:28]
-03 - Больше Звуков И Тебя [00:04:10]
-04 - Время Забыть [00:03:19](   Читать дальше...   )Жанр: Alternative Progressive Metal, Nu MetalПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ED0E04C96275191D40CDDA57D2A5A5B472FFDF
 ```
 
 

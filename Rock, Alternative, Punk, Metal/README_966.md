@@ -1,3 +1,296 @@
+###  Публикация: 1400466   (719142) от 05.08.2020
+
+Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Absence Of Presence (08:22)
+02. Throwing Mountains (06:21)
+03. Jets Overhead (05:17)
+04. Propulsion 1 (02:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737EAED7A46723D9C1D424F0B9B3139A9C31714
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400474   (719148) от 05.08.2020
+
+Капитанский ром - Блуждающий огонь (2020) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719148.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Блуждающий огонь
+2. Казнь пирата
+3. Исполнитель желанийЖанр: Horror Punk, Folk PunkПродолжительность: 00:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6033EE7717317BB81E7B55881D4C0034DDF9EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400509   (719152) от 05.08.2020
+
+Thundermother - Heat Wave (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud and Alive (03:56)
+ 02. Dog from Hell (03:38)
+ 03. Back In '76 (03:34)
+ 04. Into the Mud (03:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6968B90D0E33FFC8965C83DD6FD19CD5A8E3FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285595   (719159) от 27.02.2019
+
+VA - Les 35 Ans De Radio Libertaire (2017) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D' de Kabal vs Franco Mannara - Ils voudraient que nous soyons cela (03:07)
+02. Achab - Black Block (04:08)
+03. La Twal - Sog Nig Keynmol / Ne dis jamais (04:17)
+04. Les Ogres de Barback - Grand mère (08:34)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91133AEB9F917822221113C48466AA33BF12755E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285776   (719160) от 27.02.2019
+
+Thornbridge - Theatrical Masterpiece (2019) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take To The Oars (1:28)
+02. Theatrical Masterpiece (3:46)
+03. Keeper Of The Royal Treasure (4:13)
+04. Revelation (6:24)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C71E220E7DC9766DF8AC9996E85DEB7C48BF33D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669241   (719214) от 17.06.2013
+
+VA - 100 Hits Rock Classics (5CD) (2012) [MP3|256 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic RockПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E42EBB2D96369865931B41CFA9E33DCA9F48A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218888   (719231) от 11.04.2018
+
+Breaking Benjamin - Ember (2018) [MP3|320 Kbps] <Post-Grunge, Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyra
+02. Feed The Wolf
+03. Red Cold River
+04. Tourniquet(   Читать дальше...   )Жанр: Post-Grunge, Alt. MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDD8A87FAEABAE8CE180EA8C7E7D0C1F89231F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400526   (719255) от 05.08.2020
+
+Wildness - Wildness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Inside My Head (03:54)
+02. Stranger (03:21)
+03. Shadowland (04:37)
+04. Alibi (05:09)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1285DAD2289A0EDCDEA359A41BB68996645768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400514   (719257) от 05.08.2020
+
+Kryptonite - Kryptonite (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing Fire (03:38)
+02. This Is the Moment (03:54)
+03. Keep the Dream Alive (03:35)
+04. Fallen Angels (05:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF56B438686B21DD038126E87ADC478CCCF68967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400497   (719399) от 05.08.2020
+
+Rhino Bucket - Get Used to It (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat To Death Like A Dog (04:55)
+02. No Friend Of Mine (03:38)
+03. Hey There (04:17)
+04. The Devil Sent You (04:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831E42C072A37D04443DC23462554D55D6500C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400359   (719409) от 05.08.2020
+
+Rhino Bucket - Rhino Bucket (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Night Stand (04:04)
+02. Beg for Your Love (04:32)
+03. Train Ride (04:16)
+04. Going Down Tonight (03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D732CE312B9D86A10377BE5719CF0ECE6546CEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218848   (719514) от 11.04.2018
 
 Aeterna - Легенда Начинается (2018) [MP3|320 Kbps] <Folk Metal>
@@ -398,303 +691,6 @@ Dan Reed Network - Fight Another Day (2016) [FLAC|Lossless|tracks] <Melodic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3CCB2C47FCDC47E1AAE482C4D2C1E417CF6408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129831   (720569) от 29.04.2017
-
-VA - Охота 73 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пепельный свет - Город Е
-02. Beretta - В гости к богу
-03. !БЕЗ КОМПРОМИССОВ! - Мы - здесь!
-04. Квэнди - Герой(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80124630663B89170D11B357EA2E4F612F263B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024141   (720572) от 07.06.2016
-
-Dan Reed - Transmission (2015) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний сольный альбом фронтмэна Dan Reed Network.01. Broken Soul
-02. Roll The Dice
-03. Drive
-04. Anywhere But Here(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C889E74671234296C3175E66B901308C59D5BC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024059   (720576) от 07.06.2016
-
-Frost - Falling Satellites (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Day (1:37)
-02. Numbers (4:22)
-03. Towerblock (6:14)
-04. Signs (6:37)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531218A9C964A81336640C39C9ED474CEB4CC634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024156   (720663) от 07.06.2016
-
-Hater - Requiem Aeternam (2016) [MP3|320 кб/с]<Deathcore, Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720663.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Psalm 22:1
-[04:33] 02. Proclamation (feat. Andrew Patterson from 'Cortexiphan')
-[04:35] 03. In Vain
-[04:22] 04. Bleakness (feat. Mattia Sogari from 'Pursuing The End')(   Читать дальше...   )Жанр: Deathcore, DowntempoПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AE0D28D1021D26F30046C93821E52FD94C024E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024158   (720676) от 07.06.2016
-
-Sandalinas - Fly To The Sun (2008) [FLAC|Lossless|image + .cue] <Melodic-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly To The Sun - 3:31
-02. Never Seen Before - 3:43
-03. Bad Dreams - 2:57
-04. Back From The Light - 0:51(   Читать дальше...   )Жанр: Melodic-RockПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6166803E3DCAB3E62CD99842723A0A9544553C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129652   (720712) от 29.04.2017
-
-Rhino Bucket - The Last Real Rock N’ Roll (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Citizens (4:03)
-02. Everything You Do (3:15)
-03. Last Call (3:38)
-04. I'm Your Doctor (2:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA4EE488570182B24381AE02A37BE2CAC743E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129560   (720713) от 29.04.2017
-
-Feist - Pleasure (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pleasure (04:45)
-2. I Wish I Didn’t Miss You (04:18)
-3. Get Not High, Get Not Low (04:57)
-4. Lost Dreams (05:18)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF522BA3AEBC4F677B45AC18737892286213902E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531585   (720750) от 16.02.2022
-
-Praying Mantis - Katharsis (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry For The Nations
-02. Closer To Heaven
-03. Ain't No Rock 'n' Roll In Heaven
-04. Non Omnis Moriar(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5147DD8EBF70B5B30F863137747CCDEA5EA172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531695   (720752) от 16.02.2022
-
-Voivod - Synchro Anarchy (2022) 2xCD [FLAC|Lossless|image + .cue] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720752.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Synchro Anarchy:
-01. Paranormalium
-02. Synchro Anarchy
-03. Planet Eaters(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F3CEED822E46BCA2C0A904D6DC06F0E0A303AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531713   (720767) от 16.02.2022
-
-Touch - Tomorrow Never Comes (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, Classic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Never Comes (4:58)
-02. Let It Come (4:16)
-03. Swan Song (7:44)
-04. Try To Let Go (4:49)(   Читать дальше...   )Жанр: Melodic Rock, Classic Rock, AORПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AB9F57833CCA6AFA37444758D9887D0EE377BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531680   (720769) от 16.02.2022
-
-Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Route 666
-02. Shelob's Lair
-03. Brutish Manchild
-04. Half Past HumanЖанр: Heavy Metal, Doom MetalПродолжительность: 00:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A36A7A02E41F100E906BBEF67CD27F925E6E34D
 ```
 
 

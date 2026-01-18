@@ -1,3 +1,57 @@
+###  Публикация: 1438777   (1040369) от 11.01.2021
+
+Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Deep-House, Synthpop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (Vintage Culture & Kiko Franco Remix) [00:05:45]
+02. Desire (Vintage Culture & Kiko Franco Remix Edit) [00:03:45]
+03. Desire (Charlotte de Witte Remix) [00:07:52]
+04. Desire (Solomun Remix) [00:06:17](   Читать дальше...   )Жанр: Electronic, Deep-House, SynthpopПродолжительность: 02:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA58809A62D47C1ADAEEB771283554ABD47AA506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612184   (1040513) от 14.02.2023
+
+AzizRush - Under Pressure (2023) Debut [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Modern Breakbeat (06:37)
+02-Bass Pressure (03:56)
+03-Rockin' Beats (04:09)
+04-Shredding Bass (04:28)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B43F585ABEC5BBA7462A7D280B9B715DBD9471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612171   (1040560) от 14.02.2023
 
 Hoten - 29 Summers Album Remixes (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
@@ -639,60 +693,6 @@ VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14D7E7E8B3DEDEED2BF0635AE7BF2A6116EF6870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438404   (1041194) от 08.01.2021
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & HALIENE - Tidal Wave (Daxson Extended Remix)
-02. Claus Backslash - Mental Flow (Extended Mix)
-03. Dave Neven pres. Ocata - A Glimmer Of Hope (Extended Mix)
-04. Iona Coast - Tuvalu (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA0D24D009F6101CAB1988BF3D1B279D47552F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611150   (1041420) от 11.02.2023
-
-VA - Milk & Sugar Winter Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Penn - Yeah Yeah (Original Mix) (6:22)
-02. Federico Scavo & Moya - Set Me On Fire (Extended Mix) (5:55)
-03. Claptone feat. George Kranz - The Drums (Din Daa Daa) (Dennis Cruz Extended Remix) (6:52)
-04. Milk & Sugar - Riding High (CASSIMM Extended Remix) (5:52)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82545D48258EECD1EB3A7533CD6C1BEF0792CE7A
 ```
 
 

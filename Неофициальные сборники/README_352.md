@@ -1,3 +1,30 @@
+###  Публикация: 1301459   (584079) от 12.05.2019
+
+Kiss - God Gave Rock'n'Roll To You (The Best) (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2,000 Man
+02. Blue Moon Over Brooklyn
+03. Sure Know Something
+04. I Was Made For Lovin' You(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E49E23920809AC1965D7EF4BDDBEC028A6F268B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358554   (584125) от 04.07.2011
 
 VA - Turbo дискотека 50/50 (2011) [MP3|256 kbps]<Pop>
@@ -671,33 +698,6 @@ VA - Bomba Hits. Летний Chart №2 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABF8EC04C8362D6F1EECB99166FCF800C3571B47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041045   (584517) от 07.08.2016
-
-VA - Жаркие танцы. Сборник 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lx24 - Недоступная
-002. Dinah Nah - If I Were Sorry
-003. Ваня Чебанов - Все Хорошо
-004. V.L.A.D. - Цунами(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE0B74F1168A8C7DDC184FFEF991F2EAE357D4
 ```
 
 

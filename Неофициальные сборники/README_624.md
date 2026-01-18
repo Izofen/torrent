@@ -1,3 +1,36 @@
+###  Публикация: 626200   (942763) от 06.03.2013
+
+VA - Атака танцевальной клубной музыки (2013) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basic Element - To You (DJ A-One Remix)
+02. Bombs Away - Party Bass (Slayback & Nexboy Remix)
+03. Dj Cargo & Kei Morton feat. T'Paul - SomeBody Dance With Me (Original Saxy Mix)
+04. DJ Layla feat. Dee-Dee - Born To Fly (Radio Edit)
+05. DJ Sergey Fisun - Welcome To Minecraft (Original Mix)
+06. Faydee - Catch Me
+07. Inna - Tonight (Extended Version) [2013]
+08. Madonna - Masterpiece (DJ Yonce Remix)
+09. Manian & Nicco - Tonight (R.I.O. Video Edit)
+10. Mike Candys - Oh, Oh (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8834B9A956853FC1F4036BE994BA89C4DB9902CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091509   (942805) от 09.01.2017
 
 VA - Empire Records - New Age (2016) [MP3|320 Kbps] <New Age, Relax>
@@ -668,33 +701,6 @@ VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA7B706B5758C7761E1D3F9ADC543DB210A4BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363325   (943700) от 27.02.2020
-
-VA - Beatport Progressive Trance: Electro Sound Pack #15 (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ontune - Toronto
-002. Andy Elliass - Octagon (Extended Mix)
-003. Anoikis, Jerom - Breath Of Life
-004. Cold Face & Dj Geri - Monarch (Extended Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198B20FBCD4F0819E1E63776B62842D53F8D733F
 ```
 
 

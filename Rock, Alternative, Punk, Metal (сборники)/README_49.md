@@ -79,3 +79,57 @@ magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847645   (1052261) от 
+
+VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Because You Stayed
+02 - Wicked Wenches - Wild Over You
+03 - Møxes - No Pillow But Your Name
+04 - Wicked Wenches - Still Alone Tonight(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848219   (1052783) от 
+
+VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Rock Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Møxes - Carry Me Through the Night
+02 - Wicked Wenches - Love Won’t Be Rushed
+03 - Møxes - Shadows of Goodbye (1 Versions)
+04 - Wicked Wenches - Burn to Feel(   Читать дальше...   )Жанр: Soft Rock BalladПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

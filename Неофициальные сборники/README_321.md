@@ -1,3 +1,36 @@
+###  Публикация: 531199   (541949) от 05.08.2012
+
+VA - Capitol Sings Collection (21CD) (1991-1995)  [MP3|320 кб/с]<Vocal Jazz, Pop, Oldies, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541949.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Helen Forrest - I've Heard That Song Before (2:55)
+2. Dean Martin - The Things We Did Last Summer (3:40)
+3. Keely Smith - It's Magic (3:46)
+4. Matt Monro - Time After Time (3:14)
+5. Nancy Wilson - Second Time Around (2:52)
+6. Nat King Cole - Teach Me Tonight (3:08)
+7. Dinah Washington - Call Me Irresponsible (2:19)
+8. June Hutton - Day by Day (2:59)
+9. The Andrews Sisters - Bei Mir Bist Du Schon (Means That You're Grand) (3:04)
+10. Lena Horne - All the Way (3:03)(   Читать дальше...   )Жанр: Vocal Jazz, Pop, Oldies, Easy ListeningПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9008F525F3CA1E17D1FD1D4764631908CD17BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531236   (542035) от 05.08.2012
 
 VA - Сборник песен о Санкт-Петербурге (Ленинграде) (2003-2009) [MP3|192 кб/с]<Песни о городе>
@@ -728,33 +761,6 @@ VA - Rainbow Dance Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17805059EBD1C5D7D3B4FEDFA3FE531C097662DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924619   (543078) от 05.08.2015
-
-VA - Драйвовая энергия клубного танцпола (2015) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norda - Dance For Me (Extended)
-02. Rocco - One Two Three (Phobia & Shaker Club Attack!)
-03. Mike Posner - I Took A Pill In Ibiza (Seeb Radio Edit)
-04. Gunter feat. Samanta Fox - Touch Me 2015 (Dj Dizma Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9255B49CA65EFA4925D10D80F78E029ADE239FA1
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1091865   (941049) от 10.01.2017
+
+VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941049.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Idol - Eyes Without A Face
+002. Deep Purple - Sometimes I Feel Like Screaming
+003. Eric Clapton - Tears In Heaven
+004. Oasis - Don't Go Away(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 07:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091963   (941426) от 10.01.2017
 
 VA - Дискотека зимних дорог. Русские хиты (2017) [MP3|256 Kbps] <Pop>
@@ -668,39 +695,6 @@ VA - Beatport Techno: Electro Sound Pack #16 (2020) [MP3|320 Kbps] <Techno, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D13C55739802C72AAC1899F3591066F245810F8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626200   (942763) от 06.03.2013
-
-VA - Атака танцевальной клубной музыки (2013) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basic Element - To You (DJ A-One Remix)
-02. Bombs Away - Party Bass (Slayback & Nexboy Remix)
-03. Dj Cargo & Kei Morton feat. T'Paul - SomeBody Dance With Me (Original Saxy Mix)
-04. DJ Layla feat. Dee-Dee - Born To Fly (Radio Edit)
-05. DJ Sergey Fisun - Welcome To Minecraft (Original Mix)
-06. Faydee - Catch Me
-07. Inna - Tonight (Extended Version) [2013]
-08. Madonna - Masterpiece (DJ Yonce Remix)
-09. Manian & Nicco - Tonight (R.I.O. Video Edit)
-10. Mike Candys - Oh, Oh (Original Mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8834B9A956853FC1F4036BE994BA89C4DB9902CD
 ```
 
 

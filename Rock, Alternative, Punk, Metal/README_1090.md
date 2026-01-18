@@ -1,3 +1,300 @@
+###  Публикация: 1111677   (846753) от 06.03.2017
+
+Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Infinitesimal Spark
+02. One of Many…
+03. Prison Skin
+04. Spirals Within Thy Being(   Читать дальше...   )Жанр: MDM, Progressive MetalПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188E88D1E0489FF67AE27B93F7E3430EB0F50805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002510   (846765) от 01.04.2016
+
+Billion Dollar Babies - Chemical God (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to See You Burn
+02. Everyone's in Love with a Chemical God
+03. The Junkies Ball
+04. One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A031241AE1F0D9357C5A581D72D4A150E148CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111603   (846798) от 06.03.2017
+
+Boris & Merzbow - Rock Dream (2007) 2CD Limited Edition [FLAC|Lossless|tracks + .cue] <Drone Doom Metal , Noise, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feedbacker (35:06)
+02. Black Out (5:20)
+03. Evil Stack (5:05)
+04. Rainbow (4:30)Производство: Southern Lord – sunn88Жанр: Drone, Doom Metal, Noise, Punk, Psychedelic Rock, Shoegaze, ElectronicПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF40BD4B2FC7957CE9AD457239FC6F80B595713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845968   (846841) от 01.04.2016
+
+Алевтина - Загорелось облако (2013) [MP3|320 кб/с]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не спится [03:14]
+02. Больная любовь [02:53]
+03. Холодно одной [03:07]
+04. Закрыть глаза [03:54](   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D10B8D05579C2D8641183FC486FF115A9A6FFF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002747   (846849) от 01.04.2016
+
+Birdy - Beautiful Lies (2016) Deluxe Edition [MP3|320 кб/с] <Pop, Indie, Folk, Piano>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growing Pains
+02. Shadow
+03. Keeping Your Head Up
+04. Deep End(   Читать дальше...   )Жанр: Pop, Indie, Folk, PianoПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FD8755C142A3B71372032E0B3C7AC526F8234D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002340   (847002) от 01.04.2016
+
+Rick Springfield - Rocket Science (2016) [FLAC|Lossless|image + .cue] <Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light This Party Up [02:23]
+02. Down [03:09]
+03. That One [03:26]
+04. The Best Damn Thing [04:23](   Читать дальше...   )Жанр: Rock, Melodic RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9928EE23100FAD8F3ACBF027C47765093EA0AAF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002699   (847010) от 01.04.2016
+
+America - Hearts (1975) remaster, 2016, Audio Fidelity [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daisy Jane (3:08)
+02. Half A Man (3:37)
+03. Midnight (2:47)
+04. Bell Tree (2:34)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07968E13A9C56CBB679676EEED189024F3E8E612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 877313   (847032) от 12.03.2015
+
+Mark Knopfler - Tracker (2015) [FLAC|Lossless]<Rock, Blues Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughs And Jokes And Drinks And Smokes (06:41)
+02. Basil (05:45)
+03. River Towns (06:18)
+04. Skydiver (04:39)(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB202BD18B34A9436DD5E8C6ABFC93ACF7F6A043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002457   (847118) от 01.04.2016
+
+Last In Line - Heavy Crown (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847118.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Devil In Me (4:51)
+ 2. Martyr (2:41)
+ 3. Starmaker (5:03)
+ 4. Burn This House Down (3:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF315699E8FA3D45C3B24DD64222F15898DB7E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499507   (847586) от 02.10.2021
+
+Сурганова и Оркестр - Завтра (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шила осень
+2. Трюкачи
+3. Кольчуга
+4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADE952555F4BB3DAD9CFDF508B068A3FEFB3E80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499533   (847596) от 02.10.2021
+
+Сурганова и Оркестр - Завтра (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шила осень
+2. Трюкачи (feat. Настя Полева)
+3. Кольчуга
+4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378045   (847653) от 24.04.2020
 
 ГОРШЕНЕВ - Звёздный мусор (2020) [MP3|320 Kbps] <Rock>
@@ -395,309 +692,6 @@ magnet:?xt=urn:btih:726EBFC7DE62A31D93F38B0A254885BCD585E65F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB07BB978B96C880A1D1C887DB654F543BA2843
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499357   (847974) от 02.10.2021
-
-Steely Dan - Northeast Corridor: Steely Dan Live! (2021) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847974.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cow
-02. Kid Charlemagne
-03. Rikki Don't Lose That Number
-04. Hey Nineteen(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:02:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC054999F0AB3584E8F4021AAD0B47657101A51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499475   (847975) от 02.10.2021
-
-KK's Priest - Sermons Of The Sinner (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847975.jpg" />
-</div>
-
-
-###  Подробнее
-
-KK's Priest - именно так называется новый музыкальный проект экс-гитариста JUDAS PRIEST - K.K. Даунинга с участием Тима "Ripper" Оуэнса на вокале и Лесли Бинкса на ударных. Как известно, Оуэнс в 90-х заменял в Priest временного ушедшего из группы Роба Хэлфорда, а Бинкс барабанил в группе с 1977-го по 1979 год. Вот такой своего рода аналог JUDAS PRIEST. (   Читать дальше...   )01. Incarnation
-02. Hellfire Thunderbolt
-03. Sermons Of The Sinner
-04. Sacerdote y Diablo(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CA63379113FCEBDD326EE145A89288C9CF8BA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499428   (847976) от 02.10.2021
-
-The Doobie Brothers - Liberte (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Mexico (03:22)
-02. Better Days (03:23)
-03. Don't Ya Mess With Me (03:33)
-04. Cannonball (03:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4C2BD314B37EBCAFED1BD2F1E5BEBF2BE6117A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499160   (847978) от 02.10.2021
-
-KK's Priest - Sermons Of The Sinner (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incarnation
-02. Hellfire Thunderbolt
-03. Sermons Of The Sinner
-04. Sacerdote y Diablo(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEEA6B10E6331B1EB8C3E7BBC27F1192EA3B727
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194003   (848044) от 24.04.2020
-
-Paloma Faith - The Architect (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution (Feat. Samuel L. Jackson) (01:05)
-02. The Architect (03:25)
-03. Guilty (04:19)
-04. Crybaby (03:54)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, SoulПродолжительность: 01:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF3F8E976BADC5E8CC91855E21A9831EDAA9324
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191976   (848068) от 14.04.2010
-
-Валерий Кипелов - Редкие записи (2010) [MP3|320 kbps]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Никто
-2 Талисман
-3 Свет дневной иссяк (Версия 2002г с альбома С. Маврина «Одиночество»)
-4 Чужой (Дуэт с группой «СерьГа». Студийная версия)
-5 Когда-Нибудь (Дуэт с гр. Чёрный Обелиск)
-6 Бедный Иерусалим (Ария Семона Зелота с альбома «Иисус Христос – Суперзвезда». Дуэт с М. Серышевым)
-7 Фиолетово-чёрный (Живой дуэт с группой «Пикник»)
-8 We'll Be Back (Совместно с «монстрами» русского металла)
-9 Тореро (С юбилея группы «МастеР»)
-10 Без тебя (С юбилея группы «Мастер»)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499482   (848109) от 02.10.2021
-
-Versus - Confession (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Confession (05:24)
-02. Stay (04:01)
-03. Feelong Down (No More) (04:15)
-04. Wandering (06:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AFB56423BC4AE191C7C9D6C3FF7637917A5ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499139   (848111) от 02.10.2021
-
-Tales And Legends - Struggle Of The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation Divine
-02. Epic Ride Of Horus
-03. The Fighters
-04. Tales And Legends(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB53579BDEB3EA1541E5BEAE2D3E7D1BD656715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499146   (848113) от 02.10.2021
-
-This Ending - Needles Of Rust (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Open Wound
-02. Annihilate
-03. Embraced By The Night
-04. Eclipse Of The Dead(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7C72A69D3F6E6BC96C2AF38BECFE998531100E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499495   (848114) от 02.10.2021
-
-Black Rose - Game of Souls (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall (04:09)
-02. We Fight (03:57)
-03. Game Of Souls (04:01)
-04. Omen (03:36)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFA315D4EE0A112AF9479E1F7C436621430052D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499476   (848115) от 02.10.2021
-
-Custom - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Alice 04:22
-02. Snake In The Grass 04:23
-03. Open Road 04:37
-04. Game On 04:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36796C87EC62F953ADA3E1AE8767A36603541C80
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1212386   (776132) от 11.03.2018
+
+VA - Chillout For Dinner (Exclusive Selection For Cool People) (2018) [MP3|320 Kbps] <Ambient, Drone, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davin Van Damme - Best Works (Good Chill Edit) 03:24
+02. Gomer Charlier - Exodus Right (Sun Chill Mix) 03:42
+03. Mitchell Collins - Image Line (Da Jazz Trumpet Mix) 03:22
+04. Isaac Mayers - Factory (Baston Liegi Chillout Mix) 06:23(   Читать дальше...   )Жанр: Ambient, Drone, ChilloutПродолжительность: 02:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D29F622BA3B1CF8EF8C018AC75DEFE5E21E5B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014779   (776148) от 08.05.2016
+
+VA - Sexomatic - Erotic Chill (2016) [MP3|320 кб/с] <Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canaall Groove - Post (Big Tits Mix) (03:22)
+02. Kam - Natur (Horgenic Mix) (04:21)
+03. Kama Dj - Knock Times (The Lady Mix) (05:31)
+04. DJKAM - No no (Hard Mix) (03:41)(   Читать дальше...   )Производство: AutomatЖанр: Lounge, ChilloutПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58DB5EDD7201E1551D0DDA1A713677BD5856A9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014850   (776166) от 08.05.2016
 
 VA - Serenity Sexy Lounge & Chill out Pearls Vol 5 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Chill Out>
@@ -641,60 +695,6 @@ VA - Relax Vibration Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ECD0D4831EE7FB7659F649E71ADBF5CD53BED96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211523   (777272) от 08.03.2018
-
-VA - Miami Madness 2018 [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Salgado - Wanna Be (Dub Mix)
-02. Jack Souza - Thrill in the Air
-03. Stanley Loud - Need U (Dub Mix)
-04. Andrew Belize - Groofy(   Читать дальше...   )Жанр: House, Electro House, Deep HouseПродолжительность: 01:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D279AD73E5314F4E13CAB30E0937FD7A1F39CCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211491   (777275) от 08.03.2018
-
-VA - Lounge Tonight (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulnasty  -  Gravity (Original Mix)  6:42
-02.  9dw  -  Thinking Makes A Mistake (Original Mix)  4:13
-03.  Alex Cortiz  -  Fingerflowing (Original Mix)  4:12
-04.  Schwarz & Funk  -  Particular (Original Mix)  5:40(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9712D84DADFE58A9B28559B774EBCFB7662265C0
 ```
 
 

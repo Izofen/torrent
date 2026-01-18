@@ -1,3 +1,30 @@
+###  Публикация: 1560946   (517808) от 02.07.2022
+
+Sonny Clark & Buddy DeFranco (De Franco) Quartet - Complete Sessions (1954) 2CD, 2004, Definitive Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517808.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jack the Fieldstalker [3:08]
+02. Cable Car [4:04]
+03. I Wish I Knew [4:54](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 02:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DA49E2860555037FBA32433953D33E9AA5E4A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535366   (517943) от 15.08.2012
 
 Grant Lyle - So There (2012) [MP3|320 кб/с]<Blues Rock>
@@ -695,33 +722,6 @@ Dave Brubeck - The New Brubeck Quartet Live At Montreux (1977) /1989, Tomato/[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAFE9D5035A73446D2A695B1E97066124D834AFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928975   (520640) от 18.08.2015
-
-Franz Koglmann - Orte Der Geometrie (1989) /hat ART/[APE|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Banker's [04:35]
-02. Slow Fox [04:35]
-03. Quotations [06:38]
-04. Der Gast [04:16](   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415B9D1A5EAAF8514A7D28BF46E20F062880D3B6
 ```
 
 

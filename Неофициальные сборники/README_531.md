@@ -1,3 +1,30 @@
+###  Публикация: 1384838   (800196) от 23.05.2020
+
+VA - Beatport Techno Hypnotic: Sound Pack #88 (2020) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Booka Shade - Understanding
+002. François X - Absolute Therapy
+003. Benny Aims - Picture This
+004. Mojeaux - Detach (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 13:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685CAFF5B238C91154E4D24C1CEE2733FDE5A4AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384837   (800198) от 23.05.2020
 
 VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ VA - Любимые песни шансона на стильном радио. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9BB78547B798B0E0DB08EECDFAEB42121A25859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121171   (800545) от 02.04.2017
-
-VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran – Shape of You
-002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
-003. Kygo Selena Gomez – It Ain’t Me
-004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
 ```
 
 

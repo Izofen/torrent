@@ -1,3 +1,36 @@
+###  Публикация: 526058   (599213) от 23.07.2012
+
+VA - Флейта в Рок Музыке (2012) [MP3|181-320 кб/с]<Blues Rock, Folk Rock, Jazz Rock, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laurelie - Remember Ronny
+ 02. Out Of Focus - Huchen 55, A
+ 03. Back Door - It's Nice When It's Up
+ 04. Abstract Truth - Oxford Town
+ 05. Breche - La Fuite
+ 06. Sol Simiente Sur - Taquirari Experimental Para Un Amigo
+ 07. Sol Simiente Sur - Continuando El Camino
+ 08. Breche - Les P'tits Cuillers
+ 09. Skin Alley - Living In Sin
+ 10. Galadriel - Things To ComeЖанр: Blues Rock, Folk Rock, Jazz Rock, InstrumentalПродолжительность: 05:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E9477DB0D65B2D5FA26E5DB402B9D6AAB2DED4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232407   (599463) от 24.06.2018
 
 VA - Дискотека 2018 Dance Club Vol.180 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
@@ -692,33 +725,6 @@ VA - Deep In My Soul: Deep House Mix July (2017) [MP3|320 Kbps] <Deep House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D431CBE4FE6185B131FCF73BF714CB1EFBFA27E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913944   (601221) от 30.06.2015
-
-VA - TOP June (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostany - Castle In The Snow (03:32)
-02. Kasiopea - Koliskova (Nikitsan Remix) (04:12)
-03. Sascha Braemer - No Home (03:27)
-04. Desusino Boys - We Didnt Love (07:36)(   Читать дальше...   )Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A631A2A25797BCFEAD0886CB5BA869618CBAD2
 ```
 
 

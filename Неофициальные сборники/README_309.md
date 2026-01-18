@@ -1,3 +1,30 @@
+###  Публикация: 1314112   (521212) от 12.07.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardkiss - PiBiP (4:15)
+02. Mozgi - Digitalization (2:41)
+03. MARUV - Focus On Me (2:56)
+04. Tvorchi - Trip (Orchestral Version) (2:49)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8020E859B884474785C71AB48E942783313B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314090   (521218) от 12.07.2019
 
 VA - Best Of My Life: Reggae In My Soul (2019) [MP3|320 Kbps] <Reggae, Soul>
@@ -683,33 +710,6 @@ VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:561F0F4EE41AAADD718E1F82A1E1BF28384AED46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313856   (522266) от 11.07.2019
-
-VA - Romantic Indie Pop-Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wingtip Sloat - Spanish EncoresGiddy In Palestine
-002. Annika Norlin - Failure
-003. Calvin Johnson - (I've Still Got) Sand in My Shoes
-004. Georgia feat Shygirl - Mellow(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 09:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186310D011E906BADB0C6EDDC1E0AFD25E935DC5
 ```
 
 

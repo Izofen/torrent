@@ -1,660 +1,690 @@
-###  Публикация: 1277604   (785061) от 21.01.2019
+###  Публикация: 1209716   (779131) от 28.02.2018
 
-Ari Brown - Groove Awakening (2013) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
+Беседа с Евгением Федоровым (16.02.2018) WEBRip [H.264/720p-LQ]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785061.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One For Ken [5:20]
-02. Groove Awakening [5:03]
-03. Enka [11:06]
-04. Veda's Dance [8:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:26
+Руководитель направления НОД по взаимодействию с казачеством и представители Фонда социально-экономического развития регионов «Казна Творца РА» встретились с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Депутат и гости обсудили исторические и  правовые вопросы прекращения существования СССР.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:52:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B8C97F966F49FEA0621F40753A15DCEFB15272A
+magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277712   (785062) от 21.01.2019
+###  Публикация: 1209767   (779132) от 28.02.2018
 
-Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+Г. А. Белов и др. (ред.) | Из истории Всероссийской чрезвычайной комиссии (1958) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документы настоящего сборника систематизированы в двух разделах: «Военно-революционный комитет в борьбе с контрреволюцией в первые дни Советской власти», «Создание и деятельность Всероссийской Чрезвычайной комиссии».
+
+Внутри этих разделов документы расположены в строго хронологическом порядке по дате событий.
+(   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE4FEFE6433F8CC0A688AC9A40147261B742BCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209351   (779133) от 28.02.2018
+
+VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779133.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD:1
+01.  Axwell & Ingrosso  -  Dreamer  4:11
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  Martin Garrix, Matisse & Sadko  -  Forever  3:38(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D2F3714AE39444CB864A859E6817948675859B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209580   (779134) от 28.02.2018
+
+Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785062.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go (01:41)
-02. Pressure (03:15)
-03. Sun Come And Golden (03:35)
-04. Material (03:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:16
+01. Light of Transcendence
+02. Travelers of Time
+03. Black Widow’s Web
+04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03C2BFEC81EB770CBCB8BB2840B38FF3D65096C7
+magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277622   (785063) от 21.01.2019
+###  Публикация: 1209740   (779135) от 28.02.2018
 
-SQLPro Studio 1.0.335 [En]
+Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Electro, Experimental, Field Recording>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785063.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и OracleТип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. Aria (05:08)
+ 02. Elements (04:19)
+ 03. Sila (04:05)
+ 04. 5951Hz (05:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Techno/Electro/Experimental/Field RecordingПродолжительность: 01:05:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3F9B4E69E01D148360C6BB548200EBBC6213CF
+magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277611   (785064) от 21.01.2019
+###  Публикация: 1209714   (779136) от 28.02.2018
 
-FSNotes 2.6.0 [En/Ru]
+Журнал | Salon-interior №3 (235) (март 2018) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785064.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:117BB46776537B12748CF7253EACB443C63CAE88
+magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277669   (785065) от 21.01.2019
+###  Публикация: 1209656   (779137) от 28.02.2018
 
-Despondency - Revelation IV (Rise of the Nemesis) (2009) [FLAC|Lossless|tracks + .cue] <Death Metal>
+Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785065.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Existence of Dismay (3:47)
- 02. Victimize Their Idols (4:55)
- 03. Invidious (4:56)
- 04. Rise of the Nemesis (5:40)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:17
+01. The Opener (03:40)
+02. How to Socialise & Make Friends (03:14)
+03. The Face of God (03:50)
+04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CC8715DD7A79E6E33950E40F0D5BBBE38EB46FA
+magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277665   (785066) от 21.01.2019
+###  Публикация: 1209694   (779138) от 28.02.2018
 
-Waking The Cadaver - Beyond Cops. Beyond God. (2010) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Cops (3:56)
- 02. Reign Supreme (3:09)
- 03. Sadistic Tortures (5:02)
- 04. Made in Hell (3:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DB30FB134DCC6955B9B7978A69336057BECA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277676   (785067) от 21.01.2019
-
-Lividity - The Age Of Clitoral Decay (2000) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oozing Vaginal Discharge (3:53)
- 02. The Urge to Splurge (1:38)
- 03. Chamber of Bone (4:28)
- 04. Anal Action Wife (4:39)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F3D01BE79BDD586300876DA087204AAE035BC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277684   (785068) от 21.01.2019
-
-Guttural Disease - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asphyxiation Through Human Arteries (3:42)
- 02. Fermented Intestine Warfare (3:52)Жанр: Death MetalПродолжительность: 00:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9456082F60FA1604C63433D92363D45091EBD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277675   (785069) от 21.01.2019
-
-Deteriorate - The Senectuous Entrance (1996) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Senectuous Entrance (2:53)
- 02. In the Presence of Eurus (3:55)
- 03. Xipe Totec (3:15)
- 04. Stealing Strength From the Ivory Boar (3:01)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57221767CB27F99AC4F98B5F0F9DB7C5D882950B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277575   (785070) от 21.01.2019
-
-Ornette Coleman Trio - Live Manchester Free Trade Hall 1966 (2018) 2CD, Hi Hat [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785070.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. European Echoes [14:20]
-02. Unnamed [13:54]
-03. Unnamed [17:21]Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0DCF3CC4C89A3FC16EC2B5007161E004001908
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277573   (785071) от 21.01.2019
-
-Eddie Gomez - Power Play (1988) Sony [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Play [5:40]
-02. Loco Motive [3:54]
-03. Spanish Flower [5:16]
-04. Mel [5:05](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FEB9744C41D6B4E6DEE5EE3BD150B0BB3249A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277662   (785072) от 21.01.2019
-
-Orchidectomy - A Prelate's Attrition (2008) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debridement (2:06)
- 02. Writhing in Psychotic Hysteria (2:30)
- 03. Fourth Blessed Gorge (2:59)
- 04. Procreate to Eviscerate (2:46)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFCB8B17DF28EDE0BBC3F91A0F1449DC482899C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277673   (785073) от 21.01.2019
-
-Despondency - God on Acid (2003) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embodiment of a Failed Brood (3:52)
- 02. Fucked (5:00)
- 03. 9mm Headfuck (4:27)
- 04. God on Acid (4:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B726B4FCB7B201112E8E9DE30A6F1D1F6E01157E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277674   (785074) от 21.01.2019
-
-Deteriorate - Rotting in Hell (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agonized Display (3:46)
- 02. A Thousand Years of Anguish (3:12)
- 03. Cannibal Autopsy (3:40)
- 04. Devoured (2:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3E967C64DBAB0C448612294769FCB8E5896D1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277667   (785075) от 21.01.2019
-
-Asphyxiate - Promo 2017 (2017) Promo [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Feast Ripping Putrescent (3:57)
- 02. Sickening Canvas of the Dead (3:07)Жанр: Death MetalПродолжительность: 00:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6603456E1504D1044367565AF65658ECD8BD71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352324   (785076) от 08.06.2020
-
-VIP Notes 9.9.28 (Paid) [RU]
+Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785076.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Защищенный блокнот с вложениями.Тип издания: ПираткаРелиз состоялся: 08.06.2020Разработчик: Oleg RomantsevПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский
+01. Morning Star (03:52)
+02. On My Balcony (03:11)
+03. Spring To Kingdom Come (05:01)
+04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F93978DED96DF3FB64551912738E4D905BF54DD
+magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388862   (785077) от 08.06.2020
+###  Публикация: 1209639   (779139) от 28.02.2018
 
-Футажи - Bounce Color - Aura Lens Flares 4K [MOV]
+The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Материалы для мультимедиа и дизайна
->>Футажи
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785077.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Блики Aura могут использоваться на последовательностях титров, в качестве переходов и могут работать поверх любого видео. Цвет также можно отрегулировать с помощью встроенного цветового инструмента. Есть много способов использовать данные световые эффекты, вы просто должны проявить творческий подход!
-Все блики сняты в разрешении 3840 x 2160 с использованием реальных (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160
+01. Thunder Child (03:57)
+02. Lions Blood (03:47)
+03. Secrets (03:44)
+04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D4DD9F5A0D5A1E5CE36BFB301A016EE7D5786574
+magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388787   (785078) от 08.06.2020
+###  Публикация: 1209719   (779140) от 28.02.2018
 
-Леонардо да Винчи. Неизведанные миры / Io, Leonardo (2019) BDRip [H.264/1080p]
+Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785078.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Путешествие в сознание Леонардо да Винчи, легенды мировой культуры, одного из самых удивительных гениев, каких знает история человечества, создателя «главной в мире картины» — «Моны Лизы». С помощью самых современных технологий в фильме воссоздаются великие произведения мастера.Производство: Италия / Progetto Immagine, Sky Arte HD, Comune di FirenzeЖанр: БиографияРежиссер: Хесус Гарсес ЛамбертАктеры: Лука Арджентеро, Анджела Фонтана, Массимо Де Лоренцо, Matt DeLuise, Франческо ПаннофиноПеревод: Профессиональный (многоголосый закадровый) (iTunes)Субтитры: Русские форсированныеПродолжительность: 01:26:04
+01. S.Dreams (07:26)
+02. Cmyk (04:45)
+03. Cye (03:26)
+04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:325CDCA189D375C62B5DBF9AA579E51709797CB2
+magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389003   (785079) от 08.06.2020
+###  Публикация: 1209819   (779141) от 28.02.2018
 
-Мой папа – супергерой / Copperman (2019) BDRemux [H.264/1080p]
+Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785079.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ансельмо — особенный. Уже взрослый мужчина, он смотрит на мир глазами ребенка и до сих пор верит, что отец, который когда-то оставил его, — супергерой. Ансельмо живет своей детской мечтой и однажды понимает: пришло время самому исполнить ее.Производство: Италия / Eliofilm, Notorious Pictures, Rai CinemaЖанр: МелодрамаРежиссер: Эрос ПульеллиАктеры: Лука Арджентеро, Антония Труппо, Галатеа Ранци, Джанлука Гобби, Томмазо Раньо, Себастьян Димулеску, Анджелика Белуччи, Гуальтьеро Бурци, Луис Мольтени, Паоло РоманоПеревод: Многоголосый профессиональный (iTunes)Субтитры: Русские (Full), Итальянские (Full)Продолжительность: 01:40:07
+01. Jealousy (4:52)
+02. Ride (3:41)
+03. Who You Are (3:41)
+04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCD0C5102CCB8CBF37C4A04DF17E8583EF76CBC
+magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389045   (785080) от 08.06.2020
+###  Публикация: 1209582   (779142) от 28.02.2018
 
-Проекты - VideoHive - Wedding Slideshow - 19677268 [AEP]
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
->>Проекты
->>Свадебные и романтические (проекты)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785080.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-При помощи проекта "Wedding Slideshow" сделайте свое элегантное романтическое слайд-шоу, историю любви или свадебное видео.Формат: AEP
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BDF404405544A18677F7AFD6D9BACF8F8A3CFDB
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388897   (785081) от 08.06.2020
+###  Публикация: 1209676   (779143) от 28.02.2018
 
-Черная Эммануэль / Emanuelle nera (1975) BDRip [H.264]
+Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785081.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодая, очаровательная и невероятно сексуальная девушка Эммануэль работает фотографом в редакции одного журнала.
-По работе ей приходится много путешествовать, чтобы собирать материалы для своих «горячих» репортажей. Из-за склонности к авантюризму она постоянно попадает в различные пикантные ситуации.Производство: Италия, Испания / Emaus Films S.A., Flaminia Produzioni Cinematografiche, San Nicola Produzione CinematograficaЖанр: МелодрамаРежиссер: Битто АльбертиниАктеры: Лаура Гемсер, Карин Шуберт, Анджело Инфанти, Изабель Маршалл, Габриэле Тинти, Дон Пауэлл, Венантино Венантини, Бруно Алиас, Декио Габен, Джузеппе МароччуПеревод: Двуголосый профессиональный, НТВ+Субтитры: ОтсутствуютПродолжительность: 01:36:28
+01. Intro
+02. Burning Insight
+03. Bleeding Sanity
+04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F355089662FC5E078E47042AEA68DF5F573ED411
+magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388873   (785082) от 08.06.2020
+###  Публикация: 1209763   (779144) от 28.02.2018
 
-Пресеты - Optical Flow - Creator Essentials Bundle [CUBE, XMP, DNG, WAV, PRPROJ, MOGRT, MP4, PNG]
+VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785082.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От Автора: - "Когда вы только начинаете свою творческую карьеру, создание собственных эффектов может быть трудным и длительным, а покупка их может быть очень дорогой. Мы также боролись с этой проблемой, но на протяжении многих лет мы создавали и совершенствовали цифровые ресурсы, которые мы теперь ежедневно используем для улучшения наших визуальных эффектов (   Читать дальше...   )Формат: CUBE, XMP, DNG, WAV, PRPROJ, MOGRT, MP4, PNG
+01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
+02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
+03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
+04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F5F90E5E5617C2CFDDB6F6E7A179183126D36DA
+magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388838   (785083) от 08.06.2020
+###  Публикация: 1209701   (779145) от 28.02.2018
 
-Проекты - VideoHive - Lily - Character Animation Kit - 19250024 [AEP]
+VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
 
->>
->>
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785083.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Lily - это анимационный 3D персонаж. С ее помощью, создайте свою историю или объяснительное видео. Можно использоваться для проведения презентаций: Образование, медицина, еда, рестораны, служба безопасности, строительство, пожарная безопасность, бизнес-услуги, сельское хозяйство, религия, и т.д.
-Пакет содержит 93 готовых различных анимации (1200×1200), 2 последовательности (   Читать дальше...   )Формат: AEP
+001. 7even (GR) - Make It Hot (Original Mix)
+002. The Models - Twist & Bounce
+003. Jaques Le Noir - Now It's Time (Original Mix)
+004. Beach Coffee Ensemble - Bsospicius Area(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:30:22
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388612   (785084) от 08.06.2020
+###  Публикация: 1209670   (779146) от 28.02.2018
 
-Сбербанк прощается с «Яндексом» и приходит в Ozon
+Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>3
->>След.
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_785084.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сбербанк может стать крупным совладельцем интернет-ритейлера Ozon. Информация об этом появилась после того, как стало известно о предстоящем разводе Сбербанка с «Яндексом», его партнером по электронной коммерции.Сбербанк может купить 30% в OzonСбербанк может стать владельцем около 30% акций интернет-ритейлера Ozon. Об этом сообщило агентство Reuters со ссылкой на (   Читать дальше...   )
+01. I de manga valens land (4:09)
+02. Vem ar du? (4:20)
+03. En romantisk komedi (2:07)
+04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388832   (785085) от 08.06.2020
+###  Публикация: 1209849   (779147) от 28.02.2018
 
-Смерть Сталина / The Death of Stalin (2017) BDRip [H.264/1080p]
+VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785085.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-СССР, 1953 год. Страна трепещет от страха перед одним человеком. 5 марта Генсек умер. Когда уходит великий вождь, наступает время борьбы за власть. Гонка началась!Производство: Великобритания, Франция, Бельгия, Канада, США / Quad Productions, Main Journey, GaumontЖанр: КомедияРежиссер: Армандо ИаннуччиАктеры: Стив Бушеми, Саймон Расселл Бил, Пэдди Консидайн, Руперт Френд, Джейсон Айзекс, Майкл Пэйлин, Андреа Райзборо, Джеффри Тэмбор, Адриан Маклафлин, Ольга КуриленкоПеревод: дублированный, многоголосый закадровый, одноголосый  авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английские, украинскиеПродолжительность: 01:46:34
+01.  Arrival  11:20
+02.  Polyshake Bells  13:13
+03.  Interludium  02:54
+04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:309ECC4A5406BFD9A1A9CF474B8D93596BD96CCE
+magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381100   (785086) от 08.06.2020
+###  Публикация: 1209635   (779148) от 28.02.2018
 
-Звёздные войны: Эпизод 5 – Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) BDRip [H.264/720p] [Remastered]
+Н.В. Тулупов, П.М. Шестаков (ред.) | Пасхальный сборник (1913) [JPG]
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785086.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников. Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар. Там Мастер — джедай Йода обучает молодого рыцаря (   Читать дальше...   )Производство: США / Lucasfilm Ltd.Жанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Ирвин КершнерАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек ГиннессПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: русские, английскиеПродолжительность: 02:07:22
+Повести и рассказы русских писателей.Жанр: Детская прозаФормат: JPG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:209EE3FFEC663878D9DC4F1F40E83EB8DE364AEA
+magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209756   (779149) от 28.02.2018
+
+VA - We Are Trance February (2018) [MP3|320 Kbps] <Uplifting, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dim3nsion - Agarimo (Extended Mix)
+002. Kiyoi & Eky - Turn Back The Rain (Mark Van Gear Remix)
+003. Richard Lowe - Levitate (Original Mix)
+004. Enfortro - We Came To Conquer (Veizo Remix)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 13:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034CB98CA86B54D200544776E4F8B4226E8D0EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209769   (779150) от 28.02.2018
+
+И. Якушевский | Ленинизм, революция и «советология» (1968) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779150.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге анализируются «советологические» трактовки и концепции теории и практики Октябрьской революции. В отличие от работ, освещающих ее исторический и социально-экономический аспекты, здесь берется философский аспект — она рассматривается под углом зрения единства и взаимодействия революционной теории и практики.
+
+«Советология» уделяет также большое (   Читать дальше...   )Жанр: История, политология, философия, социология, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209665   (779151) от 28.02.2018
+
+Bitter:Sweet - Drama (2008) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dramatico (0:11)
+02. Get What I Want (03:25)
+03. Come Along With Me (02:19)
+04. The Bomb (03:02)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AF407BECB44DEB5F67793453C1FED70A6C5481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209803   (779152) от 28.02.2018
+
+VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinechain - Discoking (Radio Edit)
+02. Rheinkraft - Glow the Freeker
+03. DJ Anady - Dale Mas
+04. DIMES - Turn It Up(   Читать дальше...   )Жанр: House, Tech House, Deep House, FunkyПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CF48B50EA4B52A2A99F4C7E0A0C8FA639C85DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209945   (779153) от 28.02.2018
+
+VA - Rooftop Lounge The Sounds of Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ku You - Sandhand 05:03
+02. Thomas Sopper & Herr Schmidt - Wolken im Wind 06:44
+03. Han Tronic - Tea del Mar 06:02
+04. Ritmo Fatalismo - Sangria After Midnight 06:00(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0AD8C9EC4D9327E4E40597FDD365AFBEA7449B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209761   (779154) от 28.02.2018
+
+VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Egova - Shivaratri
+002. Kristallklar - Gears Of Existence (Original Mix)
+003. Psilocybe Project - I Am Darkness (Original Mix)
+004. Elliptic - Machine Elves(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA28B6392351D40E01676C02298A34D256A14DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209699   (779155) от 28.02.2018
+
+VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Various - Fit & Fabulous (continuous DJ mix) (40:33)
+02.Various - Fit & Fabulous (continuous DJ mix) 2 (40:52)
+03.Groovefinder - All This Love That I'm Giving (feat Leah McCrae - Christian Hoff mix) (5:23)
+04.Polina - Shotguns (Scumfrog remix) (6:20)(   Читать дальше...   )Жанр: House, Electro House, Tech HouseПродолжительность: 04:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE748568D916D5728E7C03D0538BA18237BA1A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209733   (779156) от 28.02.2018
+
+Koenraad Ecker - A Biology Of Shadows (2018) In Aulis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Spoken Word>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Entrailles Du Mensonge (04:50)
+ 02. Between The Desire And The Spasm (Falls The Shadow) (04:21)
+ 03. Black Blocks And Red Zones (05:04)
+ 04. Under Glass Argus Eyes (01:47)(   Читать дальше...   )Жанр: Experimental, Spoken WordПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F55FDAE5D3006A3B81C9197D35B7D4223809C3
 ```
 
 

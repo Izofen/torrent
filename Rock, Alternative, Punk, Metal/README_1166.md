@@ -1,3 +1,300 @@
+###  Публикация: 983998   (942201) от 07.02.2016
+
+Ace Frehley - Frehley's Comet (1987) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Soldiers (05:05)
+02. Breakout (03:38)
+03. Into The Night (04:12)
+04. Something Moved (04:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F06186B25CC3A382B4142D362136EC16B141AF32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983593   (942204) от 07.02.2016
+
+Yo La Tengo - Extra Painful (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, Noise Pop, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Big Day Coming (07:06)
+02. From A Motel 6 (04:10)
+03. Double Dare (03:29)(   Читать дальше...   )Жанр: Indie Rock, Noise Pop, Experimental RockПродолжительность: 01:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40023BE3049B9645C53C02CFE48BF49D47A3786
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363593   (942232) от 28.02.2020
+
+Five Finger Death Punch - F8 (2020) Deluxe Edition [FLAC 2.0|48/24|tracks|WEB-DL] <Groove Metal, Heavy Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942232.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:15] 01. F8
+[03:47] 02. Inside Out
+[03:24] 03. Full Circle
+[03:37] 04. Living The Dream(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF8ED79F050194A9BDEC6684482869E7C701310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983731   (942236) от 07.02.2016
+
+Siouxsie - Mantaray (2007) [FLAC|Lossless|image + .cue] <Alternative Rock, PostPunk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Into A Swan 4:12
+2.About To Happen 2:50
+3.Here Comes That Day 4:02
+4.Loveless 4:24(   Читать дальше...   )Жанр: Alternative Rock, PostPunkПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D34883B3F45ACBA67C771817A27D827498B449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984010   (942252) от 07.02.2016
+
+Exumer - The Raging Tides (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Raging Tides
+02. Brand of Evil
+03. Catatonic
+04. Sacred Defense(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860EC96EB294C0ECB2F5D794C476F81164BAC48F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363461   (942316) от 28.02.2020
+
+Five Finger Death Punch - F8 (2020) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Groove Metal, Heavy Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942316.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:15] 01. F8
+[03:47] 02. Inside Out
+[03:24] 03. Full Circle
+[03:37] 04. Living The Dream(   Читать дальше...   )Жанр: Groove Metal, Heavy Metal, Alternative MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333A1DFD18EACD643830AFBF1BBE09F52F903B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983672   (942351) от 07.02.2016
+
+Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyhow (06:34)
+02. Laugh About It (05:06)
+03. Don't Know What It Means (05:59)
+04. Right On Time (04:34)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE90976AF25D96C640FCE2FD550318CAC4A55713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363583   (942406) от 28.02.2020
+
+Confess - Burn 'em All (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So What?
+02. Malleus
+03. Welcome Insanity
+04. A Beautiful Mind(   Читать дальше...   )Жанр: Hard Rock, Sleaze, GlamПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549B4D212333587704E08CD02968C79655A0A970
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363550   (942490) от 28.02.2020
+
+Confess - Burn 'em All (2020) [MP3|320 Kbps] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - So What? [2:50]
+ 2 - Malleus [3:11]
+ 3 - Welcome Insanity [4:10]
+ 4 - A Beautiful Mind [4:18](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CE10C7A4A771142F957C5965FC3654FAE078D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363480   (942582) от 28.02.2020
+
+Real Estate - The Main Thing (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friday (04:57)
+02. Paper Cup (feat. Sylvan Esso) (04:30)
+03. Gone (03:13)
+04. You (03:52)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BC83685B288B6C062931CB99B551E236FB2698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363601   (942607) от 28.02.2020
+
+Stay Away - Дисклеймер, Часть 1 (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всё что хотел
+2. Каменные сердца
+3. Актёр
+4. Бесконечный ноль(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C279C5F62B976FEF1EC0245FCF3E3003894268B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363446   (942614) от 28.02.2020
 
 Shadow Show - Silhouettes (2020) [FLAC|Lossless|tracks + .cue] <Rock, Female Vocal>
@@ -398,309 +695,6 @@ magnet:?xt=urn:btih:2B0E8F2F65ACF731BB7628B17DDA015D5236C7C8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983324   (943862) от 06.02.2016
-
-Fleshgod Apocalypse - King (2016) 2CD Deluxe Edition [MP3|320 кб/с] <Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943862.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Marche Royale
-2. In Aeternum
-3. Healing Through War(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 01:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB03D08D205A93AF859E98E3EF78D79D110BBD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983545   (943867) от 06.02.2016
-
-Varg - Das Ende Aller Lugen (Das Ende Aller Lügen) (2016) 2CD Deluxe Edition [MP3|320 кб/с] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943867.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. Der Große Diktator
-2. Das Ende Aller Lügen
-3. Revolution(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661F331A8121FEBBC9E455FC8817A9C5909FDDEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363438   (943901) от 27.02.2020
-
-Greg Dulli - Random Desire (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pantomima [03:25]
-02. Sempre [03:33]
-03. Marry Me [04:00]
-04. The Tide [04:36](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DB5BBD0FE02D9DA87746AE32923851547874EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363440   (943903) от 27.02.2020
-
-Greg Dulli - Amber Headlights (2005) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Tight (02:56)
-02. Cigarettes (03:34)
-03. Domani (03:54)
-04. Early Today (And Later That Night) (03:34)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C8C63E1D320A507283CDD8DC1612343329622E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091192   (944162) от 08.01.2017
-
-Кукрыниксы - Артист (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Артист
-02. Шторм
-03. Вера
-04. Надежда(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D51BB1B0D0F59144E66C73AE8D96040374D2C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090854   (944367) от 08.01.2017
-
-Black Star Riders - The Killer Instinct (2015) Deluxe Edition, 2CD [FLAC|Lossless|tracks]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944367.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:32] 01. The Killer Instinct
-[04:54] 02. Bullet Blues
-[03:56] 03. Finest Hour
-[04:49] 04. Soldierstown(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31064ED36719CD2432492C35E2C24D8BEC247D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091301   (944487) от 08.01.2017
-
-David Bowie - No Plan (2017) EP [MP3|320 Kbps] <Art Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazarus
-02. No Plan
-03. Killing a Little Time
-04. When I Met YouЖанр: Art Rock, RockПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46581492ACC497B293A3321AF55D371295C83129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091155   (944707) от 08.01.2017
-
-Печной Сверчок - Свобода (2017) Авторская раздача [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Непокой
-02.Свобода
-03.Деньги
-04.Моя печаль(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30302DFE4A708D34A2FB31CEDE736035241ECF16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091166   (944864) от 08.01.2017
-
-Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944864.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Place in the Sun (6:11)
-2. Blackened (5:44)
-3. What If (6:24)
-4. Not Going Away (7:32)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAFD6A5E9C9A2551115938974D7AEC1FE2CFB34A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091175   (944994) от 08.01.2017
-
-Regent - Illusions (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944994.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Somnambulists (7:23)
-2. Escapism (7:38)
-3. The Silver Moon (4:51)
-4. Three Minutes To Midnight (4:48)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D584F574317E9CAF180939A62411D61E8F33EBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751665   (945013) от 31.01.2014
-
-Ektomorf - Retribution (Digipak Edition) (2014) [MP3|320 кб/с]<Groove / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can’t Control Me (2:15)
-02. Ten Plagues (3:20)
-03. Face Your Fear (2:22)
-04. Escape (3:24)
-05. Who the Fuck Are You (2:32)
-06. Numb and Sick (2:42)
-07. Lost and Destroyed (4:09)
-08. Souls of Fire (4:25)
-09. I Hate You (2:07)
-10. Watch Me (3:22)(   Читать дальше...   )Жанр: Groove / Thrash MetalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67787564D5D981BB01354A0AE4A365FC9C749F0
 ```
 
 

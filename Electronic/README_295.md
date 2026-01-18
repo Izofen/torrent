@@ -1,3 +1,57 @@
+###  Публикация: 1042750   (578452) от 13.08.2016
+
+VA - Run for Fun - 20 Rhythmic Heartbeats Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlight - Summer Music - Original Mix
+02. Lord Emerald - Flying Skirt - Original Mix
+03. Alma Fonica - Miami Party - Original Mix
+04. Tony Roja - Bitcoin - Original Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470E7B8C731C4909E3FB1328395BB79337671D0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042624   (578466) от 13.08.2016
+
+VA - Armada visits Las Vegas (2016) [FLAC|Lossless|tracks] <House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Michael Feiner - Mantra (Axwell Cut) [04:57]
+02 Swanky Tunes, Going Deeper - Drownin' [03:31]
+03 Armin Van Buuren, BullySongs - Freefall (Manse Remix) [02:33]
+04 Showtek, Vassy - Satisfied [03:42](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E296577725332AA421BC2F3E3F27BDA9161A3114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042780   (578509) от 13.08.2016
 
 VA - Its Amazing - Deep House Grooves Vol.7 (2016) [MP3|320 Kbps] <Deep House>
@@ -638,60 +692,6 @@ Solar Fields - Unreleased (2001-2009) [MP3|192-320 kbps]<Psybient, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B04C855570F65C29419B5C9A343F0DD767BF0497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553866   (581008) от 27.05.2022
-
-Le Youth - Reminders (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Then It Rained All Night (4:17)
- 02. Lighthouse (ft. RBBTS) (4:00)
- 03. Nobody Knows (4:39)
- 04. If Only (You Could Be Here) (ft.  OCULA; Nathan Nicholson) (5:04)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D4D88B1EFCCD82E874DC5C64228FD077230A7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553398   (581011) от 27.05.2022
-
-VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melania & Christian Lisi - Mi Sono Innamorata Di Te (3:01)
-02. Zerosospiro - Il Desiderio (4:54)
-03. David Florio - Doce Doce (4:54)
-04. Mariva Cory & Soulstance - Un' Ora Sola Ti Vorrei (4:21)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043EA5CD4FA63536D0726E2B77B55A0A26A1B9B4
 ```
 
 

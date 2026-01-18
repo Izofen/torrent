@@ -1,3 +1,57 @@
+###  Публикация: 1392348   (769233) от 26.06.2020
+
+Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber Ninja (7:05)
+02. Star Polygon (6:33)
+03. Path To Mind (5:43)
+04. Flight To Unknown Planet (5:44)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD7CE5C1B6F2DF05B8EBBF15F6F1A60E4C7EB87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392536   (769236) от 26.06.2020
+
+VA - Work Body Extreme Top Selection (2020) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769236.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cristian Haze - Beam Me Up (4:22)
+2. Mark Rudis - Skillz (5:07)
+3. Ale B - U Took My Love (6:45)
+4. Tinder - The Real Bass on My Mind (4:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1673B657EA531633B90D7701D6CFFC68692A13A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392283   (769334) от 25.06.2020
 
 Blank & Jones - RELAX - Edition 12 (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Chillout, Lounge, Downtempo>
@@ -634,60 +688,6 @@ VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28F9199E7AEFDA6265417081C9801E2439FEE94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213297   (771926) от 16.03.2018
-
-VA - Buddha Luxury Vol.2 (Esoteric World Music) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Silvio Piersanti  -  Hand In Hand (World Mix)  2:57
-02.  Marco Attali & Travel Memories  -  My Brazilian Heart (Original Mix)  3:30
-03.  Dharma Frequency  -  Oriental Pleasure (Original Mix)  3:54
-04.  Marga Sol  -  Desedena (Instrumental Mix)  4:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DEE926570EC4EEA5779DDD53D584A118811CE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213348   (771930) от 16.03.2018
-
-Akshan - World Of Duality (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome as You Are (09:07)
- 02. La conscience de l'espace (12:40)
- 03. World of Trouble (08:42)
- 04. Time for Change (10:00)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3235D3B63E00084D625A52730E3F0F29CD69DA
 ```
 
 

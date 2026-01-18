@@ -1,3 +1,57 @@
+###  Публикация: 1225265   (661827) от 14.05.2018
+
+Lemongrass - Unite (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Wings (4:24)
+ 02. Joyful (6:38)
+ 03. I Miss You (4:40)
+ 04. Time to Go (4:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F61EC5C7097153DFFCD60D04D455205C3FB9F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225303   (661887) от 14.05.2018
+
+VA - Vocal Trance: London (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Timmy D & DJ Bullskull - Digital Presence (Original Mix)
+02. DJ Schillings - I Remember the 90s (Original Mix)
+03. Karl Schaap feat. Veela - Perfect (2017 Remix)
+04. Rheligie feat. Spectre Cross - Ardent Fever (Adip Kiyoi Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B5A62210C4274A574AB25F09D0EA0CCFF3E251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225301   (661891) от 14.05.2018
 
 VA - Dark Uplifting Vol.4 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -638,60 +692,6 @@ Bassic - Biochrome (2017) [MP3|320 Kbps] <Ambient, Chillout, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78BC386FCA0020A4A509C8A55D3D1C3BDD5CB2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138353   (664497) от 29.05.2017
-
-VA - Deep-House Aloha Vol.1: 20 Summer Smoothies (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raviv - Good Together - Luca Minoli Suite Remix
-02. Bella Donna - Merge - Tunnel Mix
-03. Klod Rights - Amber Eyes - Original Mix
-04. NJ Producer - Hold Love - Germany Mix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF4FEC7A106674072573F489D9C5C5798E7D8A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138381   (664499) от 29.05.2017
-
-VA - Progressive Hits: May (2017) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlusion & Slam Duck - Lost Emotions (original mix) (07:10)
-02. Arthas - First Touch (original mix) (04:10)
-03. Andrey Plavinskiy - Starfall (Bobby Deep remix) (08:50)
-04. Following Light - Bulge (Ewan Rill remix) (06:50)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 01:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9660A4F8EE143C94CB3BDD0BDB9402CEF59B9030
 ```
 
 

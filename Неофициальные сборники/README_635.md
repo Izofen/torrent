@@ -1,3 +1,30 @@
+###  Публикация: 978235   (962621) от 24.01.2016
+
+2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агорафобия
+02. Вооружённая каблуками
+03. За горизонтом событий
+04. Девять Жизней(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359840   (963097) от 13.02.2020
 
 VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
@@ -662,33 +689,6 @@ VA - So Sexy, Vol. 2 (Chillout Selection) (2016) [MP3|320 кб/с] <Ambient, Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4114E45195B1893A6F3D9A58FA871B589CD4AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977837   (964805) от 22.01.2016
-
-2011stress - Club of Beautiful Monsters (NNM) (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Classical Crossover>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Муравейник
-02.Мотылёк у костра
-03.Добыча Паука
-04.Из гусеницы в бабочку(   Читать дальше...   )Жанр: Electronic, Synth-pop, Classical CrossoverПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D129DAFA6C378728A59E46B051300231EA54703
 ```
 
 

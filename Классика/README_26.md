@@ -386,6 +386,30 @@ magnet:?xt=urn:btih:9F6AB2A1802B936C18344BDEAEF7D5436150773C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 88968   (559077) от 26.07.2017
+
+Сборник классической музыки - Золотые Хиты Классики  (2008) [MP3|192-224 kbps  ]<классика>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_559077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: классикаПродолжительность: 07:13:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530174   (560435) от 03.08.2012
 
 Sergei Prokofiev - The complete piano sonatas 3 (1991) [FLAC|Lossless]<classical>
@@ -690,33 +714,6 @@ The Symphonic Sound Orchestra - Classic Rock Symphony (Unknown) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA55208954E8C04969A5D8314E80B710733819A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555576   (565164) от 06.06.2022
-
-Yiruma - Solo (2021) [FLAC|Lossless|tracks + .cue] <New Age, Piano, Modern Classical, Romantic>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes Someone (3:26)
- 02. Destiny Of Love (4:52)
- 03. Lost In Island (3:33)
- 04. Shining Smile (3:47)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8F80E6425B1460E316B477B45CBD0C01948419
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 926148   (535473) от 09.08.2015
+
+Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backbite 03:52
+02. Pop Collar Jockey 04:23
+03. Fetch Your Spade 03:52
+04. Hold On 05:03(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D0695919616B9C31C8D9F765D813D05EADD0EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155071   (535484) от 02.08.2017
 
 Defunkt - Classic Defunkt (1996) [FLAC|Lossless|image + .cue] <Jazz-Funk>
@@ -680,33 +707,6 @@ Lori Williams - Out of the Box (2018) [MP3|320 Kbps] <Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DB254F5559C5F130E89C42B67CDA29DDF811656
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925970   (537104) от 08.08.2015
-
-Scott Bradlee’s Postmodern Jukebox - Swipe Right For Vintage (2015) [MP3|320 кб/с]<Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Blood (3:12)
-02. My Heart Will Go On (3:22)
-03. Lovefool (4:00)
-04. I Kissed A Girl (2:51)(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ABF2E63F527340B994D9141D3A557270BB49CC1
 ```
 
 

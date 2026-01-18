@@ -1,3 +1,57 @@
+###  Публикация: 1371739   (888710) от 01.04.2020
+
+Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|tracks+.cue] <Conscious, Abstract Hip-Hop, Instrumental, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hustlin (02:41)
+02. 360 Degrees (feat. Del Tha Funkee Homosapien/Mr. Lif) (03:40)
+03. Fly (feat. Akrobatik/Maintain/Vast Aire) (04:44)
+04. Interlude (03:41)(   Читать дальше...   )Жанр: Conscious, Abstract Hip-Hop, Instrumental, Trip HopПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CE3D216702487694F840D579BA097370862CAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709002   (888729) от 07.09.2021
+
+Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dark Jazz, Modern Classical, Contemporary Jazz,  Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coloroid (04:44)
+ 02. Vigilante (04:57)
+ 03. Sea And Wind (05:32)
+ 04. Galatea (04:49)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dark Jazz, Modern Classical,  Experimental •Продолжительность: 03:07:25 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C74994202DE35E00F06FE860DE5A238245C06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102579   (888737) от 10.02.2017
 
 Depeche Mode - 4CD's Rare Album Set (2006, 2013) Compilation [FLAC|Lossless|tracks] <Synthpop, New Wave, House>
@@ -641,60 +695,6 @@ VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAE17C707BF32DD46EDE860A415DD46F93D75BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371688   (890000) от 31.03.2020
-
-Culprate - Others Remixed (2020) Inspected [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Drum & Bass, Half-time>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jelly & Ice-cream (Mr. Bill Remix) (02:55)
- 02. Inside (Ekcle Edition) (04:45)
- 03. Helter (Phace Remix) (03:50)
- 04. Beast (Vorso Remix) (04:06)(   Читать дальше...   )Жанр: Dubstep, Drum & Bass, Half-timeПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F040AEC1F79EE7DB732F8D8B5BE4AC9FBB838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371479   (890001) от 31.03.2020
-
-VA - Alien Signals (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brutal Lex - American Psyho [04:40]
-02. Dr.Bad Man - Sunny [05:18]
-03. Resynth - Chernobyl [03:29]
-04. J Cash - Ngorongoro [07:09](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D3D597B8A5493C88807144DEAB2948FAF7ABAB
 ```
 
 

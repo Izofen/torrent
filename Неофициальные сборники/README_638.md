@@ -1,3 +1,28 @@
+###  Публикация: 975736   (970186) от 16.01.2016
+
+VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club House, Vocal House, Electro House, Club, Trance, House, Deep House, Progressive, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970186.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:01
+002. IOWA - Одно и то жеЖанр: Club House, Vocal House, Electro House, Dance, Club, Trance, House, Deep House, Progressive, Chillout, Dubstep, PopПродолжительность: 07:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C74BDF5B4AA687F8A3678276506FE0F705C070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617835   (970333) от 13.02.2013
 
 VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/с]<Dance>
@@ -674,39 +699,6 @@ VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kudu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8C5B86B58C7A3C3240D82D0FDA4B11871B53178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617357   (971942) от 12.02.2013
-
-VA - Romantic Blues Collection Vol.3 (2013) [MP3|320 кб/с]<Pop,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santana - Flor D'Luna (Moonflower)
- 02. Grand Funk Railroad - It's A Man's World
- 03. Preachers Keen - Its A Shame
- 04. Preston Shannon - Jail Of Love
- 05. Robert Cray - Move A Mountain
- 06. E.Iglesias & W.Houston - Could I Have This Kiss Forever
- 07. Lucky Peterson - Who's been talking
- 08. Stan Webb's Chicken Shack - Don't You Worry About A Thing
- 09. Spice Girls - Vivat Forever
- 10. Colin James - Standing On The Edge(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0DB107094DA64F676FCC1FA78A05C3D6DCD5EF
 ```
 
 

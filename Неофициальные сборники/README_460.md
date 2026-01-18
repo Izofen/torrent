@@ -1,3 +1,30 @@
+###  Публикация: 1399783   (725155) от 02.08.2020
+
+VA - The Official UK Top 40 Singles Chart 31.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry, Mnek - Head & Heart (Feat. Mnek) 2:46
+02. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat) 2:51
+03. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
+04. Nathan Dawe - Lighter (Feat. Ksi) 3:03(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E93458BB4E216DCE4AB2A80FFB96CA28C4F667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399700   (725159) от 02.08.2020
 
 VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
@@ -670,33 +697,6 @@ VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACDD25DDD15AB47D277D319E186127348E3D7B4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284842   (726549) от 23.02.2019
-
-VA - The Official UK Top 40 Singles Chart 22.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - 7 rings
-02. Ariana Grande - break up with your girlfriend, i'm bored
-03. Lewis Capaldi - Someone You Loved
-04. Calvin Harris, Rag'n'Bone Man - Giant(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:444DD1505A1DA99C698E444CCC69D5E3692D94A5
 ```
 
 

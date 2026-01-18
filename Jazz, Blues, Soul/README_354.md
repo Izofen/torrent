@@ -1,3 +1,129 @@
+###  Публикация: 527326   (562806) от 02.08.2012
+
+Luciana Souza - 6 Albums (2001-2009) [MP3|320 kbps]<Brazilian jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страна: Brazil01. Adeus America & Eu Quero Um Samba
+02. Fire And Wood
+03. Our Gilded Home
+04. Love - Poem 65
+05. Circus Life
+06. Once Again
+07 Tide
+08. Sorriu Para Mim
+09. Chuva
+10. Amulet(   Читать дальше...   )Жанр: JazzФормат: MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D1EFC521ED9ED260E6BE461B15DBE4238EAC70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923669   (562853) от 01.08.2015
+
+Jimmy McGriff - The Worm (1968) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Worm [03:22]
+02. Keep Loose [05:56]
+03. Heavyweight [06:51]
+04. Think [03:17](   Читать дальше...   )Жанр: Jazz, Hard Bop, Soul JazzПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBE57C6810F00151074B3264C0414C01185EC4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530219   (563062) от 02.08.2012
+
+Becca Langsford - Big Surprise (2011) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born To Cry
+02. King Size Papa
+03. While I Wait For You
+04. Big Surprise
+05. Some These Days I'll Be Gone
+06. Do It This Way
+07. Love Me Like A Man
+08. Hot And Cold Runnin' Tears
+09. Can't Keep From Cryin'
+10. Never No More(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530202   (563072) от 02.08.2012
+
+Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble With A Capital 'T'
+02. Back By Popular Demand
+03. Tool Box Blues
+04. Don't Lead Me On
+05. Road Blues
+06. Can't Get Your Lovin' Off My Mind
+07. Sell My Jewelry
+08. From The Delta To The Golden Gate
+09. Cheatin' Blues
+10. Drunken Angel(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530195   (563209) от 02.08.2012
 
 Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
@@ -620,120 +746,6 @@ Julian Curwin & The Tango Saloon - The Tango Saloon (2006) [APE|Lossless]<Jazz, 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529377   (565200) от 01.08.2012
-
-Alastair Greene Band - Walking In Circles (2009) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking In Circles
-02. Look Out Baby
-03. Drunk Again
-04. Get Out Of My Life, Woman
-05. Don't Lose Your Cool
-06. Say What You Want
-07. Pocket Full Of Change
-08. Cut You Loose
-09. Back Alley Strut
-10. Merry-Go-Round(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044615   (565356) от 20.08.2016
-
-Larry Carlton - Alone/But Never Alone (1986) [FLAC|Lossless|image + .cue] <Jazz, Fusion, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smiles And Smiles To Go  05:47
-02.  Perfect Peace  04:28
-03.  Carrying You  04:00
-04.  The Lord's Prayer  05:09(   Читать дальше...   )Жанр: Jazz, Fusion, InstrumentalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877F3FE75416E9B577A91DFAA7FFD287C7D95867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152546   (565378) от 23.07.2017
-
-VA - Evening Jazz Classics (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddie Hubbard - Little Sunflower (07:58)
-02. Herbie Hancock - Jessica (04:13)
-03. Jimmy Scott - I'll Be Around (04:37)
-04. Joshua Redman Quartet - Faith (04:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABB36FB65E60072F92AF23070DFD4DF383FC07E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044474   (565499) от 20.08.2016
-
-Bill Evans - Rise Above (2016) [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz & Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Lady (5:14)
-02. Rise Above (7:03)
-03. Love Game (5:20)
-04. Love is Working Overtime (4:06)(   Читать дальше...   )Жанр: Jazz Fusion, Jazz & BluesПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC18AA64E57E8013C15C25BA57FDF8BB2C6FCB6
 ```
 
 

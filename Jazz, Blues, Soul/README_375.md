@@ -1,3 +1,245 @@
+###  Публикация: 1297847   (603101) от 24.04.2019
+
+Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment (6:00)
+02. Passages (5:58)
+03. Havana (8:31)
+04. Always (5:34)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297694   (603111) от 24.04.2019
+
+Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медоед (5:44)
+02. Динго (4:14)
+03. Кубическая комета ненависти проткнутая иглой усталости (5:49)Жанр: Dark Jazz, ExperimentalПродолжительность: 00:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F4952C936D112EC1C5CBFA02661DA12FFAC31F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297695   (603114) от 24.04.2019
+
+Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аскеза (4:10)
+02. Костры амбиций (5:46)
+03. Колкие нити (4:44)
+04. Дары моря иллюзий (4:26)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD9E7B9560BC96BE815A5F3CC353D89E3E01A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297721   (603143) от 24.04.2019
+
+Louis Hayes - Return Of The Jazz Communicators (2014) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul-Leo [8:08]
+02. Shape Shifting [6:58]
+03. Lush Life (Intro) [2:27]
+04. Lush Life [6:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F71CA1F8AC2C7FFF6F11FC1BE9FBB510770C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231950   (603276) от 21.06.2018
+
+Bob Brookmeyer - Four Classic Albums (1956 - 1961) 2CD, 2012, Avid Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603276.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Minuet Circa [10:40]
+02. Who Could Care [4:47]
+03. Nice Work If You Can Get It [5:57](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44521A5BD064A25DC52D047AB0BA2B1FD2E82A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231954   (603277) от 21.06.2018
+
+Mose Allison - The Best of Mose Allison (1962 - 1970) 1988, Atlantic Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Worry About a Thing [2:19]
+02. Your Mind Is on Vacation [2:37]
+03. It Didn't Turn Out That Way [2:44]
+04. If You're Goin' to the City [3:50](   Читать дальше...   )Жанр: Hard Bop, Vocal Jazz, Piano JazzПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7C0899CC27DB60CE4BFB93173B65B9D4060B34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231804   (603278) от 21.06.2018
+
+Jimmie Lunceford - 1935 - 1937 (1990-1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blue Heaven [3:15]
+02. I'm Nuts About Screwy Music [3:06]
+03. The Best Things In Life Are Free [3:24]
+04. The Melody Man [3:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BED613775048D0C9DD13931815650068CE9E77D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547171   (603422) от 27.04.2022
+
+Dave Brubeck - Take Five: Portrait Of A Legend (1946 - 1960) 10CD, 2014, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603422.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Dave Brubeck Octet:
+01. The Way You Look Tonight [3:02]
+02. Love Walked In [2:39]
+03. What Is This Thing Called Love? [2:43](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 10:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A6D665B0AA42E2A04079A33A5E5E5F9B9EA44E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148730   (603493) от 07.07.2017
+
+Pat Boyack & The Prowlers - On The Prowl (1996) [MP3|320 Kbps] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar (04:13)
+02. Mr. Lucky (05:34)
+03. I Know It's Over (04:47)
+04. Mean Jealous Woman (04:39)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F87DD60FC857FC670146B3DD02F852039F5E3B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148578   (603496) от 07.07.2017
 
 Dean Martin - Everybody Loves Somebody (1998) Prism Leisure [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -452,249 +694,6 @@ Ignasi Terraza Trio - Let Me Tell You Something (1999) 2006, Swit Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:991136198C2516884223F2DBFAC3AE50B0A91B4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148387   (603950) от 06.07.2017
-
-Frank Tate, Harry Allen, Dave McKenna - Live in Belfast (2001) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [8:44]
-02. On The Alamo [9:44]
-03. I'll Only Miss Her Whwn I Think Of Her [8:11]
-04. Fred [7:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E04025AC7ED96A540D7E3C04EDB7AE75B21978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148172   (603951) от 06.07.2017
-
-Ignasi Terraza Trio - Imaginant Miro (2014) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imaginant Miro [04:15]
-02. El Segador [04:36]
-03. Nocturn [05:20]
-04. Polaritats [05:33](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F5D28CCD5A53EE3060D257B8BAAC1DC375125F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148162   (603952) от 06.07.2017
-
-Cor Vivaldi & Ignasi Terraza Trio - El 25 de Desembre Swing, Swing, Swing! (2012) Swit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les dotze van tocant [02:51]
-02. Benvinguda [01:38]
-03. El desembre congelat [02:40]
-04. L'angel i els pastors [03:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FBCE2BB942425BBE4E3B1588848C1BD67451D3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148167   (603953) от 06.07.2017
-
-Ignasi Terraza Trio - Live at the Living Room, Bangkok (2011) Swit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Emotional Dance [07:30]
-02. Les dotze van tocant [04:50]
-03. Georgia on My Mind [05:00]
-04. Give Me Another [06:50](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA0437F66A99D6F27D4A988985A8EE41567C43E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547006   (603987) от 26.04.2022
-
-The Intruders - Cowboys To Girls - The Best of the Intruder (1995) [FLAC|Lossless|tracks + .cue] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Love That's Real
-2. Cowboys To Girls
-3. Together
-4. (We'll Be) United(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88F5C4C794D14DCF7ED010B99828DCEC06F27D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297371   (604065) от 22.04.2019
-
-Polly Gibbons - All I Can Do (2019) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Permit Me to Introduce You to Yourself
-02. Good Hands Tonight
-03. Beautiful Things
-04. If You Had the Chance(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DBEE651018628E2222EA6EC93E67947CE82153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297456   (604070) от 22.04.2019
-
-The Charles McPherson Group - Follow The Bouncing Ball (1989) Discovery Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passport [6:24]
-02. Where Are You [4:59]
-03. Follow the Bouncing Ball [4:34]
-04. Blues for Mac [6:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393F290082BAC04EAB42F699904B8C1D454B50D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231646   (604142) от 19.06.2018
-
-Larry Vuckovich - Blue Balkan Then And Now (2002) Inner City [FLAC|Lossless|tracks + .cue] <World Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serbo Samba [5:51]
-02. Blue Balkan [8:47]
-03. Suite Sanna: Struttin' / Dance / Beboppin' [8:40]
-04. Belgrade Blues [6:55](   Читать дальше...   )Жанр: World Fusion, Post-BopПродолжительность: 01:13:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FCA12AAF89CE4BC222C8C40741F76A3CECAF75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231642   (604152) от 19.06.2018
-
-The Modern Jazz Quartet - Modern Jazz Quartet (1957) 2013, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley: They say it's wonderful / How deep is the ocean? / I don't stand a gh... [10:15]
-02. Between The Devil And The Deep Blue Sea [6:56]
-03. La Ronde [2:12]
-04. Night In Tunisia [6:10](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78958390464660F67B9A25875E3B97B51DFC1813
 ```
 
 

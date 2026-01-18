@@ -1,3 +1,30 @@
+###  Публикация: 1148693   (603446) от 07.07.2017
+
+VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Trance, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Timmy Trumpet, Krunk - Al Pacino (Original Mix) 03:42
+002. Clean Bandit, Zara Larsson - Symphony (feat. Zara Larsson) (Dash Berlin Remix) 05:03
+003. Jamis, MAD M.A.C. - Renegade Master (Dimitri Vegas & Like Mike Edit) 04:15
+004. Mr.Black, Ale Mora - Party People (Extended Mix) 03:46(   Читать дальше...   )Жанр: House, Tech House, Trance, Big RoomПродолжительность: 07:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1A649F1B5985B93C1F5AD9A1C9A85346E3E50B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148518   (603450) от 07.07.2017
 
 VA - Trance Masters 100 Greatest Hits Ever (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -674,33 +701,6 @@ VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297263   (604827) от 21.04.2019
-
-VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604827.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dope Ammo Feat. Rio Hellyer - Wishin' On A Star
-002. Degwood - Re-Entering (Original Mix)
-003. Oliver Ferrer - Two Of Us
-004. Asok - Hyperspace(   Читать дальше...   )Жанр: D&B, Dubstep, BassПродолжительность: 10:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E3B096D0F02450687D545B1F7AD972240FC5BD
 ```
 
 

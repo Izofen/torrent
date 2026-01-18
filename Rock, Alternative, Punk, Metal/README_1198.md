@@ -1,3 +1,300 @@
+###  Публикация: 1488964   (1001397) от 13.08.2021
+
+Zodiac - 4 albums, 5CD (2012-2016) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zodiac - блюз-рок-группа из Мюнстера, Германия образованная в 2011 году, состоящая из участников Misery Speaks, Long Distance Calling и Rocketchief. Их первый альбом под названием "A Bit Of Devil" вышел 25 мая 2012 года. Четыре музыканта сочетают в себе многолетний опыт игры и общее желание создавать интересную музыку, которую можно считать ретро-хард-роком (   Читать дальше...   )--------------------------
+
+01. Rebirth By Fire (3:00)
+02. Animal (4:29)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Blues Rock |Продолжительность: 04:02:53 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A619A48E731C973D9E4820FC5E2D0ADE4E8493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488771   (1001417) от 13.08.2021
+
+Sepultura - Sepulquarta (2021) [MP3|320 Kbps] <Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Territory
+2. Cut-Throat
+3. Sepulnation
+4. Inner Self(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 01:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDDDB2F02CF58BC184F2CD91FBBF79DD4C762A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488869   (1001463) от 13.08.2021
+
+Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие трэш-метал ветераны Destruction выпустили свой новый концертный Blu-ray и CD "Live Attack" 13 августа этого года на лейбле Napalm Records. Он стал следующим релизом после "Born To Perish", напоминая о почти двухчасовой трэш-атаке в прямом эфире, которую группа устроила в январе этого года.CD - 1:
+ 01. Born to Perish (Live) (06:36)
+ 02. Death Trap (Live) (05:54)
+ 03. Nailed to the Cross (Live) (03:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488841   (1001470) от 13.08.2021
+
+Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For a New Pagan Age to Come(01:38)
+02. Silvano, senor de los bosques (05:19)
+03. The Last European Wolves (04:24)
+04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351899   (1001639) от 12.01.2020
+
+Brothers of Metal - Emblas Saga (2020) [MP3|320 Kbps] <Folk Metal, Viking Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Brood of the Trickster [1:56]
+ 2 - Powersnake [3:44]
+ 3 - Hel [4:40]
+ 4 - Chain Breaker [3:53](   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Power MetalПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89113AADF7A1E74E862EF0A416D5E02396FCE887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351961   (1001643) от 12.01.2020
+
+Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Orange (4:21)
+ 02. 10 Years Later (3:51)
+ 03. Falling All In (3:04)
+ 04. The Mission (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351933   (1001650) от 12.01.2020
+
+Rage - Wings of Rage (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - True [5:02]
+ 2 - Let Them Rest in Peace [4:31]
+ 3 - Chasing the Twilight Zone [4:30]
+ 4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C1728A7F6CED264296A8F13F729CA0EC387213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351934   (1001679) от 12.01.2020
+
+Mystic Prophecy - Metal Division (2020) [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Metal Division [3:29]
+ 02 - Eye to Eye [4:16]
+ 03 - Hail to the King [3:44]
+ 04 - Here Comes the Winter [5:13](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061F50F007C31775D1AE98E9FCC3B76BA9061AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352045   (1001691) от 12.01.2020
+
+Beach Slang - The Deadbeat Bang of Heartbreak City (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Kids In LA (01:41)
+02. Let It Ride (03:12)
+03. Bam Rang Rang (03:33)
+04. Tommy In the 80s (02:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A97E9DC40C61D52740E294C517A960BA2ECB593
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351895   (1001721) от 12.01.2020
+
+Field Music - Making a New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Raging (00:56)
+02. Silence (00:40)
+03. Coffee or Wine (03:03)
+04. Best Kept Garden (02:54)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06D73EB1DC8530F7423AD077EA548ECA1F7B71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352042   (1001723) от 12.01.2020
+
+Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microcozm ....00:26
+02. Violent Vertigo ....05:55
+03. I Bleed ....06:05
+04. Dark Energy ....07:02(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F622C80F274DCD67DBBC399A1E6728D411C6ED4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488610   (1001746) от 12.08.2021
 
 Paul McCartney - McCartney III (2020) 2021 Deluxe Edition [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Pop-Rock>
@@ -398,303 +695,6 @@ Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FBBFF5C07DB9C62FF49F0B94821F0A4E90DAD28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488467   (1002077) от 11.08.2021
-
-Ovvercross - Stuttgart, 1943 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stuttgart, 1943 (03:52)
-02. Kill All the Time (03:39)
-03. Dead Bodies (04:38)
-04. Partisans (04:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFC221C5A946F65AABA55C6578C17769392996B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488428   (1002081) от 11.08.2021
-
-Wolfstavar - Im Schatten der Götter (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auf nach Walhalla
-02. Tyr
-03. Heimdall - Der Wächter
-04. Der Freiheit entgegen(   Читать дальше...   )Жанр: Heavy Metal, FolkПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68EE7AC55FC1C3945A0624B2D46CAFBC7E91D1E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351450   (1002159) от 10.01.2020
-
-Winger - 10 albums, 17CD (1988-2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winger - американская рок-группа, в творчестве которой объединились элементы glam и progressive и pop metal, поднявшем на вершины чартов Bon Jovi и Poison» по определению сайта AllMusic. Группу сформировал в 1986 бывший участник Alice Cooper's band басист и вокалист Кип Уингер. Познав успех и популярность в конце 80-х и начале 90-х после выхода первых двух альбомов, (   Читать дальше...   )--------------------------
-
-01. One Track Mind (4:20)
-02. Wait (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Prog Rock, Melodic Rock |Продолжительность: 15:02:13 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B9506F792B68C238C1F8B7CD0274FF7A6C1F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351353   (1002184) от 10.01.2020
-
-Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Arrival
-2002 - Human Stain
-2003 - Once Upon Our Yesterdays(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73A9521CEEF981973ADDAFA6DD2812DCA0C3C7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351352   (1002189) от 10.01.2020
-
-Cornerstone - 5 альбомов Collection 6 CD (2000-2007) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2000 - Arrival
-2002 - Human Stain
-2003 - Once Upon Our Yesterdays(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E8501AB2D0ADC1AA5F969CA3FEF622CFD9EEF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488096   (1002310) от 10.08.2021
-
-Crazy keys - Mystical (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In Sin 05:00
-02. The Eye Of The Storm 05:13
-03. Wild Side 04:20
-04. Strong For Love 04:20(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382BE46DEFDB0BE727E7873CEB99D48898C68ACB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488177   (1002313) от 10.08.2021
-
-Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	The Hour of the Avenger 	03:26
-02. 	My Trial 			03:20
-03. 	Blood Oath 			04:59
-04. 	The Nihilistic Nothingness 	03:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3788C5D7603ECAE6C8B0589072BEE681AFE8E316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488241   (1002321) от 10.08.2021
-
-Fell Fyre - Tyranny and Triumph (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horsemen Forever (05:11)
-02. Dead Man's Curse (04:16)
-03. Necropolis (03:04)
-04. Vengeful Warrior (02:56)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18CF5A0570E84CD3696A0275137C9746180CDD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488243   (1002322) от 10.08.2021
-
-Fell Fyre - Devastation And The Dauntless (2020) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return of the Horsemen (04:30)
-02. Blades in the Night (02:05)
-03. Rl'yeh's Cradle (03:24)
-04. Over the Side (03:25)(   Читать дальше...   )Жанр: Epic Heavy MetalПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DE65371D3CA5F128B75382BEECAF7F3785446E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488175   (1002323) от 10.08.2021
-
-Ov Shadows - I Djävulens Avbild (2020) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	The Ravens Are Flying Low 	07:24
-02. 	Knight and Death 		05:20
-03. 	Like Wildfire 			03:55
-04. 	Defenders of Purity 		07:39(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7D0FE3E828601D69580BD2BAC6E4DE0F0A7495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488176   (1002324) от 10.08.2021
-
-Posthum - Like Wildfire (2019) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	The Ravens Are Flying Low 	07:24
-02. 	Knight and Death 		05:20
-03. 	Like Wildfire 			03:55
-04. 	Defenders of Purity 		07:39(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBE41BD67598CFCB20A4CB3384A8550C9A9F727
 ```
 
 

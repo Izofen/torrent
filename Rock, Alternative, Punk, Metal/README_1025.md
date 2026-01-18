@@ -1,3 +1,300 @@
+###  Публикация: 1123674   (786413) от 08.04.2017
+
+Expulsion - Overflow (1994) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Leave Me to Bleed (05:08)
+02. Let the Raven's Fly (04:38)
+03. Fallen (04:38)
+04. With Aged Hands (06:24)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F87C2756DDBDB5E5513BDF93E55D72F08F7B9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123697   (786415) от 08.04.2017
+
+Expulsion - Man Against (1996) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ever After (03:05)
+02. Man Against (04:30)
+03. With My Head Down (04:04)
+04. Into Another Inside (03:17)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C364A6A3F10ADA9D55D0A903E940201FC264D28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388647   (786544) от 07.06.2020
+
+VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keri Kelli, Richard Kendrick, Chris Wimple, Lyle Muncy - Highway to Hell
+02. Sheldon Tarsha, Richard Kendrick - Back in Black
+03. Hells Belles - Rock & Roll Damnation
+04. Damon Johnson, Derrick LeFevre, Richard Kendrick, Chris Wimple III - Dirty Deeds(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF757A23E5E6A1A18F1D87615C6A5232A924079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388654   (786549) от 07.06.2020
+
+Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall, Pt. 1
+04. When the Tigers Broke Free(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98CF60D5355C924752D2D278706750294991FE2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388652   (786556) от 07.06.2020
+
+Block Group - A Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ED9279B1674AB7FDA7BBFE5CF578ADAF9289E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388704   (786558) от 07.06.2020
+
+The Tibbs - Tribute to Pink Floyd (12 Classic Hits) (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money
+02. Another Brick in the Wall
+03. If
+04. On the Turning Away(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7676FF6A90889A571BEBFC230D8A923FCB41FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388658   (786568) от 07.06.2020
+
+VA - Rockin' the 90's (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786568.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skid Row - Monkey Business
+2. Thunder - Dirty Love
+3. Nickelback - Leader of Men
+4. Honeymoon Suite - Say You Don't Know Me(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6971276CDA0CCD730A5670E794851D5D71F5AAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388621   (786590) от 07.06.2020
+
+Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DIE KREATUR (4:12)
+02. Kälter als der Tod (4:20)
+03. Unzertrennlich (4:07)
+04. Durch die Nacht (4:37)(   Читать дальше...   )Производство: Napalm Records Handels GmbHЖанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F811172E7381121A938BADCA71809ABA1B79A0C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388683   (786591) от 07.06.2020
+
+Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maelstrom Spark (05:53)
+ 02. Auras Awol (07:24)
+ 03. Hush Mortal Core (03:39)
+ 04. Mothflower (06:10)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388780   (786595) от 07.06.2020
+
+Powderfinger - One Night Lonely (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless My Soul (04:35)
+ 02. Sunsets (03:50)
+ 03. My Happiness (04:38)
+ 04. On My Mind (03:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3DD898D09647CCF451656BF4618576472B4CB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388752   (786596) от 07.06.2020
+
+Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good morning (03:08)
+ 02. Atreyu (05:26)
+ 03. Parachute (06:14)
+ 04. Predawn (feat. Phillip Jamieson) (03:28)(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388168   (786858) от 05.06.2020
 
 Rocket From The Crypt - Scream, Dracula, Scream! (1995) [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll>
@@ -398,303 +695,6 @@ Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB4E8CC3E11D11DFFF194EA70409E053E3BB705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277085   (787013) от 19.01.2019
-
-мАксима - Пароль Лир (2018) [MP3|320 Kbps] <Blues Rock, Blues, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лето
-02. Ты
-03. 9200
-04. Deja Vu(   Читать дальше...   )Жанр: Blues Rock, Blues, RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836E7501EDA45A35896ABE5254F007774420ECAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277228   (787015) от 19.01.2019
-
-Аттракцион Воронова (A.V.) - Стар'ё (2018) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Два колеса
-02. Валенки
-03. Весёлый бог
-04. Всё ништяк!(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068D293C2842488C72D0C7E8A10618EA81520D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277217   (787028) от 19.01.2019
-
-Joseph Arthur & The Lonely Astronauts - Let's Just Be (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond Ring (3:26)
- 02. Good Life (4:24)
- 03. Precious One (3:29)
- 04. Spacemen (4:33)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957D0BD734ADF1EE64F525130C75B9B9332FF972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277234   (787032) от 19.01.2019
-
-Lividity - ...'Til Only the Sick Remain (2002) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.L.C. (Tight 'lil Cunt) (4:22)
- 02. Coated With My Semen (3:23)
- 03. Unrelenting Homicidal Obsession (3:31)
- 04. A Woman's Place Is on My Face (3:00)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3819334B6E5469A085DFC9173E580A7C3389F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277224   (787036) от 19.01.2019
-
-Embalmer - There Was Blood Everywhere (1995) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Was Blood Everywhere (1:51)
- 02. The Necro-Filing Cabinet (2:37)
- 03. Blood Sucking Freaks (2:09)
- 04. May the Wounds Bleed Forever (3:27)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC688DFC6E51D1B5A1AA8E72878D0F2D0ADFFDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512653   (787064) от 25.11.2021
-
-Rhapsody of Fire - Glory for Salvation (2021) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Son of Vengeance
-2. The Kingdom of Ice
-3. Glory for Salvation
-4. Eternal Snow(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197ABDD2DD07AAA0BAF6338B1B2AE6F9B14B97B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512620   (787080) от 25.11.2021
-
-Rhapsody Of Fire - Glory For Salvation (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son Of Vengeance
-02. The Kingdom Of Ice
-03. Glory For Salvation
-04. Eternal Snow(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE72311464D912FA7D9AD0C5AC5B1599A1E371C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512601   (787084) от 25.11.2021
-
-The Shocking Blue - Castle Master Collection (1990) [FLAC|Lossless|tracks + .cue]<Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus 3:03
-02. California Here I Come 3:18
-03. Long And Lonesome Road 2:48
-04. Hot Sand 2:36(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDEDA86E20BD233339C40E54752DC9CFA2DB021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512450   (787089) от 25.11.2021
-
-Ленинград - Хна (2011) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сладкий Сон
-02. И Больше Никого
-03. Прощай
-04. Нет И Еще Раз Нет(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13B3CDEED7B25189BAFE91BA2152FB6CB16484B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512643   (787090) от 25.11.2021
-
-Deep Purple - Turning to Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787090.jpg" />
-</div>
-
-
-###  Подробнее
-
-DEEP PURPLE выпустят альбом каверов под названием "Turning To Crime" 26 ноября на лейбле earMUSIC. На этом диске представлены прочтения великой классики рока и музыкальных жемчужин, изначально записанных Бобом Диланом, FLEETWOOD MAC, Бобом Сигером, CREAM, THE YARDBIRDS и др. В отборе композиций принимали участие все музыканты группы.01. 7 and 7 Is (2:29)
-02. Rockin' Pneumonia and the Boogie Woogie Flu (3:15)
-03. Oh Well (4:31)
-04. Jenny Take a Ride! (4:37)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A4CE870C88CFC70864188DEF26A6DC28578F2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512612   (787104) от 25.11.2021
-
-Bonnie Tyler - 3 Original Classics Box Set (1992) [FLAC|Lossless|image + .cue]<Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just A Woman
-02. We Danced On The Ceiling
-03. Wild Love
-04. The Closer You Get(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653437640F8886E3E0D4AEEE97B47E32CFD1BACA
 ```
 
 

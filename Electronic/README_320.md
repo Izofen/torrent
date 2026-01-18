@@ -1,3 +1,57 @@
+###  Публикация: 1293985   (631861) от 06.04.2019
+
+Koan - Briar Rose Side A|B (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Briar Rose (Radio Version) (4:17)
+02. My Personal Dark Knight (The Kiss of Dark Knight Version) (7:18)
+03. Dream in Kaiser Gardens (Radio Version) (3:51)
+04. The Star of Pytheas (7:44)(   Читать дальше...   )Жанр: Electronic, Downtempo, Ambient |Продолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A5225C398E4954C0A2FB7E25D99BBFC7B27EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034967   (632159) от 14.07.2016
+
+Moby - Music From Porcelain (2016) [MP3|320 Kbps] <Techno, Acid House, Ambient, Breaks, Downtempo>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raze - Break 4 Luv (5:24)
+02. 808 State - Pacific State (5:46)
+03. A Tribe Called Quest - Scenario (4:10)
+04. Precious - Definition of a Track (5:21)(   Читать дальше...   )Жанр: Techno, Acid House, Ambient, Breaks, DowntempoПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F455DC4155D731E28ACCE4E17CEB9C0C88916F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228968   (632192) от 03.06.2018
 
 DJ Rostej - Loneliness (2018) Contemporary Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
@@ -640,66 +694,6 @@ VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519134   (633884) от 08.07.2012
-
-VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hazem Beltagui - Macarize (Intro Mix) 06:36
-02. Alandanat - Voyager (Original Mix) 07:08
-03. Outlook - Airplane (Original Mix) 06:30
-04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
-05. Eximinds - August (Original Mix) 07:56
-06. Mick Elsa - Significant Others (Original Mix) 08:07
-07. Vitodito - Pisha (Original Mix) 06:42
-08. Allan V. - What If (Original Mix) 07:56
-09. Michael Elliot - Pool Splash (Original Mix) 08:00
-10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908339   (633981) от 14.06.2015
-
-VA - Dark Rooms - Selection Erotic, Vol 1 (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camille St. Vincent - L'etrangere (The Stranger) (02:55)
-02. Tracing Arcs - Wildworld (05:50)
-03. Sideway - Headspace (02:41)
-04. Catya Mare - Tell Me Why (02:16)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Electronic, Lounge, ChilloutПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623A083BD0728EA7F02E576AD45193E64FD8469F
 ```
 
 

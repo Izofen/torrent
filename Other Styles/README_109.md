@@ -1,3 +1,30 @@
+###  Публикация: 1031221   (668428) от 03.07.2016
+
+Ennio Morricone - Ennio Morricone 2016 Meisterwerke der Filmmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtracks, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chi mai (from "The Professional" & "Maddalena") [3:35]
+02. Il forte (from "The Good, the Bad and the Ugly") [2:24]
+03. The Good, the Bad and the Ugly (from "The Good, the Bad and the Ugly") [2:42]
+04. Once Upon a Time in the West (from "Once Upon a Time in the West") [3:11](   Читать дальше...   )Жанр: Soundtracks, ScoreПродолжительность: 01:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7AD0AA63AF3694F93C34AB205979027D306F1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031247   (668433) от 03.07.2016
 
 Medwyn Goodall - The Dreamworld (2016) [MP3|320 Kbps] <New Age>
@@ -691,33 +718,6 @@ Offrandes - Best of 2008-2015 (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51737C26A5283887250317EE3788D99D4B042170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290857   (672350) от 23.03.2019
-
-The Bodarks - Uprooted (2018) [FLAC|Lossless|tracks + .cue] <Contemporary Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline (03:33)
-02. Get It While the Gettin's Good (03:03)
-03. New America (03:56)
-04. Shame Shame (04:29)(   Читать дальше...   )Жанр: Contemporary Folk, CountryПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0F92DB062575CF3A97B4E32259D8EB8FDB7C24
 ```
 
 

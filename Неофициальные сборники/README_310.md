@@ -1,3 +1,30 @@
+###  Публикация: 1313856   (522266) от 11.07.2019
+
+VA - Romantic Indie Pop-Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wingtip Sloat - Spanish EncoresGiddy In Palestine
+002. Annika Norlin - Failure
+003. Calvin Johnson - (I've Still Got) Sand in My Shoes
+004. Georgia feat Shygirl - Mellow(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 09:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186310D011E906BADB0C6EDDC1E0AFD25E935DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313857   (522316) от 11.07.2019
 
 VA - Multimix Electro Sound (2019) [MP3|320 Kbps] <House, Dance, Club>
@@ -677,33 +704,6 @@ VA - Club Dance Ambience Vol.159 (2018) [MP3|320 Kbps] <Dance, Club House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:300DBA2BB40F0E29D652C42A4A960E5A7B8EB6A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559636   (523415) от 26.06.2022
-
-VA - В машине с музыкой Vol.278 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulava - Я Полетел Бы
-02. Semenyak  - Химия
-03. Lena Feat. & Janaga - Знаешь Как Уйти
-04. Verbee Feat. & Rompasso - Тает Дым(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:28:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C55B350278A8FB6B193D80DBA4CEA734B155AFA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1014980   (775853) от 09.05.2016
+
+VA - Sexy Deep Chilling (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sura Quintet - Hit Your Deadline
+02. Circuito Zeta - Stomp
+03. Chillelektro - Vitt
+04. Unexpected Marvel - Spread the Rumor(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B494D332C8D03EEBDA6549549493CA6ED5221A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212344   (776005) от 11.03.2018
 
 VA - Instrumental Piano: Neo Classical Collection (2018) [MP3|320 Kbps] <Instrumental, Neoclassical, Piano>
@@ -668,33 +695,6 @@ VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10EE75854C851501661DBC83CAB1697587D94471
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014716   (776206) от 08.05.2016
-
-VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyhodelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixsense - Floating Beings 7:12
-02. U-Recken - Carol Of The Bells (Talamasca Remix) 7:49
-03. Gravedad cero - Above the Storm 8:29
-04. Major7 vs. Reality Test - Seduction 7:55(   Читать дальше...   )Жанр: Psy Trance, Psyhodelic, Goa TranceПродолжительность: 08:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E38A84050321E277C0E466A85C233A87BCD525E5
 ```
 
 

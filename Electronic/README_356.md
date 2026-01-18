@@ -1,3 +1,57 @@
+###  Публикация: 1286759   (709087) от 04.03.2019
+
+ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival (04:49)
+ 02. Burian (05:05)
+ 03. A Prayer For The Departed (05:30)
+ 04. In Every Place (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286875   (709092) от 04.03.2019
+
+Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Unity (04:33)
+02. Nothing but Stardust (06:15)
+03. Every Dream Is a Lifetime (05:53)
+04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 329403   (709213) от 29.04.2011
 
 London Elektricity - Yikes (2011) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -640,60 +694,6 @@ Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401190   (711338) от 09.08.2020
-
-Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strings of Boredom [00:03:40]
-02. Anaesthetic Age [00:03:54]
-03. Preasure Move [00:04:53]
-04. Klaustrophobia [00:04:12](   Читать дальше...   )Жанр: EBM, ElectroПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B83DC9BD761717236573CF2CB51411DFD36E4CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219664   (711906) от 15.04.2018
-
-Henry Saiz & Band - Human (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Downtempo, Nu-Disco, House>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downfall (Overture) (6:12)
- 02. Haven (Lanzarote, Canary Islands) (7:44)
- 03. Ghosts (Australia) (5:01)
- 04. The Golden Cage (Dubai) (6:02)(   Читать дальше...   )Жанр: Synthpop, Downtempo, Nu-Disco, HouseПродолжительность: 01:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8305230B7621A1CA375CC9F06CC0A58A8B509FC2
 ```
 
 

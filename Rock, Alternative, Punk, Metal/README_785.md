@@ -1,3 +1,57 @@
+###  Публикация: 928007   (523328) от 15.08.2015
+
+Hanna Turi - Tracks in the Water (2015) [MP3|320 кб/с]<Piano Rock, Alternative Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh-My-Night
+02. What Did I Do With My Time
+03. Cotton Wads
+04. You Collect(   Читать дальше...   )Жанр: Piano Rock, Alternative Rock, PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D202DBB5325F94C3DA9306E8B4E8E2E40C4DA694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559573   (523425) от 26.06.2022
+
+The Warning - ERROR (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 404 [00:00:56]
+02. DISCIPLE [00:03:40]
+03. CHOKE [00:03:51]
+04. ANIMOSITY [00:04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8823ECE28CBA57E19FACD0F3BC0EF9D384314E9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559433   (523480) от 26.06.2022
 
 Виталий Дубинин - Бал-Маскарад (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -641,60 +695,6 @@ Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871841BD86AF85D2E33E5DF02299F354171DE087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927782   (524113) от 14.08.2015
-
-The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3|320 кб/с]<Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You're Gonna Miss Me (2:31)
-02.  Roller Coaster (5:07)
-03.  Splash 1 (Now I'm Home) (3:56)
-04.  Reverberation (Doubt) (2:51)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0387046A92E8A3FEB98D9B9D111E72085F6F28B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927788   (524115) от 14.08.2015
-
-The Bollock Brothers - Les Genies du Rock - God Save The Queen (1995) [MP3|320 кб/с]<Post-Punk/New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Holidays In The Sun (3:32)
-02.  Problems (4:28)
-03.  No Feelings (3:23)
-04.  God Save The Queen (3:13)(   Читать дальше...   )Жанр: Post-Punk/New WaveПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144F82B5ED92FD1FA8B4A826A6FE9DC3F87DBC60
 ```
 
 

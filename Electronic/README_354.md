@@ -1,3 +1,57 @@
+###  Публикация: 1132169   (703189) от 08.05.2017
+
+VA - Balearic Spirit Vol.1: Smooth Vibes With Ibiza Spirit (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Tonal - Planet Is Alive  4:03
+02.  Gabriel Florea - Garden Of Balance  8:57
+03.  Lisa Jest - Feel Intensity  4:01
+04.  Leonardo Dwell - Chink Your Glasses  3:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CD2ED133F5898F2CD2C612047941A11A4061F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287367   (703341) от 07.03.2019
+
+Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skibidi
+02. Skibidi (Romantic Edition)
+03. Skibidi (Doorly Remix)
+04. Skibidi (ЛАУД Remix)(   Читать дальше...   )Жанр: Rave, DanceПродолжительность: 00:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60D3BEC4C75DDFC6D803CEE4A83F6725120F5E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286673   (703474) от 07.03.2019
 
 Eurythmics - Missionary Man, Live Concert 1984 (2000) Unofficial Release, Bootleg [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -643,60 +697,6 @@ VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026190   (705765) от 14.06.2016
-
-Snap - Power Hits Of... (1995) [FLAC|Lossless|image + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Power [0:05:47.25]
-02. Ooops Up [0:06:47.00]
-03. Cult of snap [0:05:25.05]
-04. Believe the hype [0:04:55.45](   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA3CCE55ADB77087B05843A4747AB5CE022D2EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026139   (706155) от 14.06.2016
-
-VA - Melodies For Ravers (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prash - Bring That Bass (Extended Mix) (4:48)
-02. Chives & Splash - Love & Rage (Extended Mix) (4:50)
-03. United States of Dance - We Are the Night (Extended Mix) (4:57)
-04. Rock Massive - You Know Why (Ph Electro Radio Mix) (3:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED72647A38A4ED81B66FF83BD0F901964F3643E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1461134   (1022098) от 08.04.2021
+
+Toki Fuko - Human Design (2021) Lowless Music [FLAC|Lossless|WEB-DL|tracks] <Techno Ambient, Tribal, Spoken Word>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Will Enlightenment Give Me (08:37)
+ 02. Freedom And Desire (07:40)
+ 03. Recognize Your Limitations (09:19)
+ 04. Focused Ad Absorbing (09:47)(   Читать дальше...   )Жанр: Techno Ambient, Tribal, Spoken WordПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22775BA09CC8986369D163A91E443633959764AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461082   (1022119) от 08.04.2021
+
+exm - Post Acuem (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gamish And Michael (05:55)
+ 02. Teique01 (06:59)
+ 03. CP0_b (04:39)
+ 04. Mtate (09:19)(   Читать дальше...   )Жанр: IDM, Ambient, GlitchПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174A1FAC98AD02AF0FC921EC06935AB42EA0CE11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279628   (1022170) от 07.04.2021
 
 Bucky - Discography 49 Releases (2012-2021) [FLAC|Lossless|WEB-DL|tracks] <UK Garage, Ambient, Future Garage, Downtempo>
@@ -637,60 +691,6 @@ Frank Steiner, Jr. - Discography: 6 Releases (1998-2021) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4225006543E4561ABB6F71FE8799A7D9D725AA2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459553   (1023165) от 02.04.2021
-
-Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape (08:22)
- 02. Landscape (R.Hz Remix) (09:05)
- 03. Landscape (Andrey P. Remix) (08:16)
- 04. Landscape (Kirill Torno Remix) (08:57)(   Читать дальше...   )Жанр: Techno, Dub Techno, Minimal, AmbientПродолжительность: 01:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F039BFCCC45FE217FFB4564A88E89D15E5D9DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459368   (1023326) от 01.04.2021
-
-VA - Tails Of The Unexpected (2021) Pulse State [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Electro, Acid, Techno, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auberg1ne – Terk (04:00)
-02. Humanoid – Oeeeoou (07:59)
-03. CRC – EP6 (05:42)
-04. Karsten Pflum – School (04:15)(   Читать дальше...   )Жанр: IDM, Downtempo, Electro, Acid, Techno, AmbientПродолжительность: 03:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A541FDB755B03A0F4E74980E7C5E2506F1E3A8
 ```
 
 

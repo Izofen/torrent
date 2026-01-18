@@ -1,3 +1,306 @@
+###  Публикация: 1033627   (636144) от 12.07.2016
+
+Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical, Heavy Metal, Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mustang Shuffle
+02. Now's the Time
+03. Faith
+04. Slam(   Читать дальше...   )Жанр: Neoclassical, Heavy Metal, Instrumental RockПродолжительность: 0:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D8B461836D6314D0C4CD411DB2A423260C750AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907716   (636155) от 13.06.2015
+
+Vasya Club - Хiпан (2002) [FLAC|image+.cue]<Folk-Rock >
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не пускай дiвча гуляти 03:13
+02. Шiдi Рiдi 02:58
+03. Дон Хуан 05:12
+04. Чорна Гора 02:59(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77731FB6A9B1D16C98EB41DD44A55D1AEEC2039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907619   (636157) от 13.06.2015
+
+Yukon Blonde - On Blonde (2015) [MP3|320 кб/с]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Confused (4:05)
+2. Make U Mine (3:23)
+3. Como (3:35)
+4. I Wanna Be Your Man (3:40)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114B120BF3B2BD5DCFBC7E323AFE9D8CDB32CDB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907665   (636159) от 13.06.2015
+
+Rancid - All the Moon Stomper's (2015) [MP3|320 кб/с]<Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Time Bomb
+02 Daly City Train
+03 Old Friend
+04 Brixton(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B439DB6FAA739A7D565EC1E5446C3F3FAA7D9A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907726   (636162) от 13.06.2015
+
+Diabolicum - Ia Pazuzu (The Abyss Of The Shadows) (2015) [MP3|320 кб/с]<Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baxxar Ehl Uhza (0:13)
+02. Void of Astaroth (4:00)
+03. Silent Spring (5:49)
+04. Genocide Bliss (5:49)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F86790F665510D9266CA87A4AC6BDE82F92266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908018   (636165) от 13.06.2015
+
+Sitcom - What's Up (2015) [MP3|320 кб/с]<Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Reeboks 05:36
+02. Ginger Ale 03:49
+03. Window View 03:32
+04. How R You 03:28(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535D82F4178D01DB82E228B0DCBEA2E12ECE5C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908011   (636258) от 13.06.2015
+
+Upsilon Acrux - Sun Square Dialect (2015) [MP3|320 кб/с]<Avant-Prog, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pitch Mountain: Maps (06:17)
+02. Death Before Disharmonic (06:26)
+03. Smells Kline (04:04)
+04. Never Don't Give Up (03:47)(   Читать дальше...   )Жанр: Avant-Prog, Math RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BB55B9EDE72165A80012CADBAA9C6FD36E6FE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033630   (636266) от 12.07.2016
+
+Lee Abraham - The Seasons Turn (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seasons Turn (24:46)
+02. Live For Today (6:52)
+03. Harbour Lights (7:11)
+04. Say Your Name Aloud (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D535AF69DF7C0BC850A1AD0C20EFB03B470036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519437   (636830) от 06.07.2012
+
+Manowar - The Lord Of Steel [Hammer Edition] (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_636830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lord of Steel (4:08)
+02. Manowarriors (4:46)
+03. Born in a Grave (5:47)
+04. Righteous Glory (6:10)
+05. Touch the Sky (3:49)
+06. Black List (6:58)
+07. Expandable (3:10)
+08. El Gringo (4:57)
+90. Annihilation (4:00)
+10. Hail Kill and Die (3:58)Жанр: Heavy MetalПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541274   (636871) от 07.04.2022
+
+King Mountain - 4 Albums (2020-2022) [MP3|320 Kbps] <Heavy Blues Rock, Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Sacrifice [00:05:50]
+02. Tempest At The Gate [00:03:29]
+03. Burning Walls [00:04:05]
+04. King Of The Mountain [00:06:12](   Читать дальше...   )Жанр: Heavy Blues Rock, Hard Rock, Stoner RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654F693CBEF71E227ED3DE12C6AB2AE91C15D5D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541391   (636957) от 07.04.2022
+
+Группа Саша и Сирожа - Куй (2022) [MP3|320 Kbps] <Comedy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кап-кап (2:23)
+02. Надоело (2:17)
+03. Рыбалка (2:00)
+04. Не успел (2:15)(   Читать дальше...   )Жанр: Comedy RockПродолжительность: 00:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119DAFE6982F4B6A901A7ACA8B4A5F6515AFE89E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143269   (637067) от 17.06.2017
 
 КОПЕНGАGЕН [группа «копенгаген»] - Утопия (2017) [MP3|320 Kbps] <Alternative Rock>
@@ -396,310 +699,6 @@ In the Last Days - Do What Thou Wilt (2022) [MP3|320 Kbps] <Hardcore, Modern Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93CA9C309DC453EFE8FB44C32C6D18B76F905316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542418   (637393) от 07.04.2022
-
-Александр Неплахов - Inspired (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лица
-02. Ковид 19
-03. Каждому свое
-04. Я Больше!(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D4AE5EDE740D6C4D9583A2283BF883D9444FCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541776   (637400) от 07.04.2022
-
-Dope Default - Division (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Mass (00:04:53)
-02. Future Without (00:03:24)
-03. Duplicity (00:06:13)
-04. Down to Pieces (00:05:00)(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B62B302CE582864116B3600B301FB9D0F9C0EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541429   (637403) от 07.04.2022
-
-Stoned Apes - Monkey Sounds (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sludge [00:03:52]
-02 Tune In [00:03:40]
-03 Underworld [00:03:08]
-04 Guru [00:04:24](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC09EC00EAE43B6D27B3EE4F6763718E141DB9D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293454   (637418) от 03.04.2019
-
-Евгений Маргулис - Туда-сюда! (2018) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЭрЖэДэ блюз (Поезд)
-2. Про Аню
-3. Ч.Б. Кино
-4. Танго-манго (М.С.)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF6A30EB0CE3F14C3C23A2B30E25A6B75BEA069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519287   (637491) от 06.07.2012
-
-Mike Bloomfield And Al Kooper - The Live Adventures of Mike Bloomfield and Al Kooper (1997) [FLAC|Lossless]<Blues, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Opening Speech - Al Kooper OtherЖанр: Blues, RockПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519168   (637498) от 06.07.2012
-
-Galahad - Battle Scars (2012) [FLAC|Lossless]<Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Scars (7.04)
-02. Reach For The Sun (3.54)
-03. Singularity (7.32)
-04. Bitter And Twisted (6.58)
-05. Suspended Animation (4.05)
-06. Beyond The Barbed Wire (5.30)
-07. Seize The Day (8.34)
-08. Sleepers 2012 (14.07) (bonus track)Жанр: Neo ProgressiveПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228382   (637506) от 31.05.2018
-
-Ghost - Prequelle (2018) [MP3|320 Kbps] <Heavy Metal, Occult Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes
-02. Rats
-03. Faith
-04. See the Light(   Читать дальше...   )Жанр: Heavy Metal, Occult Rock, Doom MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECEBE4426FFB6A208FD665DB429BBD53481E9679
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541424   (637507) от 07.04.2022
-
-The Violent Inzident - This Is Nu Metal! (2022) [MP3|320 Kbps] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu Metal! (2:44)
-02. I Love Nu Metal (3:05)
-03. Whores of Instagram (4:26)
-04. Disastinder (3:06)(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DC8BDA531A7644B7D5F9775D7F84CDB0727401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541656   (637509) от 07.04.2022
-
-VVitchesmoon - Lilith, Star of Sorrow (2022) [MP3|320 Kbps] <Melodic Death, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Garden of Death [00:05:09]
-02 Fallen Light of Eden [00:08:00]
-03 Grail (Lucifer's Descent) [00:05:52]
-04 It Comes at Dusk [00:07:30](   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A93998F64EE5A2E4931AA78849DCDECE3894D90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541127   (637513) от 07.04.2022
-
-Satan - Earth Infernal (2022) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ascendancy [00:05:04]
-02 - Burning Portrait [00:05:50]
-03 - Twelve Infernal Lords [00:05:16]
-04 - Mercury's Shadow [00:02:50](   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CC144D384D0559AE1714052FAE8CB0F88103E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519209   (637588) от 06.07.2012
-
-Twisted Sister - Come Out and Play (Japanese Edition) (1985) [MP3|320 кб/с]<Glam Metal / Heavy Metal / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Out and Play
- 02. Leader Of The Pack
- 03. You Want What We Got
- 04. I Believe In Rock 'n' Roll
- 05. The Fire Still Burns
- 06. Be Chrool To Your Scuel
- 07. I Believe In You
- 08. Out On The Streets
- 09. Lookin' Out For №1
- 10. Kill Or Be Killed(   Читать дальше...   )Жанр: Glam Metal / Heavy Metal / Hard RockПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8773026940CDBCCA2202B50B9DE0F26A484E686
 ```
 
 

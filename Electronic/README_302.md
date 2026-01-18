@@ -1,3 +1,57 @@
+###  Публикация: 1548936   (594865) от 05.05.2022
+
+Isidor - Portals & Dimensions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Jinx [00:04:19]
+02 - The Ghost of Sioux [00:04:09]
+03 - Tune Into Space Radio [00:03:50]
+04 - Club at The End of The Universe [00:03:32](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6BFAA2FB63F8FF61EABB59BD7336D38474013B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549067   (594868) от 05.05.2022
+
+VA - 12.04, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zodiac - New Zodiac (4:09)
+02. Oleg Gurtovoy and VEGA - Supernova (4:20)
+03. Human Factor - Upstream (7:08)
+04. WooDMooD - Hub 591 (3:53)(   Читать дальше...   )Жанр: Synthpop, SpacesynthПродолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A5A47D016395BDF9E0DA4EB459EC497C5C694B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299353   (594973) от 04.05.2019
 
 Serkan Eles - Belong to Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
@@ -655,60 +709,6 @@ Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8F2662894DDFA197E5711E82CE0DD67C0C363E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039421   (597626) от 31.07.2016
-
-Moby - The Remixes (Go, Porcelain, Natural Blues) (2016) [MP3|320 Kbps] <Progressive House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (Hardwell Remix) (5:28)
-02. Porcelain (Sick Individuals Remix) (5:21)
-03. Natural Blues (Bali Bandits Remix) (3:46)
-04. Go (Hardwell Remix Edit) (4:28)(   Читать дальше...   )Производство: Revealed RecordingsЖанр: Progressive House, ElectronicПродолжительность: 00:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924C1261F67B5EA66ED0FBB69D7511D1C5797603
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039055   (597637) от 31.07.2016
-
-Simon Le Grec - Unique 3 (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Stories (4:21)
-02. Escape from My Past (4:32)
-03. Escape from My Past (Downbeat Edit) (4:22)
-04. Escape from My Past (Downbeat Mix) (6:43)(   Читать дальше...   )Жанр: Downtempo, Chill Out, New AgeПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76576421C6C947F81F75A85BC0C46E75F2D1D377
 ```
 
 

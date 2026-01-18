@@ -1,3 +1,246 @@
+###  Публикация: 1008990   (810160) от 21.04.2016
+
+Return To Forever - Romantic Warrior (1976) Remastered 1990 [APE|Lossless|image + .cue] <Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medieval Overture
+02. Sorceress
+03. The Romantic Warrior
+04. Majestic Dance(   Читать дальше...   )Жанр: Jazz-Rock, FusionПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87CDAC2DEB494C063694FE2F33BD8CC995FDF44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009541   (810161) от 21.04.2016
+
+Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cue] <Soul, Smooth Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Ole Days 04:09
+02. You Made Me Love Again 04:12
+03. So High On Your Love 04:55
+04. Don't Break Your Promise (Too Soon) 04:59(   Читать дальше...   )Жанр: Soul, Smooth SoulПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009524   (810164) от 21.04.2016
+
+Lonnie Johnson - Stompin' At The Penny (1994) [FLAC|Lossless|tracks + .cue] <Blues, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. China Boy
+02. Mr. Blues Walks
+03. Dippermouth Blues
+04. Trouble In Mind(   Читать дальше...   )Жанр: Blues, JazzПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473FF43C25090DE40E74BFAE77202AE4BBF88DC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009457   (810165) от 21.04.2016
+
+Miles Davis - Miles In The Sky (1968) Remaster, 1991, Sony Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stuff [17:04]
+ 02.Paraphernalia [12:46]
+ 03.Black Comedy [07:31]
+ 04.Country Son [13:53]Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019860EBE863CCA01151267CC7BC916C4281EBA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008994   (810167) от 21.04.2016
+
+VA - Jimmy Virani presents The Exotic Sounds of Tiki Tribe (2011) Dionysus Records[FLAC|Lossless|tracks + .cue] <Lounge, Easy Listening, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ritual Of The Torches [02:53]
+ 02.Dahil Sayo [02:59]
+ 03.Tahu Wahu Wahi [03:12]
+ 04.Tiare [02:22](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2358E74A371FC6EAE03990E975BB5C1DA8B9987E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009204   (810177) от 21.04.2016
+
+Oz Noy - Who Gives a Funk (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Funk, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On (feat. Fred Wesley) (07:12)
+02. Flashback (feat. John Medeski) (05:52)
+03. Better Get It In Your Soul (feat. Randy Becker) (07:28)
+04. I Got You (I Feel Good) (feat. Chris Potter) (05:27)(   Читать дальше...   )Жанр: Jazz, Fusion, Funk, RockПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609F2C085D32CFFF9DC3E915D2BC257466F201B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008933   (810181) от 21.04.2016
+
+Murray, Allen & Carrington Power Trio - Perfection (2016) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror of Youth 05:52
+02. Barbara Allen 05:59
+03. Geri-Rigged 06:11
+04. The David, Geri & Terri Show 08:16(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8D02BC2E5A67A977CA9D04657801725F5AD0F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009507   (810183) от 21.04.2016
+
+Dorado Schmitt - Parisienne (1995) [FLAC|Lossless|tracks] <Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil    04:41
+02. Tout Seul    03:09
+03. Parisienne    04:41
+04. Bossa Dorado    03:57(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5214A8B48ADA21FECEA7806AEBE88696608087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198014   (810249) от 10.01.2018
+
+Bill Wyman's Rhythm Kings - Groovin' (2000) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell You A Secret  (03:03) 
+02. Groovin'  (03:30) 
+03. Rough Cut Diamond  (04:03) 
+04. Mood Swing  (04:09) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96E6EF3C95A64D07D367D6F8DCC18ED74E08D41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198203   (810264) от 10.01.2018
 
 Yusef Lateef & Adam Rudolph - Beyond The Sky (2000) META [WavPack|Lossless|image + .cue] <Avant-Garde Jazz, World Fusion>
@@ -453,249 +696,6 @@ Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D7CAA1CA19F7A78EEBD9E7EC4A718DD50C9C454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197662   (812140) от 09.01.2018
-
-Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [11:15]
-02. Playful Flute [04:19]
-03. Love and Humor [06:13]
-04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008988   (812181) от 20.04.2016
-
-Curtis Salgado - More Than You Can Chew (1995) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Hell Withit (pt 1) (00:44)
-02. Little Charmer (04:46)
-03. I Don?t Care (05:13)
-04. Salt In My Wounds (05:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32667AF0A67D1722C32218C664A7242A959C7315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009115   (812182) от 20.04.2016
-
-Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home Stretch (04:14)
-02. Road Kill (02:44)
-03. Wash My Horse In Champagne (05:21)
-04. Cool Mistake (03:57)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D966C229CEA6615DE1D3B203104A0BB4D183E48E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009062   (812250) от 20.04.2016
-
-Eddie Harris Trio - Eddie Who? (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Eddie Who? [04:18]
- 02.Sally Butterfly [08:50]
- 03.Ambidextrous [06:20]
- 04.Daahoud [07:10](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8E32D07BBDAB41A7111EBF65462609F6799115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008992   (812252) от 20.04.2016
-
-Reuben Wilson - A Groovy Situation (1970) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.While The World Lies Waiting [05:16]
- 02.Sweet Tooth [06:56]
- 03.If You Let Me Make Love To You Then Why Can't I Touch You (From The Musical Production 'Salvation') [06:20]
- 04.A Groovy Situation [08:47](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46332230C15365D4129668E7BCB76021C19DB7AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883059   (812988) от 31.03.2015
-
-Climax Blues - Broke Heart Blues (2015) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Monday
-02. Cruel
-03. Gossip Is Gold
-04. Miss You So(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4350A203651DE4DE64884709CB7978D2C18F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118304   (813187) от 25.03.2017
-
-Joe Louis Walker - Hornet's Nest (2014) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hornet's Nest (4:04)
-02. All I Wanted To Do (4:23)
-03. As The Sun Goes Down (4:25)
-04. Stick A Fork In Me (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E5F27AEE33813AD9A7D8CAAFE22186BF1ACD04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118287   (813314) от 25.03.2017
-
-Coco Montoya - Hard Truth (2017) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before The Bullets Fly (3:12)
-02. I Want To Shout About It (3:39)
-03. Lost In The Bottle (4:48)
-04. Old Habits Are Hard To Break (5:36)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276C58115421B5257262B326258A70B5850DF699
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118293   (813499) от 25.03.2017
-
-Roomful of Blues - 45 Live (2013) Recorded Live At The Ocean Mist [FLAC|Lossless|tracks + .cue] <Jump Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Keep On Rockin' (3:48)
-02. It All Went Down The Drain (5:29)
-03. Jambalaya (5:02)
-04. Easy Baby (7:22)(   Читать дальше...   )Жанр: Jump BluesПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AE4EB6C07CE249D961F1862E918DE0D6571A99F
 ```
 
 

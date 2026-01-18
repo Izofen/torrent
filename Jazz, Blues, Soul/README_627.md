@@ -1,3 +1,246 @@
+###  Публикация: 1843763   (1049486) от 21.12.2025
+
+Danny Alexander Blues Band - Turn Me Loose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come to Me (3:17)
+02.  Bottom of the Boot (2:59)
+03.  Take a Break (3:50)
+04.  I Want To Be Loved (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC58083BE8F3FCF6A1AD170932B59AB18D76BD39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843762   (1049489) от 21.12.2025
+
+DaBeDa - Leavin' the Shell (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Countryside (4:31)
+02.  I Fell (2:33)
+03.  I Don't Care (4:22)
+04.  I Feel Just Like A Child (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BEE1162F4403A5A248575B276BA4778EDFE380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843761   (1049494) от 21.12.2025
+
+Bonny B. - Love & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Tone (5:48)
+02.  All on Board (4:52)
+03.  Run in the Rain (5:08)
+04.  My Story (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6A8BD69D7E0AF0A61161DF74D14DEA0A575C1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843758   (1049495) от 21.12.2025
+
+Bluesman and The Blues Essentials - Girl of My Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blind Love Blues (3:53)
+02.  Satisfied (3:45)
+03.  The Way (4:44)
+04.  I Can't Say Goodbye (7:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433C84021CEB55D331CEB997B16BFB7ABD9834F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843757   (1049496) от 21.12.2025
+
+Blueback - Blueback Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Walk On Revisited (3:48)
+02.  The Things in These Rooms (3:10)
+03.  Do It The Natural Way (2:30)
+04.  There's a Tavern Up in Nashville (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92245E0F292938FE88E5B9FECE4EABB722DF42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844351   (1050014) от 25.12.2025
+
+Mark Alonzo & The Nashville Rhythm Kings - Jaded Fool (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lost Highway (4:22)
+02.  Two Sides (3:37)
+03.  Diesel (3:21)
+04.  Mobile (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98D676D57C28903FDE3FFB35501D09ED4C2A966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844350   (1050015) от 25.12.2025
+
+JR Clark - J R Clark "Time TIcks Away" (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Time TIcks Away (4:01)
+02.  Life Of BB (5:13)
+03.  Lady Of The Night (11:08)
+04.  Cinnamon (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F823AD9A0DE4574FA0158DC7E08313E915AEC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844349   (1050016) от 25.12.2025
+
+Joe Galullo - Melody in the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Gotta Care About Me (3:57)
+02.  Get out of My Head (3:56)
+03.  Rainy Sunday Morning (5:41)
+04.  Life Without Love (6:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC6384432A16EDA04E7C9CBFF8B1E8F1A6B22C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844346   (1050018) от 25.12.2025
+
+Jill Newman - Little Bit of Luck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Little Bit of Luck (4:19)
+02.  Lost Without You (3:36)
+03.  Lay My Worries Down (4:07)
+04.  Making up for Lost Time (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0204C26A811EAABC027441FB4A1BB9AD210D1E08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844333   (1050020) от 25.12.2025
 
 Frankie V and the Lonely Club - Play the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -452,249 +695,6 @@ VA - Nocturne Blues (Slowed + Reverb) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83D16C901EFFA01DD767FB060935E309C1DE4BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844707   (1050277) от 27.12.2025
-
-Uncle Watson's Widow - Fool's Song (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hymn 43 (4:00)
-02.  Fool's Song (4:38)
-03.  Iron Fist (2:50)
-04.  Poker Face (3:16)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434211152DF69CCB879DA541AC89CA8D90DC088D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844705   (1050278) от 27.12.2025
-
-Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Burning Hell (3:31)
-02.  Nobody's Fault But Mine (3:44)
-03.  What Good Am I (3:53)
-04.  Ain't No Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D86FAC0436D2F1104901233B0B1CD3C00E828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844701   (1050281) от 27.12.2025
-
-Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hard Day Blues (4:25)
-02.  Rich Man's Woman (4:44)
-03.  Free Life (3:56)
-04.  You Don't Know Me (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C5725550838B8EDCA4576ECC55A6C5E69095B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844696   (1050283) от 27.12.2025
-
-Threestyle, Magdalena Chovancova, Robert Fertl, Damon Dae - We Have That Magic (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love for Free (3:49)
-02.  Change of Heart (3:54)
-03.  Real Love (4:38)
-04.  All over Again (4:16)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4F92F8732CE5C8274029FD55199AA16AC5982
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844693   (1050286) от 27.12.2025
-
-Threestyle - Christmas Is My Favourite Season (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christmas Is My Favourite Season (3:22)
-02.  First Christmas (3:45)
-03.  Christmas in July (3:45)
-04.  New Kind of Christmas (3:29)(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, ChristmasПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E883CAD2AF6AB845A43B2B0883D5C6B30C07F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844694   (1050287) от 27.12.2025
-
-Threestyle - Reasons 2 Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ready to Go (Radio Mix) (4:02)
-02.  Good News (3:34)
-03.  Dessert Moon (4:06)
-04.  Let's Talk (House Party) (4:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DFD0EF4EBA6BD03536D3A9319E0DEA4BA6A91B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845277   (1050584) от 30.12.2025
-
-The Merry Christmas Experience - An Electro Swing Christmas Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jingle Bells (Electro Swing Version 2025) (2:08)
-02.  O Little Town of Bethlehem (Electro Swing Version 2025) (2:15)
-03.  Away in a Manger (Electro Swing Version 2025) (2:15)
-04.  Deck the Halls (Electro Swing Version 2025) (2:20)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6F84A4A799B47223F69BA2CF97675ADB273A3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845270   (1050586) от 30.12.2025
-
-Lady Gearbox - Electro swing music (Vol. 1) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Velvet Whispers (2:36)
-02.  Neon Waltz (2:10)
-03.  Velvet Groove (2:17)
-04.  Velvet Revolver (1:52)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D2546DD8E091DD610A28061525BC88D17CDDA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845260   (1050593) от 30.12.2025
-
-The Scott O'neal Band - Call Me Mr. Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nothin' to Gain (4:32)
-02.  Love Somebody (3:37)
-03.  Just Another Day (4:28)
-04.  Good Luck With That (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE3D8BE30669D696BD95535D0477D724B6CEF84
 ```
 
 

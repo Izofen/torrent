@@ -1,3 +1,30 @@
+###  Публикация: 1497897   (859651) от 25.09.2021
+
+VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Akishou And Jelz - Katana
+002. Marija - All The Girls
+003. Sorgalim - Moonlight
+004. Jack Rush - Butterfly(   Читать дальше...   )Жанр: Club, Dance, House, Tech HouseПродолжительность: 08:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3DE157BD809A67AA0CC512A3D95913AAD833D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497921   (859653) от 25.09.2021
 
 VA - The Brutal Might (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
@@ -668,33 +695,6 @@ VA - 200 Tracks for Running & Jogging (2016) [MP3|320 кб/с] <Fitness & Workou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06834EC5689827999777581C653BE426BA3B0B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999840   (862672) от 23.03.2016
-
-VA - Музыка хорошего настроения 5 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862672.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Turan - Континенты
-002. Валерий Меладзе & Константин Меладзе - Мой Брат
-003. Потап & Настя Каменских Vs Любэ - Дворовые Друзья
-004. Etherwood - Caption(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924FC017B078EC42F7C7D01E36A297BA218B6AB9
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 922562   (568229) от 29.07.2015
+
+Desert - Never Regret (2015) [FLAC|image+.cue]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing The Prey
+02. Assassin's Fate
+03. Son Of A Star
+04. The Wolf’s Attack(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2F2AAFED0537CBDD717CB95DD9EBAFE385C529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922584   (568347) от 29.07.2015
+
+The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rondo (7:54)
+02.  she belongs to me (11:52)
+03.  Azrael revisited (5:55)
+04.  The thoughts of emerlist Davjack (4:14)(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7935ABBB4C7623939128FE97051545BDCB2FCD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922565   (568349) от 29.07.2015
 
 Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [MP3|320 кб/с]<Prog Rock, Experimental, Soul>
@@ -648,65 +702,6 @@ Akuma Six - Akuma No Sekai (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A7AAEC9B6C274F8AD34E3126916E7282E65078F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303893   (569133) от 23.05.2019
-
-Vampire Weekend - Father of the Bride (2019) Japanese Edition / Scene [FLAC|Lossless|tracks] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold You Now (feat. Danielle Haim) (02:33)
-02. Harmony Hall (05:08)
-03. Bambina (01:42)
-04. This Life (04:28)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E449F33A733993448D8B87443C9D393224B2AFAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223904   (569138) от 06.08.2010
-
-Владимир Кузьмин - Собрание лучших лирических песен (1996) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Просто я люблю тебя [05:41]
-02. Огонь ("Обойдет стороной суета") [07:17]
-03. Подогрей мне молока [05:27]
-04. Голос [03:36]
-05. Менестрели [04:18]
-06. Последняя весна [01:41]
-07. Теряю тебя [04:35]
-08. Лед слезы льет [04:52]
-09. Прощальный блюз [05:47]Жанр: RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

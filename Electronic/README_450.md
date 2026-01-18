@@ -1,3 +1,57 @@
+###  Публикация: 997922   (866507) от 21.03.2016
+
+Manufacture - 2 Albums (1988, 1990) [MP3|320 кб/с] <Electronic, EBM, Techno>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slugger (4:09)
+02. As The End Draws Near (3:39)
+03. Passion For The Future (3:45)
+04. Bond Street Station (0:23)(   Читать дальше...   )Жанр: Electronic, EBM, TechnoПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87208A33CF7CEBE959EA9ABDEC439D2C8D6E743A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107920   (866565) от 23.02.2017
+
+VA - Going Deep in London (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brett Johnson - Danger - Original Mix 7:46
+002. Pro-Moe - 6:15 - Original Mix 7:12
+003. Eduardo Tristao - Roses Are Red - Sudad G Loves Vinyl Mix 7:52
+004. Mappa - Party - Mappa Deep Mix 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ABFE6D0D7BBAC7DCC6D6C89E092CB38E1846C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107728   (866566) от 23.02.2017
 
 VA - 12 Bombs To Rock: Tech and Deep-House Edition 15 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -641,60 +695,6 @@ VA - Winter Trend Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08858EB238F237612CE33A537880119C3DD7EDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106888   (868338) от 22.02.2017
-
-VA - Business Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vega Ray - Track In Rhythm  4:56
-02.  K. Grooves - Mais Done (Latin Baja Mix)  3:03
-03.  Alexandre Mark - Cracks  3:45
-04.  Edison Morris - Gentleman Rain  3:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF6C26548FB8BCBC6ED9723B768E55C999A256D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107390   (868341) от 22.02.2017
-
-VA - Sensual Mood Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Benatural - Goose  7:32
-02.  Mathieu & Florzinho - The Indian  5:19
-03.  Floating Beat - Camija  4:23
-04.  Roy Bebop - Funky Breeze  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED57DC8C1904E4D05562B647DEF27886915039CF
 ```
 
 

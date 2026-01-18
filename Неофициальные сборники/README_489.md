@@ -1,3 +1,30 @@
+###  Публикация: 1278985   (766032) от 29.01.2019
+
+VA - Cryptic House I-XX [Compiled by Zebyte] (2016-2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luc Angenehm - Glow (Feat. Matthias Propach) [07:23]
+02. Soukie & Windish - Flatemate Ghost (Kellerkind Remix) [06:26]
+03. Finnebassen Feat. Nathalie Conway - Show Me How [09:23]
+04. DJ Tennis Feat Pillowtalk - The Outcast (Life & Death Dark Mix) [08:49](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Oriental Deep, Tech House, Tribal HouseПродолжительность: 70:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A7568EF5B529C80D30AC0C57A1B4A64500FD71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279496   (766118) от 29.01.2019
 
 VA - German Top 100 Single Charts 04.02.2019 [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Вечеринка от радио Шансон. Выпуск № 10 (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3D3FA334DA12F5A7D341D614524655FA70842F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213666   (767355) от 18.03.2018
-
-VA - Record Super Chart #528 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  EDX & Jonas Blue feat. Alex Mills  -  Don t Call It Love (Denis First Remix)  4:11
-02.  Merk & Kremont  -  Sad Story (Denis First Remix)  4:01
-03.  Klaas  -  Close To You  3:10
-04.  C-BooL feat. Giang Pham  -  DJ Is Your Second Name  4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3278194A35DDDFF9D984084C15C35F6C2EA53E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1144323   (628900) от 21.06.2017
+
+VA - Moving Dance: Summer Longplay (2017) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628900.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kygo & Ellie Goulding - First Time  3:14
+002.  Alice Merton - No Roots  3:56
+003.  Alan Walker - Tired (feat. Gavin James)  3:12
+004.  Jason Derulo feat. Nicki Minaj & Ty Dolla Sign - Swalla  3:37(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 08:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA07DCCE6F1CA8ADC7E12BE4CBEC873294A910C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521314   (628981) от 10.07.2012
 
 VA - In Da Club: Inspiration Volume 1 (Summer 2012) (2012) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
@@ -710,39 +737,6 @@ VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461747   (630369) от 04.07.2014
-
-Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe - The Drunken Sailor
-02. Theo Vaness - Bad Bad Boys
-03. Ottawan - You're OK
-04. T.H.P. - Good To Me
-05. Doris D. & The Pins - Shine Up
-06. A La Carte - Ring Me, Honey
-07. Methusalem - The Black Hole
-08. Gepy & Gepy - Body To Body
-09. Gilla - Tom Cat
-10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 

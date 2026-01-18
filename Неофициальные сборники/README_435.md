@@ -1,3 +1,27 @@
+###  Публикация: 333200   (694715) от 07.05.2011
+
+VA - Весенний фестиваль хитов 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4621C1C2B2FB284641D2D9CF6F30DF8BC6F3C849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027863   (694831) от 20.06.2016
 
 VA - Chillout Classical Study (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -666,33 +690,6 @@ VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027211   (696532) от 19.06.2016
-
-VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Aznavoour - Les Deux Guitares
-02. The Bangles - Eternal Flame
-03. Tevin Campbell - Everything
-04. The Hollies - He Ain't Heavy, He's My Brother(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712F39C148D805356B745A92235E873215A765F4
 ```
 
 

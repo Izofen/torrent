@@ -1,3 +1,27 @@
+###  Публикация: 1021993   (730976) от 31.05.2016
+
+Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta DawnЖанр: CountryПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CFE25CEBDF059E380D7985EDB1672A406322ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127618   (730981) от 22.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
@@ -668,33 +692,6 @@ VA - Restoration: The Songs Of Elton John And Bernie Taupin (2018) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDD2B115D14D7269759E74C95DFCDDBA0E6AA859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218129   (740232) от 07.04.2018
-
-Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Good Lookin' [3:01]
-02. Burnin' [3:17]
-03. Crazy's Theme [4:01]
-04. That Girl Was Mine [2:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61B7DCA5CF4C35708382938713D00A31A6E5F55
 ```
 
 

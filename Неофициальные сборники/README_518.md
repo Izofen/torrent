@@ -1,3 +1,30 @@
+###  Публикация: 1201972   (791012) от 27.01.2018
+
+VA - Дискотека 2018: Зимнее Настроение (Compiled by ZeByte) (2018) [MP3|320 Kbps] <House, Trapical, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ed Caspian feat. Redrama & Sandra  -  Bad To The Bone  3:23
+02.  Akcent feat. Reea  -  My Lady  3:19
+03.  LVNDscape feat. Cathrine Lassen  -  Dive With Me  4:00
+04.  Volkan Uca feat. Ersin Ersavas & Semih Celikel  -  Ameno  4:29(   Читать дальше...   )Жанр: House, Trapical, DanceПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACF3A552BFB4CF180B3CF9347339CB23505BB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202122   (791028) от 27.01.2018
 
 VA - The Official UK Top 40 Singles Chart 26.01.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4013C231B67C04A6D1C4D319B4871AF434E290DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387326   (791825) от 01.06.2020
-
-VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echopraxia - 3s Without 4 (03:51)
- 02. Jason Becker - Air (05:40)
- 03. Arch Echo - Tempest (05:18)
- 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
 ```
 
 

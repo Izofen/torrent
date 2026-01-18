@@ -1,3 +1,138 @@
+###  Публикация: 1151363   (574636) от 18.07.2017
+
+Jimmy Raney - Two Jims and Zoot (1964) 1990, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold Me [02:56]
+02. A Primera Vez [04:20]
+03. Presente de Natal [03:07]
+04. Morning of the Carnival [04:34](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEC564127B4A5FA2CB551E2429853836FA27258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042950   (574796) от 15.08.2016
+
+VA - 1 год журналу Джаз.Ру: Юбилейный CD (2007) [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sunlight - 24th of May [07:29]
+ 02.Helsinki Trio feat. Leonid Sendersky - Fruit Tea [06:57]
+ 03.Andrew K - Krasila [08:06]
+ 04.Второе Приближение - Джаз давай [08:34](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Guitar JazzПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3407D4EF82E133F32D28B97535288302BCFE523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043167   (574798) от 15.08.2016
+
+Art Ensemble Of Chicago - Full Force (1980) ECM[FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Magg Zelma [19:51]
+ 02.Care Free [00:51]
+ 03.Charlie M [09:19]
+ 04.Old Time Southside Street Dance [05:13](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80DC028C2EEBD84DF62444DABF251FDFF74B793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042997   (574929) от 15.08.2016
+
+Caroline - Dog Eats Cat Eats Mouse (2015) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Dogs eats cat eats mouse 8'49
+2 Frogs & fish 9'21
+3 Fish & frogs 6'54
+4 La diagonale 9'10(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD7B9711007A8035A3E613CC9FDCC33B52CDAB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554652   (575779) от 31.05.2022
+
+Theo Croker - Blk2life, A Future Past (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, R&B, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4Knowledge (0:46)
+02. Soul Call, Vibrate (6:32)
+03. Just Be (Prelude) (0:35)
+04. Every Part of Me (feat. Ari Lennox) (3:10)(   Читать дальше...   )Жанр: Jazz-Funk, R&B, Contemporary JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC8900B11F942DAB4883856917E4ADC11BAE8E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151144   (576225) от 17.07.2017
 
 Rita Chiarelli - Breakfast At Midnight (2001) [APE|Lossless|image + .cue] <Blues Rock>
@@ -427,6 +562,39 @@ magnet:?xt=urn:btih:8FEFEC344BD7FD187FF59ADA3285B258A025DA2B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360976   (577278) от 10.07.2011
+
+Romane - Swing for ninine (2011) [FLAC|Lossless]<Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing for Ninine (Romane)
+02. Antilia (Romane)
+03. Charles Eston (Romane)
+04. Liane (M. Cazes)
+05. Folle Ronde (Romane)
+06. Erevan Valse (J. M. Ekherian)
+07. En Souriant (Romane)
+08. Dans le Regard de Laura (Romane)
+09. Niglo Swing (L. Bajata)
+10. Bibiguine (Romane)(   Читать дальше...)Жанр: Swing, Guitar JazzПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554422   (577368) от 30.05.2022
 
 Mike Morgan & The Crawl - The Lights Went out in Dallas (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -481,217 +649,67 @@ magnet:?xt=urn:btih:C6983E070265FAC0D4C1A6BB50B993A636E2141A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554419   (577483) от 30.05.2022
+###  Публикация: 360982   (577415) от 10.07.2011
 
-Marc G Belanger - Something's Gotta Give (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something's Gotta Give (5:54)
-02. Dystopian Times (7:14)
-03. My Life My Song (5:37)
-04. Wrong Side of Two Sets of Tracks (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:866EF0BC842FE7F389A9C98DE8AC692025D14859
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554415   (577487) от 30.05.2022
-
-Foreday Riders - Durn Tootin’ (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’ll Never Let You Go (5:20)
-02. Greasy Spoon (7:14)
-03. No More Doggin’ (5:21)
-04. Cookin’ At The Continental (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF94B5EAA07989E5B54CA4D8307C5013748900B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554425   (577488) от 30.05.2022
-
-Turbinos - Turbinos (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sold out House (3:36)
-02. A Drop of Whiskey (3:25)
-03. My Girl Josephine (3:34)
-04. Night Is Dark (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065D9B46E3AE33E3E8FF619A5FD6F06D55E6BAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921116   (577598) от 24.07.2015
-
-Curtis Mayfield - Les Genies du Rock - - Back To The World (1995) [MP3|320 кб/с]<Soul,Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get down (5:44)
-02.  Keep on keeping on (5:08)
-03.  Underground (5:17)
-04.  We got to have peace (4:44)(   Читать дальше...   )Жанр: Soul,FunkПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFF2E8CC53171CC45DB509C8D7B685B2737CEF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921165   (577602) от 24.07.2015
-
-Kelly Richey - Kelly Richey Live: 1996-2011 (2012) [MP3|320 кб/с]<Blues, Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Joe (10:18)
-02.  The Longest Road (5:38)
-03.  Is There Any Reason (9:46)
-04.  Crossroads (11:22)(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75228B774C69E1A88CD50842117665E62896BD26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921133   (577614) от 24.07.2015
-
-The Drifters - Les Genies du Rock - In Concert (1993) [MP3|320 кб/с]<Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Up On The Roof (4:32)
-02.  Honey Love (2:26)
-03.  This Magic Moment (3:09)
-04.  Save The Last Dance For Me (7:35)(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B997910E07BC9E5A1BEEF87A29365FD9B9BF4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921142   (577619) от 24.07.2015
-
-Nancy Danino - Testify (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+We3 - Amazing (2011) [FLAC|Lossless]<Contemporary Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577619.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beauty On Water
-02. Blue Sky
-03. Millionaire In the Rain
-04. Someday(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:23
+01. Remember (Steve Swallow) (06:04)
+02. Amazing (Steve Swallow) (07:38)
+03. In F (Steve Swallow) (04:26)
+04. Free Ballad #1 (Liebman-Nussbaum-Swallow) (02:52)
+05. My Maia (Adam Nussbaum) (08:52)
+06. Get Out Of Town (Cole Porter) (06:34)
+07. Bend Over Backwards (Steve Swallow) (07:28)
+08. Swallowish (Dave Liebman) (06:14)
+09. Free Beguine #1 (Liebman-Nussbaum-Swallow) (03:01)
+10. Sure Would Baby (Adam Nussbaum) (05:10)(   Читать дальше...)Жанр: Contemporary JazzПродолжительность: 01:03:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F20EF629BF4719E5331ABA0E7727F5C50BC4B07
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 921084   (577621) от 24.07.2015
+###  Публикация: 361420   (577418) от 10.07.2011
 
-Aynsley Dunbar - Les Genies du Rock - Willie The Pimp (1995) [MP3|320 кб/с]<Blues Rock, Art Rock>
+Various Artists - Gentle Jazz (2010) [FLAC|Lossless]<Vocal Jazz, Swing>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577621.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_577418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Willing To Flight (6:41)
-02.  Willie The Pimp (14:31)
-03.  It Is Your Turn (9:58)
-04.  Days (5:58)(   Читать дальше...   )Жанр: Blues Rock, Art RockПродолжительность: 00:45:09
+01.Jimmy Giuffre - The easy way
+02.Mary Lou Williams - It ain't necessarily so
+03.Fleurine - The logical song
+04.Charlie Parker - Just friends
+05.Yusef Lateef - First Gymnopedie
+06.McCoy Tyner Trio - What the world needs now is love
+07.Erroll Garner - Exactly like you
+08.Charlie Haden & Gonzalo Rubalcaba - El Ciego
+09.Regina Carter - Pavane
+10.Gerry Mulligan - I heard the shadows dancing(   Читать дальше...)Жанр: Vocal Jazz, SwingПродолжительность: 01:14:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F23E75F179DB32E66ABF536B38E426E3C27C99A
+нет
 ```
 
 

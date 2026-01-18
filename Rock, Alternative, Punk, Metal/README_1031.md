@@ -1,3 +1,300 @@
+###  Публикация: 1202493   (789927) от 29.01.2018
+
+Shakin' Stevens And The Sunsets - A Legend (1970) Parlophone, PCS 7112, UK [MP3|192 Kbps] <Classic Rock, Blues, Rock&Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шейкин Стивенс (настоящее имя - Майкл Барратт), родившийся 4 марта 1948 года в 11-детной уэльской семье, держит в своей квартире две шкатулки, красную и черную. Складывает в них рецензии музыкальных изданий: в черную, естественно, отрицательные. Те издания, вырезки из которой оказались в черной шкатулке, вряд ли могут рассчитывать на интервью у певца: во всяком случае, (   Читать дальше...   )01. Cast Iron Arm 2:23
+02. Leroy 1:56
+03. Flying Savser 1:52
+04. Please Mr Mayor 2:31(   Читать дальше...   )Жанр: Classic Rock, Blues, Rock&RollПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83CAAC35A7F081C12C13BD0BA28E1A9363E691F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275527   (789936) от 12.01.2019
+
+Ironia - Hate State (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     The Claws Of Your Life
+02.     Hate State
+03.     Looking For You
+04.     Burn Your World(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152375FCD497C5C1C21F8000073C6E05A1D213BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388040   (790124) от 04.06.2020
+
+VA - Охота 24 (2009) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A La Ru - I am strong
+02. МартЪ - Океан
+03. СубМарина - Чёрная луна
+04. Клерки - Звезда(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9350F1E26EE241435AD2B93341BB0F63AAA482B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387996   (790125) от 04.06.2020
+
+The Stooges - Fun House (1970) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down On The Street (3:44)
+02. Loose (3:34)
+03. TV Eye (4:18)
+04. Dirt (7:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833E4460F543DF17D040EF3F26A02BB951453B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388037   (790127) от 04.06.2020
+
+Girls Against Boys - Venus Luxure No.1 Baby (1994) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Like Flynn (4:25)
+02. Go Be Delighted (3:57)
+03. Rockets Are Red (5:03)
+04. Satin Down (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2CAEA24489F9A2A5165A06DDC2421980F3EA32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388010   (790128) от 04.06.2020
+
+Gene Clark - White Light (1972) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Virgin (3:39)
+02. With Tomorrow (2:27)
+03. White Light (3:40)
+04. Because Of You (4:05)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A82945E5D0AF3248C34DB54C4092B3A5B90140B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387990   (790129) от 04.06.2020
+
+MC5 - Kick Out The Jams (1969) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramblin' Rose (4:15)
+02. Kick Out The Jams (2:52)
+03. Come Together (4:29)
+04. Rocket Reducer No. 62 (Rama Lama Fa Fa Fa) (5:41)(   Читать дальше...   )Жанр: Rock, Garage RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3879BC5B0E380457DCC30FC365EFC5DA8940D3BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388157   (790130) от 04.06.2020
+
+Hole - Live Through This (1994) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violet (3:24)
+02. Miss World (3:00)
+03. Plump (2:34)
+04. Asking For It (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FF29BE25E6272F778A037F9598060906CA35E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510615   (790158) от 18.11.2021
+
+Judas Priest - 50 Heavy Metal Years Of Music (2021) 42xCD,  Box Set, Compilation, Limited Edition, Reissue, Sony Music [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790158.jpg" />
+</div>
+
+
+###  Подробнее
+
+JUDAS PRIEST выпустили огромный лимитированный box-set "50 Heavy Metal Years", куда вошли все их официальные студийные и концертные альбомы, а также 13 дисков с ранее не издававшимся материалом.CD - 1 - Rocka Rolla:
+01. One For The Road
+02. Rocka Rolla
+03. Winter(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 35:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E1AD93FC372DDEF675E781E0FD237DC0B71CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510803   (790175) от 18.11.2021
+
+Sting - The Bridge (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rushing Water
+02. If It's Love
+03. The Book of Numbers
+04. Loving You(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25705CB7D862F162948815A462ABFCF67B5116DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510860   (790271) от 18.11.2021
+
+Robert Plant & Alison Krauss - Raise The Roof (2021) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quattro (World Drifts In)
+02. The Price of Love
+03. Go Your Way
+04. Trouble With My Lover(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E6E08F58EFAD793E2E5086ED9FDDE65C37DF2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510553   (790335) от 18.11.2021
 
 The Three Tremors - The Three Tremors (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -395,302 +692,6 @@ Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275349   (790523) от 11.01.2019
-
-Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Song Of Plague
-02 - Inglorious Fever Of Antonius
-03 - Mahapaatra
-04 - Brethren Of The Weeping Corpses(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202114   (790530) от 28.01.2018
-
-Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More For The Road (3:18)
-02. Master Of The Moon (4:19)
-03. The End Of The World (4:39)
-04. Shivers (4:16)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E199CBD0B88AF63D00AC60D01021801F41BB96C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202287   (790542) от 28.01.2018
-
-Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Bell
-2. Wheels
-3. Midnight Angel
-4. Woman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202014   (790545) от 28.01.2018
-
-Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust Layers (04:34)
-02. Another Time (04:28)
-03. Sunlight Daze (03:09)
-04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202157   (790552) от 28.01.2018
-
-Tatir - Cave Of Ephyras... To The Infernal Fields (2012) [FLAC|Lossless|image + .cue] <Viking Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Under The Twelfth Moon
-02 - The Drawl Of Naiad
-03 - Vastland Of The Eternal TormentsЖанр: Viking Black MetalПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2692894A08AE449862B2CF45F1E154ADBD6576B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202123   (790555) от 28.01.2018
-
-Hordak - Padre (2016) digipak [FLAC|Lossless|image + .cue] <Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ekleipsis - Devourer of Gods - 05:06
-02. Bloodline of the Wolves -04:29
-03. Soaring - 05:00
-04. Sol Sister -04:11(   Читать дальше...   )Жанр: Pagan Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE25003D18C29DFD9E52839A2805419C7900B969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387864   (790626) от 03.06.2020
-
-ZZ Top & Van Halen - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ZZ Top - Hi Fi Mama (Live)
-2. Van Halen - Panama (Live)
-3. Van Halen - Finish What You Started (Live)
-4. ZZ Top - Dust My Broom (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E629D7EE815AD66F85A504BE87CDF9CB517EF07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387860   (790638) от 03.06.2020
-
-Bon Jovi & Guns N' Roses - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790638.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bon Jovi - Never Say Die (Live)
-2. Guns N' Roses - Sweet Child O' Mine (Live)
-3. Guns N' Roses - Rocket Queen (Live)
-4. Bon Jovi - Livin' On A Prayer (Live)(   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936166F05FC63CE97F0691A0D23AECB0916E3969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387906   (790647) от 03.06.2020
-
-Дмитрий Губерниев - У микрофона (2020) [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный спортивный комментатор Дмитрий Губерниев представил свой сольный альбом, продюсером которого стал Кирилл Немоляев. "Новый альбом вышел! Ребята, мы это сделали! Мой полноценный музыкальный альбом на всех цифровых площадках. Огромное спасибо друзьям, музыкантам и группе "Легион", - написал Губерниев в своем инстаграме. Отметим, что у комментатора (   Читать дальше...   )01. Ветер биатлона (03:36)
-02. Птица (04:53)
-03. Руки прочь (03:53)
-04. Это ты (03:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5D10505DD0E24F136100156340426C05762B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387907   (790659) от 03.06.2020
-
-Foreigner & Aerosmith - FM Broadcasts (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790659.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aerosmith - Dream On (Live)
-2. Aerosmith - Love In An Elevator (Live)
-3. Foreigner - Cold As Ice (Live)
-4. Foreigner - I Need You (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3DB93657D523A40B4426B9AED81A7547FDBE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387724   (790660) от 03.06.2020
-
-ЧЯ-ЩЯ - ЧЯ-ЩЯ (2020) [MP3|320 Kbps] <Indie-Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я К Тебе Иду
-02 - Я Тебя Удержу
-03 - Ты Сошла С Ума
-04 - Подруга(   Читать дальше...   )Жанр: Indie-Pop-RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95884F673CC9E4B2D69CCCEE912AF06F5B85BE3
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1020691   (743583) от 27.05.2016
+
+VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gente de Zona - La Gozadera (feat. Marc Anthony)
+002. Romantico Latino - Loco Corazon (Extended Version)
+003. Estilo Libre - Hace Calor 2015 (feat. Rasel)
+004. Daddy Yankee - Sigueme y Te Sigo(   Читать дальше...   )Жанр: Latin Pop, Dance, BachataПродолжительность: 05:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020743   (743585) от 27.05.2016
 
 VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Hello Summer - Opening Party (2016) [MP3|320 кб/с] <Dancehall, Moombahto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26A35191757D534DEE367A0D9A6C797137D40BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020903   (743885) от 27.05.2016
-
-VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allen Belg - The Other Side (Original Mix) 08:04
-002. Ex-Driver ft. Julie Harrington - Aurora (Original Mix) 06:46
-003. Sean Mathews - Paradise (Andy Tau Remix) 07:08
-004. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4077F74E984221F7DA621089357A1966B69780F9
 ```
 
 
