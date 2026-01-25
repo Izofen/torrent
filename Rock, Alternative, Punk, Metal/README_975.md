@@ -1,3 +1,57 @@
+###  Публикация: 1127897   (730072) от 23.04.2017
+
+Labyrinth - Architecture Of A God (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот прогрессив-пауэр-металлический проект горячие итальянские парни основали в 1991 году. Как водится, поначалу это была обычная гаражная банда, пытавшаяся играть андеграундный металл. Спустя несколько лет чуваки поднабрались опыта и музыкального мастерства и в 1994 году записали свою первую демку "Midnight Resistance". Эта работа получила хорошие отклики (   Читать дальше...   )01. Bullets (6:56)
+02. Still Alive (4:49)
+03. Take On My Legacy (4:05)
+04. A New Dream (5:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0615A8A29FD86C1F816FAC70F89489600C4C30DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127895   (730082) от 23.04.2017
+
+Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Night (3:53)
+02. Hallowed Ground (3:24)
+03. Maiden Hell (2:46)
+04. Stranger In The Room (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B63A91344598BD8088D6E8E40730859457757A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284122   (730086) от 20.02.2019
 
 Au Pairs - Sense And Sensuality (1982) Remaster, 2002, Castle Music [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Post Rock>
@@ -640,60 +694,6 @@ Brymir - Slayer Of Gods (2016) Japanese Edition [MP3|320 кб/с] <Symphonic Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:778E4352A1C548A7C281A256668E190DDBF2089E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283911   (730984) от 19.02.2019
-
-Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Signals (05:24)
-02. Motion Sickness (03:49)
-03. Funeral (03:52)
-04. Demi Moore (03:18)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D8736B6845E4380E94208F6782910AD7F91C6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127518   (730988) от 22.04.2017
-
-Bear’s Den - Red Earth & Pouring Rain (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Earth & Pouring Rain  (04:52) 
-02. Emeralds  (04:30) 
-03. Dew On The Vine  (05:02) 
-04. Roses On A Breeze  (05:21) (   Читать дальше...   )Жанр: Rock, Alternative, FolkПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32A8B244ACA3DB21938C40EBFCD42C9472448B2
 ```
 
 

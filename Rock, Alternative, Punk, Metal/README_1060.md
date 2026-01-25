@@ -1,3 +1,57 @@
+###  Публикация: 1119498   (807334) от 28.03.2017
+
+B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Pop Rock, Synthpop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Illusion
+02. Other People's Lives
+03. Perfect Storm
+04. She's A Car Crash(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, Indie RockПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DE793302CBBB2B849CEC2C3B9488572FE6A9CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119067   (807338) от 28.03.2017
+
+The Mavericks - Brand New Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807338.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Mavericks ("Индивидуалисты") - Американская нео-традишнл кантри-группа, появившаяся в 1989 г., в Майами, штат Флорида. В период с 1991 по 2003 год записали шесть студийных альбомов, 14 синглов попали в биллборд-чаты. Самой успешной была композиция "All You Ever Do Is Bring Me Down" в 1996 году, совместно с аккордеонистом Flaco Хименесом. Коллектив (   Читать дальше...   )01. Rolling Along (3:27)
+02. Brand New Day (3:29)
+03. Easy As It Seems (3:04)
+04. I Think Of You (3:19)(   Читать дальше...   )Жанр: Rock, AmericanaПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD00B0097237E4ED6E2D876D59C57772A1A7558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119500   (807339) от 28.03.2017
 
 Dreams In Stereo - Chapter 1 - Yesterday's Dreams (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive rock, Ambient, Experimental>
@@ -641,60 +695,6 @@ Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3796FC89D698FDA7367BFB1579FA315CA08228C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198512   (808299) от 11.01.2018
-
-Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DFF
-02. Spook
-03. King of Bones
-04. Haunt(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52067C0DE671A6A12C0614907883FA05D920791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504785   (808334) от 25.10.2021
-
-Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red Bullet [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla Queen (Early Version) [00:10:06]
-02. Radar Love (Basic Track) [00:06:30]
-03. The Song Is Over (Basis Track) [00:05:17]
-04. Are You Receiving Me (Basic Track) [00:09:33](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 2 CD, 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
 ```
 
 

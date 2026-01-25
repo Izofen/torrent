@@ -1,3 +1,57 @@
+###  Публикация: 1300650   (592747) от 07.05.2019
+
+Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March Of The Heroes Into Valhalla (02:39)
+02. Blood And Steel (04:42)
+03. Sword Of The Highlands (05:59)
+04. You Shall Die Before I Die (06:08)Жанр: Heavy MetalПродолжительность: 00:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300638   (592750) от 07.05.2019
+
+Rosetta Stone - Seems Like Forever (2019) [FLAC|Lossless|tracks + .cue] <Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be There Tomorrow
+02. Children Of The Poor
+03. People
+04. Dark Times(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA0E840A661683B6A2EF4165AD13F30FB31CACAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300752   (592758) от 07.05.2019
 
 Manowar - Hail To England (1984) Imperial Edition MMXIX, 2019 [WV|lossless|image + .cue] <Heavy Metal>
@@ -639,60 +693,6 @@ Prefab Sprout - Crimson/Red (2013) BSCD2 release [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB955A50172BFE4DC4F2EEFBCA73740164E85EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481062   (593233) от 07.05.2022
-
-Lord of the Lost - Judas (2021) 4CD, Deluxe Version [MP3|320 Kbps] <Gothic, Industrial, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alles wird gut, aber... (feat. Lacrimosa) [00:03:48]
-02. Dein Blick (feat. Letzte Instanz) [00:03:42]
-03. Pale Rider (feat. Lolita Komplex) [00:03:42]
-04. Revenge (feat. Majorvoice) [00:03:42](   Читать дальше...   )Жанр: Gothic, Industrial, Symphonic MetalПродолжительность: 4 CD, 03:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28FEE5CD6BB70F9ABC9D2E1916F6209A9288757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549374   (593308) от 07.05.2022
-
-Lord Of The Lost - The Heartbeat Of The Devil (2022) EP [MP3|320 Kbps] <Gothic Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heartbeat of the Devil (Single Version) (3:29)
-02. Judas (Lady Gaga Cover) (4:11)
-03. Children of the Damned (4:41)
-04. Wig in a Box (5:11)(   Читать дальше...   )Жанр: Gothic Metal, ElectronicПродолжительность: 00:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28056CE506B872F1F155F63C82D9F554DE1B4C8F
 ```
 
 

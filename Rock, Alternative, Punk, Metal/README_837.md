@@ -1,3 +1,57 @@
+###  Публикация: 919515   (583019) от 19.07.2015
+
+Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hardcore / Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayer Of Pardon
+02. Dominate
+03. Closing Statement
+04. Rumors(   Читать дальше...   )Жанр: Metalcore / Post-Hardcore / ElectronicПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919450   (583022) от 19.07.2015
+
+Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583022.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro - Call To The Being
+2. The Sword Of Dignity
+3. The World Of Men Without Virtue - The Circle Of Disillusion
+4. The Circle Of Warriors(   Читать дальше...   )Жанр: Pagan/Black MetalПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359336   (583057) от 05.07.2011
 
 Bad Company - Here Comes Trouble (1992) [FLAC|Lossless]<Classic Rock>
@@ -642,60 +696,6 @@ Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919165   (583956) от 18.07.2015
-
-Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Smile
-02. Pray for Plague
-03. Blessed with a Curse
-04. Antivist(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624734   (584001) от 12.05.2019
-
-Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350 кб/с]<Heavy/Instrumental/Neoclassical metal/Jazz>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moonbabies (5:39)
-2. The Noble Savage (6:14)
-3. Ataraxia (6:17)
-4. 70 VIR (4:02)(   Читать дальше...   )Жанр: Heavy/Instrumental/Neoclassical metal/JazzПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE21567CF2782CD045719016CCDA1A11ABFDE2
 ```
 
 

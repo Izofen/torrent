@@ -1,3 +1,63 @@
+###  Публикация: 542967   (495224) от 05.09.2012
+
+VA - Classic Rock Presents: ZZ Top & The Best Of The Year So Far (2012) [FLAC|Lossless]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top – I Gotsta Get Paid (4:05)
+02. The Darkness – Nothing’s Gonna Stop Us (2:26)
+03. Cory Branan – Survivor Blues (3:34)
+04. Tremonti – Leave It Alone (4:40)
+05. Howlin Rain – Strange Thunder (8:53)
+06. Def Leppard – It’s All About Believin’ (4:22)
+07. Phantom Limb – Gravy Train (4:15)
+08. Von Hertzen Brothers – Let Thy Will Be Done (4:48)
+09. Squackett – Storm Chaser (5:27)
+10. Joe Bonamossa (feat. Jimmy Barnes) – Too Much Ain’t Enough Love (5:37)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403614   (495278) от 24.08.2020
+
+Unleash The Archers - Abyss (2020) 2CD [MP3|320 Kbps] <Melodic Death, Power Metal, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495278.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Waking Dream [00:03:45]
+02. Abyss [00:06:44]
+03. Through Stars [00:05:35](   Читать дальше...   )Жанр: Melodic Death, Power Metal, Female vocalПродолжительность: 2CD, 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85FA46228B332CF521E3A89613A15AF6FB85FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404222   (495291) от 24.08.2020
 
 VA - Play Station (приложение Audio CD к журналу Play #08'06) (2006)  [FLAC|Lossless|tracks + .cue] <Rock, Pop>
@@ -660,60 +720,6 @@ Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE641326A93088A3390D44DFEB168E0ABE587FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936270   (496391) от 11.09.2015
-
-Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock, Melodic rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Did The Music Go
-02. You're Making Me Live Again
-03. The Storm
-04. In Dreams(   Читать дальше...   )Жанр: Symphonic rock, Alternative rock, Melodic rockПродолжительность: 00:56:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318281   (496593) от 05.08.2019
-
-Sihasin - 2 альбома (2012-2018) [MP3|192-320 Kbps] <Native american, Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Child of Fire
-02. Shine
-03. Strong Together
-04. Fight Like a Woman(   Читать дальше...   )Жанр: Native american, Rock, PunkПродолжительность: 01:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A4BBE5BBE635A47AF56909A6BF59BA1BD461B7
 ```
 
 

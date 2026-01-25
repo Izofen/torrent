@@ -1,661 +1,683 @@
-###  Публикация: 1614853   (1038358) от 23.02.2023
+###  Публикация: 1447072   (1032129) от 12.02.2021
 
-Evilgloom - Addictions (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarly [00:02:15]
-02. Anathema [00:03:21]
-03. Malignant [00:03:57]
-04. Buster Call [00:03:22](   Читать дальше...   )Жанр: Metalcore, Nu-MetalПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEE390354DB7E573FB2D136AE5EC4B29D620A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614714   (1038359) от 23.02.2023
-
-JMG Sound - Transmutator 2.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффект перекрестного затухания может быть полезен, но простое смешивание одного материала с другим может быть немного скучным. К счастью, теперь есть Transmutator, который позволяет переходить между треками, частями песен или целыми песнями на новый уровень веселья и творчества.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286480AEE22C4745EAB3740B487662A5A0C693B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614767   (1038360) от 23.02.2023
-
-GOM Player Plus 2.3.84.5351 Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038360.jpg" />
-</div>
-
-
-###  Подробнее
-
-GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AF0EEE6122C0DEE86FAD7BABD31D0DA6CA1424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614776   (1038361) от 23.02.2023
-
-Сентябрь / September (1987) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть человек: писатель, хозяйка дома, ее мать с новым мужем, подруга и еще один человек, любящий хозяйку, — ковыряются в своих чувствах, пытаются разобраться в том, кто кого любит или не любит. Все постоянно разговаривают, создается трагический любовный треугольник, возникает конфликт между дочерью и матерью, приводящий чуть ли не к разоблачению последней, возможно, (   Читать дальше...   )Производство: США / Orion PicturesЖанр: драмаРежиссер: Вуди АлленАктеры: Денхолм Эллиот, Дайэнн Уист, Миа Фэрроу, Элейн Стритч, Сэм Уотерстон, Джек Уорден, Айра Уилер, Джейн Сесил, Розмари МёрфиПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1840F78032CCA304A7F05D2657280BE8E00EB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614840   (1038362) от 23.02.2023
-
-Dope - Blood Money Part Zer0 (2023) [MP3|320 Kbps] <Nu-Metal, Industrual Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Respect (4:12)
-02. Believe (4:36)
-03. Best Of Me (2:48)
-04. Choke (3:29)(   Читать дальше...   )Жанр: Nu-Metal, Industrual MetalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EAD7567B991A2F76652C861615E9FFA4095297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614781   (1038363) от 23.02.2023
-
-Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Dark [00:01:51]
-02. Play [00:03:27]
-03. Soma Dreams [00:03:51]
-04. Last Summer [00:04:07](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF66A4A788D720EEB2E0F9B35AB5BDBC7AF6B11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614823   (1038364) от 23.02.2023
-
-BurnAware Professional 16.3 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038364.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EBA8241486DB0E5FB943CEF4274A47D9BCD9B23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614726   (1038365) от 23.02.2023
-
-билборды - Меланхолия (2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здесь нет меня [00:02:48]
-02 - Пасмурный вечер [00:02:33]
-03 - Мне так лень [00:02:32]
-04 - Бессонница [00:02:49](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908FADCA289329847557EBEFFFA02983FF02A25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614821   (1038366) от 23.02.2023
-
-VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somna - Hold You [02:48]
-02. LTN - Lone Wolf [02:56]
-03. Ram - Where I Want To Be [03:15]
-04. Markus Schulz - Prestwick [03:24](   Читать дальше...   )Жанр: TranceПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614746   (1038367) от 23.02.2023
-
-Симона Мацлиах-Ханох | Сказки обратимой смерти (2021) [MP3, Сергей Колбинцев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038367.jpg" />
-</div>
-
-
-###  Подробнее
-
-В современном обществе депрессию принято считать негативным явлением, болезнью, которую следует предотвращать или лечить. Однако многие героини сказок и легенд, на которых основана европейская культура, абсолютно осознанно обрекают себя на временное поражение, на муки ада, на обратимую смерть. В своей книге Симона Мацлиах-Ханох предлагает взглянуть на депрессию как (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 09:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C950B2BCE850739DBB74ABB3C95762533124902D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614715   (1038368) от 23.02.2023
-
-JMG Sound - Orbitron 1.6 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая модуляция может быть скучной и утомительной. Но представьте, что вы могли бы плавно переключаться между четырьмя различными эффектами модуляции, чтобы каждый такт звучал по-разному. Или смешайте четыре эффекта вместе, чтобы создать что-то уникальное. Это подход, который может предложить только Orbitron.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B24948009B4971241F5BBF7B3D3053F19302C81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614716   (1038369) от 23.02.2023
-
-JMG Sound - Cryostasis 1.2 VST, VST 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cryostasis — это эффект спектральной инерции, который может постепенно искажать ваш звук, пока он не застынет во времени на бесконечность. Он оснащен спектральными эффектами и элементами управления, чтобы сформировать характер замороженного хвоста. Все они управляются бесступенчатой ручкой замораживания или автоматическим переключателем, который может быть рассчитан (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F784FD00859EC76216346C86E7AF42056C3EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614717   (1038370) от 23.02.2023
-
-JMG Sound - Hyperspace 2.6  VST, VST 3, AAX (x86/x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038370.jpg" />
-</div>
-
-
-###  Подробнее
-
-HyperSpace - это алгоритмическая реверберация, позволяющая пользователю создавать алгоритмы, состоящие из различных процессоров. Режимы «Винтаж», «Классик», «Ретро», «Модерн», «Sci-Fi» и «Космический» позволяют комбинировать различные алгоритмы с бесконечными возможностями. HyperSpace обогатит ваши треки множеством цветов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2081C9E63D9F3B9CE1642C2626A97C71D57888B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614904   (1038371) от 23.02.2023
-
-Venomous Concept - The Good Ship Lollipop (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good Ship Lollipop
-02. Time Line
-03. Slack Jaw
-04. Pig(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D4D1559EA206F01104601D6F612A4FCCB94F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614796   (1038372) от 23.02.2023
-
-Hortenzia - 4 Releases (2019-2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Hortenzia - 2019 - Скерцо
-Hortenzia - 2023 - В темных аллеях (Single)
-Hortenzia - 2023 - Когда вешаем наш флаг (Single)(   Читать дальше...   )Жанр: PopПродолжительность: 4 CD, 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4672D305C4A4843F2D43950E3E77A9BFBE701C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614795   (1038373) от 23.02.2023
-
-Интерпол / Interpol (1957) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерпол разыскивает неуловимого торговца наркотиками. А искать приходится, как всегда и в полном соответствии с французской народной мудростью, ещё и женщину...Производство: Великобритания, Warwick Film Productions Ltd.Жанр: драма, криминал, детективРежиссер: Джон ДжиллингАктеры: Виктор Мэтьюр, Анита Экберг, Тревор Ховард, Бонар Коллеано, Дороти Элисон, Андре Морелл, Мартин Бенсон, Эрик Польман, Питер Иллинг, Сидни ТэфлерПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184691C28180B9434F6F9E60A13E1714911937DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614852   (1038374) от 23.02.2023
-
-VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BT - Mercury & Solace (Helsloot Remix) [03:39]
-02. Siskin - Always You [02:45]
-03. Ton TB - Electronic Malfunction (Yurie Remix) [03:52]
-04. JES - Awaken (Elypsis Remix) [03:37](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614762   (1038375) от 23.02.2023
-
-Skype 8.94.0.426 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2214C02BB041994D498925627436E867740315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614689   (1038376) от 23.02.2023
-
-Freddie Hubbard - The Complete Freddie Hubbard Blue Note & Impulse '60s Studio Sessions (1960 - 1967) 7CD, 2022, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Surge [10:16]
-02. Cunga Black [5:16]
-03. Blue Spirits [12:14]
-04. Outer Forces [9:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 08:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3E5043765C9639A031CD0A8CF9741C44127974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614774   (1038377) от 23.02.2023
-
-Интерпол / Interpol (1957) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интерпол разыскивает неуловимого торговца наркотиками. А искать приходится, как всегда и в полном соответствии с французской народной мудростью, ещё и женщину...Производство: Великобритания, Warwick Film Productions Ltd.Жанр: драма, криминал, детективРежиссер: Джон ДжиллингАктеры: Виктор Мэтьюр, Анита Экберг, Тревор Ховард, Бонар Коллеано, Дороти Элисон, Андре Морелл, Мартин Бенсон, Эрик Польман, Питер Иллинг, Сидни ТэфлерПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151F3F0714630290FE58AF400AB38C865A1CD945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614830   (1038378) от 23.02.2023
-
-Royal Autumn - Life Is Strangely Accidental (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watcha Got? (03:36)
-02. Thin & Blond (04:36)
-03. Take It To The Grave (02:40)
-04. Life Is Strangely Accidental (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDE4F09A83F9B58833FD9EF2FDE5FFEF5078A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614832   (1038379) от 23.02.2023
-
-Bloody Capes - Grey Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Clap Your Hands Say Yeah - New Fragility (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038379.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro Bc [00:01:59]
-02. Ashen Horse [00:05:25]
-03. Night Inks [00:07:04]
-04. Knowing [00:07:19](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:48
+01. Hesitating Nation (03:14)
+02. Thousand Oaks (04:47)
+03. Dee, Forgiven (04:08)
+04. New Fragility (03:26)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABE4BAA83C08001E6231B7B0AD512557D48E6588
+magnet:?xt=urn:btih:B848DFE3A1B0D58E420B82F4AEB49C18A5D0D52A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601352   (1038380) от 23.02.2023
+###  Публикация: 1447158   (1032130) от 12.02.2021
 
-Incidense - Collide (2022) [MP3|320 Kbps] <Progressive Metal>
+Roseanna Vitro - Live At The Kennedy Center (2006) Challenge Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038380.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Descent (10:31)
- 02 - Blinded (12:57)
- 03 - Deafening (06:43)
- 04 - Shock and Awe (06:30)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:26
+01. Like Someone in Love [4:47]
+02. Like a Lover [6:09]
+03. Please Do Something [5:40]
+04. Introduction to Commitment [0:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:209B6E279877C6BDCD345D142C9952EEFA8CC0E1
+magnet:?xt=urn:btih:D6CDE19FDC466B450B3277FFA0B0E01092C1F2CC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614812   (1038381) от 23.02.2023
+###  Публикация: 1447143   (1032131) от 12.02.2021
 
-Rick Miller - Altered States (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
+Exposure Software Blow Up 3 v3.1.4.367 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E3BFA2B06A5C70D50BE9D0006BD514866D1D16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447202   (1032132) от 12.02.2021
+
+Prometheo - Quello Che Rimane (2021) [FLAC|Lossless|WEB-DL|tracks] <RPI, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038381.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Altered States (10:00)
-2. New Moon Prelude (2:45)
-3. Wolf Moon (9:42)
-4. Borrowed Time (8:51)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:51:42
+01. Arkeos (2:32)
+02. Quello che Rimane (4:12)
+03. Iena (3:59)
+04. La Ballata dello Stagista (5:12)(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:35:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55F4EA7D1A9963E1686121AC406E24F7429C568F
+magnet:?xt=urn:btih:BE0A4910C9FA9203C64A0FD1DD705C2CFDCEA15D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614870   (1038382) от 23.02.2023
+###  Публикация: 1447200   (1032133) от 12.02.2021
 
-Блаженный Феодорит Кирский | Сокращенное изложение Божественных догматов (2014) [PDF, FB2, EPUB, MOBI]
+3.2 - Third Impression (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038382.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию читателей предлагается произведение известного представителя христианской антиохийской школы V века, богослова, экзегета и церковного историка блж. Феодорита, епископа Кирского (393–466). Сочинение «Сокращенное изложение Божественных догматов» представляет собой краткий богословский трактат, в котором излагаются основные положения догматического учения Церкви, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+01. Top Of The World
+02. What Side You’re On
+03. Black Of Night
+04. Killer Of Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71DA340CD4D75C9056C7CD782848B1ECEA876206
+magnet:?xt=urn:btih:C528CA4B4AA12CAAF4829D0E94F36903635F1E35
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416667   (1038383) от 18.01.2021
+###  Публикация: 1620308   (1032134) от 20.03.2023
 
-AquaNox Deep Descent (2020) [Ru/Multi] (1.5/dlc) License GOG [Collector’s Edition]
+Nikolay - Mother Russia (1995) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Of Best 4:20
+02. Hope Dies Last 5:18
+03. Power Of Beuty 4:49
+04. High On Love 4:06(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5686D8081D6742B99CB30659DE08583D2B5373B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620346   (1032135) от 20.03.2023
+
+Inner Prospekt - Canvas Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scratches [00:08:03]
+02. The Island of Despair [00:11:47]
+03. A Wordless Fable [00:11:20]
+04. The Showdown [00:20:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6893A9F2DC238EA0039AA242C0A8B47650A097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620395   (1032136) от 20.03.2023
+
+Field Music - Commontime (2016) [FLAC|Lossless|WEB-DL|tracks] <Art rock, Indie-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Noisy Days Are Over
+02 - Disappointed
+03 - But Not For You
+04 - I'm Glad(   Читать дальше...   )Жанр: Art rock, Indie-popПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A5743EEFB1F41A9083247775891C53937FEF9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620500   (1032137) от 20.03.2023
+
+Dante's View - Happiness Is a War (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Another Guy (4:38)
+02. Wrong (3:18)
+03. Pretend (3:44)
+04. It's a Crime (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2841612B64E9D83FD65A8E2AC80B6B423022D487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620454   (1032138) от 20.03.2023
+
+Совсем мало времени / Am zin (1999) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инспектор полиции и превосходный переговорщик по захвату заложников Хо Шен Сан оказывается в затруднительном положении, когда его втягивает в 72-часовую игру больной раком преступник, жаждущий мести организованным преступным синдикатам Гонконга...Производство: Гонконг, China Star Entertainment, Win's Entertainment Ltd.Жанр: драма, криминал, боевик, триллерРежиссер: Джонни ТоАктеры: Энди Лау, Чин Ван Лау, Ёё Мунг, Уэйз Ли, Шиу Хунг Хуи, Сует Лам, Руби Вонг, Вэй Аи, Вэй Кин Лам, Роберт СпарксПеревод: авторскийЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9513127659B2EDDAFD5A2C4791F24326BEB223F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620519   (1032139) от 20.03.2023
+
+Old Scars - Власть Химеры (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Власть химеры [00:05:03]
+03. Чужая сила [00:07:00]
+04. Активист [00:05:08](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818E400B3618574773935AC470653403608F5477
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620309   (1032140) от 20.03.2023
+
+Stream of Passion - Embrace The Storm (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Symphonic Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом нидерландско-мексиканской симфоник-метал группы Stream of Passion, где тексты и музыку к песням писали участники коллектива —01. Spellbound 3:35
+02. Passion 5:21
+03. Deceiver 5:07
+04. I'll Keep on Dreaming 3:46(   Читать дальше...   )Жанр: Progressive Metal, Symphonic Metal, Gothic MetalПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E2833A1D3A50DEE1E7913D5326BD710EC41F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620348   (1032141) от 20.03.2023
+
+Humanrise - You're Never Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashia Unika [00:02:56]
+02. Warriors Never Lose Hope [00:06:36]
+03. Fear or Die [00:04:42]
+04. You're Never Alone [00:05:43](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5C5E7E96EFD31008C3CFC74162EBAB1BF89CD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620330   (1032142) от 20.03.2023
+
+The Waking Sleeper Band - Planetarium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetarium [00:04:55]
+02. Astral Mathematics [00:03:42]
+03. The Earth Is the Center [00:03:43]
+04. Perception [00:04:14](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01518CCBD68350E1A9A4FBA5A39814E434C709B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620509   (1032143) от 20.03.2023
+
+VA - Should have held your hand (2023) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracie Abrams - I miss you, I?m sorry
+02. Maroon 5 - Girls Like You
+03. Katy Perry - Part Of Me
+04. The Vamps - Somebody To You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D1BD5B9C0B0D67023E410AA76D5FE5DC77C143
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620480   (1032144) от 20.03.2023
+
+Malcolm Strachan - Point Of No Return (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nossa Dança (6:06)
+02. Soul Trip (5:28)
+03. The Wanderer (6:05)
+04. The Last Goodbye (4:57)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967421123794998117D88FB6F54CF51F37456932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620457   (1032145) от 20.03.2023
+
+Words That Burn - Cut Throat Culture (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den of Lions [00:03:59]
+02. Sunshine [00:03:27]
+03. Play God [00:05:04]
+04. Sirens [00:04:17](   Читать дальше...   )Жанр: Alt. Metal, Modern MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C4E8B0C7682576FFFE6CB502C6F8A308E4B803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620499   (1032146) от 20.03.2023
+
+Щенки - Комплекс и синдром (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир обречён [00:02:36]
+02. Похмелье и несчастная любовь [00:03:24]
+03. Смерть неизбежна [00:03:00]
+04. Не хватает слов [00:02:59](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF83CB2FF3E720B3E800D3C3F2130FFD928515BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620342   (1032147) от 20.03.2023
+
+Paakallo - Paakallo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Dark, Occult, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuoleman taikaa [00:04:37]
+02. Muodonmuuttaja [00:04:17]
+03. Musta monoliitti [00:04:05]
+04. Kuparikäärme [00:06:25](   Читать дальше...   )Жанр: Heavy Rock, Psych, Dark, Occult, 70'sПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349A815EDB5E635962C22807598913BFA823F06E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620389   (1032148) от 20.03.2023
+
+Control Denied - The Fragile Art Of Existence (1999) [2CD] Remastered-2020 [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Consumed 7:25
+02 Breaking The Broken 5:41
+03 Expect The Unexpected 7:17
+04 What If...? 4:30(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6179F372F7BB7D12C29B47063CFA4A47F74F6CE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319359   (1032149) от 11.02.2021
+
+Assetto Corsa Competizione (2019) [Ru/Multi] (1.7.0/dlc) Repack xatab
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Assetto Corsa Competizione — продолжение реалистичного гоночного симулятора Assetto Corsa, посвященного соревнованию Blancpain GT, которое ежегодно организовывает автомобитестроительная корпорация SRO Motorsports Group. В игре вас ожидает невероятная графика и фотореалистичные погодные условия, что позволят максимально погрузиться в атмосферу высокоскоростного гоночного (   Читать дальше...   )Тип издания: RepackРазработчик: Kunos SimulazioniЖанр: Simulator, Racing, ActionЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Итальянский, Французский и другиеЯзык интерфейса: Русский, Английский, Итальянский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2375E30AB2A4C173815FEAA6B385EF0C42988B78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367422   (1032150) от 11.02.2021
+
+State of Decay 2 (2020) [Ru/Multi] (1.0.417403u24/dlc) Repack xatab [Juggernaut Edition]
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038383.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aquanox Deep Descent — это шутер от первого лица с подводными машинами, где игроки управляют разнообразными кораблями и сражаются в яростных схватках в глубинах океана в антиутопии, которую представляет собой мир Аквы. Жизнь на поверхности Земли стала невозможной. Остатки человечества ютятся в бывших рудодобывающих и научно-исследовательских станциях, расположенных (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital ArrowЖанр: Экшены, Ролевые игры, СимуляторыЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+Как будешь выживать ты? Мертвые восстали из могил, и цивилизация пала. Даже военные не смогли остановить зомби, и человечество оказалось на грани исчезновения. Собирай выживших, создавай свое сообщество, узнай, сможет ли оно выстоять, и научись выживать в нечеловеческих условиях.Тип издания: RepackРазработчик: Undead LabsЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A34AF81260C2367AE84336350F9FD2EAD8A10B47
+magnet:?xt=urn:btih:90FCFC550DCAC01D3EAB739F58140AF433933B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446012   (1032151) от 11.02.2021
+
+Космические чистильщики / Seungriho (Space Sweepers) (2021) WEB-DL [H.264/1080p] [DVO]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032151.jpg" />
+</div>
+
+
+###  Подробнее
+
+2092 год. Из-за глобального загрязнения Земля становится непригодной для жизни, поэтому компания UTS с помощью нанотехнологий планирует терраформировать Марс. Но в светлое будущее возьмут далеко не всё население, и команда космического корабля «Победа» в число этих счастливчиков не входит. Нищеброд Тхэ-хо, красавица-капитан Чан, матёрый космонавт Тайгер Пак и робот, (   Читать дальше...   )Производство: Корея Южная / Bidangil Pictures, Huayi Tencent Entertainment Company, Merry Christmas EntertainmentЖанр: Фантастика, комедия, приключения, боевикРежиссер: Чо Сон-хиАктеры: Сон Джун-ги, Ким Тхэ-ри, Чин Сон-гю, Ю Хэ-джин, Ричард Армитедж, Пак Е-рин, Ким Му-ёль, О Джи-юль, Нас Браун, Кевин ДокриПеревод: Любительский двухголосый (Zozya & Numinel)Субтитры: Русские (Netflix), английскиеПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3490634DB498A05AE50DD238AC2A772C5CC72989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446941   (1032152) от 11.02.2021
+
+Psycho-Pass: Sinners of the System | Психопаспорт: Грешники системы [2019, Movie, 3 из 3] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трилогия полнометражных фильмов, действие которых будет сосредоточено на пяти персонажах:
+
+Фильм 1: Преступление и наказание (Мика и Гино)
+(   Читать дальше...   )Производство: Япония, Production I.G / プロダクション・アイジーЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: Sovet Romantica (1), YouNet Translate (2,3)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1-2 фильм по 60 мин. 3 фильм 70 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 774869   (1032153) от 11.02.2021
+
+Стрела / Arrow (2013-2014) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-23 из 23) Lostfilm
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032153.jpg" />
+</div>
+
+
+###  Подробнее
+
+После кораблекрушения плейбой миллиардер Оливер Куин пропадает и считается погибшим в течение пяти лет, после чего его обнаруживают живым на затерянном острове в Тихом океане. Когда он возвращается домой в Старлинг-Сити, его преданная мать Мойра, столь любимая сестра Теа и лучший друг Томми приветствуют его дома, но они видят, что Оливер изменился после испытаний (   Читать дальше...   )Производство: США / Berlanti Productions, DC Entertainment, Warner Bros. TelevisionЖанр: фантастика, боевик, драма, криминал, детектив, приключенияРежиссер: Джеймс Бэмфорд, Джон Беринг, Глен ВинтерАктеры: Дэвид Рэмси, Стивен Амелл, Эмили Бетт Рикардс, Кэти Кэссиди, Пол Блекторн, Уилла Холланд, Колтон Хэйнс, Рик Гонсалес, Эко Келлум, Джон БарроуменПеревод: Многоголосый (Lostfilm)Язык озвучки: Русский, английскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7BFB0DCF217C090305F4C790070F7EFF4CB1A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446888   (1032154) от 11.02.2021
+
+Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 из 10] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение комедийного ONA-сериала «Агрессивная Рэцуко».
+
+Красная панда по имени Рэцуко, работает в офисе, где практически все пользуются её добродушностью и безотказностью. Всю накопившуюся агрессию героиня выплескивает, исполняя в караоке песни тяжелого металла.
+(   Читать дальше...   )Производство: Япония, Fanworks / ファンワークスЖанр: комедия, повседневностьРежиссер: РарэкоЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 1-9 эп. по 15 мин. 10 эп. 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A241B28714FBF0E5C9CCEB295B6305849EA8494
 ```
 
 

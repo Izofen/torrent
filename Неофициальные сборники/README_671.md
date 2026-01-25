@@ -1,3 +1,30 @@
+###  Публикация: 1457023   (1024634) от 25.03.2021
+
+VA - Ladies Moment: Vocal House (2021) [MP3|320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасная музыка, приятный женский вокал, великолепные стихи о любви, об этом прекрасном чувстве, наполняют собой сборник «Ladies Moment». 150 треков от исполнителей со всех концов Европы уже ждут Вас.001. Takis Ft Goody Grace And Tory Lanez - Wait For Me
+002. Morgan Page And Mark Sixma - Our Song
+003. Timmy Trumpet & Gabry Ponte - Mad World
+004. Eltonnick feat Ntefo Ntshabele - Reason(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 10:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D9143E970A02B52CE1EDECFC14960481E2086C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457011   (1024637) от 25.03.2021
 
 VA - Beatport Hypnotic Trance: Sound Pack #261 (2021) [MP3|320 Kbps] <Trance, Progressive>
@@ -665,33 +692,6 @@ VA - The Stardust: Future House Party (2021) [MP3|320 Kbps] <Future House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10CB4EAFE4DCD3C964B55A2B850F09A32B43EA82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455583   (1025617) от 19.03.2021
-
-VA - Music News vol.83 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Polina - Поцелуй Со Вкусом Текилы (02:58)
- 002. Alexander Oscar - One More Dance (03:01)
- 003. Alok feat. Matheus & Kauan - TU (02:41)
- 004. Avy - Сошла С Ума (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D72EBAF8A13A6E49CB3EE0825F276CD02E8E5C
 ```
 
 

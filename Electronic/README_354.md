@@ -1,3 +1,84 @@
+###  Публикация: 1132163   (702912) от 08.05.2017
+
+Valdi Sabev - Imagined Vol. 1 (2017) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatific Vision (Original Mix)
+02. Daydream (Original Mix)
+03. Beautiful Mind (Original Mix)
+04. Perfect Day (Original Mix)(   Читать дальше...   )Жанр: Ambient, Downtempo, ChilloutПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A843B0CAC5CAFCC2D72928BB0E452214A20D4375
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132183   (703180) от 08.05.2017
+
+VA - Italian Lounge Vol.4 (Beautiful Italian Songs In A Chilly Sauce) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Papik - Aver Paura Di Innamorarsi Troppo  4:56
+02.  Giuseppe Milici - Dimmi Cos'e (feat. Alan Scaffardi)  3:45
+03.  Danny Losito - Che Felicitа (Jam Mix)  4:08
+04.  Orchestra Volare - Quando Quando Quando  3:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7659972B957E155CE360C2B30534709FFB198721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132181   (703188) от 08.05.2017
+
+VA - Late Night Lounge: Selected Cocktail Lounge Moods (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andrea Cardillo - I Feel The Sound (Soulful Remix)  6:02
+02.  Brass - Paranoid Night  5:01
+03.  Daniela Dessi - Season  4:03
+04.  Luca Brunetti - Abstract  3:22(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA987B5A3539CCCBFC71A07AFB9AF95CC624577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132169   (703189) от 08.05.2017
 
 VA - Balearic Spirit Vol.1: Smooth Vibes With Ibiza Spirit (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -616,87 +697,6 @@ Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131613   (705415) от 07.05.2017
-
-VA - Darker Shades Of Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lemonjazz - Close Your Eyes (Erotic Sunset To Sunrise Mix)  5:02
-02.  Burning Lipps - Near Or Far (Erotic Beach Love Mix)  4:57
-03.  Hot Drake - Sex On Cloud Nine (Views From Love Mix)  4:25
-04.  Shades of Grey - Masquerade Show (French Mix)  5:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC688E3A5FC67BDFB0FE9CA3ED6DFB3890BCE71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131303   (705419) от 07.05.2017
-
-VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rene Ablaze & Jam Da Bass - Fly (Radio Edit)  3:13
-02.  Amitacek - Causeway (Radio Cut)  3:46
-03.  Bvibes - Vertigo (Radio Cut)  3:48
-04.  Damian Wasse - Rise Of Nation (Radio Cut)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26038A7241AEA40778992A5034A65EC68A18DCF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286798   (705523) от 06.03.2019
-
-VA - Running House (Compilation 2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Lyke feat. Nathan Brumley - Perfect Moments (Original Mix) 04:58
-02. Lucky Lyke feat. Jessia - Dancing In The Moonlight (Original Mix) 04:18
-03. James KJ - Universe (Original Mix) 05:56
-04. House Legion - Baby (Original Mix) 04:44(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AF0EEA8588BCA0D12055BB396E5E99820154AC
 ```
 
 

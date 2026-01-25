@@ -1,3 +1,57 @@
+###  Публикация: 1564231   (500586) от 18.07.2022
+
+Джоконда - Каждый охотник желает знать (2021) [FLAC|Lossless|image + .cue] <Symphonic Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Симфония
+02. Каждый охотник желает знать
+03. На краю
+04. Костры из книг(   Читать дальше...   )Жанр: Symphonic Rock, Female VocalПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C4443599B4AB4DE7A7DF611BD902D1F1F9C5E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564428   (500596) от 18.07.2022
+
+VA - Napalm Records Prog Sampler 2022 (2022) [MP3|320 Kbps] <Prog-Rock, Prog-Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jinjer - Wallflower 04:17
+2. Evergrey - Call Out the Dark 04:23
+3. God Is An Astronaut - Burial 06:04
+4. Me And That Man - Angel Of Light (ft. Myrkur) 04:17(   Читать дальше...   )Жанр: Prog-Rock, Prog-Metal, MetalПродолжительность: 01:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8003B877C041C19A0BFCFC14391A0EC46C4FD8E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564433   (500597) от 18.07.2022
 
 Bloodstained Ground - Horrors of a Withered Dimension (2022) [MP3|320 Kbps] <MDM>
@@ -663,66 +717,6 @@ The Brian Jonestown Massacre - Aufheben (2012) [FLAC|Lossless]<Indie Rock / Psyc
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541243   (501314) от 31.08.2012
-
-The Darkness - Hot Cakes (Deluxe Edition) (2012) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Inch Of You (3:05)
-02. Nothin's Gonna Stop Us (2:45)
-03. With A Woman (3:41)
-04. Keep Me Hangin' On (3:01)
-05. Living Each Day Blind (5:07)
-06. Everybody Have A Good Time (4:48)
-07. She Just A Girl, Eddie (3:47)
-08. Forbidden Love (3:50)
-09. Concrete (3:52)
-10. Street Spirit (Fade Out) (3:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934797   (501337) от 06.09.2015
-
-The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с]<Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It's In Her Kiss (2:15)
-02.  Glad All Over (1:53)
-03.  Shimmy Shimmy (2:34)
-04.  Needles And Pins (2:14)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165317B905A7351A0F300F3550B448D4E68B4B68
 ```
 
 

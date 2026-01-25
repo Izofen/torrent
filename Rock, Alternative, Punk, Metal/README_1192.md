@@ -1,3 +1,57 @@
+###  Публикация: 1353863   (990851) от 19.01.2020
+
+Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|image + .cue] <Instrumental Technical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Machine Within (2:38 )
+02. Velocity and Acceleration: Movement 1 (3:50)
+03. Velocity and Acceleration: Movement 2 (4:25)
+04. Velocity and Acceleration: Movement 3 (1:43)(   Читать дальше...   )Жанр: Instrumental Technical MetalПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFF36A271CAB9A3D4399D7557980F399989CF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353859   (990853) от 19.01.2020
+
+Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulletproof Scales
+02. Silver Plated Advocate
+03. Immaculate
+04. Warm Blooded(   Читать дальше...   )Жанр: Death Metal, DeathcoreПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818C6E59AB4377044D0376A9D51BC587A7579585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432299   (990906) от 06.01.2012
 
 Royal Hunt - Show Me How to Live (2011) [FLAC|Lossless]<Progressive Neoclassical Metal>
@@ -685,66 +739,6 @@ Unknown Mortal Orchestra - II (2013) [MP3|320 кб/с]<Psychedelic, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C2636B739F3214365C50A8B1A061894766D22CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608748   (992818) от 26.01.2013
-
-Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	 Unbreakable	(04:37)
-02.	 Falling Star	(04:31)
-03.	 The Game Never Ends	(03:48)
-04.	 Freedom	(05:03)(   Читать дальше...   )Жанр: Melodic Power Metal |Продолжительность: 00:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9D8E25B195D267A1E03E5F2C08837792B5541E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608929   (992824) от 26.01.2013
-
-Hatebreed - The Divinity Of Purpose (2013) Scene [MP3|276-296 кб/с]<Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put it to the Torch (2:12)
-02. Honor Never Dies (3:12)
-03. Own Your World (3:39)
-04. The Language (3:14)
-05. Before the Fight Ends You (3:17)
-06. Indivisible (2:56)
-07. Dead Man Breathing (3:19)
-08. The Devinity of Purpose (3:39)
-09. Nothing Scars Me (3:08)
-10. Bitter Truth (2:40)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD1ABE4488A1A8778DD22D55477C22D8B634769
 ```
 
 

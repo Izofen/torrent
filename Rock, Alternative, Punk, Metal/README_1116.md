@@ -1,3 +1,57 @@
+###  Публикация: 642730   (877819) от 12.04.2013
+
+Dead Can Dance - In Concert (2013) Live [MP3|320 кб/с]<Alternative, Experimental, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun
+02. Anabasis
+03. Rakim
+04. Kiko(   Читать дальше...   )Жанр: Alternative, Experimental, AmbientПродолжительность: 01:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780E1EA1660992F375A9A370352CDB8F028542BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104644   (878124) от 16.02.2017
+
+Аляска - Скачать бесплатно (2015) [MP3|320 Kbps] <Ska, reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снежок (2:37)
+2. Маракасы (2:47)
+3. Бандиты (2:58)
+4. Космос (2:51)(   Читать дальше...   )Жанр: Ska, reggaeПродолжительность: 00:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104855   (878126) от 16.02.2017
 
 Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
@@ -641,60 +695,6 @@ Girlschool - The Collection (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E511C69FCE7D0692A9D101F20A689703029454E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996321   (879409) от 14.03.2016
-
-Elyria - Reflection And Refraction (2016) [FLAC|Lossless|image + .cue] <Progressive Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Portals 01:52
-02. The Vigil 04:48
-03. Blind 04:18
-04. Colour Of Silence 05:13(   Читать дальше...   )Жанр: Progressive Gothic MetalПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D449E24287232DBD1309ACEAF8BD2E0BC5D509E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871651   (879472) от 22.02.2015
-
-Feed Her To The Sharks - Fortitude (2015) [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is Yours
-02. Chasing Glory
-03. Burn The Traitor
-04. Shadow Of Myself(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EAE68F4297789619C00C67F8E124EB65198DCC
 ```
 
 

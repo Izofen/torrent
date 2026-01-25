@@ -1,3 +1,54 @@
+###  Публикация: 293784   (897820) от 12.02.2011
+
+Начало века - Дискография (2004-2010) [MP3|320 kbps]<Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk-RockПродолжительность: 02:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DB4884A320403FD5781F3AF728FB796FD604F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100697   (897976) от 05.02.2017
+
+Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song
+02. After The Storm
+03. Sister Mary
+04. Move That Wigwam(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100752   (898011) от 05.02.2017
 
 Pride Of Lions - Fearless (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock, AOR>
@@ -641,58 +692,6 @@ Syndone - Kama Sutra (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3E98EC49218018CD5B67AD41D8035B753D7B5DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492982   (899021) от 01.09.2021
-
-Faithful Breath - 2 Studio Albums (1984-1985) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1984 - Gold 'N' Glory
-1985 - SkolЖанр: Heavy MetalПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2219F21FA840D61990E48EFAAE40A5FFF18308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100404   (899039) от 04.02.2017
-
-VA - Союз. Rock 3 (2017) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса - Rock 'n' Roll жесток
-02. Йорш - Музыка сильных
-03. Totem - Люди Севера
-04. Louna - Те, кто в танке(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB53FD5E2551EDF83F28C127B45B2C25606018E
 ```
 
 

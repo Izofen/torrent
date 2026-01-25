@@ -1,3 +1,30 @@
+###  Публикация: 1842749   (1048891) от 16.12.2025
+
+Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Гитара
+02 - Верю. Надеюсь. Люблю   Музыка Для Души
+03 - Самая Красивая Музыка На 2026 Год Лошади
+04 - Echoes of the Steppe(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEB814B0E9013D7FFA6E96C96C9120229BC9C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842753   (1048892) от 16.12.2025
 
 VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -668,33 +695,6 @@ VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844855   (1050415) от 28.12.2025
-
-VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - I Have Everything Now Except
-02 - Riltim - Retona
-03 - Smtve - Let You Down
-04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
 ```
 
 

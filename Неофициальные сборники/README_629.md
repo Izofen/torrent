@@ -1,3 +1,30 @@
+###  Публикация: 1089400   (949923) от 04.01.2017
+
+VA - Русские свежаки радиостанций. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949923.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miela - Города 4:18
+002. Vavan (Владимир Селиванов) - Я Знаю 3:14
+003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
+004. Роман Bestseller - Полный 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D563CC3E9FB70D6E43AC4BE38A863D4B81D265DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981945   (949974) от 02.02.2016
 
 VA - Sunday Privilege, Vol. 4 (25 Luxury Lounge Anthems) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -669,33 +696,6 @@ VA - Золотые застольные хиты. Сборник № 8 (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54DBEA2C9FF393DE7A32E3C282908270329279D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089333   (951891) от 03.01.2017
-
-VA - Dr. Metal Presents: Vol.9 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951891.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Freedom Call-Emerald Skies
-002-Dreamtale-Dreality
-003-Blind Guardian-Into The Storm
-004-Civil War-Gladiator(   Читать дальше...   )Жанр: Heavy, Speed, Power MetalПродолжительность: 07:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668A4578BA3C4BE1865FEBEFC4DCBF9351302056
 ```
 
 

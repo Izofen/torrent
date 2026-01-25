@@ -1,3 +1,84 @@
+###  Публикация: 1285833   (719063) от 27.02.2019
+
+VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Chloe Langley - Bring You Home (Ronski Speed Remix Edit)
+02. Nektarios with Kirsty Hawkshaw - Dawn (Cold Blue Remix Edit)
+03. Trance Arts & Hysteria! - Heaven In Disguise (Progressive Edit)
+04. Kirsty Hawkshaw & One Vision - Nostra Terra (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D190448CD3C6E6F9F0345CA3C6C9088A5B67988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285854   (719065) от 27.02.2019
+
+VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Amnesia - Maasi 03:18
+02. Dj President - Henderson 02:06
+03. Dj Amnesia - Mina 03:10
+04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399983   (719134) от 05.08.2020
+
+VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sublime Sound - Hands Of Time [06:12]
+02. Uriel Lange - Low Move [07:03]
+03. Sublime Sound - Symphonous (Nouveau Mix) [06:15]
+04. Vicvicvic - Vouge [07:24](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE97D8EF443555EADE3CC9D4D8236910D693189
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400426   (719143) от 05.08.2020
 
 Модель Поведения - Признаки прошлого (2020) [MP3|320 Kbps] <New Wave>
@@ -611,87 +692,6 @@ Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA45EC9D39B1C4DFFFA06215DE28EB1785D026C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023879   (720660) от 07.06.2016
-
-BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prsm000 (5:12)
-02. HyperMental (Calming Strobe Mix) (5:40)
-03. HyperMental (Diving Mix) (6:08)
-04. Chords Dark (5:02)(   Читать дальше...   )Жанр: Techno, Experimental, Ambient, Dub TechnoПродолжительность: 00:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C4629217D7E190ECE31C46112B4F70190D85C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024168   (720678) от 07.06.2016
-
-VA - Progressive Summer Vol.1 (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twopandas - Make Me Alive (04:14)
-02. AL - B - Give Me Your Love (04:26)
-03. GreenLeto - Make Your Life (Feat. Kessy.) (06:36)
-04. Datdude - Take You Home (Feat. Danyka) (03:29)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566666C540DB1795325F5361B4EA19CAA73D3012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023915   (720687) от 07.06.2016
-
-Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akuj (7:21)
-02. Ikenga (7:18)
-03. Haiuri (8:39)
-04. Yemaja (8:31)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678D8AF94821AC768959231DF38CA05BC4EE5DD9
 ```
 
 

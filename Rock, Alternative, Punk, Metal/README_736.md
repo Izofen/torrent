@@ -1,3 +1,57 @@
+###  Публикация: 1227496   (472759) от 04.09.2020
+
+Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|image + .cue] <Modern Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Cipher
+02. Valkyria
+03. My Soldier
+04. Winterfall(   Читать дальше...   )Жанр: Modern Melodic Power MetalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1343ED997151B3FE6823DC4FFAD0705125EED2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406601   (472771) от 04.09.2020
+
+Мураками - Под сердцем (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472771.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Сириус
+3. 52 герца
+4. Рыба(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571A0AE14CB6B2D0BB36368196AD7AE2E5EABEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406603   (472774) от 04.09.2020
 
 Центр - Абсолютное почтение человека (2020) [MP3|320 Kbps] <Rock>
@@ -640,60 +694,6 @@ magnet:?xt=urn:btih:C920F97BE5B53705F6EA6127D48E0B018ACA2F68
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54112C8973D8C4676F2546FD681AB413907F7C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160548   (473645) от 25.08.2017
-
-Lacrimosa - Testimonium (2017) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473645.jpg" />
-</div>
-
-
-###  Подробнее
-
-ACT 1
-01. Wenn unsere Helden sterben
-02. Nach dem Sturm
-ACT 2(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E8DADA6A4ECE22CE4730F4110E7A0B109A143C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547318   (473733) от 15.09.2012
-
-Dio - Singles Box Set (2012) Anthology [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Rock 'N' Roll (Live at Intermission, 1986)
-02. Rainbow In The Dark (Live at Intermission, 1986)
-03. Sacred Heart (Live at Intermission, 1986)
-04. Time To Burn (Live at Intermission, 1986)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 03:31:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 

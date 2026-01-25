@@ -1,3 +1,55 @@
+###  Публикация: 1380469   (832936) от 03.05.2020
+
+Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Purple - Man Alive
+02. Deep Purple - Throw My BonesЖанр: RockПродолжительность: 00:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114487   (833030) от 14.03.2017
+
+Александр Пушной - Как правило – без правил! (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хакну
+02. Серо-жёлтая весна
+03. Дай мне вырастить тех…
+04. Бегемотьи ушки(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4F1D7D1A5B3E067A39F9BED1AC24B84F2EBF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380522   (833046) от 03.05.2020
 
 VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Rock>
@@ -644,60 +696,6 @@ Novembre - URSA (2016) [FLAC|Lossless|tracks + .cue] <Progressive-metal, Doom-me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339ED7BFAF96EEB3A5A6D19F9CD5B3AC8DB160FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004350   (834578) от 08.04.2016
-
-Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alternative-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.A.R. (3:07)
-02. Step Aside (3:02)
-03. The Bottom (3:03)
-04. Heaven? (3:56)(   Читать дальше...   )Жанр: Hard-rock, Alternative-metalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299B0F6D64B4A50B268D420F6B005BC8D0EA5063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005339   (834697) от 08.04.2016
-
-I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer (01:02)
-02. Instinct (02:33)
-03. Dark Passenger (03:00)
-04. Bleed (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
 ```
 
 

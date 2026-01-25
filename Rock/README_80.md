@@ -1,3 +1,57 @@
+###  Публикация: 1274767   (792241) от 08.01.2019
+
+Lenny Kravitz - Raise Vibration (2018) Japanese Edition [MP3|320 Kbps] <Rock, Soul, Funk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792241.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. We Can Get It All Together
+2. Low
+3. Who Really Are The Monsters?
+4. Raise Vibration(   Читать дальше...   )Жанр: Rock, Soul, FunkПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0DEA899574D3BE23715B4251A527996163B816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387090   (792477) от 31.05.2020
+
+Atom Pink Floyd Tribute - Collection (2016-2019) 2 альбома [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond, Pts. 1-5
+02. Welcome to the Machine
+03. Have a Cigar
+04. Wish You Were Here(   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 02:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0B2F0BF438BBD84CD62BD507BB9B75488054C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201259   (792820) от 24.01.2018
 
 Maschine (Dieter Birr of Puhdys) - Neubeginner (2016) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:96BF589319CA0D9EF3B762DF4E5D1441D04A3A25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA246FD80D49EE65D89FAAD68EBB19E2D333DBC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506104   (800897) от 30.10.2021
-
-Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mr. Radio (5:04)
-2. Eldorado (5:18)
-3. Can't Get It Out Of My Head (2012 Version) (4:34)
-4. Mister Kingdom (5:30)(   Читать дальше...   )Жанр: Progressive-Rock, Art-Pop-RockПродолжительность: 01:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EFA50553C086173B35DC8A8442749058F69823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120990   (801257) от 01.04.2017
-
-Stories - Stories / About Us (2007) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801257.jpg" />
-</div>
-
-
-###  Подробнее
-
-STORIES: 
-01. Hello People
-02. I'm Coming Home
-03. Winter Scenes(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6047174C8E4F1BE12D92AF64DFC8E3A761C9CFA6
 ```
 
 

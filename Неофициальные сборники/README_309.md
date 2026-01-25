@@ -1,3 +1,30 @@
+###  Публикация: 1314117   (521208) от 12.07.2019
+
+VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alekseev - Целуй (3:26)
+02. Bahroma - Кадриль (3:00)
+03. Max Barskih - Берега (3:48)
+04. David - Знай (New Version) (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 01:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3BFB0501A874A8AE34580CCFC58496CBED3CB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314112   (521212) от 12.07.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 12) (EN) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
@@ -683,33 +710,6 @@ VA - The Best Dance Hits Of 90's-2 (2015) [MP3|320 кб/с]<Pop, Eurodance, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313908   (522264) от 11.07.2019
-
-VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arirang Singers - Dark Eyes (1979) (4:02)
-02. Arpeggio - Let The Music Play (1978) (8:21)
-03. Barrabas - (Be Me) Rebel (1982) (6:32)
-04. Benelux & Nancy Dee - Rico (1980) (3:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561F0F4EE41AAADD718E1F82A1E1BF28384AED46
 ```
 
 

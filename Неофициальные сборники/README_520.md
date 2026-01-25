@@ -1,3 +1,30 @@
+###  Публикация: 1123222   (792369) от 07.04.2017
+
+VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 The Cat Empire-The Lost Song 3:20
+002 Emeli Sande-Every Single Little Piece 4:03
+003 The Rideouts-Put The Blame On Me 4:08
+004 Lorde-Tennis Court 3:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7BE2C6EBF4B9ECDDC024B9D8C075B70E33C89CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386838   (792504) от 31.05.2020
 
 VA - Music for You vol.2 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
@@ -669,33 +696,6 @@ VA - ЕвроХит Топ 40 Europa Plus 29.05.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB12D23E88C34F313C363BF44DAFEBE7F3CBEAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012319   (793450) от 01.05.2016
-
-VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Подъём - Девчонка На Свадьбе (03:29)
-02 Бархат - Сердцеедки (03:11)
-03 Кристина Орса - Я Буду Рядом (03:45)
-04 Влад Соколовский - До Небес (02:27)(   Читать дальше...   )Жанр: ПопПродолжительность: 05:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
 ```
 
 

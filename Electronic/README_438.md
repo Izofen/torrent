@@ -1,3 +1,84 @@
+###  Публикация: 1380204   (834892) от 02.05.2020
+
+VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cam Lasky - Island [05:08]
+02. DJ Stompy - Carousel (Mountain Terrace Dub Mix) [04:52]
+03. Caustipher - The Eternal Storm (Extended Mix) [05:17]
+04. Asymmetric - Stamping [06:35](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29172996B332A279099114E6A70CA71E1D6B162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380212   (835056) от 02.05.2020
+
+VA - Deep Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakan Akkus - Just My Time (VOLB3X Remix) [03:42]
+02. Deep Emotion - United [03:43]
+03. Dani Corbalan - Forbidden Sax [04:43]
+04. Brazyleros - We Are Free (Derek Armstrong Remix) [05:23](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2C3A12AD9092E409FF3F09B3CA04391FF8009C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380206   (835059) от 02.05.2020
+
+VA - Inferno (2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Von - Heaven [03:52]
+02. Dub Rich - I Never Met You [03:38]
+03. Steve Golen - Another World [07:44]
+04. Temple Cow - Stranger [07:17](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325940798E1426E66AE708407F8A7BD5B1DCA50C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380323   (835060) от 02.05.2020
 
 CJ Burnett - Heartracer (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun, Dreamwave>
@@ -614,85 +695,6 @@ VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD2234B4CA285BC6DC4EB360F881287A4051EE11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379680   (837701) от 30.04.2020
-
-Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pleochroism (14:22)
- 02. Faint Light (10:54)
- 03. Pleochroism 2 (20:50)
- 04. Soarer (15:54)Тип издания: CD, WebЖанр: AmbientПродолжительность: 06:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F180D3EDC728550786B3A9F36228F80D81149B1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379723   (837709) от 30.04.2020
-
-Lemna - The Five Elements (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Tribal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part 1 (33:10)
-02. Part 2 (34:57)Жанр: Techno, Experimental, Tribal, AmbientПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C844152ECCF847843B189628374704A26C0C4A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501056   (838115) от 08.10.2021
-
-VA - Spacedance, Vol. 1-3 (2021) [MP3|320 Kbps] <Spacedance, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Based on Bass - Magic World (Spacemix) (4:28)
-02. Daylight - Touring Space (5:21)
-03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
-04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Synthwave, RetrowaveПродолжительность: 03:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D63DABC8EF1F718B9698511A624F8717EC2547
 ```
 
 

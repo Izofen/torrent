@@ -1,3 +1,57 @@
+###  Публикация: 1400980   (713140) от 08.08.2020
+
+Avatar - Hunter Gatherer (2020) [MP3|320 Kbps] <Modern Metal, Melodic Death Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence In The Age Of Apes
+02. Colossus
+03. A Secret Door
+04. God Of Sick Dreams(   Читать дальше...   )Жанр: Modern Metal, Melodic Death Metal, Nu MetalПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2682811AB4C9A22584B041421F0AB20C1A7DD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286425   (713187) от 02.03.2019
+
+Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleonora (01:08)
+02. Only the Lonely Survive (03:43)
+03. Echoes of You (feat. Roger Joseph Manning Jr.) (05:18)
+04. Don’t Miss Me? (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C7239FDBE8954D2296D19665DCBAE4DAA32307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893349   (713300) от 29.04.2015
 
 СЛОТ (The Slot) - Сила притяжения (2015) Single [MP3|320 кб/с]<Alternative>
@@ -638,60 +692,6 @@ Boomer - Dim Side Of Mars (2002) [FLAC|Lossless|image + .cue]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B10448EC55B607949A462D38E8A560579AD7C20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130439   (714423) от 02.05.2017
-
-V1 - Armageddon - End Of The Beginning (2017) [MP3|320 Kbps] <NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. V1 03:09
-02. Taking You Higher 06:42
-03. Devil Devil 04:59
-04. Don't Cause a Scene 04:01(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0CD99BF6B84C64B5601EDC5C5C3A3827B227AFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130433   (714430) от 02.05.2017
-
-Phil Rudd - Head Job (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Head Job  (03:34) 
-02.  Sun Goes Down  (02:50) 
-03.  Lonely Child  (04:02) 
-04.  Lost In America  (03:42) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C460B4F9F845A6169B3D842B31EFC4B9E8DDCC2
 ```
 
 

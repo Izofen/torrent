@@ -1,3 +1,30 @@
+###  Публикация: 1492123   (902406) от 30.08.2021
+
+VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bongo & Pusk - Smalltalk
+002. Italobros - Jack
+003. Kemp&Thompson - 9th House
+004. Vorslov - Party(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 12:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F815EA0151481DAFF71B5793102B17BD59ACDEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492082   (902412) от 30.08.2021
 
 VA - Afro Bass (2021) [MP3|320 Kbps] <Jungle, D&B, Electro Bass>
@@ -680,33 +707,6 @@ VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099544   (904216) от 01.02.2017
-
-VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #57 (2017) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904216.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Dimitri Vegas & Like Mike vs. Diplo feat. Deb's Daughter - Hey Baby (Lost Frequencies Remix)  3:19
-002.  Hardwell & Quintino - Baldadig  2:00
-003.  Monatik feat. L'One - Сон (DJ Konstantin Ozeroff & DJ Sky Radio Remix)  3:12
-004.  T-Killah & Роман Bestseller - Вася В Разносе  4:05(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 06:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB19D1A1CF873388ECBAEA9C34A6641B9AF16638
 ```
 
 

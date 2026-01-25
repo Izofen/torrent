@@ -1,3 +1,57 @@
+###  Публикация: 1198729   (804413) от 13.01.2018
+
+VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps] <Pop Rock, Soul, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Club - Do You Really Want to Hurt Me (4:25)
+02. Bros - Drop the Boy (3:42)
+03. Spandau Ballet - Through the Barricades (5:48)
+04. Deniece Williams - Let’s Hear It for the Boy (4:20)(   Читать дальше...   )Жанр: Pop Rock, Soul, Synth-popПродолжительность: 03:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5CE8D3CE1B2CD813D5D7AF8579FC1D569DEAC8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198820   (804424) от 13.01.2018
+
+Evans Blue - Letters from the Dead (2016) Not On Label, US [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Letter from the Dead 0:48
+02. Comfortable with Hate 4:11
+03. Still I Remain 4:02
+04. Just Once 4:29(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E696603AD82F4BB5A61F2308EB0A9252578C8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505437   (804460) от 27.10.2021
 
 John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Glam>
@@ -636,60 +690,6 @@ Rod Stewart: Original Album Series (1980-91) 5CD Box Set, 2010, WEA [FLAC|Lossle
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119785   (805253) от 29.03.2017
-
-VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Classic Rock, British Beat>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Helene Dixon - Roll Over Beethoven  2:38
-02.  The Swinging Blue Jeans - Around And Around  2:11
-03.  Ken Colyer's Skiffle Group - Down Bound Train  2:42
-04.  Marty Robbins - Maybelline  2:31(   Читать дальше...   )Жанр: Rock'n'Roll, Classic Rock, British BeatПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EB2F5793A1C78D0D7FD38E274EB6961EC29413
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120008   (805257) от 29.03.2017
-
-Jethro Tull - The String Quartets (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Past (Living In the Past) (4:07)
-02. Sossity Waiting (Sossity: You're a Woman / Reasons For Waiting) (4:45)
-03. Bungle (Bungle In the Jungle) (3:49)
-04. We Used to Bach (We Used to Know / Bach Prelude C Major) (4:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6611ABC57ECC47ADE17C387B229C1841B76F07AA
 ```
 
 

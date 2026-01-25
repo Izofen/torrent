@@ -1,3 +1,57 @@
+###  Публикация: 1103340   (887973) от 11.02.2017
+
+Haeres - Trom (2014) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Au Crépuscule
+2. Vers La Lune Misanthropique
+3. Le Deuil
+4. Le Chemin Des Souffrances(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEA3A4D4465ABA554C3D5C149AED67DFFB9417E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995025   (888045) от 09.03.2016
+
+Тени Свободы - Эволюция Оскорбляет (2016) [MP3|320 кб/с] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888045.jpg" />
+</div>
+
+
+###  Подробнее
+
+По словам участников группы пластинка, увидевшая свет 9 марта, стала отличной от всего прошлого творчества коллектива как по звучанию, так и по смысловой нагрузке. Это все тот же панк-рок, все те же «Тени Свободы», с присущими социально-политическими темами, но все же основной акцент немного смещен и стал светлее и лиричнее.01. Не твой герой
+02. Поговори со мной
+03. Один на один
+04. Мы хотим войны (feat. Дмитрий Спирин)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D9A1C5F2ED81AF25EC1AF5C5EF8EAFE57547AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994794   (888127) от 09.03.2016
 
 Rob Halford - The Essential Halford (2015) 2CD Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -633,60 +687,6 @@ Dead by Monday - Dead by Monday (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0C6FE1FFFE22D834BC4595ECA42451BAE49FC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494370   (888849) от 07.09.2021
-
-Би-2 - Сверим сердца (2021) official bootleg, Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Депрессия
-2. Лайки
-3. Виски
-4. Революция(   Читать дальше...   )Жанр: RockПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567AB48215B3D3CB19A0CA08728308BB9FD61972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427422   (888872) от 07.09.2021
-
-Чичерина - Песни военных лет (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888872.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рвать
-2. Пожалуйста
-3. Пересвет
-4. Воздушная гавань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC76E4BD3E8CE58F4134D614A53328CB0A1401C4
 ```
 
 

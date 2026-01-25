@@ -1,3 +1,30 @@
+###  Публикация: 1318467   (494692) от 06.08.2019
+
+VA - Лучшие Trance треки Ver.7 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
+02. Jody 6 - Coming Down (Extended Mix) 5:39
+03. Jak Aggas - The New World (Extended Mix) 6:39
+04. Aly & Fila - It's All About The Melody (Extended Mix) 8:59(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E195DD6533ECD1603F86BF65E0559A18E67A8FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318482   (494693) от 06.08.2019
 
 VA - Лучшие Trance треки Ver.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -692,39 +719,6 @@ VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543415   (496323) от 05.09.2012
-
-VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amsterdam Avenue And Deepside Deejays - Gipsy Romano (Dj Edo Ossepyan Ft Dj Yogurt Remix)
-02. Michael Canitrot Feat. Polina - Right On Me (Tv Noise Remix)
-03. Gathania - Nobody's Breaking Me (Radio Edit)
-04. Luigi Lusini & Starchaser Feat. Molly Bancroft - All I Want (Radio Mix)
-05. Aroma - Zorba's Dance (Sirtaki) (Rico Bernasconi Remix)
-06. David Ferrera - Give Me Love Tonight (Club Mix)
-07. Tacabro - Mujeres (Radio Edit)
-08. Fly Project - Musica (Radio Edit)
-09. Kelly Clarkson - What Doesn't Kill You (Stronger)
-10. Da Brozz - Move On Baby (Radio Edit Instrumental)(   Читать дальше...   )Жанр: ClubПродолжительность: 06:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECFC1A7F8626D57107477029A1B35F3D7E4076C
 ```
 
 

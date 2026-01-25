@@ -1,3 +1,30 @@
+###  Публикация: 1486601   (1004573) от 01.08.2021
+
+VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004573.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sketchy Trench - Greater
+002. Kolossus Däächt - Fast Food
+003. Lice - R.D.C.
+004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486583   (1004589) от 01.08.2021
 
 VA - Fantasmatic: Synthwave MPM (2021) [MP3|320 Kbps] <Synthwave, Electronic>
@@ -668,33 +695,6 @@ VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483236   (1006955) от 12.07.2021
-
-VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анатолий Жемаев - Неспетая [04:15]
-02. Андрей Козловский и группа 'ГрассМейстер' - Нужно взять себя в руки [03:24]
-03. Декабрь - Одесса-Мама [04:11]
-04. Борис Булкин - Одиночество и блюз [04:47](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 09:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
 ```
 
 

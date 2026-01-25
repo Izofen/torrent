@@ -1,3 +1,30 @@
+###  Публикация: 1289346   (686464) от 16.03.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Peep & XXXTentacion - Falling Down
+02. Denis First & Reznikov feat. Bright Sparks - Shameless
+03. Rita Ora - Let You Love Me
+04. Ariana Grande - 7 Rings(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C89C6757BEDBCD317142E166747FEBB040EAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289272   (686472) от 16.03.2019
 
 VA - The Best Of Trap & Trapstep II [Compiled by ZeByte] (2018-2019) [MP3|320 Kbps] <Trap, Trapstep>
@@ -666,39 +693,6 @@ VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506467   (687528) от 06.06.2012
-
-VA - Инструментальная музыка (2012) vol. № 65 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А.Петров - Танец воспоминаний
-02. Tony Andeson - Red Light Lady Love
-03. Yvette Horner - Belle Napolitaine
-04. Armik - Golden Waves
-05. Quinn - Siochain Agus Jonannas
-06. Pipeline - Chantays
-07. С.Панкратов & Б.Леготин - Юнона и Авось
-08. Danny Wright - Whispers In The Dark
-09. Анс. Мелодия - Попурри
-10. Stefan Nicolas - Moonlight Rhapsody(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F6F910C890F625956DE67C4EBBCE645CDAB127
 ```
 
 

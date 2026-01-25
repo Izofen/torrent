@@ -1,3 +1,57 @@
+###  Публикация: 1137340   (666713) от 27.05.2017
+
+Smash Hit Combo - L33T (Deluxe Edition) (2017) [MP3|320 Kbps] <Progressive Metalcore, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise and Fall (feat. None Like Joshua)
+02. Spin the Wheel (feat. None Like Joshua)
+03. Falls Appart (feat. None Like Joshua)
+04. Must Divide (feat. None Like Joshua)(   Читать дальше...   )Жанр: Progressive Metalcore, RapcoreПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587EE7642B0A0B402479BE497C78DB787E94C836
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137600   (666723) от 27.05.2017
+
+Anubis - The Second Hand (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Hand (6:14)
+02. Fool's Gold (6:33)
+03. These Changing Seasons I (4:20)
+04. The Making Of Me (6:16)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A637826BB3F6824538BBB3A313B672871E7BCAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900729   (666737) от 23.05.2015
 
 Bonfire - Glorious (2015) [FLAC|Lossless]<Melodic Hard Rock>
@@ -653,66 +707,6 @@ Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031417   (668521) от 03.07.2016
-
-Sunburst - Нет Героев (2016) [MP3|320 Kbps] <Heavy Metal, Urban Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сами музыканты определяют стилистику этой работы как urban-metal, что лишь отчасти даёт представление о «формате» материала. На пластинке прослеживается борьба противоречий как музыкальных, так и смысловых. Контекст большинства песен действительно посвящён актуальным проблемам человека в «каменных джунглях», но яркая, подчас даже плакатная образность текстов, рисует (   Читать дальше...   )01. Заткнись и Слушай!
-02. Моя Война
-03. Гетто
-04. Армия Z(   Читать дальше...   )Жанр: Heavy Metal, Urban MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772E3966A2F73BCE0E8D4D1D2BE5F260037274C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510703   (668552) от 15.06.2012
-
-Cult of Luna - 5 albums (2001-2008) [FLAC/APE|Lossless] <Post-Metal, Sludge, Progressive / Doom Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Owlwood (07:39)
-02. Eternal Kingdom (06:41)
-03. Ghost Trail (11:50)
-04. The Lure (Interlude) (02:33)
-05. Mire Deep (05:10)
-06. The Great Migration (06:32)
-07. Osterbotten (02:19)
-08. Curse (06:30)
-09. Ugin (02:44)
-10. Following Betulas (08:56)2001-2008Жанр: Post-Metal, Sludge, Progressive / Doom Metal, Post-RockПродолжительность: 01:00:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 682424   (452510) от 04.09.2017
+
+Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Mall
+02. Things I Miss The Most
+03. Blues Beach
+04. Godwhacker(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24285FFBCDD91FB686B360116098CED568A05164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322047   (452593) от 27.08.2019
+
+Nemesea - White Flag (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The Storm[3:24]
+ 2 - Kids with Guns[2:42]
+ 3 - White Flag[3:29]
+ 4 - Sarah[4:16](   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060D9D1EDDF64CD0641C020A0D41173E6AC6176B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322033   (452604) от 27.08.2019
 
 Pronoun - I'll Show You Stronger (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -643,60 +697,6 @@ Norma Jean - Deathrattle Sing For Me (2022) [FLAC|Lossless|WEB-DL|tracks] <Chaot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B62FFFDBD6AA5B0B2AD91F7BCBA38891F6572C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569167   (453829) от 12.08.2022
-
-Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hurricane
-02. Space Travel
-03. Break The Chains
-04. No Turning Back(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1200D15A9185B4E7A62F12F3D036E160B95070F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569248   (453831) от 12.08.2022
-
-Shiraz Lane - Forgotten Shades Of Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To Life
-02. Maniac Dance
-03. Scream
-04. Forgotten Shades Of Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BBFFB1212992686BE24F3CD2C351D4172F7518A
 ```
 
 

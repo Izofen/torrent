@@ -1,3 +1,84 @@
+###  Публикация: 1234485   (571028) от 05.07.2018
+
+VA - Chillout Summer Essentials (2018) [MP3|320 Kbps] <Chillout,Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Living Room - Open (SineRider Remix)
+02. State Azure - Moth (Original Mix)
+03. Puremusic - Muses (Original Mix)
+04. Kyohei Akagawa - Fusen (J-Punch Remix)(   Читать дальше...   )Жанр: Chillout,LoungeПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D70B131D79265606F4A3151DA2ED93BAA31F0119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234533   (571032) от 05.07.2018
+
+VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Walters - Soundcheck (Shock-Force Remix) 07:39
+02. Audio Hedz - Just Another (Original Mix) 08:31
+03. Noath - The Cataclyms (Original Mix) 06:41
+04. Systemic Noise - The Devil (Original Mix) 07:20(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 06:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0B7151B6400222EAAF7A250141192475DBF522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234390   (571034) от 05.07.2018
+
+VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pablo Caballero - That
+02. Adam Hofer, Prala - Praise It
+03. Rudy V - Three In The Morning
+04. Anton Stellz - Combine(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580CA89F6B75F5EC6752571CF64C88C279D590EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043855   (571073) от 17.08.2016
 
 VA - Radio Charts - Gold Collection (2016) [MP3|320 Kbps] <House, Progressive>
@@ -621,87 +702,6 @@ VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234324   (572961) от 04.07.2018
-
-VA - Progressive Summer Session (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sannny - Ghost Ship (Original Mix)
-02. 2D Project - Euphoria (Original Mix)
-03. DJ Grand Defence - Impulse (Original Mix)
-04. ADVANIKA - Insomnia (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC3B5B451CFC54944BB11E95CF6584595594B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303364   (573122) от 21.05.2019
-
-VA - Nothing But... Soulful House Flavours, Vol. 14 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Jansen – Nothing Is Wrong (5:10)
-02. Jampa – Fly Wood (Extended Mix) (6:56)
-03. Raw Dixon – Better Days (5:31)
-04. Josephine Sweett & Ondagroove – Music & LifeЖанр: HouseПродолжительность: 02:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F948E5EA161F84DC6CEF58A6B1D39A7465B3AE10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043468   (573157) от 16.08.2016
-
-VA - Sapporossive (2016) [MP3|320 Kbps] <House, Progressive, Melodic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shin Itagaki - Emishi (Original Mix] 06:11
-02. Tomoyuki Sakakida - After That (Suizin Remix] 07:08
-03. Suizin - Tannewensir (Original Mix] 06:57
-04. Izu - Moiwa (Original Mix] 05:17(   Читать дальше...   )Жанр: House, Progressive, MelodicПродолжительность: 02:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EDEB481485B9225C26EB9CE399930B60F80C74
 ```
 
 

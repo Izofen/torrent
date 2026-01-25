@@ -1,3 +1,84 @@
+###  Публикация: 1563713   (503728) от 15.07.2022
+
+VA - FSOE - July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila with Greg Downey - Take Flight (Extended Mix)
+02. Ciaran McAuley - Lilac (Extended Mix)
+03. Sunlounger & Inger Hansen feat. Susie Ledge - Run (Extended Club Mix)
+04. Tempo Giusto - Braveheart (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2E888B95EB7D5C795DEC5E9A29F3C468EA180B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934011   (503751) от 04.09.2015
+
+VA - French Cafe Moods Vol 4 (2015) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Witch Music - Lazy Summer Days (02:04)
+02. Craig McConnell - Snows of Stillness (03:04)
+03. Richy Kicklighter - Cool Breeze (05:38)
+04. Richard Freitas - Luscious (03:19)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49453FE0B3FA56BCC580B4BEC9C57C303C9AE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934007   (503752) от 04.09.2015
+
+VA - French Cafe Moods Vol 3 (Oriental Flavour) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive Ass Sleepers - Life In The Slow Lane (03:50)
+02. Cafe Praga - Welcome (03:19)
+03. Edd Charmant - Mellow With Me (03:08)
+04. Missing Black Cat - Clavinet (02:38)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D15A893A9B35B34CE0622D91B4482FC91A28D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563735   (503811) от 15.07.2022
 
 VA - Magic Of Trance Vol.22 (2022) [MP3|320 Kbps] <Trance>
@@ -617,87 +698,6 @@ Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A045E78249E996ECFD9B17E11E5EFF0846FCA0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561034   (508059) от 10.07.2022
-
-Fancy Inc & KVSH & Bhaskar - So Track Boa Festival Belo Horizonte, Brazil (2022) [MP3|320 Kbps] <Electro House, House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Back & Fancy Inc & Roland Clark - Alive
-02. Vintage Culture & Fancy Inc ft. Tristan Henry - Circles
-03. Biscits - Wait A Minute
-04. Piero Pirupa - We Don't Need w/Leftwing : Kody - Mallet(   Читать дальше...   )Жанр: Electro House, House, Tech HouseПродолжительность: 03:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3022B6AA37C4DE5960E934D133F62831FF7DA88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562532   (508072) от 10.07.2022
-
-MORTEN - 4U Sunset Festival, Brazil (2022-04-29) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. Justus & Achilles - Touch Me (MORTEN Edit)
-03. David Guetta & MORTEN - ID w/Calvin Harris & Disciples ft. Ina Wroldsen - How Deep Is Your Love (Acappella)
-04. David Guetta & MORTEN - Nothing(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B6990559EE444FDE6886060598D0C1BF9661C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932834   (508245) от 30.08.2015
-
-VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.SWIFT - Weekend Day (Bee Hunter Remix) (05:36)
-02. Wayward Brothers feat. Ange - Space (Markus Hakala Remix) (05:52)
-03. Jagin - October (Original Mix) (06:37)
-04. In5um - Window (Denis Neve Remix) (07:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921D9D42811714E4933CD449F3D1CCC1B70D2BA5
 ```
 
 

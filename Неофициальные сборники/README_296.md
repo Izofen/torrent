@@ -1,3 +1,30 @@
+###  Публикация: 1564925   (497637) от 21.07.2022
+
+VA - Italo Disco & Old Funky (2022) [MP3|320 Kbps] <Disco, Dance, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Italian Party - Summer Crazy
+002. Benedic Lamdin - Moving Up All The Time
+003. Candido - Jingo
+004. Disko Junkie - Dancin' Machine(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 12:19:49 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5D1F1E139C7B639A7EE3951CA8A8AA26961DF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936100   (497658) от 10.09.2015
 
 VA - Progressive Fresh House (2015) [MP3|320 кб/с]<Progressive, Club House>
@@ -713,30 +740,6 @@ Wychazel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF282E04BE84C9D6C549C477EFA0E30367DC6DD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935179   (499247) от 08.09.2015
-
-Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: new ageПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCC269F4E18F8FE634688D19FDA09CCE1F1DBA2
 ```
 
 

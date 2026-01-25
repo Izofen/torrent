@@ -1,3 +1,30 @@
+###  Публикация: 1095190   (924457) от 21.01.2017
+
+VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924457.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maddix & Jayden Jaxx - Voltage
+002. Tsaho - Love In Da House
+003. Finchman - Wake Up At Seven Two
+004. Naxwell - The Game (Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 08:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08433FB0FBA12C3794709E1F9E53891928B5ECA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095357   (924458) от 21.01.2017
 
 VA - Снежный хит-парад. 100 русских хитов. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Rock Blues: Gold Classic (2016) [MP3|320 кб/с] <Blues Rock, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C51C681BE3311F2219FED7638CEBF185BD830EE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987324   (925899) от 17.02.2016
-
-VA - I Put A Spell On You — Mesmerising Jazz (2014) [MP3|320 кб/с] <Jazz,Jazz Fusion,Smooth Jazz, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nina Simone - I Put a Spell on You (2:38)
-02. Ella Fitzgerald - Cry Me a River (4:15)
-03. Chet Baker, Kenny Burrell - You're Mine, You (feat. Kenny Burrell) (3:08)
-04. Stan Getz - Body and Soul (3:19)(   Читать дальше...   )Жанр: Jazz Fusion, Smooth Jazz, Vocal JazzПродолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A938E77FC5CD2A1C573A11DA744A19F4F472002
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1143219   (637078) от 17.06.2017
+
+VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
+002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
+003.  Wake Up Music Paradise - Night Walk  3:28
+004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293309   (637134) от 03.04.2019
 
 VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
@@ -699,33 +726,6 @@ VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907627   (638205) от 12.06.2015
-
-VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long J. - Metal Life [03:49]
-02. Long J. - African Night [05:11]
-03. Mangaroka - Roundrop [03:58]
-04. Marlon - Airy Dawn [04:59](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3063A0330F2C8A2F42A18CFD8863A809228C4DF
 ```
 
 

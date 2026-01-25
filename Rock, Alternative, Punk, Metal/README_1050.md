@@ -1,3 +1,57 @@
+###  Публикация: 1506486   (800253) от 31.10.2021
+
+Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defenders of Lorenia (12:00)
+02. Euterpe (05:31)
+03. Silent Sinners (06:19)
+04. Demon Hunter (06:38)(   Читать дальше...   )Жанр: Symphonic, Heavy Power MetalПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385128   (800283) от 23.05.2020
+
+ЛЯПИС 98 - Неизвестные песни Ляписов (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Девочка с бездонными глазами
+2. Саяны
+3. Любови капец
+4. Холодная мамба(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E237E256018DC3EABB2ECB6AD40B46F0700351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385130   (800332) от 23.05.2020
 
 7Б - Майская звезда (2020) Single [MP3|320 Kbps] <Rock>
@@ -635,60 +689,6 @@ magnet:?xt=urn:btih:0ED1993329F1F9EA2DD3322E4201A3F3CBE9EC2E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA246FD80D49EE65D89FAAD68EBB19E2D333DBC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888649   (800870) от 16.01.2018
-
-The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered, Stereo /2009, Apple, Parlophone/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sgt. Pepper’s Lonely Hearts Club Band (2:03)
-02. With a Little Help From My Friends (2:44)
-03. Lucy in the Sky With Diamonds (3:28)
-04. Getting Better (2:48)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F1D8CD3A9A74C4A1205668B1FE2B042351596B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506016   (800893) от 30.10.2021
-
-The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Garage-Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right on My Level
-02. Five Finger Disco
-03. Lying Again
-04. Pull the String(   Читать дальше...   )Жанр: Hard-Rock, Garage-Blues-RockПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B490132274FF0C947BE7216F2E50955F1F9078B
 ```
 
 

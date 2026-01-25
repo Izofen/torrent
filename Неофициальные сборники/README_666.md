@@ -1,3 +1,30 @@
+###  Публикация: 1463541   (1020055) от 20.04.2021
+
+VA - Best 80s Disco Hits 3 (2021) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Beat - Mr. Vain (5:41)
+02. Army Of Lovers - Crucified (3:34)
+03. Army Of Lovers - La Plage De Saint Tropez (3:33)
+04. Arabesque - Midnight Dancer (3:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F32EC03C3F6B6BB496CC1C8A0F1E8A8D28F0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463637   (1020284) от 19.04.2021
 
 VA - Three Shaman (2021) [MP3|320 Kbps] <Native American, World music>
@@ -668,33 +695,6 @@ VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC92FC50AD7E47E98F3AD711A9D8D73A02A3AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462545   (1021228) от 14.04.2021
-
-Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сами музыканты утверждают, что жанр, в котором они сочиняют и исполняют свои композиции, имеют в своей основе элемент народного творчества и состоит главным образом из латинских гармоний.01. Sin Fortuna (En Vivo)
-02. El Hp
-03. Saldrй Adelante (feat. Scooby Y Sus Aguachiles)
-04. Si No Te Hubieras Ido(   Читать дальше...   )Жанр: Latino, Folk PopПродолжительность: 04:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A136385C112B699E83F5D2B657DA40EA56EC49D
 ```
 
 

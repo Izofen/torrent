@@ -1,3 +1,84 @@
+###  Публикация: 1015092   (775077) от 10.05.2016
+
+VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro House, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serg - Drums (Club Edit) (feat. Mikel Romero) 5:34
+02. DJ Miller - Virgin's Back (Radio Version) 3:51
+03. DJ Crazy-I-Li - Want the Summer Back (Extended Mix) (feat. Theodora) 5:09
+04. Solidshark - Dirty Talk (Radio Edit) 3:04(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E2089C845AB0A556B7C486945D6AD7EF5896B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015069   (775081) от 10.05.2016
+
+VA - 3 Years 3rd Avenue (2016) [MP3|320 кб/с] <House, Progressve House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomas Gagliardo - Empress Quena (Original Mix) 7:33
+02. Alex Villanueva & David Salazar - Wannabe (Original Mix) 8:00
+03. OMB & Ogawa - Zipangu (Napalm & D-Phrag Remix) 7:04
+04. Marcelo Paladini - Cigarette Smoker (Matt Black Remix) 8:36(   Читать дальше...   )Жанр: House, Progressve House, Deep HouseПродолжительность: 04:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7AE1693EE6EB62FC24A2F2D4CF1A46042281DE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277857   (775085) от 22.01.2019
+
+VA - Sports Megamix 2019.1 (2019) [FLAC|Lossless|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775085.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Klaas - Get Down
+02. DeeJay A.N.D.Y. Feat. Pit Bailay - Only You 2K18 (Trash Gordon Remix Edit)
+03. Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 03:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302BD394B6B936D1BA1619BFD44F3DEE1E8CF030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277919   (775091) от 22.01.2019
 
 VA - Top 20 Music For Relax (2019) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -605,87 +686,6 @@ Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D44F80647E9112EB7865E56EA4A7F89D362AB541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212441   (776119) от 11.03.2018
-
-VA - Sotto Voce Vol.2 (Compiled by Seven24) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pensees  -  Callovs (Original Mix)  5:53
-02.  Sad Radio On Cassini  -  Going To The River (Original Mix)  3:33
-03.  Soty  -  Butterflies (Original Mix)  4:16
-04.  Diamans  -  Another Day (Original Mix)  3:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5656E6C8DFF98859CA15CAC36C9D526A624B200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212356   (776125) от 11.03.2018
-
-VA - Sensual Lounge Musique Vol.2 (Selected by Simon Le Grec) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Simon Le Grec  -  Forbidden Love 3 (Radio Mix)  4:25
-02.  Michael E  -  If It Takes Forever (Original Mix)  4:49
-03.  But & Memo  -  Black Betty (Alexander Metzger Chillout Mix)  6:31
-04.  Ingo Herrmann  -  Phase One (Original Mix)  2:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F268004EDF894D169043F97F0307EF5F05243E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212316   (776127) от 11.03.2018
-
-VA - The Ultimate Lounge Collection Vol.3 (2018) [MP3|320 Kbps] <Lounge, Electro, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sphere - Spring (original mix) 03:57
-2. Karen Gibson Roc - Slow Down (feat Merge Of Equals - original mix) 04:24
-3. Scarlet Blue - Cool Cool Girl (Sunday Morning mix) 04:17
-4. Jose Delgado - Sal Rossa (original mix) 05:33(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:19:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2DEDA82338D56D2634236B40DEA29B48D49701
 ```
 
 

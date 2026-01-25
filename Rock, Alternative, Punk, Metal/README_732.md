@@ -1,3 +1,57 @@
+###  Публикация: 1058672   (466441) от 02.10.2016
+
+AOR - L.A Connection (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Edge Of Glory
+02. The Pride Of Strangers
+03. Closer To Zero
+04. Once Off Guard(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EF4A56BE3B2C64DFBE5CBF12AD15ECADCF3A32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058475   (466444) от 02.10.2016
+
+Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture 1964
+02. Born in 64
+03. The King & The Prince
+04. The War(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9495EB4DCF9D5005D9BED122DB6C86074EF9AA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940649   (466539) от 25.09.2015
 
 VA - Rock Classics Top 100 (2007) 6CD [FLAC|image + .cue]<Rock>
@@ -644,60 +698,6 @@ White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5072A2893EF7254C8C4ED3B3B7C4A6F3272517A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567756   (468127) от 05.08.2022
-
-Stensland - Dark Valley Blues (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valley of Unrest (03:31)
-02. Shadows Fall (03:50)
-03. Silver Moon (03:34)
-04. Shelter (04:05)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F53DC79F3E227D6CA92C92B75CCF09350BA9887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567854   (468128) от 05.08.2022
-
-Nightmare - Live Hard, Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:32 instrumental
-02. The Sign 03:54
-03. Burning Red Hot 04:03
-04. Desert Haze 04:11(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25F606D8AEB55FB612B02298B7F02DE2CF949BB
 ```
 
 

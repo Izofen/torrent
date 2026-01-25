@@ -1,3 +1,58 @@
+###  Публикация: 1387015   (792638) от 31.05.2020
+
+Карл Хламкин - Хламкин, заткнись! (2003) [FLAC|Lossless|tracks + .cue]<Pop Rock, Ska, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лужники
+02. Лумумба
+03. Канава
+04. Гордый сокол(   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04F69D7F54556A4DD5E3BFD4FF1621C032BDA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386881   (792641) от 31.05.2020
+
+Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Traffic — британская рок-группа из Бирмингема, образованная в конце 1960-х Стивом Уинвудом после того, как он покинул группу The Spencer Davis Group.
+Особое звучание группы, новый подход к записи и совместное написание песен повлияли на прогрессивный рок конца 60-х - начала 70-х годов.01. You Can All Join_In (3:37)
+02. Pearly Queen (4:19)
+03. Dont Be Sad (3:22)
+04. Who Knows What_Tomorrow May_Bring (3:13)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F02EA09E058DB7CFBC3E2B99543247AA09A0400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386912   (792643) от 31.05.2020
 
 The United States Of America - The United States Of Americ (1968) Reissue, 2004, Sundazed Music [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
@@ -645,60 +700,6 @@ Sheryl Crow - Everyday Is A Winding Road: The Collection (2013) [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F34EC2AB4D73E882EC361ACD55F914F6DC391CD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274552   (793010) от 07.01.2019
-
-Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrows (04:48)
-02. All for Believing (Original Demo) (02:55)
-03. Scar (03:33)
-04. Ten Days (03:46)(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96E5F65FC2CEBC5B3C80373FB702E67F853B520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274462   (793050) от 07.01.2019
-
-The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftershow (ReWired) (02:46)
-02. Cavorting (ReWired) (03:11)
-03. Bide Your Time (ReWired) (03:53)
-04. What Took You So Long (ReWired) (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
 ```
 
 

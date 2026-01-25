@@ -1,3 +1,90 @@
+###  Публикация: 1318993   (488726) от 09.08.2019
+
+The Planets - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, New Wave, Pop Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488726.jpg" />
+</div>
+
+
+###  Подробнее
+
+New wave - группа, сформированная в 1979г., Ливерпуль, Мерсисайд, Великобритания01. Iron For The Iron (3:36)
+02. Mile High (3:53)
+03. A Minute Ago (3:56)
+04. Lines (3:57)(   Читать дальше...   )Жанр: Electronic, New Wave, Pop RockПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B9AB49722041F9EFA2657408693161A64EA966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319103   (488728) от 09.08.2019
+
+Sigur Rós (Sigur Ros) - Sigur Rós presents Liminal Sleep (2019) Krúnk [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep 1 (19:04)
+ 02. Sleep 2 (11:34)
+ 03. Sleep 3 (19:18)
+ 04. Sleep 4 (16:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA61FCA94FCC53309EFBEF3ED78084F998488BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544848   (489054) от 08.09.2012
+
+VA - Sax On the Beach (Groovy Jazzy Chillout and Lounge Music) (2012) [MP3|320 кб/с]<Jazz, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KoolSax - Beyond the Sunset
+02. Candee Soulchillaz - Lily Was Here
+03. JazzyJazz - The Divine Puppet (Cafe Jazzy Del Mar Mix)
+04. Solitary Man - Deep in It (Sea Life #1 Mix)
+05. Perelandra - Dancing With the Sun (Travelling Silvertones Mix)
+06. Guru Sax - People Can't Stop Chillin
+07. Sunny Side - Sunset At Venice Beach L.A. (California Cafe Bar Lounge Mix)
+08. KoolSax - Angel Echoes
+09. Cocktail Groovers - Missing the Train (Dinner Night Lounge Mix)
+10. Sax and the City Boys - Tiny Little Secrets (Soul 2 Sax Mix)(   Читать дальше...   )Жанр: Jazz, Chillout, LoungeПродолжительность: 01:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60B9C589080D8C91A47F36DA7CB064F7DA94185
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544442   (489147) от 08.09.2012
 
 Model Kaos - Ghost Market (2012) [FLAC|Lossless]<synth gothic>
@@ -620,87 +707,6 @@ VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA412EDB254B5282A350E4AB54833218694DE354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565642   (492435) от 24.07.2022
-
-Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doctor In My Room (Original Mix) (6:49)
- 02. The Freaks (Original Mix) (5:34)
- 03. Terrible Mine (Original Mix) (6:30)
- 04. New Сonstruction Options (Original Mix) (6:32)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DABCCBC3B20E9C75CA3BFFC19A6B36FEB4D0E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565591   (492461) от 24.07.2022
-
-Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave, Post-Punk>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kelp (04:21)
-02. Low Life (03:44)
-03. Turbulence (03:48)
-04. Tranquility (02:58)(   Читать дальше...   )Жанр: French Coldwave, New Wave, Post-PunkПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E661EB34AF98A45446E315A9D6BF2709AD4DDCB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318257   (492833) от 07.08.2019
-
-Mexico City Blondes - Blush (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492833.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Out to Dry (03:56)
-2. Addio (04:03)
-3. Road Noise (04:25)
-4. Thick as Thieves (03:07)(   Читать дальше...   )Жанр: Indie Pop, Trip-Hop, DowntempoПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE3FB3E5E56B55430DD015EFAF7CCE2B134CD24
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1095878   (922869) от 22.01.2017
+
+Addaura - 1 demo, 1 album, 1 EP (2010-2015) [MP3|207-268 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amid The Tumult And Clamor (I Look For The Light Through The Pouring Rain)
+02. Chambering Things Lost
+03. The Sun Shines Today Also (On The Oaks Of That Bird Hill)Жанр: Atmospheric Black MetalПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8C3F70A4407DECB94B63B8DFD99E0CE414B6FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095761   (922873) от 22.01.2017
+
+Black Harvest - White Light Came Down (2005) [FLAC|Lossless|image + .cue] <Black Metal, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die, Lavinia (07:20)
+02. Let Us Go (04:32)
+03. Tamora (06:39)
+04. Remnant (06:44)(   Читать дальше...   )Жанр: Black Metal, Doom, Death MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B067A35FAB4AD50C1684AE6392572441072ACBD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988073   (922895) от 19.02.2016
 
 Skirmish - Through the Abacinated Eyes (2011) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
@@ -646,58 +699,6 @@ magnet:?xt=urn:btih:919434E95D82AA69D25AF7F0D087D22F19F32B17
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F4958F9BAEA1F89ECACB60D1BF94B223EF47E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095360   (924188) от 21.01.2017
-
-Mike Oldfield - Return To Ommadawn (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive, Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To Ommadawn, Pt. I (21:11)
-02. Return To Ommadawn, Pt. II (20:58)Жанр: Rock, Progressive, Art-Rock, Folk Rock, Celtic, New Age, AmbientПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A494D70B800E3DD091417533FC70ACC34B6A4CD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987529   (924228) от 18.02.2016
-
-Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год - альбом "Русские"
-1991 год - альбом "Шаг навстречу"
-1996 год - альбом "Очарована, околдована"
-2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
 ```
 
 

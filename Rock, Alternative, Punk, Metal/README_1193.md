@@ -1,3 +1,63 @@
+###  Публикация: 608748   (992818) от 26.01.2013
+
+Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	 Unbreakable	(04:37)
+02.	 Falling Star	(04:31)
+03.	 The Game Never Ends	(03:48)
+04.	 Freedom	(05:03)(   Читать дальше...   )Жанр: Melodic Power Metal |Продолжительность: 00:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9D8E25B195D267A1E03E5F2C08837792B5541E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608929   (992824) от 26.01.2013
+
+Hatebreed - The Divinity Of Purpose (2013) Scene [MP3|276-296 кб/с]<Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put it to the Torch (2:12)
+02. Honor Never Dies (3:12)
+03. Own Your World (3:39)
+04. The Language (3:14)
+05. Before the Fight Ends You (3:17)
+06. Indivisible (2:56)
+07. Dead Man Breathing (3:19)
+08. The Devinity of Purpose (3:39)
+09. Nothing Scars Me (3:08)
+10. Bitter Truth (2:40)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD1ABE4488A1A8778DD22D55477C22D8B634769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608247   (992936) от 26.01.2013
 
 nuERA - Dialysis (2012) [FLAC|Lossless]<Nu Metal | Rapcore>
@@ -732,72 +792,6 @@ Clockwork Times & Middlename - Sport (2013) [MP3|320 кб/с]<Ska Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C6BE4DB399322BD5EC183ACF7B1C849EBF34732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607240   (994491) от 23.01.2013
-
-Geordie - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 101. House Of The Rising Sun 05:00
-02. Geordie Stomp 02:42
-03. Light In My Window 02:59
-04. Treat Her Like A Lady 03:37
-05. Ten Feet Tall 06:43
-06. So You Lose Again 03:31
-07. Give You 'till Monday 04:00
-08. Ride On Baby 02:37
-09. Ain't It A Shame 03:48
-10. Electric Lady 02:57(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20B2960BE5B8DE1BE17E072C8DD271ADB3876B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607195   (994539) от 23.01.2013
-
-Razorlight - Razorlight (2006) [MP3|320 кб/с]<Инди-рок>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994539.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  In The Morning (3:42)
-2.  Who Needs Love? (3:32)
-3.  Back To The Start (3:12)
-4.  Hold On (3:26)
-5.  In The Morning (3:42)
-6.  Before I Fall To Pieces (3:22)
-7.  Kirby's House (2:51)
-8.  America (4:10)
-9.  Los Angeles Waltz (4:39)
-10. Pop Song 2006 (2:41)Жанр: Инди-рокПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C90054432BE66944C24A7015B68905483DCAB8
 ```
 
 

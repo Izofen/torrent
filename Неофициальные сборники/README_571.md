@@ -1,3 +1,30 @@
+###  Публикация: 1497908   (859649) от 25.09.2021
+
+VA - Music News vol.134 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beliy - Поцелуи (02:08)
+ 002. Adventure Club - Here (03:14)
+ 003. Alan Walker feat. K-391 & Boy In Space - Paradise (03:05)
+ 004. Alex Velea - Balerina (03:10)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFBD801A4186CF2E9D48E6FFE6C1EE9EC0E3F7C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497897   (859651) от 25.09.2021
 
 VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, Tech House>
@@ -668,33 +695,6 @@ Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999631   (862670) от 23.03.2016
-
-VA - 200 Tracks for Running & Jogging (2016) [MP3|320 кб/с] <Fitness & Workout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862670.jpg" />
-</div>
-
-
-###  Подробнее
-
-0001.  Discojack  Lucas Reyes - Hold My Hand
-0002.  Phil Fuldner - Tuesday Pm (Peter Kharma Remix) (Feat Desmond)
-0003.  Luna Moor  Diaz - Hey People Look Me (Absolut Groovers Remix)
-0004.  American Groove Junkies - Reach You (Radio Version)(   Читать дальше...   )Жанр: Fitness & WorkoutПродолжительность: 19:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06834EC5689827999777581C653BE426BA3B0B62
 ```
 
 

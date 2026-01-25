@@ -1,3 +1,57 @@
+###  Публикация: 1404009   (684528) от 23.08.2020
+
+Ages - Uncrown (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Them (04:50)
+02. Illicit State (04:35)
+03. Herolds Of Enslavement (04:56)
+04. A Hollow Tomb (04:58)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C1C549C69DA722CB4CDB407F4A7F51DFFAA147
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404171   (684529) от 23.08.2020
+
+Saurom Lamderth - Legado de juglares (2004) 2CD [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canto das Sireas (2005 Version) (04:39)
+02. El Arquero del Rey (2005 Version) (04:02)
+03. La Taberna (Single Version) (04:04)
+04. Las Minas de Moria (Cyborgdrive Version) (06:03)(   Читать дальше...   )Жанр: Power Metal, Folk Metal, Heavy MetalПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4C7EDEFFCA92B3A839B3FB58863F44746728B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404152   (684530) от 23.08.2020
 
 Taraxacum - Rainmaker (2003) [APE|Lossless|image + .cue] <Power Metal>
@@ -637,60 +691,6 @@ Chris Norman - 25 Best Songs (2012) [MP3|211 - 271 кб/с]<Pop-Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECCBABE168D7E2AA7EF58F3FFDC56B0A3D5D494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289418   (686346) от 16.03.2019
-
-Beast in Black - From Hell with Love (2019) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Out for a Hero
-02. From Hell with Love
-03. Sweet True Lies
-04. Repentless(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650FBA1A0DFC72C22AA3FAC340FB8BAD0FE78D60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332427   (686352) от 16.03.2019
-
-Malsain - The Disease (2007) [MP3|320 kbps]<Horror Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Old Asylum (4:43)
- 02. Cement Forest (4:12)
- 03. The Disease (5:52)
- 04. Memories from the Past (3:05)(   Читать дальше...   )Жанр: Horror Black MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BDC78D61289C43EF53857425556FFAF1B712C4
 ```
 
 

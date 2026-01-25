@@ -1,3 +1,84 @@
+###  Публикация: 980138   (957156) от 28.01.2016
+
+Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Experimental, Abstract Hip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Editors (feat. Roots Manuva) (04:46)
+02. Ritual Spirit (feat. Azekel) (03:55)
+03. Voodoo In My Blood (feat. Young Fathers) (04:01)
+04. Take It There (feat. 3D/Tricky) (04:31)Жанр: Trip Hop, Experimental, Abstract Hip HopПродолжительность: 00:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856457   (957814) от 05.01.2015
+
+likeicare - Discography 8 Releases (2010-2014) [FLAC|Lossless|WEB-DL]<IDM, Dark Ambient, Glitch, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Static Falls (04:32)
+ 02. Dodgson (03:38)
+ 03. Cativo (04:20)
+ 04. C17H21NO4 (04:42)Жанр: IDM, Dark Ambient, Glitch, Experimental, Ambient |Продолжительность: 00:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AB491B0311F36685991A12246F26864F057A93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361020   (958123) от 17.02.2020
+
+Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Beginning (4:40)
+02. Catch My Fall (4:39)
+03. Devil in Heaven (3:43)
+04. I Don't Want to Lie Anymore (5:33)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBM |Продолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344543   (959253) от 16.02.2020
 
 Azaleh - Discography 31 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient, UK Garage, Downtempo>
@@ -611,87 +692,6 @@ DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606AC6F4FBBDB264309850F31EAD9B285E2BEC6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359427   (963270) от 13.02.2020
-
-VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance, Progressive, Deep House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pavliga - Reptile (Original Mix) (6:25)
-02. Neshproject - MTR (Gallen & Prozac 303 Remix) (5:19)
-03. Sergio Fernandez - Space Salt (Ismael Rivas Remix) (6:23)
-04. Pablo Briales & Ruben Cano - Monfrague (Original Mix) (4:37)(   Читать дальше...   )Жанр: Trance, Progressive, Deep HouseПродолжительность: 01:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33385B07745114DB4DC35087B7D5FDE106595E1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359417   (963276) от 13.02.2020
-
-VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
-02. Random Factor - Dreamstate (5:34)
-03. Ciudad Feliz - How (3:31)
-04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359426   (963277) от 13.02.2020
-
-VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (5:58)
-02. Untitled (5:24)
-03. Untitled (4:16)
-04. Untitled (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
 ```
 
 

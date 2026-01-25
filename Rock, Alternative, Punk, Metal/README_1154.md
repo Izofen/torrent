@@ -1,3 +1,55 @@
+###  Публикация: 1095360   (924188) от 21.01.2017
+
+Mike Oldfield - Return To Ommadawn (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive, Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To Ommadawn, Pt. I (21:11)
+02. Return To Ommadawn, Pt. II (20:58)Жанр: Rock, Progressive, Art-Rock, Folk Rock, Celtic, New Age, AmbientПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A494D70B800E3DD091417533FC70ACC34B6A4CD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987529   (924228) от 18.02.2016
+
+Группа "Санкт-Петербург" - 4 альбома (1989-2003) [MP3|192-224 кб/с] <Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год - альбом "Русские"
+1991 год - альбом "Шаг навстречу"
+1996 год - альбом "Очарована, околдована"
+2003 год - альбом "Неизданное" (2CD)Жанр: Rock, BalladПродолжительность: 04:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E1AB013FBD866257979CA45B25CFAE0063237D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987998   (924232) от 18.02.2016
 
 Delain - Lunar Prelude (2016) [MP3|320 кб/с] <Symphonic Metal, Melodic Metal>
@@ -640,60 +692,6 @@ Newman - 14 альбомов 15CD (1997-2017) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD13791B42FAC124C630AF782B9104337F103E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366232   (925730) от 10.03.2020
-
-Сергей Маврин - Запрещённая Реальность (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пока Боги Спят (7:06)
-02. Дьявольский Вальс (8:15)
-03. Падший (6:24)
-04. Дорога В Рай (4:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D3A93E1180719181EB31CC6D8DB442DBDAA86E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366160   (925748) от 10.03.2020
-
-Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Away [4:03]
- 02. The First Time [4:22]
- 03. Master of Illusions [4:28]
- 04. The Sun Goes Down [4:34](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31EB4D0C17C73555A4E3FCB1BB7EA5A4A8FE909D
 ```
 
 

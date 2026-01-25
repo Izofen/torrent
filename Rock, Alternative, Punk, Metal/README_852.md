@@ -1,3 +1,56 @@
+###  Публикация: 525759   (595447) от 25.07.2012
+
+George Harrison - Best Of Dark Horse 1976-1989 (1989) Japan 22P2-3071 [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595447.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1974 году, находясь в Лос-Анджелесе и готовясь к своему концертному туру, Джорж Харрисон открыл офис своей новой компании звукозаписи Dark Horse Records в здании, принадлежавшем лейблу A&M Records, на La Brea Avenue.
+На представляемом диске собраны лучшие песни, записанные на Dark Horse Records в разные годы.
+В сборнике включены композиции с дисков Харрисона: (   Читать дальше...   )1. Poor Little Girl (4:34)
+2. Blow Away (3:59)
+3. That's The Way It Goes (3:34)
+4. Cockamamie Business (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525800   (595462) от 25.07.2012
+
+George Harrison - The Best Of George Harrison (1976) /EMI C2 46682/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039514   (595537) от 01.08.2016
 
 Deftones - Gore (2016) [FLAC|Lossless|image + .cue] <Alternative>
@@ -679,62 +732,6 @@ Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1510383333E99F144ACE36F24965D40D9248A340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526440   (597438) от 24.07.2012
-
-Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Skymind (9:53)
-2. Yellow Garden (7:38)
-3. Blind Child (6:10)
-4. The Purple Queen's Lips (9:48)
-5. The Egg Shapped Moon (9:07)
-6. Stratus (13:24)Жанр: Art Rock/Progressive RockПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B536A5AC750E4FEC7CD57FACB012C5E9AD32A8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039260   (597624) от 31.07.2016
-
-Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole Lotta Love (5:31)
-02. What Is and What Should Never Be (4:51)
-03. The Lemon Song (6:24)
-04. Thank You (5:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 0:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6837C619F5B0C9D55AE5DB7EA89A7B781EF7F1
 ```
 
 

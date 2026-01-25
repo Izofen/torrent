@@ -1,3 +1,57 @@
+###  Публикация: 1355382   (983620) от 26.01.2020
+
+Julian Cope - John Balance Enters Valhalla (2019) [FLAC|Lossless|tracks + .cue] <Krautrock, Alternative Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandoz
+02. Positive Drug Test
+03. John Balance Enters Valhalla
+04. John Valour(   Читать дальше...   )Жанр: Krautrock, Alternative Rock, ExperimentalПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3EB2E544CC1E226140197E16DE30B0134B0DE49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355473   (983623) от 26.01.2020
+
+Konvent - Puritan Masochism (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Puritan Masochism
+02. The Eye
+03. Trust
+04. World of Gone(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000BEDD9631FCB900382AA0A9967499C7AA92344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355440   (983627) от 26.01.2020
 
 Wastelands - Until the End of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -666,60 +720,6 @@ Sister Sin / Liv Sin - 7 albums, 8CD (2003-2019) Discography [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479693F3181DAB5C8B3A0AA0CA6FA5C7DE0AA0FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354885   (985954) от 24.01.2020
-
-Би-2 - Горизонт событий с оркестром (2020) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985954.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лётчик
-2. Чёрное солнце
-3. Детство
-4. Виски(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE6D2CC82323D8774CEF210F9F163FC294EB9FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354893   (985956) от 24.01.2020
-
-Би-2 - Горизонт собыйтий с оркестром (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985956.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лётчик
-2. Чёрное солнце
-3. Детство
-4. Виски(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8095F4FC0B8E695DC1CEDF54C55DFB3F74D86FCF
 ```
 
 

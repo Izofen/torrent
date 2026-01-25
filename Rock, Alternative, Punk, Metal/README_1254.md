@@ -1,3 +1,57 @@
+###  Публикация: 1451538   (1028229) от 03.03.2021
+
+Ртуть79 - 2 Albums (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотыльки [00:02:54]
+02. Пассажир [00:03:36]
+03. Последний герой [00:04:00]
+04. Ртуть [00:03:45](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455B6D2D8CC66E0869F13D3DCC8E3DA238674BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451779   (1028232) от 03.03.2021
+
+Long Distance Calling - How Do We Want To Live? (2020) [FLAC|Lossless|tracks + .cue] <Post-Rock, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curiosity, Pt. 1 (2:56)
+02. Curiosity, Pt. 2 (4:26)
+03. Hazard (6:09)
+04. Voices (7:54)(   Читать дальше...   )Жанр: Post-Rock, Math RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A3E17CA21C78BEF5B322AD8683F368FEDB55C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451718   (1028237) от 03.03.2021
 
 Slayer - Christ Illusion (2006) Reissue, 2007,  American Recordings [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:1A66C0997B34B81E8DC202763D6E3434D0730E42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE710DB4E136787D022E653D06379F6A9E017DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451332   (1028531) от 01.03.2021
-
-Freddie Mercury - Living on My Own (1993) CDS, Maxi-Single [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living on My Own (No More Brothers Radio Mix) (03:41)
-02. Living on My Own (No More Brothers Extended Mix) (05:17)
-03. Living on My Own (Club Mix) (04:28)
-04. Living on My Own (Julian Raymond Mix) (03:38)Жанр: Pop, Rock, ElectronicПродолжительность: 00:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDDC5C58F500595275CB765EA92D63C3D3C7DBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451301   (1028535) от 01.03.2021
-
-Earthshine - My Bones Shall Rest Upon The Mountain (2021) [MP3|320 Kbps] <Atmospheric Doom Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquer Thy Mountain (07:05)
- 02. Shadows on the Wall (06:08)
- 03. A Warm Place with No Memory (06:30)
- 04. Bleed With Me (08:32)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Post-MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FE315ACC7DD305571CFB1CE235477465443F6D
 ```
 
 

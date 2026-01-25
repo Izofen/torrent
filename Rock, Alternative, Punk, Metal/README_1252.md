@@ -1,3 +1,57 @@
+###  Публикация: 1452862   (1027399) от 08.03.2021
+
+Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Expedition To The Barrier Peaks [00:04:22]
+02. The Labyrinth Of Evermore [00:01:40]
+03. We're The Vegepygmies [00:03:36]
+04. Robot Police [00:04:09](   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452880   (1027408) от 08.03.2021
+
+Empire - Empire (1994) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's There?
+02. Shadowking
+03. Above And Below
+04. I Want It Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D798282AFB9548423CC54E5F726E66009ED6C719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452982   (1027412) от 08.03.2021
 
 Днепровский Берег - Случай (2021) [MP3|320 Kbps] <Alternative, Rock>
@@ -641,60 +695,6 @@ Guardian - Miracle Mile (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638DB731CCB9172B5F431DB5DFCA8D713A6AE898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452127   (1027775) от 06.03.2021
-
-White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait (Extended Remix) (06:28)
-02. Tell Me (04:31)
-03. Broken Heart (Live) (03:53)
-04. Wait (Live) (04:00)Жанр: Hard RockПродолжительность: 00:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147B49FAD49806405DD4966E55E1BC48DFDF99BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452144   (1027778) от 06.03.2021
-
-Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludo Mentis
-02. Metropolitan
-03. Syncopia
-04. Sweynssons Slumber(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, InstrumentalПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DAC4F953E6EDA00F79CEDB7EAD5648D79EE290
 ```
 
 

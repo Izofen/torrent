@@ -1,3 +1,36 @@
+###  Публикация: 533484   (532745) от 10.08.2012
+
+VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bruce Springsteen - Straight Time (3:26)
+ 2. Bob Dylan - You're a Big Girl Now (4:22)
+ 3. James Taylor - Walking Man (4:08)
+ 4. Simon & Garfunkel - The Boxer (5:08)
+ 5. John Mayer - Your Body is a Wonderland (4:08)
+ 6. Lou Reed - Walk on the Wild Side (4:12)
+ 7. Shawn Colvin - Sunny Came Home (4:24)
+ 8. Jakob Dylan - All Day and All Night (3:28)
+ 9. Jeff Buckley - Lover, You Should've Come Over (6:43)
+ 10. Tim Hardin - Simple Song of Freedom (3:52)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051585   (532797) от 11.09.2016
 
 VA - 100 Workout Energy Hits Stars (2016) [MP3|209~320 Kbps] <House, Future House, Bigroom, Reggaeton, Progressive, Club>
@@ -680,33 +713,6 @@ VA - Танцевальная хитовая дискотека. Зарубеж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050915   (534655) от 10.09.2016
-
-VA - Звездный Хит - Парад. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мерседес - На Крыльях Любви
-002. Слот - Круги На Воде
-003. Блокбастер - Девушка-Печаль
-004. Потап & Настя - Вадимка Зачем Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
 ```
 
 

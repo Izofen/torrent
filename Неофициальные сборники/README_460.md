@@ -1,3 +1,30 @@
+###  Публикация: 1217931   (725104) от 08.04.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 06.04.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-BooL feat. Giang Pham - DJ Is Your Second Name
+02. Jax Jones - Breathe (Ina Wroldsen)
+03. Zayn Malik feat. Sia - Dusk Till Dawn
+04. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468865476F25392B57341B9060E07116176DAF25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399783   (725155) от 02.08.2020
 
 VA - The Official UK Top 40 Singles Chart 31.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -670,33 +697,6 @@ VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284827   (726545) от 23.02.2019
-
-VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isabelle - Lemon Juice
-002. Metodi Hristov - Sci-Fi
-003. Indian Kasta - Country Tour
-004. Eduard Guchetl - Return Last Night(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDD25DDD15AB47D277D319E186127348E3D7B4D
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1215770   (756616) от 27.03.2018
+
+Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mineral Minds (feat. TVS) (05:46)
+02. Mechanic Fly (08:40)
+03. Atlàntida Dos (08:39)
+04. F.U. (07:52)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB57E1E6DC3B6E8CFFB2B351874ED8D004EE463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522803   (756641) от 08.01.2022
+
+VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska – Next Time Soon (06:03)
+02. Dellasollounge – Come With Me (original mix) (03:18)
+03. Marga Sol – Butterflies (original mix) (06:50)
+04. Steen Thottrup – Balearic Bliss (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B113582A55EB69714452668E94F7EB8CCACB2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215797   (756735) от 27.03.2018
+
+Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <House, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Doves (3:40)
+ 02. Changes (3:34)
+ 03. Electric Love (2:40)
+ 04. Emma (3:49)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215808   (756736) от 27.03.2018
 
 VA - Recoverworld Radio 018 (Mixed by Para X)(2018) [MP3|320 Kbps] <Trance>
@@ -614,87 +695,6 @@ VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:527A98B681BD910C56788CFF5FFE7BD334B16CF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215453   (758220) от 26.03.2018
-
-Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phase One (06:07)
- 02. Deep Space Odyssey (06:09)
- 03. Interplanetary Dust (06:46)
- 04. Magnetic Star (06:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37D8F178564F50F51CE49F1D08052B598093A2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215577   (758222) от 26.03.2018
-
-VA - Silent Shore Miami (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enzo - Uplift (Original Mix)
-02. AirLab7 & Allen Belg - Kyla (Original Mix)
-03. Norland - Forgotten Worlds (Original Mix)
-04. Peter Santos - Above The Clouds (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03094EDC3E64F635718833689A1FA361CEB1984D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215572   (758228) от 26.03.2018
-
-S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, House, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perucica (7:29)
-02. Sunday Morning (10:34)
-03. Don't Confuse A Smile With Weakness (3:01)
-04. How Far From The Sun Are We Talking (1:42)(   Читать дальше...   )Жанр: Dub Techno, Ambient, House, ExperimentalПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
 ```
 
 

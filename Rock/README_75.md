@@ -1,3 +1,57 @@
+###  Публикация: 1394483   (763743) от 05.07.2020
+
+Republica - Republica (2020) 3 x CD [MP3|320 Kbps] <Alt.Rock, Techno>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763743.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 :
+ 01. Ready To Go (05:01)
+ 02. Bloke (04:51)
+ 03. Bitch (05:16)(   Читать дальше...   )Жанр: Alt.Rock, TechnoПродолжительность: 03:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29F7A5100F44BF3E21A8303C6284A69E9818BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394418   (763747) от 05.07.2020
+
+Cevilain - On Death & Dying (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It Ends (03:54)
+ 02. Crisis (04:00)
+ 03. (Penance) (01:20)
+ 04. Take Shelter (03:49)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6402C3BED5C9D47DE067F7C56ED3E23D4365DDA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394410   (763755) от 05.07.2020
 
 The Wolfhounds - Electric Music (2020) [MP3|320 Kbps] <Indie Rock>
@@ -641,60 +695,6 @@ Bob Dylan - Rough & Rowdy Ways (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C7CEB015780A55A67C3EF4FB6E3B48B24B8AF4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016129   (771150) от 13.05.2016
-
-Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenning's Farm Blues (Studio Session 1969)
-02. Poor Tom (Outtake From Led Zeppelin IV 1971)
-03. Walter's Walk (Previously Unreleased Session Take 1972)
-04. Trampled Underfoot (Alternate Work-in Progress Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310A0FC1FD8F1E20E4810BDA4394196B969BC7FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016283   (771612) от 13.05.2016
-
-Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedelic Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss That Wealth Goodbye
-02. Bend With The Wind
-03. Place Your Bets
-04. Desperado(   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Pop, Indie RockПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8868B318828AAFC7AA98302B98AE27E8EDF9525F
 ```
 
 

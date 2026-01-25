@@ -1,3 +1,30 @@
+###  Публикация: 1370152   (898367) от 26.03.2020
+
+VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Cocaine
+002. Slim Butler - Coconut Monster
+003. Richard Thompson - Parchman Farm
+004. Keb' Mo' - When The Children Sing(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370151   (898451) от 26.03.2020
 
 VA - Hear My Soul: Deep House Fashion Mix (2020) [MP3|320 Kbps] <Deep House>
@@ -680,33 +707,6 @@ VA - Хит парад русских Ди Джеев (2013) [MP3|224 кб/с]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10F7C6DB7383AA1035C96E9F304319C045BC06AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369889   (900425) от 25.03.2020
-
-VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madison Mcferrin - No Room
-02. Cupid - Whats Your Flava
-03. Otis Mcdonald - Had Enough
-04. Emotional Oranges - Iconic(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 04:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC45238A6F7073308F794BFC286211A471A91E9B
 ```
 
 

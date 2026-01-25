@@ -1,3 +1,57 @@
+###  Публикация: 903967   (656568) от 01.06.2015
+
+Judas Priest - Screaming For Vengence & Turbo (1982, 1986) [FLAC|tracks + .cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screaming For Vengence 1982
+01. The Helion
+02. Electric Eye
+03. Riding On The Wind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6156A40EE1206F8B9B094A62DC400FD93A8C1A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140075   (656587) от 05.06.2017
+
+U2 - The Joshua Tree (30th Anniversary Edition) (2017) 4CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminous Times (Hold On To Love) (Remastered 2007) (4:35)
+02. Walk To The Water (Remastered 2007) (4:49)
+03. Spanish Eyes (Remastered 2007) (3:16)
+04. Deep In The Heart (Remastered 2007) (4:31)(   Читать дальше...   )Жанр: Rock, Pop-Rock |Продолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8000BB33E0836983B7E285C6008D332CE51941
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226220   (656645) от 19.05.2018
 
 Красная Плесень - Демотиваторы (2018) [MP3|320 Kbps] <Punk, Punk Rock>
@@ -638,60 +692,6 @@ Electric Desert - Electric Desert (2014) 2 CD [FLAC|tracks+.cue]<Progressive Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4419697EDCFF84CC1AD281A3F86ACA24E5C4B36A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904038   (656890) от 01.06.2015
-
-Back Street Crawler - 2nd Street (1976) Remastered /2004, Wounded Bird Records/ [FLAC|image+.cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selfish Lover (John "Rabbit" Bundrick) 03:29
-02. Blue Soul (Terry Wilson) 03:48
-03. Stop Doing What You're Doing (Back Street Crawler) 03:29
-04. Raging River (Terry Wilson) 03:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829B0A78BF9BA66E786139810DE5153A0C68AFB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140173   (656922) от 05.06.2017
-
-Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records [MP3|320 Kbps] <Rock, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ghost Story
-2. Remember The Good Times
-3. Arabella (Oh Tell Me)
-4. Silas & Jerome(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
 ```
 
 

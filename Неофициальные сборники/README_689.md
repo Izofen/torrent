@@ -1,3 +1,30 @@
+###  Публикация: 1840791   (1047588) от 07.12.2025
+
+VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Piano House, Garage House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Игнат Кармалито feat. Тина Кузнецова - Твоё тело так загорело
+02-D'Influence - Rock With You (Mousse T Classic Club Mix)
+03-Andricka Hall - Stay Inside My Life (Jamie Lewis Vocal Mix)
+04-Jay-J Feat. Latrice Barnett - Keep on Rising (Copyright Classic Mix)(   Читать дальше...   )Жанр: Club House, Piano House, Garage House, Nu DiscoПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02253DBE2E522CBA885C0F17FCD832B8D1EC09BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840975   (1047659) от 08.12.2025
 
 VA - Christmas Blues for the Evening (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
@@ -668,33 +695,6 @@ VA - National Pop Dance Music Vol.127 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDF6DAF62E6ACF15F0C2BCBB5D8A2BAF5EDE2A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842749   (1048891) от 16.12.2025
-
-Anna Zueva - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Гитара
-02 - Верю. Надеюсь. Люблю   Музыка Для Души
-03 - Самая Красивая Музыка На 2026 Год Лошади
-04 - Echoes of the Steppe(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEB814B0E9013D7FFA6E96C96C9120229BC9C2B
 ```
 
 

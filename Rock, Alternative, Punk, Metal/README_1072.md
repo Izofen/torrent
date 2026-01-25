@@ -1,3 +1,57 @@
+###  Публикация: 1382006   (822782) от 09.05.2020
+
+Deadlock - Wolves (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Domination [00:47]
+02. We Shall All Bleed [06:04]
+03. Code Of Honor [04:27]
+04. Losers' Ballet [06:39](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51716E4D8DEB65E0EA39C2A7938254D5DB9D27B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382022   (822783) от 09.05.2020
+
+Diecast - Internal Revolution (2007) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Revolution
+02. Never Forget
+03. Hourglass
+04. Fractured(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D987BD414B1587DD84CF9138EEA16711FB08C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116794   (822893) от 20.03.2017
 
 Joker - Joker (1990) [MP3|320 Kbps] <Hard Rock>
@@ -642,60 +696,6 @@ magnet:?xt=urn:btih:BFC883015747BBFF5250DED01CA7D0EB193AEFC1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E98E67773672BC48DC660138EE4A601C68835296
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381785   (824597) от 08.05.2020
-
-In Extremo - Kompass zur Sonne (2020) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824597.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Troja
-2. Kompass zur Sonne
-3. Lügenpack
-4. Gogiya(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA6665CD5E46E693D8FADFFA5B5FA52F74C693C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596437   (824602) от 08.05.2020
-
-Capitollium - Engraved Fear (2005) [FLAC|Lossless]<Sympho Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:18]
-02. Within a Cathedral [04:45]
-03. I Am the Night [04:36]
-04. The Rules of Pain [04:14](   Читать дальше...   )Жанр: Sympho Black MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB3D3E677380194F620E5F65BE8E28E5954913B
 ```
 
 

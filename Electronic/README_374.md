@@ -1,3 +1,84 @@
+###  Публикация: 1282422   (745407) от 12.02.2019
+
+Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of The Highway (05:55)
+ 02. Sonar Conversation (08:15)
+ 03. Robotic Arm Wrestle (07:32)
+ 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396710   (745432) от 16.07.2020
+
+VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745432.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. FlyAway - The Virus (6:08)
+2. Sabedoria; Creepy Deep; Cosmic Sound; SIL - Pachamama (8:07)
+3. Zeg; CiriZen - Hustle (7:40)
+4. Hasten; Cymatic Effects - Mind Effects (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0C429D8ECFE1D12FA70B36648FFAD5DC0897CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020655   (745463) от 26.05.2016
+
+VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kai Tracid - Tracid Theme (Album Version) (1:11)
+02. Kai Tracid - Your Own Reality (Energy Mix) (6:43)
+03. Tiësto - Adagio For Strings (7:33)
+04. Kai Tracid - Tiefenrausch (The Deep Blue) (NRG Mix) (6:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396772   (745495) от 16.07.2020
 
 VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Progressive Trance, Downtempo, Ambient>
@@ -602,87 +683,6 @@ Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA623638097EA44E8199A14830914027F354333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281910   (748151) от 10.02.2019
-
-VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fred V - Burning Me (Original Mix) [03:23]
-02. Degs - Poveglia (feat. DeTune) (Whiney Remix) [04:08]
-03. London Elektricity - Funkopolis (Original Mix) [05:21]
-04. S.P.Y - Dusty Fingers (feat. Diane Charlemagne) (Metrix Remix) [04:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019395   (748203) от 24.05.2016
-
-Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brightlight - What are you looking for
-02. Dr Hoffman - My problem child
-03. Ganesha - Waiting for the sun
-04. Ganesha - Space love(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16094997A19080FD8E5818A6622C8594D3503972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281974   (748292) от 10.02.2019
-
-Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock, Neo-Classic, Deathrock>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748292.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Side A
-2. Kinder Des Teufels
-3. Spell Bound
-4. The Boy Must Die(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Neo-Classic, DeathrockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
 ```
 
 

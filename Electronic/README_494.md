@@ -1,3 +1,81 @@
+###  Публикация: 1125104   (1001359) от 13.08.2021
+
+Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
+ 02. Bing And Ruth - The How Of It Sped (05:48)
+ 03. Nils Frahm - For (Max Cooper Remix) (07:06)
+ 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046940   (1001396) от 13.08.2021
+
+Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Experimental, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YYY (03:24)
+ 02. 488BPM (03:24)
+ 03. BND ROSE (03:22)
+ 04. ASCII SNAKE (05:11)Тип издания: CD, WebЖанр: IDM, Ambient, Industrial, Techno, Experimental, Glitch •Продолжительность: 08:10:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CFF51247CAC0785E03D98B3C2721279A5FCCC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1321632   (1001399) от 13.08.2021
+
+Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humantime (04:14)Тип издания: WEBЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:03:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A7702CA2FC944189B1E3FBF3617F552D09EF108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013364   (1001406) от 13.08.2021
 
 Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia84 [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno, Ambient, Glitch, Experimental>
@@ -610,87 +688,6 @@ Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71BF00E2889DA30FD37DEBFEECC2B2AD2E4E969E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350985   (1002757) от 08.01.2020
-
-Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at The O2, London (2019-12-14) [MP3|320 Kbps] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intro: Rob Dougan – Clubbed to Death
-01. Fatboy Slim - Right Here Right Now
-02. Armand Van Helden feat. Duane Harden- You Don't Know Me
-03. The Bucketheads - The Bomb!(   Читать дальше...   )Жанр: HouseПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA98F49946374176AA615CF94B46EE5CD332EE93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351059   (1002761) от 08.01.2020
-
-VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankey – Dream (08:51)
-02. Steve Bug & Uner – Mantis On The Moon (07:35)
-03. Tim Toh, youANDme & Lisa Toh – Voyager (07:34)
-04. Francesca Lombardo – Flumen (08:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA65931DCA62AEE2F1DB468B4B31004FE6F06DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351032   (1002765) от 08.01.2020
-
-Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.G. Noise - Delphi (XiJaro & Pitch Remix)
-02. Talla 2XLC & Maria Nayler - Love Waits
-03. Driftmoon & Susana - Because of You
-04. Darren Porter - Whiplash (Alessandra Roncone Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCEF5271D678FECA127816284D12739DFC133C63
 ```
 
 

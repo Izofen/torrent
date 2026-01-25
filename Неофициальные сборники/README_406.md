@@ -1,3 +1,30 @@
+###  Публикация: 1140382   (655605) от 06.06.2017
+
+VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Army Of Lovers - Obsession 3:41
+002.  Wham! - Wham Rap 3:34
+003.  Tasmin Archer - Sleeping Satellite 4:34
+004.  Paul Young - Wherever I Lay My Hat (That's My Home) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515248   (655634) от 26.06.2012
 
 VA - Клубная Музыка Дискотек Июня  Record 2CD (2012) [MP3|256 кб/с]<Dance, Club>
@@ -723,33 +750,6 @@ VA - TOP May (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60CCFBAF6CB77AFCCD449E80EAB34C1429F7A70D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140289   (656682) от 05.06.2017
-
-VA - Воодушевляющий Мелодичный Транс [Sound Clinic - Special Edition] (2017)  [MP3|320 Kbps] <Uplifting Trance, Melodic Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656682.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 4 Strinqs - Take Me Away (Original Vocal Mix)
-2. 7 Skies - Caffeine (Genix Remix)
-3. 8 Wonders - Sex On The Beach (6 Inch Stiletto Mix)
-4. 8 Wonders - Sex On The Beach (Depths Of My thoughts Sunset Dub)(   Читать дальше...   )Жанр: Uplifting Trance, Melodic Trance, Vocal TranceПродолжительность: 53:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
 ```
 
 

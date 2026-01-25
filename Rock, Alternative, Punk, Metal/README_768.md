@@ -1,3 +1,68 @@
+###  Публикация: 231915   (507504) от 02.09.2010
+
+Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Who Have Nothing (3:11)
+02. Lookin' For Tomorrow (4:32)
+03. Hard To Handel (3:46)
+04. Reflection (3:54)
+05. Warm Touch (3:34)
+06. Shelter Of Your Arms (4:03)
+07. Set Me Free (4:54)
+08. It's A Mans World (5:12)
+09. Let Me Do (4:29)Жанр: Psychedelic Hard RockПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539392   (507591) от 25.08.2012
+
+Dark Princess - The World I've Lost (2012) [FLAC|Lossless]<Gothic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507591.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fight With Myself
+2. We Can Not Fly So High
+3. Fields Of Youth
+4. The Key
+5. Everlasting Pain
+6. Paradise Land
+7. Point Of No Return
+8. The Temple Of Darkness
+9. The Last Page
+10. The Way Of PassionЖанр: Gothic Metal, Female VocalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932681   (507729) от 30.08.2015
 
 Ленинград - Пираты XXI Века (2002) [FLAC|image+.cue]<Rock, Ska>
@@ -639,66 +704,6 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A61A7381CDC9E1E813FBE1C9D69798CBD2979B20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932935   (508321) от 30.08.2015
-
-Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508321.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blindness
-2. It Happened To Me
-3. A Friend
-4. Songwriter's Lament(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B65643617BE11369E64137A5E5428A5312B0EED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538771   (508501) от 24.08.2012
-
-V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biorate - Нервы (4:35)
-02. П.оС.Т. feat Михаил Сидоренко - Земля К Земле (4:41)
-03. Sphinx - Странная Песня (6:01)
-04. Троя - Сука (разговоры ...) (2:53)
-05. Ветви Прошлого - Пепел (3:37)
-06. Nortia - Капли Дождя (3:59)
-07. Волчья Сотня - Исход (4:44)
-08. Санктум - Другие Герои (3:55)
-09. Атом-76 - Прощай И Прости (4:06)
-10. Вольная Стая - Рок Стар (3:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 

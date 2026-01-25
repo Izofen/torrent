@@ -1,3 +1,57 @@
+###  Публикация: 1113265   (838083) от 11.03.2017
+
+Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Song (03:05)
+ 02. Personal Jesus (04:07)
+ 03. mOBSCENE (03:27)
+ 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 772693   (838090) от 01.04.2014
+
+AC/DC - Greatest Hell's Hits (2009) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838090.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Thunderstruck
+02. Shoot To Thrill
+03. Big Gun(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2474B018DAF54D36299A4265A12EA3F7128D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501175   (838109) от 08.10.2021
 
 Trivium - In The Court Of The Dragon (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Melodic Metalcore>
@@ -641,57 +695,6 @@ Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Indust
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878974   (839078) от 17.03.2015
-
-Leviathan - Scar Sighted (2015) [FLAC|Lossless]<Black Metal/Dark Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - (2:18)
-02. The Smoke of Their Torment  (6:04)
-03. Dawn Vibration  (6:28)
-04. Gardens of Coprolite (5:40)(   Читать дальше...   )Жанр: Black Metal/Dark AmbientПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01399C08D311F7D73C6CBFE06952EAD73CA9693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309817   (839100) от 17.03.2011
-
-Slade - Singles Collection, 3CD (2003) [MP3|320 kbps]<Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock, Hard RockПродолжительность: 02:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B612DB8ABDB1C4647C47A66543612D4A375D9B05
 ```
 
 

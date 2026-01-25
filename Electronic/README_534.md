@@ -1,3 +1,82 @@
+###  Публикация: 1607601   (1043940) от 27.01.2023
+
+Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - For Emily (Album Mix) [3:38]
+02. Activa & Lo - Leave A Light On (Extended Mix) [8:27]
+03. Activa feat. Rolo Green & Julie Harrington - Reach Out (Extended Mix) [8:29]
+04. Orkidea - Z21 (Activa's Origins Extended Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A8A6122C052F9E017CACC1EFAAA94C5F41E32B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607357   (1043959) от 27.01.2023
+
+VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - Unspoken (Original Mix) [5:53]
+02. Coshee - Shine Through (Original Mix) [7:38]
+03. Daryl G - Magic Moment (Original Mix) [7:46]
+04. TGN - Andre Va A Nantes (Original Mix) [4:55](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A248E836A2B8F41A932400436187350182D4412E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607408   (1044066) от 26.01.2023
+
+Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyber Agression
+02. I Robot,My Name Is..Жанр: Electronic, Synth-popПродолжительность: 00:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 182191   (1044107) от 25.01.2023
 
 Blue Foundation - 3 Albums (2001 - 2006) [FLAC|Lossless]<Downtempo, Trip-Hop>
@@ -610,87 +689,6 @@ Korablove - Basshole (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3101C225B68FD1E1D56D96983A1A188FCFE5FDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603707   (1045669) от 10.01.2023
-
-VA - Relax 'n Chill (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Moli - Believe in Yourself (Remix) (4:59)
-02. Marc Hartman - We're Jammin (4:32)
-03. Marco Moli - Excuses (4:16)
-04. DJ Deviance - Water to the Sea (3:51)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F50CE8595D8F13758EF5361456ADF20F60BA1A73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603361   (1045675) от 10.01.2023
-
-VA - Street Workout Electro Hits 2022 Workout Compilation 128 Bpm (2023) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticli - Generation (Fitness Version 128 Bpm) (4:35)
-02. Maurizio Gubellini - Moscow Trip (Fitness Version 128 Bpm) (6:39)
-03. Marco Pintavalle - I Just Died In Your Arms (Fitness Version 128 Bpm) (4:21)
-04. Karim Razak - Disco Gitano (Fitness Version 128 Bpm) (5:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858A7A2A387D2700D2F9646C18CDA0DB4B8C057E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603442   (1045717) от 09.01.2023
-
-VA - Minimal Tech Grooves (2023) CD, Compilation [MP3|320 Kbps] <Techno, Electronica, Minimal, Deep Tech>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerald Peklar - Looking for Freedom (Minmix)
-02. Mr. Noize - Diplomatic
-03. K U B I - Mute
-04. Tschad el Naka Naka - Zapf(   Читать дальше...   )Жанр: Techno, Electronica, Minimal, Deep TechПродолжительность: 04:00:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A82A7B531347BFEF3DF9381028B0CCD1B4FFD3E
 ```
 
 

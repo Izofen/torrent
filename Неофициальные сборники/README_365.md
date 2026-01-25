@@ -1,3 +1,30 @@
+###  Публикация: 1148869   (602411) от 09.07.2017
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo - Ai Se Eu Te Pego
+002. Taio Cruz feat FloRida - Hangover
+003. Ёлка - Около тебя
+004. Serge Devant and Coyle Girelli - On your Own(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149204   (602477) от 09.07.2017
 
 VA - Rock Republic: Solid Album Of Rock (2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Alternative>
@@ -668,33 +695,6 @@ VA - Unknown 80's (part VII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C993388E3A42F22D9354F670CB23FAA123A0AA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148687   (603411) от 07.07.2017
-
-VA - Beatport Top 100 Dance June (2017) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lokee, Stefane - I'm Coming Out (Original Mix) 04:26
-002. Tiesto, KSHMR, Talay Riley - Harder feat. Talay Riley (Extended Mix) 04:34
-003. Axwell & Ingrosso - More Than You Know (Extended Mix) 04:10
-004. Bassjackers, Lucas & Steve, Caroline Pennell - These Heights (Extended Mix) 03:33(   Читать дальше...   )Жанр: DanceПродолжительность: 07:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3A997FE31AA738698276FEDB415F0009C19B65
 ```
 
 

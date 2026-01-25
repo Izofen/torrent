@@ -1,3 +1,30 @@
+###  Публикация: 972446   (982000) от 06.01.2016
+
+Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_982000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Welcome To Calypso 	                2:06
+2 	Hardcore Islands (Extended) 	6:42
+3 	Def Con 5 	                                5:31
+4 	Rave In Paradise 	                3:36(   Читать дальше...   )Жанр: Rave, Hardcore, Hard TranceПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80548632F5BFDF0072A6ABCABAAA7E2DC8298915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355510   (982042) от 27.01.2020
 
 Gary Moore - As The Years Go Passing By... (2020) (2CD Compilation) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -686,33 +713,6 @@ VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC1B92A178B65F265DA86BF15523D75A4E9E3FEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355137   (984925) от 25.01.2020
-
-VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eminem - Godzilla (feat. Juice WRLD)
-02. Roddy Ricch - The Box
-03. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
-04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D535127353A48CDA4F4653F7A2F5D4D51F8E9900
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1008643   (813256) от 19.04.2016
+
+Александр Кутиков, группа "Нюанс" - Бесконечномгновенно (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всё так просто
+ 02. Родина моя
+ 03. Дорогой слов и откровений
+ 04. Одна(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FE955AB294538D9C7F02F87D7284A07357CB8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008820   (813418) от 19.04.2016
+
+ZZ Top - The Very Baddest (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme All Your Lovin' (3:32)
+02. Sharp Dressed Man (2:59)
+03. La Grange (3:53)
+04. Tush (2:17)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 02:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66FDAFC472988A0B7667F9E26EB9D5E0F54DC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383213   (813595) от 14.05.2020
 
 Paradise Lost - Obsidian (2020) [MP3|320 Kbps] <Gothic Metal>
@@ -641,60 +695,6 @@ The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98415A6341735513FA756EC8A6CA3B324FA41BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117723   (815050) от 24.03.2017
-
-Браво - The Best (1998) Compilation [FLAC|Lossless|image + .cue] <Rock & Roll, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дорога в облака (3:04)
-02. Ветер знает (3:31)
-03. Стильный оранжевый галстук (3:33)
-04. Старый отель (3:56)(   Читать дальше...   )Жанр: Rock & Roll, Soft RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6CFFF53E0F12A3671AFBE53917355950C7D8E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117900   (815063) от 24.03.2017
-
-Bonfire - Byte the Bullet (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Train
-02. Stand up 4 Rock
-03. Praying 4 A Miracle
-04. Some Kinda Evil(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F60EF4CD48119FD4D839BE49211458178E9E6D
 ```
 
 

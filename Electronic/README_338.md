@@ -1,3 +1,81 @@
+###  Публикация: 512021   (665854) от 17.06.2012
+
+VA - Balance Series (25 альбомов) (2001-2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, House, Electro, Techno, Minimal, Tech House, Dubstep, Ambient>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все кому нравится прогрессивно звучащая танцевальная музыка уже давно поместили серию “Balance” в разряд самых интересных диджейских миксов, откуда она вышибла Global Underground. За это скажeм спасибо Филу К, Джеймсу Холдену, Крису Фортье и Джимми Ван М – как наиболее отличившимся.CD1Продолжительность: 01:18:40
+
+01. Gianni Callipari - Whybee (4:41)
+02. Simon Baker & Robert James - All Of A Sudden (3:15)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2BBC33AB6769626326B7F381BD74B312530AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512028   (665857) от 17.06.2012
+
+Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 01:15:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224438   (665943) от 10.05.2018
+
+ScAnDroid Experiment's - Erunt Omnia (2018) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Ethno-Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Aves Paradisi
+02. Hoolala
+03. Skal Bare
+04. Brevis Historia(   Читать дальше...   )Жанр: Experimental Electronic, Ambient, Ethno-ElectronicПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FCE00B9D79736B807C0B919AB94C1654754C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224324   (667184) от 09.05.2018
 
 VA - The Sound Of NYLO, Vol. 2 (Compiled & Mixed By Vicent Ballester & The Nurk) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Downtempo>
@@ -622,87 +700,6 @@ VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136976   (669302) от 25.05.2017
-
-VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CamelPhat - Siren Song - Radio Edit
-02. AMinusLex - Nepal - Radio Edit
-03. E.M.C.K. - Be Yourself - Radio Edit
-04. Paris Avenue - Better Day (In Lifetimes) - Radio Edit(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136972   (669400) от 25.05.2017
-
-Rising Galaxy - Re-Animation (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Act
-02. No News From Iceberg 17
-03. Hypnosis
-04. Storm Ahead, A Cat is Sleeping(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA0732D7FBE486A54421C98680DA56C83319761
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137030   (669403) от 25.05.2017
-
-VA - Chill Out Paradise Vol.1 Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  351 Lake Shore Drive - Brighter Than The Sun 7:29
-02.  Placid Larry - Elastic Slum 4:25
-03.  Ann Grace - Eternal Love 4:50
-04.  Pier-O - Red Sunset (feat. Mia Lemar) 5:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3EC217F5E740913565FA30137F3A8D9A9E0BE7
 ```
 
 

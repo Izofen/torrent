@@ -1,3 +1,57 @@
+###  Публикация: 1046887   (551021) от 28.08.2016
+
+Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Utopian Scream 03:37
+02. New Hip Moon 03:07
+03. Crying Wolves 05:06
+04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047015   (551023) от 28.08.2016
+
+Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Talks - 5:46
+02. Don’t Cry Sister - 3:03
+03. Sensitive Kind - 5:31
+04. Cajun Moon - 3:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EB7DD7F1952CDB3B0CEEF5CC3ACBDAFE8425DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046884   (551024) от 28.08.2016
 
 Gay Paris - 3 альбома (2011-2015) [MP3|320 Kbps] <Hard rock & Blues>
@@ -641,60 +695,6 @@ BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9164A2C82004AC6B02906DA770D323B41CBAB95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237338   (552357) от 23.07.2018
-
-Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traitors Never Play Hangman (3:37)
- 02. Pray For Plagues (4:22)
- 03. Diamond Aren't Forever (3:48)
- 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692031   (552366) от 23.08.2013
-
-The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Dreamin'
-02. Go Where You Wanna Go
-03. Monday, Monday
-04. I Call Your Name(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
 ```
 
 

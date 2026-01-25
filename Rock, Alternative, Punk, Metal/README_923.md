@@ -1,3 +1,57 @@
+###  Публикация: 180225   (665076) от 24.05.2015
+
+Ensiferum - Дискография (2001-2009) [FLAC|Lossless]<Melodic Death, Folk, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_665076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Dividing Stream (3:50)
+02. Fram Afar (4:52)
+03. Twilight Tavern (5:39)
+04. Heathen Throne (11:09)(   Читать дальше...   )Жанр: Melodic Death, Folk, Viking MetalПродолжительность: 4:04:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537832   (665333) от 18.03.2022
+
+Hell Militia - Hollow Void (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifeless Light (4:21)
+02. Genesis Undone (4:22)
+03. Dust of Time (5:45)
+04. Within the Maze (4:09)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987AC3A4741319F53750B9652A56192A15B4CE78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900925   (665355) от 24.05.2015
 
 Декабрь - Жара Декабря (2015) [FLAC|Lossless]<Hard Rock>
@@ -651,60 +705,6 @@ Los Colognes - The Wave (2017) [FLAC|Lossless|tracks] <Classic Rock, Art Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FCB262112F7D9CF06D041B1A2CA4C99D01CAA35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137340   (666713) от 27.05.2017
-
-Smash Hit Combo - L33T (Deluxe Edition) (2017) [MP3|320 Kbps] <Progressive Metalcore, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise and Fall (feat. None Like Joshua)
-02. Spin the Wheel (feat. None Like Joshua)
-03. Falls Appart (feat. None Like Joshua)
-04. Must Divide (feat. None Like Joshua)(   Читать дальше...   )Жанр: Progressive Metalcore, RapcoreПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587EE7642B0A0B402479BE497C78DB787E94C836
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137600   (666723) от 27.05.2017
-
-Anubis - The Second Hand (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Second Hand (6:14)
-02. Fool's Gold (6:33)
-03. These Changing Seasons I (4:20)
-04. The Making Of Me (6:16)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A637826BB3F6824538BBB3A313B672871E7BCAE
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1215453   (758220) от 26.03.2018
+
+Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase One (06:07)
+ 02. Deep Space Odyssey (06:09)
+ 03. Interplanetary Dust (06:46)
+ 04. Magnetic Star (06:01)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37D8F178564F50F51CE49F1D08052B598093A2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215577   (758222) от 26.03.2018
+
+VA - Silent Shore Miami (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enzo - Uplift (Original Mix)
+02. AirLab7 & Allen Belg - Kyla (Original Mix)
+03. Norland - Forgotten Worlds (Original Mix)
+04. Peter Santos - Above The Clouds (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03094EDC3E64F635718833689A1FA361CEB1984D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215572   (758228) от 26.03.2018
+
+S.A.M. - Retrospect One (2018) Delaphine [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, House, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perucica (7:29)
+02. Sunday Morning (10:34)
+03. Don't Confuse A Smile With Weakness (3:01)
+04. How Far From The Sun Are We Talking (1:42)(   Читать дальше...   )Жанр: Dub Techno, Ambient, House, ExperimentalПродолжительность: 01:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E33282E0BA474694A2833DBD6836E267E010BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 896203   (758492) от 08.07.2020
 
 Abjective - Discography 21 Releases (2012-2020) [FLAC|Lossless|WEB-DL|tracks]<IDM, Experimental, Glitch, Ambient, Minimal>
@@ -614,87 +695,6 @@ VA - Afternoon - Acid Jazz & Chill Out (2016) [MP3|320 кб/с] <Lounge, Chill O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:192C86374FF023F8ADFF566B820C56F79A394622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017537   (761233) от 17.05.2016
-
-VA - Bali Chill Out Groove (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Le Blanc & Florito - Time to Go (Revisited Mix) (04:33)
-02. Dave Ross - Break the Silence (08:01)
-03. Christos Fourkis - La Vida Es Una Siesta (05:10)
-04. De Vega feat. Garnik - Open Your Eyes (03:28)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36753A060657A8B9B8172BABD8AED38418A68D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017363   (761235) от 17.05.2016
-
-VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alain Chavez - Private Area 5:43
-02. Danny Better & Roger Slato - Higher (feat. Nenna Yvonne) (Stereo Palma Mix) 4:36
-03. D T S & Double G - Respect (D T S vs. Double G) (Max V. Remix) 4:39
-04. Vince Neel - Roccit 4:24(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C5F57418087171650B0A4729436A349F33E0F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215062   (761548) от 24.03.2018
-
-VA - Future Vocal Trance Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Shift feat. Senia  -  Reach Out For Love (Rene Ablaze Radio Edit)  3:26
-02.  Kayan Code feat. Juha V  -  Control  7:35
-03.  Yodis feat. Christina Maria  -  While Angels Pass  8:07
-04.  Deepuniverse & Blue Wings  -  Bring Back Your Sun (Dima Krasnik Remix)  8:40(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489F894B9BACB0D7EE91EABAFC00E2516975D994
 ```
 
 

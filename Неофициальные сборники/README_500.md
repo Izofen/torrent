@@ -1,3 +1,30 @@
+###  Публикация: 1211484   (777550) от 07.03.2018
+
+VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777550.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Stars On 45 - Proudley Presents Star Sisters (4:00)
+002. Shorts - Comment Ca Va (3:14)
+003. Michael Jackson - Beat It (4:12)
+004. Lionel Richie - All Night Long (6:20)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211338   (777560) от 07.03.2018
 
 VA - Recuerdos Latinos Locas (2018) [MP3|320 Kbps] <Dembow, Salsa, Reggaeton>
@@ -667,33 +694,6 @@ Space - Slide by Eliyev Veli (2018) Remix [MP3|256 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F4F8C13BC9F2EA0104520AAF8A6984469E699DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211032   (778086) от 05.03.2018
-
-VA - Trance Collection Vol.68 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
-02.  Driftmoon feat. Julie Thompson  -  Only You (Extended Mix)  8:09
-03.  Ula  -  Re Zero (Jimmy Chou pres Prototype Remix)  6:07
-04.  Standerwick feat. HALIENE  -  Deep End (Club Mix)  4:52(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 10:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2446057CE97512EBB263FB95A0848C354F07267
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1466720   (1018292) от 01.05.2021
+
+Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Nairo - Georges
+02. Greg Nairo - Kameo
+03. Greg Nairo - Vertigo
+04. Greg Nairo - Time Machine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC28385EFF35969FA742086B562FA4B7CD4C78F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466844   (1018301) от 01.05.2021
+
+Russ Gabriel - Off Centre (2021) Ferox Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Void (07:11)
+ 02. Chronos (08:30)
+ 03. Heat Shimmer (05:51)
+ 04. Benno (06:28)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F160E25F01CEF8E647840F4DBEC68EDB5019445C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466608   (1018370) от 30.04.2021
+
+Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It (Marky P. & Teri B. Dub) (7:48)
+02. Limbo (Circle Sky Remix) (7:12)
+03. Electrified II (Carl Craig Headphone Hookup) (6:53)
+04. How How (Papa-Who-Ma-Mix) (5:50)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectropopПродолжительность: 04:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0993C27DE8E96F4E9AFDEB1D2C9FA079ABACA91E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466589   (1018372) от 30.04.2021
 
 Yello - Yello 40 Years (2021) 4CD, Remastered [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
@@ -610,84 +691,6 @@ Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF065CEC5ECD74065A0BE52DAC0BA465EF596A65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464950   (1019450) от 24.04.2021
-
-Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive TranceПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DC1FE390C17A510DB7FDDEE8D1AC84A74872A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464987   (1019461) от 24.04.2021
-
-VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slide, Psiked'eliah - Funkingallo (Original Mix) (07:01)
-02. Saikro - This Is Not A Dream (Original Mix) (06:11)
-03. Kusabi - Whisper From The Deep (Original Mix) (07:33)
-04. Redy, Psiked'eliah - Premonitions (Original Mix) (06:51)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312EBBFF6202304DEE93103CD9837BE9071C56CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464508   (1019794) от 22.04.2021
-
-VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ann Grace - Vega (7:11)
-02. Matej Blanusa - Suomi (5:22)
-03. Beamy - Gawain (4:00)
-04. Charlie North - Patient (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
 ```
 
 

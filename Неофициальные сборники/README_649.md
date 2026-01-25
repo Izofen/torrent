@@ -1,3 +1,36 @@
+###  Публикация: 606060   (995601) от 20.01.2013
+
+VA - Новогодняя блатная вечеринка Радио шансон 2 (2013) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Михаил Шуфутинский & Катерина Голицына - Всё прошло
+ 002. Владислав Медяник - Кукла
+ 003. Анатолий Полотно и Федя Карманов - Счастья Вам
+ 004. Назар - Братишка
+ 005. Жека - Звон серебряный
+ 006. Владимир Черняков - Матушка русь
+ 007. Бутырка & Воровайки - Поезда
+ 008. Крестовый туз - Водила
+ 009. Тимур - Одинокий скрипач
+ 010. Сергей Крава - За спиной 4 ходки(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A155AFFBE880D75D9C34AFE423EBDF010B2EE0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605226   (995863) от 19.01.2013
 
 VA - Шевели Попой 3 (Зарубежный выпуск) (2013) [MP3|128 кб/с]<Pop>
@@ -816,39 +849,6 @@ VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602693   (997582) от 13.01.2013
-
-VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
-002. Cara Lee - The Sax Man (Radio Edit)
-003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
-004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
-005. Modana & Carlprit - Hot Spot (Radio Edit)
-006. Gummibar - Gummy Style
-007. Kelly Clarkson - Catch My Breath
-008. Shockolady Feat. Mr. Smith - I Like It Like That
-009. Basto - I Rave You (Original Mix)
-010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1282805   (742333) от 14.02.2019
+
+The Animals - The House Of The Rising Sun: Best Of The Animals (2019) [MP3|320 Kbps] <Rock, Blues, Folk, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of The Rising Sun
+02. Don't Let Me Be Misunderstood
+03. We've Gotta Get Out Of This Place
+04. It's My Life(   Читать дальше...   )Жанр: Rock, Blues, Folk, World, & CountryПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C09AE4E227B722DEAA3D22AABA2F0C5389B5B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217681   (742398) от 05.04.2018
+
+Zazemlenie - Почти в одиночестве. Часть 2 (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Город (feat. Саша Самойленко)
+02. Звезда (feat. А.Яшин)
+03. Молюсь (feat. М.Черкунова)
+04. Электрический ток (feat. А.Каталкин)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48931370527BA884176D072475EC878C6F8F1B1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020910   (742425) от 28.05.2016
 
 Astralion - Outlaw (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -645,60 +699,6 @@ Elvis Costello & The Imposters - The Boy Named If (2022) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9DA3568614A48327ED6C5F54D0FC670D5DD0302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282620   (743736) от 13.02.2019
-
-B.F.G - Blue (серия "Другие восьмидесятые") (1989) Remastered, Reissue, 2010, Attica Records [MP3|320 Kbps] <Industrial Rock, Goth Rock, Dark Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Grind
-02. Anonymous
-03. Switch
-04. Gun Law(   Читать дальше...   )Жанр: Industrial Rock, Goth Rock, Dark WaveПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CDC84EA55441F0F9606C7E1A96F580B3DF78A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282690   (743738) от 13.02.2019
-
-Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743738.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Секреты оборотня
-2. Проклятое болото
-3. Злой король
-4. Призраки(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD480E6638F174EFE7740BBB6BF2C5B368F82E1
 ```
 
 

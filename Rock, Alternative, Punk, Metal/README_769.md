@@ -1,3 +1,63 @@
+###  Публикация: 932935   (508321) от 30.08.2015
+
+Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508321.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blindness
+2. It Happened To Me
+3. A Friend
+4. Songwriter's Lament(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B65643617BE11369E64137A5E5428A5312B0EED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538771   (508501) от 24.08.2012
+
+V.A. - A Tribute to Чёрный Обелиск XXV (2012) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biorate - Нервы (4:35)
+02. П.оС.Т. feat Михаил Сидоренко - Земля К Земле (4:41)
+03. Sphinx - Странная Песня (6:01)
+04. Троя - Сука (разговоры ...) (2:53)
+05. Ветви Прошлого - Пепел (3:37)
+06. Nortia - Капли Дождя (3:59)
+07. Волчья Сотня - Исход (4:44)
+08. Санктум - Другие Герои (3:55)
+09. Атом-76 - Прощай И Прости (4:06)
+10. Вольная Стая - Рок Стар (3:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538788   (508633) от 24.08.2012
 
 Grave - Endless Procession of Souls (2012) [FLAC|Lossless]<Death Metal>
@@ -656,60 +716,6 @@ Traitor - Exiled To The Surface (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B08650A5A088FE145134E2DDBF6CD1251D9270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562384   (509028) от 09.07.2022
-
-Tiny Moving Parts - Tiny Moving Parts (2022) [MP3|320 Kbps] <Pop-Punk, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Decibel [00:02:40]
-02 - North Shore [00:02:59]
-03 - Demons Are Taking Over [00:02:23]
-04 - Tangled Up [00:02:39](   Читать дальше...   )Жанр: Pop-Punk, Math RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861C7F792E523673655E72AD52C0FEE9225750CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562049   (509036) от 09.07.2022
-
-BelMel Studio - Хозяйкам на заметку (2022) [MP3|320 Kbps] <Russian Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Дед Грибоед [00:02:02]
-02 - Грязный Гарри [00:01:45]
-03 - Хозяйкам на заметку [00:01:50]
-04 - Казачья [00:02:06](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4574B768A205045ED86866AB2C35A5A4B6582165
 ```
 
 

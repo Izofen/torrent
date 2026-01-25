@@ -1,3 +1,57 @@
+###  Публикация: 1477825   (1010694) от 17.06.2021
+
+Golgotha - Locked Down but Alive in 2021 (Live) (2021) [MP3|320 Kbps] <Doom Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Prelude - Caves of Mind (Intro) (Live) [00:01:17]
+02 - The Way to Your Soul (Live) [00:07:55]
+03 - Distorted Tears (Live) [00:04:25]
+04 - Enveloped in Fog (Live) [00:04:28](   Читать дальше...   )Жанр: Doom Metal, Melodic Death MetalПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE84BA75D97F6C0F9D396E8523AA33E2360E7789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478067   (1010695) от 17.06.2021
+
+Warrel Dane - Praises To The War Machine (2021) Extended Edition [MP3|320 Kbps] <Progressive, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obey (feat. Jonny Smokes) (unplugged & live version) [00:03:17]
+02. Brother (feat. Jonny Smokes) (unplugged & live version) [00:03:22]
+03. Let You Down (feat. Jonny Smokes) (unplugged & live version) [00:03:52]
+04. A Very Good Year (feat. Jonny Smokes) (unplugged & live version) [00:03:18]Жанр: Progressive, Groove MetalПродолжительность: 2CD, 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D1E5935C66002C0E87E4672FA04458222C98F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477968   (1010697) от 17.06.2021
 
 Son of Sam - And the Monster Awoke​... (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -637,60 +691,6 @@ Black Sabbath - Sabotage (1975) 4CD, Super Deluxe Edition, 2021, Rhino-Warner Br
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB0D5AAC0A14DD7BABED4284CBBDD70AF468685F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476858   (1011113) от 14.06.2021
-
-Path of Destiny - The Seed of All Evil (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Division of a Spiral Synergy [00:05:58]
-02. Necromantic Storm [00:02:49]
-03. Erased by Light [00:04:15]
-04. Endbringer [00:04:14](   Читать дальше...   )Жанр: Symphonic Melodic Death, Black MetalПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96BA4A6DA400D0356172E3B54FD977E2C3CAF18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477060   (1011119) от 14.06.2021
-
-Def Leppard - X, Yeah! & Songs From The Sparkle Lounge: Rarities From The Vault (2021) 6 CD, Box Set Volume Three, Super Deluxe Edition,  Mercury[MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elected (Live In Tilburg - 1987) [00:04:19]
-02. Action (Live Recorded On Tour 2005) [00:04:07]
-03. No Matter What (Live Recorded On Tour 2005) [00:03:05]
-04. Rock On (Live - 2006) [00:03:13](   Читать дальше...   )Жанр: Rock /Продолжительность: 6CD, 04:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D59C41B1516D174EE87C49A9B5A4C445B99A33
 ```
 
 

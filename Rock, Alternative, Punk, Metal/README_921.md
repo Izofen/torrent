@@ -1,3 +1,63 @@
+###  Публикация: 1225120   (662756) от 13.05.2018
+
+RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making History [04:30]
+02. We Are Magic [04:13]
+03. Rise [03:29]
+04. Take Me [04:36](   Читать дальше...   )Жанр: Rock, GuitarПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83009B25D58FBFAC02101AA928371AED0A5B85A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340404   (662781) от 24.05.2011
+
+Zero Degree - Surreal World (2011) [MP3|320 kbps]<Melodic death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Door to the Unknown (0:52)
+02. Tomorrow Dies Today (5:11)
+03. Frozen Alive (5:03)
+04. The Storm and the Silence (5:16)
+05. Grapes of Wrath (5:40)
+06. Whispering Age (3:54)
+07. Virus (5:09)
+08. Disease (5:08)
+09. Surreal World (5:03)
+10. Where Angels Die (4:08)(   Читать дальше...)Жанр: Melodic death metalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9495AAEC97B7EDCBA591A2795165821C1E1BC499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225094   (662827) от 13.05.2018
 
 ЕжеВикА - Оберег (2018) [MP3|320 Kbps] <Folk Rock, Art Folk, Neofolk>
@@ -639,60 +699,6 @@ CD4 - Mono Album and Bonus TracksРелиз состоялся: 26 мая 2017 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F9754CF07BF90138AF71A5568AE9183282F75AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224844   (664088) от 12.05.2018
-
-Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] <surf rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664088.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Surfin' USA
-2.	Fun, Fun, Fun
-3.	Little Old Lady From Pasadena
-4.	Barbara Ann(   Читать дальше...   )Жанр: surf rockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA70CB252AFA3BD36BBF9B7C636EFE0FCDCB2AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138394   (664112) от 29.05.2017
-
-The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/14. Roxanne (3:13)
- 02/14. Can't Stand Losing You (3:01)
- 03/14. Message In A Bottle (4:51)
- 04/14. Walking On The Moon (5:02)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A57F30FC1BCC829877AF7B5B5D698D167A6DF61
 ```
 
 

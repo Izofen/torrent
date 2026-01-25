@@ -1,3 +1,57 @@
+###  Публикация: 1397512   (739774) от 21.07.2020
+
+VA - Hard & Heavy 100 (2020) [MP3|320 Kbps] <Hard Rock & Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Zombie - The Man Who Laughs (9:44)
+002. Ratt - As Good As It Gets (4:38)
+003. The Cult - Dirty Little Rockstar (3:40)
+004. Heavy Heavy Low Low - Texas Chainsaw Mascer-Uh (1:14)(   Читать дальше...   )Жанр: Hard Rock & MetalПродолжительность: 07:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7DBC6FA5660118D09DF2453DC7D6B26D0CC49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283273   (739785) от 17.02.2019
+
+Broken Social Scene - Let's Try the After Vol. 1 (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweet Sea (00:47)
+02. Remember Me Young (04:25)
+03. Boyfriends (05:23)
+04. 1972 (04:53)(   Читать дальше...   )Жанр: Indie-Rock, FolkПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40E6E78898BC25A5DF26D0CFA67313A29189536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397648   (739869) от 21.07.2020
 
 The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
@@ -641,60 +695,6 @@ Underoath - Erase Me (2018) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCAB0E094B5C9861AE6D1C4BF75626B1D8A340E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021403   (740883) от 29.05.2016
-
-The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times (02:46)
-02. You Bring The Summer (03:00)
-03. She Makes Me Laugh (03:01)
-04. Our Own World (02:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127040   (740897) от 20.04.2017
-
-Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone In The Dark (3:41)
- 02. Halfway There (3:59)
- 03. Long Way Back (5:08)
- 04. Be Myself (4:23)(   Читать дальше...   )Жанр: Pop-Rock, CountryПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A098FC99CF64EC752A47B98C49FEABD11EF413A8
 ```
 
 

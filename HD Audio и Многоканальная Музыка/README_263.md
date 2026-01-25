@@ -480,7 +480,7 @@ magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846433   (1051342) от 
+###  Публикация: 1846433   (1051342) от 07.01.2026
 
 Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
 
@@ -507,7 +507,7 @@ magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846733   (1051663) от 
+###  Публикация: 1846733   (1051663) от 08.01.2026
 
 Dew-Scented - Studio Albums (11 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
 
@@ -534,7 +534,7 @@ magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847124   (1051979) от 
+###  Публикация: 1847124   (1051979) от 10.01.2026
 
 For My Pain... - Studio Albums (2 releases) (2009-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
 
@@ -559,7 +559,7 @@ magnet:?xt=urn:btih:2113F2C66D92FA11A32AF215F4571A0F1B0CED8C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847467   (1052234) от 
+###  Публикация: 1847467   (1052234) от 12.01.2026
 
 Velozza - Studio Albums (4 releases) (2017-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
@@ -586,7 +586,7 @@ magnet:?xt=urn:btih:EB906D8C09EC15B1653A9D56ACBC5E5D194DD505
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847451   (1052244) от 
+###  Публикация: 1847451   (1052244) от 12.01.2026
 
 Destroy Them - Studio Albums (2 releases) (2018-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
@@ -611,7 +611,7 @@ magnet:?xt=urn:btih:B8525FA8562B4493197A5F72A6E1C3E4CF9D88C2
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847782   (1052312) от 
+###  Публикация: 1847782   (1052312) от 14.01.2026
 
 Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
@@ -637,7 +637,7 @@ magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847962   (1052388) от 
+###  Публикация: 1847962   (1052388) от 15.01.2026
 
 Dust In Mind - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial, Melodic Death Metal, Nu Metal>
 
@@ -664,7 +664,7 @@ magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848192   (1052524) от 
+###  Публикация: 1848192   (1052524) от 16.01.2026
 
 Frank Sinatra - Sunday And Every Day With Frank Sinatra (1969) Music For Pleasure Series [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
 

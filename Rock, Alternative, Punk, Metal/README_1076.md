@@ -1,3 +1,57 @@
+###  Публикация: 1006505   (826992) от 12.04.2016
+
+Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trippin' On Your Love (feat. HAIM) (3:30)
+02. (Feeling Like A) Demon Again (4:35)
+03. I Can Change (3:17)
+04. 100% Or Nothing (feat. HAIM) (3:54)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Britpop, Pop-Rock, Dance-RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AA6406C0108C041D160490ABB14A645671D076
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006639   (827173) от 12.04.2016
+
+Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drag Down (04:47)
+02. Lift Me off the Ground (03:30)
+03. Stay on the Line (04:51)
+04. Radio (04:12)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7AF937C8F2783BF42D47325134A579A041F49C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006632   (827243) от 12.04.2016
 
 Bossk - Audio Noir (2016) [FLAC|Lossless|tracks] <Post-Rock, Post-Metal, Sludge>
@@ -645,60 +699,6 @@ magnet:?xt=urn:btih:349DBC7A11BDA7729D707EC31806AA25379BC70E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:912EC30272534D7AD21697552D8888C3F2F84190
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381015   (829740) от 05.05.2020
-
-Aether Realm (Æther Realm) - Redneck Vikings from Hell (2020) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redneck Vikings from Hell (03:36)
-02. Goodbye (04:57)
-03. Lean into the Wind (03:51)
-04. Hunger (04:33)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F07BE22804C49879B01073D6392FEEF283B7B697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381147   (829749) от 05.05.2020
-
-The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Drunk Under a Full Moon (05:34)
-02. Need a Little Love (03:49)
-03. Lay Your Body Down (03:48)
-04. The Last Songbird (04:01)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2207C7353DD2256EBDFA2B2E204C1803AD029C0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1126461   (765370) от 18.04.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765370.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Crowbar - Plasmic And Pure 5:38
+002. Heavenwood - The Juggler 6:43
+003. Bathsheba - At the End Of Everything 8:26
+004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126565   (765371) от 18.04.2017
 
 VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
@@ -668,33 +695,6 @@ VA - Rock & Metal Collection от ALEXnROCK часть 11 (2019) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78FFF3E5017467FB8B960C066C749F987315779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279420   (765962) от 29.01.2019
-
-VA - Самые скачиваемые треки ВКонтакте Зима (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Rag'n'Bone Man - Giant 3:48
-002. Gimmy Weaver feat. Tony T. - It's Your Night 3:17
-003. Nexeri feat. November Lights - You & I 3:46
-004. Adam K & Soha - Need To Feel Loved 3:15(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EEDA041CECF832904683D6300AB3CB86D9A4C4
 ```
 
 

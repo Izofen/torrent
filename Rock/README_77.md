@@ -1,3 +1,57 @@
+###  Публикация: 1208943   (779681) от 24.02.2018
+
+John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Passing Through
+2. Hello L.A., Bye Bye Birmingham
+3. Oobleedooblee Jubilee
+4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208832   (779811) от 23.02.2018
+
+Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Living Out Loud 4:32
+02. Lost Cause 5:02
+03. Landslide 5:28
+04. That Which Doesn't Kill Me 4:42(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208182   (780076) от 21.02.2018
 
 Stefan Kaiser - Dreaming in Pink Floyd (2018) [MP3|320 Kbps] <Progressive Rock>
@@ -653,60 +707,6 @@ We Versus The Shark - Goodbye Guitar (2020) [MP3|320 Kbps] <Math Rock, Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6A0A2068CBAD945F1BD7E830A97C81BDA14420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206233   (782114) от 14.02.2018
-
-No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Unify Express
-2. Invasor Ballad (The Fallen Mask)
-3. You Are in Teatro
-4. Fly Under the Moon When Midnight Rises(   Читать дальше...   )Жанр: Rock, Modern RockПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206598   (782143) от 14.02.2018
-
-Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Blues
-02. Angels
-03. I Wanted You
-04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
 ```
 
 

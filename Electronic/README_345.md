@@ -1,3 +1,83 @@
+###  Публикация: 1535856   (682507) от 08.03.2022
+
+VA - Storm'99 Progressive Dance (1999) [FLAC|Lossless|tracks + .cue] <Progressive House, House, Speed Garage>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vengaboys - Boom, Boom, Boom, Boom! (Brooklyn Bounce Boombastic Remix) (4:11)
+02. Blackout - Gotta Have Hope (Spring Mix) (3:19)
+03. Boys'R'Us - Singin' In My Mind (Greenfield S.G. Dub/Scklon Edit) (5:41)
+04. D.O.N.S. - Jack To The Sound Of The Underground (D.O.N.S. Single Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Speed GarageПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5417316A7412858F367B5F3A49C1DC59DFD435A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535664   (682511) от 08.03.2022
+
+Kobra Force - Nomads (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Wanderers (3:26)
+02. Shiver (4:38)
+03. Nomad (4:30)
+04. Magenta Skyline (3:50)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A625BB8EF3B6505DCCE9EF1F8D75A93FBDD5EA2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029306   (682569) от 26.06.2016
+
+Eagles & Butterflies - Constellations EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comet (Original Mix) (06:18)
+02. Moon (Original Mix) (08:29)
+03. Sun (Original Mix) (09:34)Жанр: Deep House, Tech HouseПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFD03D8DB87BC57D452F923F72087F74A769C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029471   (682611) от 26.06.2016
 
 VA - Deephouse Favorites 2k16 (2016) [MP3|320 кб/с] <House>
@@ -618,87 +698,6 @@ VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E1DD7451C187CC925E6302D951133A86DB2F9B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134971   (685086) от 17.05.2017
-
-VA - Ibiza-Unique Presents Fairy Tails Vol.2 (Mixed by Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Bunka & Hammond Schneider - Desierto  4:16
-02.  Foundland - A Few More Survivors  6:24
-03.  Haldo - Back To Joy (feat. Georgia Cee) (Lounge Deep)  6:46
-04.  Graphite - Asmat (Alexander F Mix)  8:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0664DD4F1A071C7F10C56CE30A779CB3A4DA0E0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134953   (685213) от 17.05.2017
-
-VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ingo Herrmann - Serenata (Original Mix)  3:51
-02.  Vitali And His Lounge Orchestra - Smooth Dance (Original Mix)  5:15
-03.  Kulyela - Rare Mambo (Original Mix)  3:56
-04.  Pulse Tone - Zeus (Original Mix)  3:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A090639BBEB9C2D32DBAA521B8EFE1E74E78E2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134944   (685214) от 17.05.2017
-
-VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kai French - Balearic Dreams (Original Mix)  3:05
-02.  Urban Phunk Society - Night Train (Original Mix)  3:21
-03.  Castlebed - Hazy Place (Original Mix)  3:50
-04.  Zer - Yellow Reflections (Original Mix)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF91108BD373496C6A56A98939334ADCB3A737B
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1281414   (753491) от 07.02.2019
+
+Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Formations Of Grace (12:36)
+ 02. The Nebulous Chords (08:32)
+ 03. Brittle Air Elegy (12:34)
+ 04. And All The Murmur Fell (07:46)Жанр: Ambient, Drone, Experimental •Продолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71934AF2B9EE25664DD945BABD0B33A70526B035
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281339   (753492) от 07.02.2019
+
+Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon (04:03)
+ 02. Parsec (06:19)
+ 03. Currents (06:16)
+ 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281407   (753594) от 07.02.2019
+
+Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambrose (07:25)
+ 02. Individual (07:06)Жанр: Dub Techno, Electro, TechnoПродолжительность: 00:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018711   (754015) от 21.05.2016
 
 VA - Pure Bliss Vocals (Spring 2016) (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
@@ -614,87 +693,6 @@ The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215770   (756616) от 27.03.2018
-
-Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mineral Minds (feat. TVS) (05:46)
-02. Mechanic Fly (08:40)
-03. Atlàntida Dos (08:39)
-04. F.U. (07:52)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB57E1E6DC3B6E8CFFB2B351874ED8D004EE463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522803   (756641) от 08.01.2022
-
-VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska – Next Time Soon (06:03)
-02. Dellasollounge – Come With Me (original mix) (03:18)
-03. Marga Sol – Butterflies (original mix) (06:50)
-04. Steen Thottrup – Balearic Bliss (original mix) (05:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00B113582A55EB69714452668E94F7EB8CCACB2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215797   (756735) от 27.03.2018
-
-Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <House, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Doves (3:40)
- 02. Changes (3:34)
- 03. Electric Love (2:40)
- 04. Emma (3:49)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
 ```
 
 

@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820641   (325) от 28.09.2025
 
 Minimal Firewall 2.2.4 Portable [En]

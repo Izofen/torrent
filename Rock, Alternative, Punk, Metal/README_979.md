@@ -1,3 +1,57 @@
+###  Публикация: 1398924   (734871) от 28.07.2020
+
+Borknagar - Universal (2010) [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Havoc (06:42)
+02. Reason (06:55)
+03. The Stir Of Seasons (04:02)
+04. For A Thousand Years To Come (06:47)(   Читать дальше...   )Жанр: Black Metal, AvantgardeПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5119233D1C909C153636A957E91C063DB1EA1C3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528003   (734926) от 01.02.2022
+
+Scream Maker - Bloodking (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation
+02. Mirror, Mirror
+03. BloodKing
+04. When Our Fight Is Over(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2CB3E7AD4795AE0291F9DFEF98445C73890F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528440   (734949) от 01.02.2022
 
 VA - The Top 100 Most Played꞉ Metal (2022) [MP3|320 Kbps] <Metal, Rock>
@@ -636,60 +690,6 @@ Morse / Portnoy / George - Cover To Cover Anthology (2020) Vol. 1-3 (3xCD) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CED0E20EC84C2411A2BDD54F74F77050DF6A768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398134   (736234) от 25.07.2020
-
-Zephyria - Celestial Insurrection (2020) [MP3|320 Kbps] <Progressive Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Insurrection (01:22)
- 02. Sin Eater (05:32)
- 03. God Butcher (05:48)
- 04. Parasite Dreams (03:32)(   Читать дальше...   )Жанр: Progressive Metal, DeathcoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CFCB2EBCBBDA778BCDBF8F2E72820404DACE704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527560   (736389) от 29.01.2022
-
-The Beatles - Get Back: The Rooftop Performance (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Back (Rooftop Performance / Take 1) (4:43)
- 02. Get Back (Rooftop Performance / Take 2) (3:24)
- 03. Don't Let Me Down (Rooftop Performance / Take 1) (3:22)
- 04. I've Got A Feeling (Rooftop Performance / Take 1) (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0C2E4043E6418B10F04DB24CF1079C9E83CF6C
 ```
 
 

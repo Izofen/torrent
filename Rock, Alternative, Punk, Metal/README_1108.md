@@ -1,3 +1,56 @@
+###  Публикация: 1375023   (869098) от 12.04.2020
+
+Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Dream Within A Dream
+02 The Thirteenth Of November
+03 Woodstock Child
+04 The Sweet Taste Of Ruin(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998115   (869664) от 19.03.2016
+
+Аквариум и Борис Гребенщиков - Песни Нелюбимых (2016) [MP3|320 кб/с] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песни нелюбимых (03:34)
+2. Собачий вальс (04:17)
+3. Пыль (03:46)Жанр: РокПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848566FA290C44B5BBC60DCC770A7948FE7579D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998140   (869803) от 19.03.2016
 
 Аквариум и Борис Гребенщиков - Песни нелюбимых (2016) EP [FLAC|Lossless|tracks] <Рок>
@@ -637,60 +690,6 @@ Kill the Kong - 2 Albums / 4 Singles (2016-2019) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:821C05446B88AE87133541432E2D2624937157C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496612   (871226) от 18.09.2021
-
-Ozzy Osbourne - No More Tears (2021) 30th Anniversary Expanded Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Tinkertrain
-02. I Don't Want to Change the World
-03. Mama, I'm Coming Home
-04. Desire(   Читать дальше...   )Жанр: RockПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EF5CE72BEA3916A0A65D28CF9A11E3117631E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496680   (871229) от 18.09.2021
-
-Гарик Сукачёв & Александр Ф. Скляр - Боцман и бродяга. Часть 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет морскому ветру [00:03:58]
-02. Поезд уходит далеко [00:02:28]
-03. И снова май месяц [00:04:07]
-04. Когда придёт весна, не знаю [00:04:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:490C2A163A4F423371F21912DCB66C62A41C8522
 ```
 
 

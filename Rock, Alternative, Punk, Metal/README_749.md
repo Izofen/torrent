@@ -1,3 +1,57 @@
+###  Публикация: 1319112   (488733) от 09.08.2019
+
+Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Won't Go Slowly (03:41)
+02. Chocolate (Reworked) (03:47)
+03. Crack The Shutters (Reworked) (03:16)
+04. Open Your Eyes (Reworked) (04:14)Жанр: Indie Pop, Indie RockПродолжительность: 00:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B9BFCC0BF1BDAE3836B33D0831EE1BD9004E564
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319154   (488869) от 09.08.2019
+
+Finsterforst - Zerfall (2019) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wut
+2. Zerfall
+3. Fluch des Seins
+4. Weltenbrand(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BE70EBA7B8542D33EB5AEA7A678C8AE993128C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319114   (488870) от 09.08.2019
 
 Northlane - Alien (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metalcore, Industrial>
@@ -654,60 +708,6 @@ Light the Torch (ранее Devil You Know) — Данный музыкальн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D914B772B58AC9CF9D4AE0A4D34C7CBD2873A98D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565876   (490434) от 25.07.2022
-
-Playhouse - Dancing At Funerals (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem (01:36)
-02. Dancing At Funerals (03:38)
-03. Last Kiss (03:33)
-04. Hell's A Long Way Down (03:21)(   Читать дальше...   )Жанр: Classic Rock, Melodic Hard RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E5DDCFE1BE659D5CEB40CB0B554B1D54121B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565750   (490436) от 25.07.2022
-
-Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canticle
-02. Amber Skies: Shadows of My Becoming
-03. An Unfamiliar Embrace
-04. Bury Me in Silence(   Читать дальше...   )Жанр: Epic Doom, Neo-Classical MetalПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36456ECFA0BD1E42F963335E5CB94BE74C11EA24
 ```
 
 

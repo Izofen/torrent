@@ -1,3 +1,30 @@
+###  Публикация: 1230343   (615392) от 12.06.2018
+
+VA - Instrumental Smooth Jazz (2018) [MP3|320 Kbps] <Instrumental, Smooth Jazz, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615392.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vladi Strecker - Evening Groove
+002. Lady Estefan Gum - tobacco grace ltd
+003. Carl Neal - 03 - Love Grace
+004. DJ Maretimo - The Colours Of Light(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, Easy ListeningПродолжительность: 07:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C0A93500061782DE69FEDD8276359E1876FF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523964   (615397) от 17.07.2012
 
 VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.21 (2012) [MP3|128-320 кб/с]<Pop, Dance>
@@ -719,39 +746,6 @@ VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523352   (617217) от 16.07.2012
-
-VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617217.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Late Night Alumni - Empty Streets (5:01)
-2. Mimi Page - Mimi Page - My Vanilla Sky (2:44)
-3. Lemongrass - Riddle (Feat. Jane Maximova) (4:27)
-4. Bloomfield - Rendez-Vous A Paris (6:11)
-5. Afterlife - Black Iris (4:44)
-6. Massive Gold - Lady Love - Radio Gaga Lounge Mix (5:50)
-7. Soulounge - Love's In Need Of Love Today (Feat. Roger Cicero & Nathalie Dorra) (3:59)
-8. Abe Duque - Following My Heart (Feat. Virginia) (6:13)
-9. Mimi Page - Mimi Page - Black Valentine (3:10)
-10. Idenline - At Sunset (3:43)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
 ```
 
 

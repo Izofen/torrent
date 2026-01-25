@@ -1,3 +1,57 @@
+###  Публикация: 1368185   (912191) от 18.03.2020
+
+Голос Кинчева - Рой Ил (2020) [MP3|320 Kbps] <Psihodelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Son of George [00:02:40]
+02 Курочка [00:03:00]
+03 Спортивный отшельник [00:02:28]
+04 Рассосалась школота [00:02:58](   Читать дальше...   )Жанр: Psihodelic RockПродолжительность: 00:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72491E780AC0F73FA192BA35302886F9D6C253E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097522   (914290) от 27.01.2017
+
+Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu
+02. Helplessly Hoping
+03. Wooden Ships
+04. Teach Your Children(   Читать дальше...   )Жанр: Classic Rock, Soft RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9473F72CE8A871A1A8F9B3DC608DCE6F01556A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490727   (915405) от 22.08.2021
 
 Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Rock>
@@ -660,66 +714,6 @@ Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Be
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B7DEABB41B7C25287B131BEED28A08CD4BA540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178845   (923067) от 26.02.2010
-
-The White Stripes (with side projects) - Discography (25 albums) (1999-2009) [MP3|320 kbps]<Garage Rock, Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 Star Tabernacle - Lily White Mama and Jet Black Daddy (2:55)
-2. 2 Star Tabernacle - Ramblin' Man (4:29)
-3. Jack White - Christmas Time Will Soon Be Over (3:16)
-4. Jack White - Fly Farm Blues (3:18)
-5. Jack White - Great High Mountain (4:33)
-6. Jack White - Never Far Away (3:40)
-7. Jack White - Sittin' On Top of The World (3:48)
-8. Jack White - Wayfaring Stranger (4:25)
-9. J.White and A.Keys - Another Way To Die (Instrumental) (4:18)
-10. J.White and A.Keys - Another Way To Die (4:18)(   Читать дальше...   )Жанр: Garage Rock, Alternative Rock, Indie RockПродолжительность: 05:25:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095491   (924178) от 21.01.2017
-
-QSP (Quatro Scott Powell) - QSP (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Down 3:45
-02. Long Way from Home 6:14
-03. Tobacco Road 3:42
-04. If Only 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919434E95D82AA69D25AF7F0D087D22F19F32B17
 ```
 
 

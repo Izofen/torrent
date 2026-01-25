@@ -1,3 +1,57 @@
+###  Публикация: 999931   (862536) от 23.03.2016
+
+Ольга Арефьева и Ковчег - Джейн (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клоун Зло
+02. Алабама
+03. Женщина с синей рукой
+04. Домик красных фонарей(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC15491AD780BE83B0F561AFEC5105796A1A00B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999928   (862548) от 23.03.2016
+
+Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг лучше всех играет блюз
+02. Шанхай-блюз
+03. Дороги наши разошлись
+04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108453   (862701) от 25.02.2017
 
 Celtic Pink Floyd - Celtic Pink Floyd (2011) [FLAC|Lossless|tracks + .cue] <Celtik Rock>
@@ -639,60 +693,6 @@ Ice Age - The Great Divide (1999) [WavPack|Lossless|image + .cue] <Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9714DD6C11E375F5173EEF161F63E37ECA05E5C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375734   (863897) от 15.04.2020
-
-Axxis - Virus of a Modern Time (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Babylon [3:38]
- 2. Boats of Hope [5:01]
- 3. Last Eagle [4:27]
- 4. Mother Money [5:02](   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D2410CD25B08AAEEA5642CB4B15B3BFF1A6244
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999492   (863948) от 22.03.2016
-
-Jеff Весk - Еmоtiоn & Соmmоtiоn (2010) Jараn Еditiоn [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corpus Christi Carol   02:40
-02. Hammerhead   04:15
-03. Never Alone   04:22
-04. Over The Rainbow   03:10(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC283EE8D63B44F6758A59C6CBE9B5E93D73B3E0
 ```
 
 

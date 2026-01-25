@@ -1,3 +1,27 @@
+###  Публикация: 935179   (499247) от 08.09.2015
+
+Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: new ageПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCC269F4E18F8FE634688D19FDA09CCE1F1DBA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542578   (499284) от 02.09.2012
 
 VA - Музыка для отдыха №2 (2011) [MP3|320 кб/с]<Piano, New Age, Meditative, Ambient, Classical, Folklore>
@@ -749,33 +773,6 @@ VA - Music News vol.203 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0174382862B0421B48C6850EBD0EB9ECBEC1665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564389   (500587) от 18.07.2022
-
-Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You Waiting For?
-02. Silver Spoon
-03. Absolutely Nothing
-04. Friday Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
 ```
 
 

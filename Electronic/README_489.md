@@ -1,3 +1,84 @@
+###  Публикация: 974512   (975682) от 12.01.2016
+
+VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
+02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
+03. Marga Sol - Find Yourself (07:01)
+04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974593   (975729) от 12.01.2016
+
+Blank & Jones - Chilltronica №5 (2015) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones - Interstellar (Marc-George Infinite Reprise) (4:40)
+02. Troels Hammer - Azur (2:01)
+03. Marc-George - World of Life (5:20)
+04. Blank & Jones - White Light (7:34)(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 01:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B348A3DDF26D6D52249ADB3BDB40CF781673153
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973558   (975748) от 12.01.2016
+
+Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Revees feat. Alanah - Lonely (Aurosonic intro bootleg)
+02.Aurosonic - My Way (original mix)
+03.Aurosonic & Ange - Without You (2011 dj mix)
+04.Aurosonic & Frainbreeze feat. Katty Heath - All I Need (club mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FE2CBE68BF153945EDE582C19D699F1DE05826
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356933   (976564) от 01.02.2020
 
 VA - Goa 2020 Vol.1 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psychedelic, Electronic>
@@ -618,87 +699,6 @@ Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973363   (980101) от 08.01.2016
-
-VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brookes Brothers - Climb High (feat. Danny Byrd - radio edit)
-02. The Prototypes - Hypercube
-03. InsideInfo & Mefjus - Pulsation
-04. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973157   (980200) от 08.01.2016
-
-VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Morais - We All Fall Down (07:03)
-02. Hyzan - Booty (08:45)
-03. Hyzan - So Icey (07:18)
-04. OTTOO - Growl (06:49)(   Читать дальше...   )Производство: Deep InsaneЖанр: Deep House, Club HouseПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356031   (980523) от 29.01.2020
-
-Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Light (01:43)
-02. Whisper (03:22)
-03. The Gallery (03:31)
-04. Words (04:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1470369   (1015764) от 16.05.2021
+
+Колибри - Счастья нет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Очумелые глаза
+2. Народная
+3. Физика
+4. Миленький(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35146DC2F32D504667B087D390CCE8443A17D31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470399   (1015765) от 16.05.2021
+
+Х*й Забей - Переспели (2014) [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настя (2:08)
+02. Фотокарточка (2:10)
+03. Говно (1:54)
+04. Верный способ (1:11)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54CE6C6903487E8B083F63AD1533DD717C3EBCA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470197   (1015800) от 16.05.2021
 
 Traveler - Termination Shock (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -641,60 +695,6 @@ Maverick - Quid Pro Quo (2014) [FLAC|Lossless|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3DE10B7B5DEA2F99335E03C62EDFE3B0D9ABBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469965   (1016167) от 14.05.2021
-
-Galleons - Galleons (2021) [MP3|320 Kbps] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Playing With Fire is Such a Cliche (5:03)
-02. Youngblood (feat. Tobias Rische of ex-Alazka) (3:38)
-03. That Ain't No Crown (3:43)
-04. Hate the Player, Not the Game (3:39)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915210CBB2D54F169F8D8420A2C1C33A172F66EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469626   (1016168) от 14.05.2021
-
-Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
-02. Ирмос / Irmos I (4:42)
-03. Ирмос / Irmos II (6:08)
-04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
 ```
 
 

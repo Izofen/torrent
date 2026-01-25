@@ -1,3 +1,57 @@
+###  Публикация: 825219   (462301) от 26.09.2014
+
+Парк Горького - Gorky Park II (Moscow Calling) (1993) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moscow Calling   (5:10)
+02.  All Roads   (5:12)
+03.  Politics Of Love   (4:06)
+04.  Tomorrow   (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407707   (462356) от 09.09.2020
+
+Dругой Ветер - Альбом, которого нет (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462356.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Номерки (feat. Дмитрий Спирин)
+2. Запретный трек
+3. Свидетели стабильности
+4. Соблюдай режим (feat. Лёха Никонов)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA074194995FA1F10E667A196E32BB17368F9FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407609   (462425) от 09.09.2020
 
 АукцЫон - Мечты (2020) [WavPack|Lossless|image + .cue] <Rock>
@@ -641,60 +695,6 @@ Soulfly - Totem (2022) [FLAC|Lossless|image + .cue] <Death Metal, Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5905BECC9D8E420AF70F34995AD65A5BC01EEE15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568238   (464100) от 07.08.2022
-
-Tempest - Tempest / Living In Fear (1990) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tempest
-01. Gorgon (5:45)
-02. Foyers Of Fun (3:45)
-03. Dark House (5:07)(   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D80BA96C3905696323D1DB0D18F49C17897B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568266   (464106) от 07.08.2022
-
-Champlin Williams Friestedt - CWF (2015) Reissue, 2021, Sony Records Int'l, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway (3:57)
-02. Nightfly (3:35)
-03. Aria (4:38)
-04. Two Hearts At War (4:09)(   Читать дальше...   )Жанр: Melodic Rock, Westcoast, AORПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4398501FBAA6BF948A738B4A47D7B9064641408F
 ```
 
 

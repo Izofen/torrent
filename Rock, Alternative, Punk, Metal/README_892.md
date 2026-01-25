@@ -1,3 +1,57 @@
+###  Публикация: 1033874   (636037) от 12.07.2016
+
+David Gilmour - Paramount Theater, Oakland CA, April 16 2006 (2006) Bootleg, Live [MP3|320 Kbps] <Progressive rock, Art rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Speak to Me
+02 – Time
+03 – Castellorizon
+04 – On an Island(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 02:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC718D1E47A25FC4ACA531128FD73EB020E7138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907444   (636060) от 13.06.2015
+
+Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.cue]<Rock, Progressive Rock, Experimental Rock, Alternative Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Cream For Crow 04:35
+02. The Host, The Ghost, The Most Holy-O 02:25
+03. Semi-Multicoloured Caucasian 04:21
+04. Hey Garland, I Dig Your Tweed Coat 03:12(   Читать дальше...   )Жанр: Rock, Progressive Rock, Experimental Rock, Alternative Rock, AvantgardeПродолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE6876648F0B1490B6A8FDDE5ACB0C909BF9B94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033627   (636144) от 12.07.2016
 
 Vinnie Moore - Aerial Visions (2015) [FLAC|Lossless|image + .cue] <Neoclassical, Heavy Metal, Instrumental Rock>
@@ -645,60 +699,6 @@ Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Tri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220C94F6178867FAD7CDF4B16DC14856FCF17EB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541433   (637389) от 07.04.2022
-
-The Basement Tribe - Path to the Temple (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Nation of Wizards [00:09:00]
-02 Desert Shrine [00:05:14]
-03 Red Morning [00:06:08]
-04 Dune Walk [00:04:03](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34EDCB837FA2220D50F9E47A1BA286C144F591C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542064   (637390) от 07.04.2022
-
-In the Last Days - Do What Thou Wilt (2022) [MP3|320 Kbps] <Hardcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Last Days [00:01:57]
-02. Total Disregard [00:03:40]
-03. Power of the Stem [00:02:06]
-04. Psycho-Plasmic Interchange [00:03:43](   Читать дальше...   )Жанр: Hardcore, Modern MetalПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CA9C309DC453EFE8FB44C32C6D18B76F905316
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1358751   (967425) от 09.02.2020
+
+Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little God                                                            [04:59]
+02. Strangers with Nothing to Lose                                        [04:48]
+03. Lonely Man                                                            [03:36]
+04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358833   (967428) от 09.02.2020
+
+GZR - Ohmwork (2005) [Geezer Butler, bass - Black Sabbath] [FLAC|Lossless|image + .cue] <Sludge Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misfit [03:24]
+02. Pardon My Depression [04:37]
+03. Prisoner 103 [03:09]
+04. I Believe [06:54](   Читать дальше...   )Жанр: Sludge Metal, Industrial MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52F7E4470CE971038C13C670D1235B4383066EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 168923   (967479) от 23.01.2010
 
 Electric Six - Дискография (2003 - 2009)[MP3|192-320kbps] <Rock>
@@ -650,66 +704,6 @@ Gundacker Project - Plug Me In (2013) [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3A91073475EA9A463CE999584A630FF53AF8C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617444   (969621) от 14.02.2013
-
-Noir Desir - 12 CDs (1987..2001) Discography [MP3|320 kbps]<Post-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1987 - Ou Veux Tu Qu'je R'garde
-1989 - Veuillez Rendre L'ame (А Qui Elle Appartient)
-1990 - Du Ciment Sous Les Plaines
-1992 - Tostaky
-1994 - Dies Irae (Live) 2CD
-1996 - 666.667 Club
-1998 - One Trip One Noise
-2000 - En Route Pour La Joie (3CD)
-2001 - Des Visages Des FiguresЖанр: Post-Punk, Alternative RockПродолжительность: 10:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF7FF54CEF5C442E4F337724B680E3145AFBB70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358300   (969637) от 07.02.2020
-
-Green Day - Father Of All Motherfuckers (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Of All...
-02. Fire, Ready, Aim
-03. Oh Yeah!
-04. Meet Me On The Roof(   Читать дальше...   )Жанр: Alternative, Punk RockПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4453CFD099EA1EA10AFC508724C52F87FCF0051
 ```
 
 

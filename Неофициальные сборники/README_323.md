@@ -1,3 +1,30 @@
+###  Публикация: 1310760   (545299) от 26.06.2019
+
+VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Andrea Berg - Die geheimen Träumer
+03. Ben Zucker - Wer sagt das
+04. Axel Fischer - Norderney (Sylaar Radio Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6344FD9FD47057FD04AE25E0831306C23B3910C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048798   (545401) от 03.09.2016
 
 VA - Горячие Новинки От Зайцев.Нет часть 1 (2016) [MP3|189~320 Kbps] <Pop, Dance>
@@ -667,33 +694,6 @@ VA - По волне моей памяти 2: Том35 (Compiled by Виктор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:247AE37944BA3B72D35983A395C7F091302E35D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048257   (547044) от 01.09.2016
-
-VA - Новая Жажда Скорости. Полный Драйв! (2016) [MP3|320 Kbps] <Club, Dance, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiosonik X Jerome - Thong Song
-02. Flo Rida - Right Round (Crystal Sea Remix)
-03. Nick Skitz & Raverockerz Feat. Brooklyn Bounce - Rock The Party (Original Mix)
-04. Real Club Mafia - Hi Russia! (From Sweden)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 05:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA6AAA9AACE8CFB72F2135128BE73435D1D5FAD
 ```
 
 

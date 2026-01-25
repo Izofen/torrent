@@ -1,3 +1,57 @@
+###  Публикация: 1295778   (617091) от 14.04.2019
+
+36 Crazyfists - Lanterns (2017) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Eater (4:18)
+ 02. Wars to Walk Away From (3:44)
+ 03. Better to Burn (3:59)
+ 04. Damaged Under Sun (3:05)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCEAA68405E0755049FA1AFAF5DCFC09266BD7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295782   (617094) от 14.04.2019
+
+Bastions - Verses (2012) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seagulls (1:07)
+ 02. Monument (2:25)
+ 03. We Will All Sink (2:14)
+ 04. Fathoms (1:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2396C7D4E8BCD4D5CAEA58924C0086F94DB68F5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295780   (617095) от 14.04.2019
 
 Haunts - A Lack of Empathy (2017) EP [FLAC|Lossless|tracks + .cue] <Post Rock>
@@ -636,57 +690,6 @@ Distruzione - Distruzione (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92ABB15B5ED5BA7B88AEF419E0503869FD949B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911026   (618611) от 22.06.2015
-
-Valensorow - The Battle Of Oak Mountain (2015) [MP3|320 кб/с]<Folk / Viking Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oak Mountain
-02. Regenesis
-03. Dagratha
-04. Deloth's Stone(   Читать дальше...   )Жанр: Folk / Viking Metal, MetalcoreПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58E8F03C36826C71DD45C7879103D86676B6DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295713   (618701) от 13.04.2019
-
-Крематорий - Гагарин лайт (2019) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618701.jpg" />
-</div>
-
-
-###  Подробнее
-
-К пионеру космонавтики название и сюжет песни имеют весьма опосредованное значение. Здесь первый покоритель околоземного пространства выступает скорее как помощник главного героя песни, решившего на досуге заняться поисками Бога в предполагаемых местах его локального пребывания! Сами музыканты группы охарактеризовали жанр нового видео как «юмористическую психоделию». (   Читать дальше...   )1. Гагарин лайтЖанр: RockПродолжительность: 00:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6412036DBBC32D7B30E5F64EB3E3BB0FF06818A7
 ```
 
 

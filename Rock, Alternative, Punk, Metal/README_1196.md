@@ -1,3 +1,68 @@
+###  Публикация: 602002   (997827) от 12.01.2013
+
+Don Felder - Road To Forever (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall From the Grace of Love [03:45]
+02. Girls In Black [03:37]
+03. Wash Away [04:16]
+04. I Believe In You [03:56]
+05. You Don't Have Me [03:45]
+06. Money [04:10]
+07. Someday [04:11]
+08. Heal Me [07:21]
+09. Over You [04:07]
+10. Road To Forever [04:58](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602045   (997859) от 12.01.2013
+
+Nebulous - The Quantum Transcendence Of Death (2013) [FLAC|Lossless]<Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I: Of Means And Ends (1:48)
+2. II: Catalyze (3:56)
+3. III: SN 5270 (3:38)
+4. IV: Aggregating Powers (4:21)
+5. V: The Quantum Transcendence Of Death (1:25)
+6. VI: Devourer Of The Cosmos (2:48)
+7. VII: Forever Impaled (4:07)
+8. VIII: Hivemind (3:29)
+9. IX: Spectrums (3:47)Жанр: Technical Death MetalПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601823   (997870) от 12.01.2013
 
 Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop>
@@ -743,68 +808,6 @@ VA - Futuristic Metal Compilation: Cyber Metal (2011) [MP3|256-320 kbps] <Cyber 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CD524113DBE6B80F2B2EBF78FC005DE0C91AE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598708   (999376) от 06.01.2013
-
-Shining - 7 Альбомов (2000 - 2009) [FLAC|Lossless]<Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vilseledda Barnasjalars Hemvist
-02 - Plagoande O'Helga Plagoande
-03 - Fullstandigt Javla Dod Inuti
-04 - Ohm (Sommar Med Siv)
-05 - Krossade Drommar Och Brutna Loften
-06 - Total UtfrysningЖанр: Depressive Black MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598651   (999404) от 06.01.2013
-
-Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320, VBR:~280]<Atmospheric Black Metal, Death Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Норвежская блэк металлическая группа. В начале играла очень спокойный, мелодичный и мрачный атмосферный метал (до 1996 года, включительно), более тяготеющий к жанру Dark metal, а не к типичным представителям атмосферного блэка.
-Позже был переходный период к дэт-блэку, который, с альбома 2000 - Murder, приобрёл очень жёсткое, дэт-блэковое, даже, скорее, трешевое звучание.
-Поначалу лирика была посвящена средневековой мистики, черной магии и жизненному пути во тьме и среди зла. Позже она приобрела явный сатанинский и современный апокалипсический окрас, чаще всего присущий обычному блэк/дэт металлу, и несколько утратила свою первоначальную красоту.1 Grenade Prayer.mp3
-2 Death to Them All.mp3
-3 New Blood.mp3
-4 Flames of the Pit.mp3
-5 Silence the Earth.mp3
-6 Werewolf.mp3
-7 Abattoir.mp3
-8 Pallbearer.mp3Жанр: Death Black Metal (Trash metal)Продолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
 ```
 
 

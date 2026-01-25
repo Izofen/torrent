@@ -1,3 +1,84 @@
+###  Публикация: 1499571   (846313) от 03.10.2021
+
+Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home (3:52)
+ 02. Too Weak (4:01)
+ 03. Sweeping (4:04)
+ 04. Lost for Words (feat Panama) (3:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000474   (846433) от 01.04.2016
+
+Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  With Russia From Love (02:04)
+02.  Life In Da Trash (03:20)
+03.  Public Enemy (03:08)
+04.  My Way (03:59)(   Читать дальше...   )Жанр: RaveПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F810F743127BB139AF6EAE6A684F5EBC29DB562E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378607   (846456) от 25.04.2020
+
+VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GAW - Back & Forth [03:23]
+02. Decrypt - Bio Weapon [04:29]
+03. MQ - Bootcut Slut [04:30]
+04. Project Lando - Apollo [04:34](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186372   (846521) от 25.04.2020
 
 0ID (OID, Andrei Oid) - Discography 12 Releases (2004-2020) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Experimental, IDM, Techno>
@@ -608,87 +689,6 @@ Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F1D0035A26C2E4FCC52740236DC7F370CB79C35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377746   (849825) от 23.04.2020
-
-Blank & Jones - Milchbar - Seaside Season 12 (2020) DJ Mix [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones – Crosswinds (04:13)
-02. Blank & Jones – High Fly (04:20)
-03. Sixtine – L'exactitude (04:00)
-04. Ambala – Sergios Theme (04:49)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, DowntempoПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC2986CF1E4FA8D220272BA4A6AEAA412A8E7E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378023   (849897) от 23.04.2020
-
-Liquid Viking - Spiritual Awakening (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849897.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Invisible (7:32)
-2. Vision (6:43)
-3. Tramatic (7:08)
-4. Fusion (7:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65925B8284F95B6DC920C711A3FF5EE49E461973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377802   (850002) от 23.04.2020
-
-VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850002.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Modell & Mercier - For My Soul (Early Dance mix) (4:02)
-2.Folder Full - 4 Strings (Fields Forever mix) (3:11)
-3.Alexander Sander - Dubai Beach (It Hurts To Shoot mix) (3:12)
-4.Jep Neil - Muba (Give Me Your mix) (2:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB634888A51F8A436CCE16E020DB01817A4B467
 ```
 
 

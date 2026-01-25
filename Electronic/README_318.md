@@ -1,3 +1,84 @@
+###  Публикация: 1144529   (627745) от 22.06.2017
+
+VA - Relaxing Beach Chillout Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key Of Dreams - Amos Moses
+02. Leo Dj - Vitesse
+03. Monodial - Beat Flowers
+04. Casablanca - Dark Room(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3C91D33F2EBB7861AB8FC7A594A70A9AC68912
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144424   (627747) от 22.06.2017
+
+VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627747.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex Pich, Shinobi & Julius Beat - Satisfaction Love (Willem De Roo remix) (07:30)
+2. Gregory Esayan & Natalia Pevcova - So Right (dub mix) (08:00)
+3. James Woods - Here Comes The Light (original mix) (07:01)
+4. Alexey Sorokin - Behind The Moon (Mizar B 'Moon Landing' remix) (08:32)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A03515671AE6BBCBA3BAA54D780AF7762526CF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144367   (627748) от 22.06.2017
+
+Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (02:16)
+2. Between No Words (05:09)
+3. Want Be (04:00)
+4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144181   (627751) от 22.06.2017
 
 VA - This Is My Church Vol.6 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE869B4320A7361AC0DD6D7B089831995DD4AA59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144158   (628902) от 21.06.2017
-
-VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bes & Meret - Free (feat Wilton De Grey - Dancecom Project radio cut)
-02. Tydra - Sunshine (Mavaro & Maxtreme remix)
-03. Amoon - Since You've Been Gone (feat Pit Bailey - Club mix)
-04. Fooh Funk - Be In Love (Mario Chris remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB83800C6BC495BDECDFACF3DF31056453B681A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543607   (629248) от 11.04.2022
-
-NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Departure (6:45)
-02. Flying to the Stars (6:18)
-03. Virtu or Fama (5:24)
-04. Collision Course (5:46)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F78D669E092F89F24C1322A292F19277D6EF2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144205   (629366) от 21.06.2017
-
-Jens Buchert - Gravity (2017) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity 06:04
-02. Hollows 04:22
-03. For Berlin 05:33
-04. Motiongate 05:12(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836EFBEEDFCC41E0EAAEE9DA77C4E18CF2697803
 ```
 
 

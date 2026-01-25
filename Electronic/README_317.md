@@ -1,3 +1,84 @@
+###  Публикация: 1144376   (625930) от 23.06.2017
+
+VA - Sonar 2017/Take Your Way 01 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daniel Meister - It's Possible (07:30)
+2. Da Rua - Step Two (06:31)
+3. David Zor - Field In Brooklyn (06:16)
+4. Eugeneos - Gender Wav (08:30)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1BACB773C296C4A1A3E02357CB01C6E57ADD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144761   (625933) от 23.06.2017
+
+VA - Italian Barista Vol.1 (30 Wonderful Lounge & Down Beat Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - Miss Saigon (Original Mix)  4:30
+02.  Christos Fourkis - Butterflies Everywhere (Original Mix)  6:46
+03.  Svendaq - Your Love (Original Mix)  5:21
+04.  Chris Le Blanc - Melville Sings The Blues (Extended Mix)  4:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CB4F21EE4C57BD317E33FA823D45B9B073D268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144632   (625934) от 23.06.2017
+
+Martins Garden & Friends - Horizon (2017) [MP3|320 Kbps] <Psydub, Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martins Garden, Spyfromcairo - Horizon (7:13)
+02. Martins Garden, Lo.Renzo, Ponder - Shangri-La (7:26)
+03. Martins Garden, Lo.Renzo, Spyfromcairo, Ponder - Mithraya (6:43)
+04. Martins Garden - Candali (6:36)(   Читать дальше...   )Жанр: Psydub, Ambient, ChilloutПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CBA4AF7541DC3CA00B7C6D1F2E215A037627D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144425   (625937) от 23.06.2017
 
 VA - Ostentatious Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
@@ -615,87 +696,6 @@ VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144529   (627745) от 22.06.2017
-
-VA - Relaxing Beach Chillout Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key Of Dreams - Amos Moses
-02. Leo Dj - Vitesse
-03. Monodial - Beat Flowers
-04. Casablanca - Dark Room(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3C91D33F2EBB7861AB8FC7A594A70A9AC68912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144424   (627747) от 22.06.2017
-
-VA - Classic Progressive House Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Pich, Shinobi & Julius Beat - Satisfaction Love (Willem De Roo remix) (07:30)
-2. Gregory Esayan & Natalia Pevcova - So Right (dub mix) (08:00)
-3. James Woods - Here Comes The Light (original mix) (07:01)
-4. Alexey Sorokin - Behind The Moon (Mizar B 'Moon Landing' remix) (08:32)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A03515671AE6BBCBA3BAA54D780AF7762526CF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144367   (627748) от 22.06.2017
-
-Mike Dehnert - Providing Home (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627748.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (02:16)
-2. Between No Words (05:09)
-3. Want Be (04:00)
-4. Providing Home (05:20)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046A04FD5D01E5E6E008D736BCF5873470F3247D
 ```
 
 

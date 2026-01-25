@@ -1,4 +1,85 @@
-###  Публикация: 1846951   (1051813) от 
+###  Публикация: 1846318   (1051313) от 24.01.2026
+
+VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agents Of Time & CERES - Baby
+02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
+03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
+04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846308   (1051316) от 06.01.2026
+
+VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepanima - Autumn Leaves (Dalibor Dadoff Remix) (6:50)
+02. Boyzen SA - Falling for You (6:17)
+03. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)
+04. TRANQVIL - Midnight (3:20)(   Читать дальше...   )Жанр: Balearic, Downtempo, Deep HouseПродолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9207138B62AD0F3A5E02CC7522E464C14E02C420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846761   (1051648) от 09.01.2026
+
+GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GOODBOYS & KREAM - Paradise
+02. Duke Dumont & Jay Norton vs. Landmark - Ocean Drive vs. Only Solution (GOODBOYS Edit)
+03. Twisted Moon vs. Danny Tenaglia ft. Celeda - Keep This vs. Music Is The Answer (Dancin' And Prancin') (GOODBOYS Edit)
+04. Bart Skils & Weska - Something More (Joris Voorn Remix)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286F95FD37921148C72D61065D699EF4266149AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846951   (1051813) от 24.01.2026
 
 Tiesto - Prismatic 001 (2026-01-02) [MP3|320 Kbps] <Dance, Electro Pop, Trance>
 
@@ -25,7 +106,7 @@ magnet:?xt=urn:btih:EAD9FC73130037799B33118DE1657F57ABAD7AE4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846861   (1051839) от 
+###  Публикация: 1846861   (1051839) от 09.01.2026
 
 VA - Armin van Buuren - A State Of Trance 1259 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -52,7 +133,7 @@ magnet:?xt=urn:btih:0489EA3A3D59B135CFF116444D7B8D5F29079F3E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846864   (1051840) от 
+###  Публикация: 1846864   (1051840) от 09.01.2026
 
 VA - Ori Uplift - Uplifting Only Episode 674 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -79,7 +160,7 @@ magnet:?xt=urn:btih:CAD72E7786FAE6CEF4185B9FD276238C7D105207
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847293   (1051862) от 
+###  Публикация: 1847293   (1051862) от 11.01.2026
 
 VA - Chillout Reflections: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -106,7 +187,7 @@ magnet:?xt=urn:btih:F8D1D53BADC736606F5A4D11FBB2E4867E8D9A4D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847134   (1051963) от 
+###  Публикация: 1847134   (1051963) от 10.01.2026
 
 VA - Power Workout Mix 2026 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:70F0F76B7755540624FA060CDB0A0FAA01D2EB11
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847555   (1052166) от 
+###  Публикация: 1847555   (1052166) от 12.01.2026
 
 VA - Afro Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:3960EF8294F07DD46B639AA68ACBC160E123A4A2
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847691   (1052381) от 
+###  Публикация: 1847691   (1052381) от 13.01.2026
 
 VA - Winter Dance Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -187,7 +268,7 @@ magnet:?xt=urn:btih:D51D53082B71DCF393337E203FB41B6A1EFD676B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847932   (1052409) от 
+###  Публикация: 1847932   (1052409) от 15.01.2026
 
 VA - Redux Selection, Vol. 1 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -214,7 +295,7 @@ magnet:?xt=urn:btih:CA318F24DBF83F704FFDEAF40465D9D73A7CBB1E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847948   (1052411) от 
+###  Публикация: 1847948   (1052411) от 15.01.2026
 
 Above & Beyond - Bigger Than All Of Us (Extended Mixes) (2026) [FLAC|Lossless|WEB-DL|tracks] <Trance, Electronic>
 
@@ -241,7 +322,7 @@ magnet:?xt=urn:btih:09DFC55830FA0A7D8CA6E5E91ABB6484E35B8F5D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847806   (1052491) от 
+###  Публикация: 1847806   (1052491) от 14.01.2026
 
 VA - Nahawand: Best Of 2025 (2026) [MP3|320 Kbps] <Trance>
 
@@ -268,7 +349,7 @@ magnet:?xt=urn:btih:AB58889F912F77A91B62AE30C449ED36D0D899CD
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848088   (1052600) от 
+###  Публикация: 1848088   (1052600) от 15.01.2026
 
 VA - Lounge Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
@@ -295,7 +376,7 @@ magnet:?xt=urn:btih:B443C3CEC5F35164FB7CD436FEFFADF49D51B616
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848069   (1052609) от 
+###  Публикация: 1848069   (1052609) от 15.01.2026
 
 VA - Trance Fusion, Vol. 16 (2026) [MP3|320 Kbps] <Trance>
 
@@ -322,7 +403,7 @@ magnet:?xt=urn:btih:03DE3BAFCCC70451CD0FE668295A4C6704115A2B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848419   (1052663) от 
+###  Публикация: 1848419   (1052663) от 17.01.2026
 
 VA - Black Hole House Music 01-26 (2026) [MP3|320 Kbps] <House, Progressive House, Melodic House & Techno>
 
@@ -349,7 +430,7 @@ magnet:?xt=urn:btih:04A91BD795A80A7C078A17B6DF36872C8658B296
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848426   (1052665) от 
+###  Публикация: 1848426   (1052665) от 17.01.2026
 
 VA - Trancendence, Vol. 07 (2026) [MP3|320 Kbps] <Trance>
 
@@ -376,7 +457,7 @@ magnet:?xt=urn:btih:E63B535144262EC06EF912F228506F52BE0B7BA5
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848429   (1052666) от 
+###  Публикация: 1848429   (1052666) от 17.01.2026
 
 VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 16 (2026) [MP3|320 Kbps] <Trance, Progressive>
 
@@ -403,7 +484,7 @@ magnet:?xt=urn:btih:3DC6C33BDB63AF7E2DE85FA3D1631CF5EA22695B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848438   (1052667) от 
+###  Публикация: 1848438   (1052667) от 17.01.2026
 
 VA - Ori Uplift - Uplifting Only Episode 675 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -430,7 +511,7 @@ magnet:?xt=urn:btih:03822AD14A56C651BDECB50E438F165DC3EF7700
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848457   (1052668) от 
+###  Публикация: 1848457   (1052668) от 17.01.2026
 
 VA - Progressive Trance Awakening, Vol. 10 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -457,7 +538,7 @@ magnet:?xt=urn:btih:A2FB7A8C5A0C59132EE5ECD7621CADAA6D527FAE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848329   (1052778) от 
+###  Публикация: 1848329   (1052778) от 16.01.2026
 
 VA - Black Hole Trance Music 01-26 (2026) [MP3|320 Kbps] <Trance>
 
@@ -484,7 +565,7 @@ magnet:?xt=urn:btih:55700BA87CFC0BB1B20F0926B0782AD680698F1E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848198   (1052814) от 
+###  Публикация: 1848198   (1052814) от 16.01.2026
 
 VA - Armin van Buuren - A State Of Trance 1260 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -506,6 +587,114 @@ VA - Armin van Buuren - A State Of Trance 1260 (2026) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BBAFE92A52BB6ACB35D414D6B7B0DD076C62820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848762   (1052855) от 18.01.2026
+
+VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Klasse XXI - Journey to You (04:16)
+ 02 - Elan Vital - Still Horizons (04:22)
+ 03 - Azulejo - Urban Drift (04:19)
+ 04 - The Foxtrot Effect - Echoes of Dusk (04:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1E39CF36C88FE26445AC77BBA25092E3B4CD13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848753   (1052895) от 18.01.2026
+
+VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Be My Lover (Radio Edit) (2:12)
+02. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+03. Dellahouse - It's a promise we will keep (3:39)
+04. Julian Runge - Let Me Go (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848588   (1052925) от 18.01.2026
+
+VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Boyle - Top Drive (Extended Mix) [7:13]
+02. Giuseppe Greco - Another Life (Gadolan Extended Remix) [6:34]
+03. Alternate High - First Wave (Extended Mix) [6:57]
+04. Gadolan - Astral Echoes (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4947CF787A2704BDE1E5CC0B8A0579186CB4FBF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848676   (1052926) от 18.01.2026
+
+VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Once In A Lifetime (Extended Mix) [7:17]
+02. Made Of Light & Vanessa Berni - Enjoy The Silence (Extended Mix) [7:22]
+03. Alternate High - Hope (Extended Mix) [6:41]
+04. Manuel Rocca - Brighter Than Sunshine (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
 ```
 
 

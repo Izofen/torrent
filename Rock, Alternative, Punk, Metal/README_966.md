@@ -1,3 +1,57 @@
+###  Публикация: 1130048   (718990) от 30.04.2017
+
+Deserter - Coils of the Lesser Serpent (2017) [MP3|320 Kbps] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkening Clouds Over Utopia 03:32
+02. Urban Gehenna 03:29
+03. Headhunter 04:01
+04. Carnal Carnival 03:23(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D1F786FE6B528303A041D8DD071A8CCABFE240
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129971   (718993) от 30.04.2017
+
+Resurrected - Resurrected (2017) [MP3|320 Kbps] <Brutal Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellcome 05:03
+02. The Overkill To Dwell 02:36
+03. Human Killing Spree 05:01
+04. Bewareness Of Truth 05:15(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C043EEA28067314EA8A7BAE7C9BE779EA1FC3C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400466   (719142) от 05.08.2020
 
 Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -637,60 +691,6 @@ The Kelly Family - Christmas For All (1994) [FLAC|Lossless|image + .cue] <Soft R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:316AFAEB9C79B02C2986AD91EFD5B76939EBF294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024175   (720435) от 07.06.2016
-
-Krokus - Metal Rendez - vous (1980) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatstrokes - 4:00
-02. Bedside Radio - 3:18
-03. Come On - 4:23
-04. Streamer - 6:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D916B451783A7812B4D9A61F89836A0B45DC7D5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024119   (720458) от 07.06.2016
-
-Dan Reed Network - Fight Another Day (2016) [FLAC|Lossless|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divided
-02. The Brave
-03. Infected
-04. Champion(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3CCB2C47FCDC47E1AAE482C4D2C1E417CF6408
 ```
 
 

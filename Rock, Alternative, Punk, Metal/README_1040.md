@@ -1,3 +1,57 @@
+###  Публикация: 1200872   (794916) от 22.01.2018
+
+Aqueous - Dark Side of Oz (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MGM Theme/Somewhere Over the Rainbow [00:04:48]
+02. Kitty Chaser (Explosions) [00:14:21]
+03. Eon Don [00:14:23]
+04. Mulligans [00:09:49](   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE7050E40EFBB1EE1382AB9BA4B4D14E8B96814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509265   (794955) от 12.11.2021
+
+Pain - Dancing With The Dead (2004) [FLAC|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Count Me Out [4:39]
+ 02.  Same Old Song [3:59]
+ 03.  Nothing [4:08]
+ 04.  The Tables Have Turned [4:23](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EDC2D75D5A956E099DDF571C070B0AD78A3BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509348   (794956) от 12.11.2021
 
 ЯУЗА - Музыка и слово (2021) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ The Gathering - Nighttime Birds (1997) 2CD remastered, 2008, limited edition [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5550B43DF2C9FD552F1E3D7EC24D576F9F5CE23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508999   (795480) от 11.11.2021
-
-Radiohead - Kid A Mnesia (2021) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, IDM>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Spinning Plates ('Why Us?' Version) (05:05)
- 02. Untitled V1 (01:49)
- 03. Fog (Again Again Version) (02:25)
- 04. If You Say The Word (04:23)(   Читать дальше...   )Жанр: Alternative Rock, IDMПродолжительность: 02:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D13C1FCAAB444B994A1814E0CFBE64F6B806F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509019   (795483) от 11.11.2021
-
-Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Век воли не видать
-02. Черней, чем блюз
-03. Оксюморон(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
 ```
 
 

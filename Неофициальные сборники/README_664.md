@@ -1,3 +1,30 @@
+###  Публикация: 1468428   (1017064) от 08.05.2021
+
+VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ONI - Alone (Blacklight Media) (05:46)
+ 02. John Petrucci - Temple of Circadia (07:11)
+ 03. Sons Of Apollo - Fall to Ascend (05:05)
+ 04. Delain - Combustion (05:25)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE8EC8B6D125612CE26A002586FE9149283ACE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467664   (1017186) от 07.05.2021
 
 VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps] <Dance, Electro, Remixes>
@@ -665,33 +692,6 @@ VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4C4A16FCA22E4C43E7CAA3D1F13D11A1FE31D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466171   (1018762) от 28.04.2021
-
-VA - Beast Mode Hip Hop (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CJ - Whoopty (2:03)
-02. DJ Khaled, Drake - POPSTAR (3:20)
-03. Jack Harlow, Tory Lanez, DaBaby, Lil Wayne - WHATS POPPIN (Remix) (3:47)
-04. Ty Dolla $ign, Post Malone - Spicy (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 03:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E021677A862C0A5474E780D42D83A06D401D36ED
 ```
 
 

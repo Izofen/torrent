@@ -1,3 +1,57 @@
+###  Публикация: 1004239   (840309) от 05.04.2016
+
+Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interminable Surgery
+02. Fatal Incision
+03. Intravenous Mutilation
+04. Voluntary Disfigurement(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7372C913A18A0C01D6C4549E26A8D335ACA7D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004257   (840310) от 05.04.2016
+
+Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840310.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:06] 01. The Hunt Is On
+[03:56] 02. Parting
+[04:24] 03. Three Words
+[04:45] 04. Redemption(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 878796   (840602) от 16.03.2015
 
 Toto - XIV (2015) [FLAC|Lossless]<Melodic Rock>
@@ -646,60 +700,6 @@ Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:945D972D2F734ACD6E4325D6BDEC49BEA7440DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003971   (841705) от 04.04.2016
-
-Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Res Er Mina Söner
-2. Eldhjärta
-3. Nordmännens Raseri
-4. Enhärjarkväde(   Читать дальше...   )Жанр: Folk Metal, Viking MetalПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BFF75F6B480F7E2118422CC23EAFF547F01C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112486   (841731) от 09.03.2017
-
-Trinacria - Travel Now Journey Infinitely (2008) [FLAC|Lossless|image + .cue] <Experimental Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn-Away 09:14
-02. The Silence 07:40
-03. Make No Mistake 06:20
-04. Endless Roads 10:00(   Читать дальше...   )Жанр: Experimental Black MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C8F04DC248EC5AD0D623239DF6ACFCF76E5869
 ```
 
 

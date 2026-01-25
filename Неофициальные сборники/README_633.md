@@ -1,3 +1,30 @@
+###  Публикация: 980195   (955933) от 29.01.2016
+
+The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955933.jpg" />
+</div>
+
+
+###  Подробнее
+
+25. You Dont Have Me
+26. Already Gone
+27. Victim of Love
+28.You Dont Know Me At All(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 03:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980482   (955958) от 29.01.2016
 
 VA - 50 Jump Blues Classics (2015) [MP3|320 кб/с] <Blues, Rock, Soul>
@@ -670,33 +697,6 @@ VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979283   (959699) от 26.01.2016
-
-VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Brasil Gossa Party - Extended Mix (05:43)
-02. Peter Pearson - Your Gentle Eyes (05:40)
-03. Newton - Homerun (04:50)
-04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
 ```
 
 

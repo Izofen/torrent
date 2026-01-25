@@ -1,3 +1,63 @@
+###  Публикация: 508302   (677184) от 11.06.2012
+
+VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coldplay - Paradise
+2. Nickelback - Lullaby
+3. Dead By April - Mystery
+4. Takida - You Learn
+5. Walk Off The Earth - Somebody That I Used To Know
+6. Sons Of Midnight - The Fire
+7. Train - Drive By
+8. Daughtry - Crawling Back To You
+9. The Fray - Heartbeat
+10. Seether - Tonight(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223274   (677287) от 03.05.2018
+
+No One Is Innocent - Frankenstein (2018) [MP3|320 kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A La Gloire Du Marche (03:05)
+02. Ali (King Of The Ring) (03:23)
+03. Desperado (03:12)
+04. Frankenstein (03:49)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C55334C61BF4A72A00BE942421BC93EC2403DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223198   (677292) от 03.05.2018
 
 Amorphis - Legacy Of Time (2018) Promo CD [MP3|320 Kbps] <Melodic Death Metal, Progressive Metal>
@@ -666,60 +726,6 @@ Maps & Atlases - Lightlessness Is Nothing New (2018) [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B7B2416FFD8EEA183C6239B14E893E515FA856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290315   (678492) от 20.03.2019
-
-Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart is Healing (03:08)
-02. Sight for Sore Eyes (03:45)
-03. Into This (03:11)
-04. Wrestlemania VIII (01:48)(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8768ED44116BF6361A8813A72B69D4750E619979
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536133   (678536) от 10.03.2022
-
-Ghost - Impera (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imperium (01:40)
- 02. Kaisarion (05:02)
- 03. Spillways (03:17)
- 04. Call Me Little Sunshine (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2196F72E34155FE4917025A416C0D2CD386EDF
 ```
 
 

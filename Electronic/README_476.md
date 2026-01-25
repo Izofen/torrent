@@ -1,3 +1,84 @@
+###  Публикация: 1365306   (932234) от 06.03.2020
+
+VA - Let It Lounge, Vol. 1 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrado Saija feat. Florent Campana - Amanda (Original Mix) [04:11]
+02. Francesco Diaz feat. Karl Frierson - Say a Little Prayer (Unplugged Edit) [02:59]
+03. The Diventa Project - Dreamer (Lazy Hammock Instrumental Mix) [06:24]
+04. Bar Lounge - Interioir Showroom Spacer (Original Mix) [07:28](   Читать дальше...   )Жанр: Downtempo, Chillout, Relax, LoungeПродолжительность: 01:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056E5AD787953C4547BDBD5BD609CED499C50164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365300   (932236) от 06.03.2020
+
+Lemna - Storytelling #1 - Reminiscences Of Inner Scenery (2020) Horo [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Experimental, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creeping On Mud (05:19)
+ 02. The World That Is Made Of Fluid Particles (04:47)
+ 03. A Rabbit With A Marbled Black And White Coat (06:20)
+ 04. Spring Night With A Hazy Crescent Moon (04:38)(   Читать дальше...   )Жанр: Dark Ambient, Experimental, TechnoПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBED2E02E8EB3B24908D54A7B9F57FE6DDA0FC28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365125   (932240) от 06.03.2020
+
+VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Groove feat. Sam Vince - The Knot (Omniks Edit) [03:44]
+02. Fischer and Miethig - We Only Live Once (Mindsoundscapes Radio Edit) [03:18]
+03. Manida - Always Alone (Radio Cut) [03:33]
+04. Philip Mayer - Okobogee (Radio Edit) [03:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB771BE2032C602B4037EBD2297D4E4DE8045AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365324   (932244) от 06.03.2020
 
 VA - Afro Tribal House 7 (2020) [MP3|320 Kbps] <House, Afro House>
@@ -614,84 +695,6 @@ VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E79A029D0BBA85B277527272FA3850551036B6B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364888   (933884) от 05.03.2020
-
-Meemo Comma - Sleepmoss (2019) Planet Mu [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reaping (04:11)
- 02. Night Rain (03:23)
- 03. Murmur (02:56)
- 04. Tanglewood (03:45)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E0792E2BB0756A44CFAC197A26DE9818D98605
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364885   (933888) от 05.03.2020
-
-Foresense - Weerhaak (2019) Antilounge Den Haag [FLAC|Lossless|WEB-DL|tracks] <IDM, Drill n Bass>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacharine (05:22)
- 02. Projector (04:26)
- 03. Reflector (03:42)
- 04. Beeldvorm (04:02)(   Читать дальше...   )Жанр: IDM, Drill n BassПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90A4118E7123EBB70651BC8BC7C3359B19F0B82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285583   (933922) от 22.01.2011
-
-Lisa Gerrard - The Black Opal (2009) [FLAC|Lossless]<Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient |Продолжительность: 01:04:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 

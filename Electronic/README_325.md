@@ -1,3 +1,84 @@
+###  Публикация: 1292000   (643181) от 31.03.2019
+
+Merlin & Lydia Delay - Infinity (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643181.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Merlin & Lydia DeLay - Sindarian Light 03:55
+2. Merlin & Lydia DeLay - Excalibur 05:10
+3. Merlin & Lydia DeLay - Volcano Beach 06:58
+4. Merlin & Lydia DeLay - Air on the Strings 06:30(   Читать дальше...   )Жанр: Psychill, Psybient, Chillgressive, DowntempoПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1640BB7AE179AFE85F5A838F4EEB518C6AEE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292756   (643186) от 31.03.2019
+
+VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643186.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01: (03:20:59)
+
+01. Andrey Exx - A Deeper Love (Original Mix) (Feat. Karmen Moxie)
+02. Ben Delay - To Be Free (Superdope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCF3645306E87B287E4686AF5CB23997E196E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291955   (643193) от 31.03.2019
+
+Kayatma - Ambivalence (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kayatma feat. Pasha Bochkarev & Argishty - Hjarta [05:58]
+02. Kayatma & Daya - Choiсe [06:03]
+03. Kayatma feat. Daliya - Ikigai [03:17]
+04. Kayatma - Crazy Morning [05:30](   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EA5019C9BFAC3F732DD9853136B2EBA2CEA112C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292817   (643291) от 31.03.2019
 
 Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
@@ -609,87 +690,6 @@ Chronos - Inner Darkness (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7F0D1C08499F0F67BD5647F821F6E008B7D884F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292713   (645185) от 30.03.2019
-
-Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arpology (4:19)
-02. Tierra Del Fuego (4:33)
-03. No Escape (6:08)
-04. Realism (4:12)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:840D0E6868104B0A266ECD07F6BC90FC344984E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292525   (645193) от 30.03.2019
-
-Wolf and Raven - Lair of the Dragon (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lair of the Dragon (6:43)
-02. Spirit Warriors (6:33)
-03. Shadow Dancer (5:58)
-04. Lunar Festival (4:52)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD6964D76CB771D20CE89CB0EB0B432984A1F6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292521   (645194) от 30.03.2019
-
-Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassette Prelude (1:38)
-02. Neon Nights (4:30)
-03. Renegades (3:55)
-04. The Heist (4:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336AC9EFD3DB11DE2B4E5ADE6C54240925514374
 ```
 
 

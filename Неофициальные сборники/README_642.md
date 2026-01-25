@@ -1,3 +1,36 @@
+###  Публикация: 612038   (978873) от 07.02.2013
+
+VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ultima C - Cry Another Day (Original Mix)
+02. Scott Allen - Every Time (Original Mix)
+03. John B - Love Again feat. Jillian Ann (Original Mix)
+04. Skyweep - Need To Feel Loved (ft. Durrant & UnClubbed) (Original Mix)
+05. Seven Lions - Days To Come (Dead Battery DnB Remix)
+06. SynthForce - Hear You Calling (Original Mix)
+07. Phil Tangent - Hindsight (Original Mix)
+08. Bcee & Bladerunner - Fatal Attraction (Original Mix)
+09. Primal Therapy - Screamshot (Original Mix)
+10. Subformat feat. Charli Brix - More (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973569   (979058) от 09.01.2016
 
 VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dance>
@@ -674,33 +707,6 @@ VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356153   (980555) от 29.01.2020
-
-VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giusvab - Happyness (Original Mix)
-002. Deepness & Enzo Paradiso - Paysandu (Original Mix)
-003. Cyberx - Cut Off (Original Mix)
-004. Eqra - Library (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1280072   (763652) от 01.02.2019
+
+Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First World Problems 05:57
+02. Black Roses 02:38
+03. Breathe And Breathe Easy (The Everness Of Now) 03:27
+04. The Dream And The Dreamer 05:37(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DD3CE4884AD5CEB23CE7934A15879C908EEEE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667746   (763672) от 05.07.2020
+
+Rygar - The Album (2001) [FLAC|Lossless]<Synthpop, Italo Disco, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introx
+02. Marsian Attack
+03. Startracks (Original Mix)
+04. Cosmic Choir(   Читать дальше...   )Жанр: Synthpop, Italo Disco, SpacesynthФормат: Album, PromoПродолжительность: 01:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65A374B9D4D11759DAD02AB79CEDFC4BF5B18B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280029   (763692) от 01.02.2019
+
+VA - Markus Schulz - Solis & Sean Truby - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Dave Neven - Lethal (World Premiere)
+02. Arkham Knights - Another Dimension
+03. Jason Ross - East of Eden(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A64D19E61B6585194697DE71A7934BD37BBE724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280122   (763693) от 01.02.2019
 
 VA - #WeAreTrance #008-18-08 (Mixed by XiJaro & Pitch) (2018) [MP3|320 Kbps] <Trance>
@@ -612,87 +693,6 @@ VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E261865DB50CCD3FCA4379A51A61613211CE4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126785   (764473) от 19.04.2017
-
-Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Surrender  10:13
-02.  Feel  9:26
-03.  Baroque V  8:49
-04.  Back Home  8:49(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7625795EF7C2A95C12CA0A6CE26F92B00449B012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394234   (764513) от 04.07.2020
-
-VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764513.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dream Dance Alliance - Under The Moonlight (Edit) 2:55
-02. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me 2:59
-03. Martin Garrix feat. John Martin - Higher Ground 3:27(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 03:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F836EC1FE1FE64035C6512182A1D0D450687BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279844   (764532) от 31.01.2019
-
-VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold - Sunset At Stonehenge (Continuous Mix) 1:19:23
-02. U2 - Love Is All We Have Left 2:43
-03. The Grid - Floatation (Subsonic Grid Mix) 7:06
-04. Empire Of The Sun - We Are The People 4:28(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC30D46EEB7FA48A400D34E210EFE30607072A9
 ```
 
 

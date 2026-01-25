@@ -1,3 +1,84 @@
+###  Публикация: 1381898   (822190) от 09.05.2020
+
+Ludovico Einaudi - 12 Songs From Home (2020) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Modern Classical, Ambient, Piano>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sense Of Symmetry (5:04)
+ 02. Oltremare (11:06)
+ 03. Berlin Song (6:40)
+ 04. Tu Sei (8:31)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1400D501FD2ABD8342B9C928DACF959F09D1034A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101935   (822267) от 09.05.2020
+
+Cubering - Discography 14 Releases (2012-2020) Microcosmos, Uxmal Records, Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (03:36)
+ 02. Slider (05:52)
+ 03. Sureprize (06:11)
+ 04. Trembling (08:27)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient/Downtempo/Psychill/AmbientПродолжительность: 09:55:46 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F0EBE50AC7214A1DE78D8968BA1AE7C7F7BC21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196499   (822309) от 03.01.2018
+
+VA - Erotica Vol. 3 (Most Erotic Smooth Jazz And Chillout Tunes) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael E - Into The Light (Original Mix) 6:57
+02. Brazil Beat - Fragile (Original Mix) 3:08
+03. Andrea Cardillo - Nuages (Original Mix) (Feat. Gabrielle Chiararo) 4:25
+04. Brazil Beat - Ain't No Sunshine (Original Mix) 3:56(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB5C33DEC46A896BCAA3B7938A2986CFE5AFA34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232709   (822360) от 09.05.2020
 
 Single Cell Orchestra - Discography 10 Releases (1995-2020) Asphodel, Cyberset, Astralwerks [FLAC|Lossless|tracks+.cue, tracks]<Ambient, Electro, Downtempo, IDM, Techno>
@@ -616,87 +697,6 @@ VA - Psychedelic Goa Trance 2016 Vol 1 (40 Best Of Top Hits) (2016) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D575985807B2943C02664C4B604809D2B5E6ABD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007180   (823633) от 14.04.2016
-
-VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conte, Ferrarese - Summer Night (Club Mix) 07:32
-02. Danny Junior Crash - Get Party On (Clevz Rmx) 06:41
-03. BO.CA.DA. - Welcome to Satrincha (Massive Bongo Mix) 05:50
-04. Kando - Dark Angel (feat. Alicia) (Radio Edit) 02:41(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAAE1183482B7E711A7D07B40B257318A6A9BA0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006969   (823641) от 14.04.2016
-
-VA - Dangerous Dance Vol.1 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Feelgood - Put It On 05:44
-02. Rochelle Vincente von K - One Starry Night (Animalist Remix) 07:58
-03. Bonetti - Gangsta Boom 05:35
-04. Carsten Rausch - Shokran 08:58(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6203CAC67D53AEC658D09406F0051C411ACBF6DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007100   (823645) от 14.04.2016
-
-VA - Progressive Line Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aer0 - Born Again 02:55
-02. Alexey M - Awakening of the Night 05:32
-03. Andrey Meduer - Funny! 06:42
-04. Anna Tarraste - Rain Drops 07:05(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7B45AA7C497ACC884DD6F8A70E7B83C8971803
 ```
 
 

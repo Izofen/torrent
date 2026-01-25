@@ -1,3 +1,67 @@
+###  Публикация: 604708   (996242) от 18.01.2013
+
+Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consequence (07:56)
+02. Hands Of Dust (11:38)
+03. Spectre (10:21)
+04. Reflections (01:49)
+05. Wolf Sun (07:10)
+06. The Black Sound (10:08)
+07. Walking The Crowpath (13:16)
+08. Epilogue (Bonus Track) (04:22)Жанр: Black MetalПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4BC166FAA4F97FB00F26B75E9B3ACCC22B9000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604192   (996485) от 17.01.2013
+
+Villagers - Awayland (2013) [MP3|320 кб/с]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.My Lighthouse
+2.Earthly Pleasure
+3.The Waves
+4.Judgement Call
+5.Nothing Arrived
+6.The Bell
+7.{Awayland}
+8.Passing a Message
+9.Grateful Song
+10.In a Newfound Land You Are Free(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A24A1BE2C0EC72011049AB1B6FDD0DBB0F1F8D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604176   (996508) от 17.01.2013
 
 Zilly Monk - Together Forever (2011) [MP3|320 кб/с]<Punk-Rock>
@@ -721,71 +785,6 @@ Hyax - Hyax (2013) [FLAC 2.0 24/48|tracks (WEB-DL)]<Post Punk, Rock, Ambient>
 4. Marble (4:01)
 5. Cloud (4:17)
 6. 5912 (3:50)Жанр: Post-Rock, AmbientПродолжительность: 00:23:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602002   (997827) от 12.01.2013
-
-Don Felder - Road To Forever (2012) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall From the Grace of Love [03:45]
-02. Girls In Black [03:37]
-03. Wash Away [04:16]
-04. I Believe In You [03:56]
-05. You Don't Have Me [03:45]
-06. Money [04:10]
-07. Someday [04:11]
-08. Heal Me [07:21]
-09. Over You [04:07]
-10. Road To Forever [04:58](   Читать дальше...   )Жанр: RockПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602045   (997859) от 12.01.2013
-
-Nebulous - The Quantum Transcendence Of Death (2013) [FLAC|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997859.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I: Of Means And Ends (1:48)
-2. II: Catalyze (3:56)
-3. III: SN 5270 (3:38)
-4. IV: Aggregating Powers (4:21)
-5. V: The Quantum Transcendence Of Death (1:25)
-6. VI: Devourer Of The Cosmos (2:48)
-7. VII: Forever Impaled (4:07)
-8. VIII: Hivemind (3:29)
-9. IX: Spectrums (3:47)Жанр: Technical Death MetalПродолжительность: 00:29:20
 
 ## Скачать торент
 ```bash

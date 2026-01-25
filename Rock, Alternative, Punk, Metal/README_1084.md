@@ -1,3 +1,54 @@
+###  Публикация: 878974   (839078) от 17.03.2015
+
+Leviathan - Scar Sighted (2015) [FLAC|Lossless]<Black Metal/Dark Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - (2:18)
+02. The Smoke of Their Torment  (6:04)
+03. Dawn Vibration  (6:28)
+04. Gardens of Coprolite (5:40)(   Читать дальше...   )Жанр: Black Metal/Dark AmbientПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01399C08D311F7D73C6CBFE06952EAD73CA9693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309817   (839100) от 17.03.2011
+
+Slade - Singles Collection, 3CD (2003) [MP3|320 kbps]<Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Glam Rock, Hard RockПродолжительность: 02:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B612DB8ABDB1C4647C47A66543612D4A375D9B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309850   (839255) от 17.03.2011
 
 Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Hard Rock>
@@ -651,60 +702,6 @@ Novembre - Ursa (2016) [MP3|320 кб/с] <Progressive Metal, Doom-Death Metal, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEB70EF2C9DBB399E8C33DDDCA491A1C7C1E4B99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004239   (840309) от 05.04.2016
-
-Condition Critical - Extermination Plan (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interminable Surgery
-02. Fatal Incision
-03. Intravenous Mutilation
-04. Voluntary Disfigurement(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7372C913A18A0C01D6C4549E26A8D335ACA7D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004257   (840310) от 05.04.2016
-
-Confined By Yesterday - Blackmirrors (2016) [MP3|320 кб/с]<Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840310.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:06] 01. The Hunt Is On
-[03:56] 02. Parting
-[04:24] 03. Three Words
-[04:45] 04. Redemption(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D80C2025B0C631BC5B337DB4CF6C46982AC58E
 ```
 
 

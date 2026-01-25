@@ -1,3 +1,30 @@
+###  Публикация: 1505368   (802837) от 28.10.2021
+
+VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. roadblok - DeLorean Heavy Kneedeep In Neon (Gertrudda Edit) (11:05)
+02. c152 - Romantic Night (feat. shiruku & chirrrex) (Gertrudda Edit) (6:16)
+03. Прожектор Перестройки - Lighting Strike (4:00)
+04. Maria Davis - Echo (3:55)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505337   (802843) от 28.10.2021
 
 VA - Synth of Waves 4 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -669,33 +696,6 @@ VA - Созвездие весеннее - 4 (2016) [MP3|256 кб/с] <Pop, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:177DA0EC5B40040826B5A80E7F267FBD141EE9DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010253   (804304) от 24.04.2016
-
-VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special D. & Scott Brown - Elysium (Ti-Mo Remix) 04:46
-02. Viper Tone - Fast Car (Raindropz! Remix) 04:44
-03. Basslovers United & DJ G4bby - Addicted (Extended Mix) 05:19
-04. Club Electric - Sweet Lovin' (Malu Project Remix) 04:46(   Читать дальше...   )Жанр: Club, Dance, HardstyleПродолжительность: 07:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
 ```
 
 

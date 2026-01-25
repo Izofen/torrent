@@ -1,3 +1,30 @@
+###  Публикация: 922352   (569878) от 28.07.2015
+
+VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Heat - Wildfire (Electro Rocking Boyz Remix)
+02. Fedde le Grand - Rockin' N' Rollin' (Jewelz & Scott Sparks Tomahawk Radio Edit)
+03. Frik 'N' Krazy - Ultimate (Original Mix)
+04. Ruede Hagelstein - Give a Little Slap to Your Soul - Patrick Chardronnet's Dubby Mix(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:09:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3ABF5EE6509BC7906662409F6B5866B4533ABA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922260   (570043) от 28.07.2015
 
 VA - Chilly Side Up (2015) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
@@ -685,33 +712,6 @@ VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043378   (571863) от 16.08.2016
-
-VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loboda - Пора домои (DJ Antonio Extended Remix)
-02. Iowa - Одно и то же (DJ Nejtrino & DJ Baur Remix)
-03. Меджикул - Марфа (DJ Шевцов Remix)
-04. Татьяна Буланова & Anton Liss - Призрачныи Сон(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D902E8526411C2359AEA245832CD8171E73E8386
 ```
 
 

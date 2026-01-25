@@ -1,3 +1,57 @@
+###  Публикация: 1374540   (872992) от 10.04.2020
+
+The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Regulator [20:27]
+02. The Longing [07:37]
+03. Apropos Of Nothing [09:33]
+04. Dusting Off The Rust [09:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF799ED1654D84EBC88967208E20FDE557743D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374280   (872993) от 10.04.2020
+
+Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872993.jpg" />
+</div>
+
+
+###  Подробнее
+
+2006 - Mare Vaporum
+2009 - Abysmal Lullabies
+2010  - Earth To Earth
+2012 - Arbors(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Space RockПродолжительность: 9 CD, 07:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7773AF30ACB8DABCB3EE50232A8598AAA078D610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374578   (872994) от 10.04.2020
 
 Infornal FuckЪ - Уже Не То (2018) [MP3|320 Kbps] <Parody Metal>
@@ -658,60 +712,6 @@ Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496401   (873373) от 17.09.2021
-
-Vega - Anarchy And Unity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Lie
-02. Sooner Or Later
-03. End Of The Fade
-04. Ain't Who I Am(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0E958860AF4FD80E774CF5CB264AC27164F2F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496385   (873375) от 17.09.2021
-
-Edge Of Paradise - The Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Paradise
-02. My Method Your Madness
-03. Tidal Wave
-04. The Unknown(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B2188EECE8219BB30383AF3B52961C21D820BF
 ```
 
 

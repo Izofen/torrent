@@ -1,3 +1,57 @@
+###  Публикация: 1450429   (1029076) от 26.02.2021
+
+Hidden Intent - Dead End Destiny (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Place of Horror
+02. Breaking Point
+03. Dead End Destiny (feat. Michael Stützer Hansen & Kræn Meier)
+04. Forgotten Fate(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0354742C501FC4E7DFB7B7CB8CA9000A5FF53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623727   (1029094) от 03.04.2023
+
+VA - The Rock Collection: Hot Rock (1992) 2CD Compilation [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029094.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A-Ha - Touchy! (4:35)
+02. Gloria Estefan And Miami Sound Machine - Can't Stay Away From You (4:00)
+03. Deacon Blue - Real Gone Kid (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EA46EB538D59AC26FF36E58A4A6FE2EA42B8F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450261   (1029180) от 25.02.2021
 
 Слот - Инстинкт выживания (2021) [MP3|320 Kbps] <Alternative Metal>
@@ -641,60 +695,6 @@ Old Man Jack - Stick To My Guns (2023) [Mp3|320 kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F318123B679A2ECC7DD087876D6E5E40ACE0F2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623359   (1029415) от 01.04.2023
-
-Геннадий Богданов и гр. Русские - 4 Альбома (1994 - 2008) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Соколом
-02. Пустыня
-03. Мия
-04. Чёрным по белому(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284856F5B0B8726B6930FD325D46D69070A5D994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449879   (1029514) от 23.02.2021
-
-Black Sabbath - Vol. 4 (1972) Super Deluxe Edition, 2021, Rhino Records, Warner Records, BMG [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow’s Dream [00:03:20]
-02. Sweet Leaf [00:05:31]
-03. War Pigs [00:07:52]
-04. Snowblind [00:05:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 4 CD, 03:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9109F05C8AF696B8705A2C8495EB86F2FB29ADD4
 ```
 
 

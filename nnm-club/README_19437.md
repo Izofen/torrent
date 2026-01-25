@@ -1,674 +1,673 @@
-###  Публикация: 1278488   (771987) от 25.01.2019
+###  Публикация: 1214511   (764056) от 22.03.2018
 
-Wise Program Uninstaller 2.3.2.133 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F141F0ADFB18FACEC0EF3A5785609A6F99BEA383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278411   (771988) от 25.01.2019
-
-VA - Dirkie Coetzee - Reverie (2019) [MP3|320 Kbps] <Trance>
+The Other People Place - Lifestyles Of The Laptop Cafe (2001) Warp Records [FLAC|Lossless|tracks+.cue] <Electro, Downtempo>
 
 >>Electronic
->>Trance
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771988.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Dirkie Coetzee & Amy Kirkpatrick - You'll Find Me There (Original Mix)
-02.Dirkie Coetzee & Jan Johnston - Only the Beginning (Original Mix)
-03.Dirkie Coetzee - Nymeria (Original Mix)
-04.Dirkie Coetzee & Adip Kiyoi - Aurora (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:10
+01. Eye Contact (05:30)
+ 02. It's Your Love (07:31)
+ 03. Moonlight Rendezvous (07:07)
+ 04. You Said You Want Me (04:24)(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 00:51:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36CFF1FC2F28B583237C849490F25B5398B74C38
+magnet:?xt=urn:btih:4C2F8D43DECF46B9FAF2A3A748E553C592FE9905
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278412   (771989) от 25.01.2019
+###  Публикация: 1214517   (764057) от 22.03.2018
 
-VA - Markus Schulz - Kyau & Albert - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
+Протоиерей Константин Островский | Умереть нам не удастся (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — размышление о временной и вечной жизни, о Страшном Суде, о том, как и от чего спасаться современному человеку, окружённому со всех сторон соблазнами, а внутри связанному своими страстями. Задача книги — напомнить людям, что за гробом покаяние невозможно, но здесь и сейчас возможно, что время земной жизни даровано нам Богом для труда над своей душой.
+ (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527334F6B00D7548AE9D44980FFF445B6D7F8219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214578   (764058) от 22.03.2018
+
+Motion - Make My Feet Wanna Dance (1997) The Best Of [MP3|320 Kbps] <Electronic, Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop (6:23)
+02. Forever (5:07)
+03. Emotion (4:24)
+04. Make My Feet Wanna Dance (4:51)(   Читать дальше...   )Жанр: Electronic, Disco, ElectroПродолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA99C16D53F66589E49E48E6790D35FDBCAAACA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214677   (764059) от 22.03.2018
+
+VA - Aly & Fila - Future Sound of Egypt 540 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771989.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Markus Schulz:
-01. Mike EFEX - BX8
-02. Alex Kunnari featuring Mike Schmid - This Fire
-03. Markus Schulz featuring Justine Suissa - Perception (Johan Gielen Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:43
+01. Amari & Nico Morano feat. Jinadu - Desire (Extended Mix)
+02. Emerge - It's Over (Extended Mix)
+03. Basil O’Glue - Hoax (Tim Penner Remix)
+04. Wally Lopez - Sunday Trip (Quivver Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD97B86167953EDE9BDE45C16F8CE835CA5263EF
+magnet:?xt=urn:btih:7957636CDA43DD5794D94D751FDE24252F05B7B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278426   (771990) от 25.01.2019
+###  Публикация: 1214520   (764060) от 22.03.2018
 
-Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Didn't Know What I Was in For (04:03)
-02. Sleepwalkin' (03:12)
-03. Dylan Thomas (03:36)
-04. Service Road (03:44)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278535   (771991) от 25.01.2019
-
-Oval - Ovalprocess (2000) [FLAC|Lossless|tracks + .cue] <Glitch, Abstract, Experimental>
+VA - Miracle Steps: Music From The Fourth World 1983-2017 (2017) Optimo Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract, World, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Untitled (4:44)
- 02. Untitled (4:38)
- 03. Untitled (4:55)
- 04. Untitled (5:55)(   Читать дальше...   )Жанр: Glitch, Abstract, ExperimentalПродолжительность: 01:19:07
+01. Jorge Reyes - Plight (09:11)
+02. Robert Aiki Aubrey Lowe & Ariel Kalma - Mille Voix (04:22)
+03. Iona Fortune - White Tigress (03:48)
+04. O Yuki Conjugate - Cloud Cover (05:48)(   Читать дальше...   )Жанр: Ambient, Abstract, World, ExperimentalПродолжительность: 01:18:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E7B75D76B8C079932687346AB683EC235A32E84
+magnet:?xt=urn:btih:776D9063F033B8B093E551E4C31C51F34774D516
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278527   (771992) от 25.01.2019
+###  Публикация: 1214532   (764061) от 22.03.2018
 
-Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Fantasy (6:45)
- 02. Little Kingdom (6:40)
- 03. A Riot of Color (5:27)
- 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278433   (771993) от 25.01.2019
-
-Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diva [3:56]
-02. Nishibi no Ataru Heya [8:12]
-03. Hinobashi no Tamoto [3:23]
-04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278310   (771994) от 25.01.2019
-
-Lingon X 6.5.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке macOS. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
-
-Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924998AC405CB3F0EB9BDE94D67AE015D4EB8EDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278529   (771995) от 25.01.2019
-
-Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter I (1:23)
- 02. Chapter II (2:28)
- 03. Chapter III (4:25)
- 04. Chapter IV (3:25)(   Читать дальше...   )Жанр: Post-Hardcore, Hard Rock, Alternative RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C754C2B07B6257ECE23349FC7CA9BB654CE337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213296   (771996) от 16.03.2018
-
-PrivaZer 3.0.43 Donors version + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771996.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C51ABB595087743369F1FCC256054E0591F4B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213255   (771997) от 16.03.2018
-
-Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. McGarvey - Pebble Beach
-2. McGarvey - Blue Mountain
-3. Keavney - Newport
-4. McGarvey - Salvation Creek(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213304   (771998) от 16.03.2018
-
-Transmit 5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2018Разработчик: Panic IncПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276988FCBFB1CBFDAFC036B1936B112FA82FC327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213365   (771999) от 16.03.2018
-
-Alapastel - Hidden For The Eyes (2018) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Experimental, Modern Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encounter (05:30)
- 02. Seashell (04:27)
- 03. Bride Of The Mountains (07:04)
- 04. Frozen Lakes, Fog And Snow (05:54)(   Читать дальше...   )Жанр: Ambient, Acoustic, Experimental, Modern ClassicalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149AF7BD0D07A6BC0C6F9ED9D13796B5E76395C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213300   (772000) от 16.03.2018
-
-Тоне Селишкар | Экипаж «Синей чайки» (1961) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть известного современного словенского писателя Тоне Селишкара рассказывает о ребятах, совершивших далёкое морское путешествие к южным берегам Адриатического моря.
-
-Путешествие требует от ребят мужества, выдержки, сноровки, но они смело идут навстречу опасностям и выходят победителями из самых трудных испытаний.
-(   Читать дальше...   )Жанр: Детская прозаПеревод: Ирина МакаровскаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629256B5DBED9296CECBC49B3354FE6B52CC1466
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213266   (772001) от 16.03.2018
-
-Maxthon Browser 5.2.0.1400 beta + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F5F4C0F8692F3DD146DC3B6EB5529FCB5D4E5B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213177   (772002) от 16.03.2018
-
-Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia [03:36]
-02. Choral No. 1 [02:40]
-03. Waltz [03:15]
-04. Choral [03:22](   Читать дальше...   )Жанр: Vocal Jazz, Classical CrossoverПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213161   (772003) от 16.03.2018
-
-VA - Easter Chilling Breakfast (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+Fonogeri - Into The Labyrinth (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772003.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweetadelic - Cool Confidence 05:51
-02. Loungeside - Coffeemaker 07:40
-03. Chillelektro - Oland 06:48
-04. Oscar Stringz - Hawaii 05 04:56(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:49:21
+01.  Joey Wants To Find  4:33
+02.  Curious Boy  3:41
+03.  The Clue  3:58
+04.  Night Train  3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:17:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:712CCBA3117057D200B1A11DF44EBDCABB97048F
+magnet:?xt=urn:btih:AE81CC0D7627ABD65411C4FB4F3E8D807C563E76
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213299   (772004) от 16.03.2018
+###  Публикация: 1214557   (764062) от 22.03.2018
 
-Станислав Романовский | Семейный экипаж (1984) [PDF]
+М. Миронов | Каутский о революции (1929) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повесть о дружной крестьянской семье, выращивающей хлеб.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BF10C0681645BD6CEEFD021EAE8B368AE440C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213221   (772005) от 16.03.2018
-
-KCNcrew Pack 15.03.2018 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772005.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
+Отнюдь не случайно между центризмом и каутскианством очень долго ставился знак равенства. Это соответствует действительному положению, которое Каутский занимал в рядах идеологов II Интернационала. В течение десятилетий Каутский безусловно являлся крупнейшим идеологом центризма, в свою очередь игравшего руководящую роль во II Интернационале,
 
-База серийных номеров проекта KCNcrew по состоянию на середину марта 2018 годаТип издания: macOS SoftwareРелиз состоялся: 03.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
+Именно поэтому, говоря (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8972D687D53EC3EB195D25D4BF9EEC977F2D05A
+magnet:?xt=urn:btih:58B5B72B264BA5C0A9E2DD3F24D3A53511494915
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213342   (772006) от 16.03.2018
+###  Публикация: 1214501   (764063) от 22.03.2018
 
-VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
+VA - Coastal Selections 006 (2018) [MP3|320 Kbps] <Progressive House>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
-02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
-03. Frankye Lova, Stephan Seddel - Unstable [08:15]
-04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
+01. Valiant (UK) – Paredolia (Original Mix)
+02. Japeboy – Offing (Original Mix)
+03. Lumidelic – Celebration (Original Mix)
+04. Skua – Aoibhneas (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:27:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
+magnet:?xt=urn:btih:77082C4FA3CD821B93B6EA84830870A5B2320D8F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213386   (772007) от 16.03.2018
+###  Публикация: 1214512   (764064) от 22.03.2018
 
-D. Batistatos - Sides (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub>
+Angeles & Internazionale - Vigilance (2017) Janushoved [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sides (03:54)
- 02. Work It Out (03:53)
- 03. For All I Know (04:22)Жанр: Downtempo, DubПродолжительность: 00:12:09
+01. Mareld/Bioluminescence (05:07)
+02. Closed Water I (04:33)
+03. Vigilant Hearts (07:18)
+04. Idle (02:43)(   Читать дальше...   )Жанр: Ambient, Drone, ExperimentalПродолжительность: 00:39:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED8C4AA4760B4E173D0A5014FB880CF0D5F8C6EF
+magnet:?xt=urn:btih:FA2E7CDE56B0416684F31543039A947D0B9FB7A0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213420   (772008) от 16.03.2018
+###  Публикация: 1214653   (764065) от 22.03.2018
 
-The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+VA - Spring Progressive House Vol.1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1touch  -  Surfing Swans (Original Mix)  6:11
+02.  In5um  -  Window (Denis Neve Remix)  7:17
+03.  Tom Clave & Julian Wess feat. Seven Note  -  Just with You (Breame Remix)  5:31
+04.  Lunarbeam  -  Autumn (Jon Medina Remix)  9:54(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC24DC266A2A90CEC5C1825931D1E309E263E0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214496   (764066) от 22.03.2018
+
+Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. 10-й Выпуск (2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 10.03.2018
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D7B8F30BF4C9EF19EBE47482DD7117002E2D6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214482   (764067) от 22.03.2018
+
+VA - Freakin Miami (Mixed by House Of Virus) (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  House Of Virus & LoVance  -  Freak (Vibe Killers Remix)  4:56
+02.  Skapes  -  Supersonic (Kyle Watson Remix)  4:15
+03.  2MINDSTogether  -  Keep Dancing (Original Mix)  3:37
+04.  Sleezy D  -  I've Lost Control (Flashmob Remix)  4:47(   Читать дальше...   )Жанр: HouseПродолжительность: 03:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17975C204D8AE60510B8D71B5F84011D3880617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214524   (764068) от 22.03.2018
+
+Конькобежный спорт. Чемпионат Мира по классическому многоборью (2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764068.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 марта 2018 года - 11 марта 2018 года
+112-й Чемпионат мира по конькобежному спорту в классическом многоборье  2018 года. Амстердам (Нидерланды)
+09.03.2018:
+Женщины - 500 м(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:35:41 - 04:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B4D4F70B678F575CDD3E00093EB14676FFB823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214545   (764069) от 22.03.2018
+
+MediaInfo 18.03 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764069.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo - программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.
+
+- Читает множество форматов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2018Разработчик: MediaArea.netПоддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A24F65097E3B2CD9991779B1FF71BB66B6E474D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214633   (764070) от 22.03.2018
+
+VA - Sunset Inspirational Grooves (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros & Flow Bop  -  Midnight In Paris (Original Mix)  5:23
+02.  Public Invasion Project  -  Our Trip (Original Mix)  4:08
+03.  Lo Greco Bros feat. Doctor Feelx  -  You & Us (Deep Mix)  6:42
+04.  John Type  -  Sunflower Lola (Original Mix)  4:59(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:894E63B5F7508E9F2E814EB2DC7A0D2D1EC7AEA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214509   (764071) от 22.03.2018
+
+VA - AmBeat Party (2018) [MP3|320 Kbps] <Club House, Progressive House, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kisma - Fingertips
+02. Calum Scott - You Are The Reason (MOTi Extended Remix)
+03. Lost Frequencies & Zonderling - Crazy (Dash Berlin Extended Remix)
+04. Kaaze Ft. Elle Vee - Opera (Instrumental Mix)(   Читать дальше...   )Жанр: Club House, Progressive House, Big RoomПродолжительность: 05:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36214D3FA45FB259B19782C8EC854D6606F7D898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214531   (764072) от 22.03.2018
+
+Василий Никонов | Сохатёнок (1975) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть о ребятах, которые живут на Забайкальском Севере, о таёжной природе, о том, как дети спасли и вырастили сохатёнка.Жанр: Детская прозаФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA9D8E446F5F843BD9194662580C7CF19252EE55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214642   (764073) от 22.03.2018
+
+Samba Trio - Tristeza (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Bossa Nova>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Getting Sentimental Over You [03:35]
-02. Harlem Nocturne [02:50]
-03. Leave Us Leap [03:30]
-04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
+01. Tristeza [02:52]
+02. Amelia Emilia [06:37]
+03. Chick De Ipanema [03:16]
+04. O Pato [02:53](   Читать дальше...   )Жанр: Latin Jazz, Bossa NovaПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
+magnet:?xt=urn:btih:62B6E50E3DDAAD1B74F9CAF502D4E22725AAB25B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213355   (772009) от 16.03.2018
+###  Публикация: 1214666   (764074) от 22.03.2018
 
-Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Downtempo, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I’m Woozy From My Leaky Mufflers (09:22)Тип издания: CD, WEBЖанр: IDM/Future Jazz/ExperimentalПродолжительность: 00:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036CD5D61EFB01BCE19169E8E817D09829D4EBF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213109   (772010) от 16.03.2018
-
-DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772010.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Dream In Trance (Original Mix)  5:20
-02.  Melody Of Leaving Summer (Original Mix)  5:25
-03.  You I Lose (Original Mix)  4:12
-04.  Summer Time. (Original Mix)  4:28(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:27:10
+01.  Max Freegrant & Slow Fish  -  Sweet Lies (Extended Mix)  7:13
+02.  Tony Hammer & Josa  -  Carpe Noctem (Original Mix)  6:23
+03.  Orphyd  -  Little Dreamer (Extended Mix)  6:19
+04.  Jon Bourne  -  Ameera (Original Mix)  5:31(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:02:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
+magnet:?xt=urn:btih:440186DED56364262F8E18F2F177E602622697F1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 660522   (772017) от 25.05.2013
+###  Публикация: 1067189   (764075) от 19.04.2017
 
-Должник / The Liability (2012) BDRip  [720p] [EN]
+Ходячие мертвецы / The Walking Dead (2016) WEBRip [H.264/1080p] (сезон 7, серии 1-16 из 16) LostFilm
 
->>Архив торрентов
+>>След.
+>>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости.Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: русские (N-Team), английскиеПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA11BFFD1746AF9561112C8B8B5C13793954ED57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125127   (764076) от 19.04.2017
+
+Ла-Ла Ленд / La La Land (2016) WEB-DL [H.264/1080p-LQ] [Line]
+
+>>След.
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда 19-летний Адам соглашается на работу, предложенную хитроумным гангстером и его отчимом Питером, это обрекает парня на 24 часовое путешествие в кошмарный мир убийств, секс-торговли и мести в компании убийцы Роя.Жанр: Триллер, КриминалРежиссер: Крэйг ВивейросАктеры: Тим Рот, Джек О’Коннелл, Талула Райли, Питер Муллан, Фэй Вэрэйнг, Кристофер Хатрэлл, Клив Шоу, Саймон Мэнли, Джек МакБрайд, Джимми НайтсПеревод: ОтсутствуетПродолжительность: 01:26:00
+Это история любви старлетки, которая между прослушиваниями подает кофе состоявшимся кинозвездам, и фанатичного джазового музыканта, вынужденного подрабатывать в заштатных барах. Но пришедший к влюбленным успех начинает подтачивать их отношения.Производство: США, Гонконг / Black Label Media, Gilbert Films, Impostor Pictures, Marc Platt Productions, Summit EntertainmentЖанр: Комедия, Драма, Мюзикл, МелодрамаРежиссер: Дэмьен ШазеллАктеры: Райан Гослинг, Эмма Стоун, Джон Ледженд, Дж.К. Симмонс, Розмари ДеУитт, Финн Уиттрок, Калли Эрнандес, Соноя Мидзуно, Джессика Рот, Том Эверетт Скотт ...Перевод: Дублированный (Центральный канал Line)Субтитры: Русские (машинный перевод), АнглийскиеПродолжительность: 02:08:06Реклама: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8613792764904B173255F285BBAD4B737228943A
+magnet:?xt=urn:btih:CD83151F78A15D11183A50219D247DBC5124BC98
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886029   (772031) от 07.04.2015
+###  Публикация: 1084311   (764077) от 19.04.2017
 
-Журнал | Кухни и ванные комнаты №4 (173) (апрель 2015) [PDF]
+Zorin OS 12 Ultimate [x64] (1xDVD)
 
->>Журналы
->>Домоводство (журналы)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772031.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Кухни и ванные комнаты» содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.Жанр: Строительство, ремонт, дизайнФормат: PDF
+ Zorin OS 12 [x64] 1xDVD 
+Название: Zorin OS
+Версия: 12 Ultimate
+Последняя версия ОС: 12(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD53FE6BA662333FFB2BD7CE295D99996B8D0221
+magnet:?xt=urn:btih:4F6E2EAE3DDD07DD4B6B5DF342D06BD06EA87B9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125753   (764078) от 19.04.2017
+
+BELOFF 2017.4 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный сборник программ, распределённых по категориям, с автоматической установкой на операционные системы Windows. В сборник дополнительно добавлены портативные приложения, которые можно будет легко использовать как с диска и виртуального привода, так и с USB-накопителей, включая установку MInstAll и WPI. Для большего удобства использования сборника добавлено (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E660284D0BB380718BCBBBF3727B5AE76F50DDDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124650   (764079) от 19.04.2017
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.11 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F34049B9E415D371E18DAF3B9CB8F88240CC142
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 749836   (764080) от 19.04.2017
+
+Metro 24 Pro v3.2.3 [Ru/Multi] - удобный навигатор по метро различных городов мира
+
+>>След.
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и удобный навигатор по метро различных городов мира! Умеет определять местоположение на карте по сигналам сети (для метро с GSM или WI-FI) и показывать ваше перемещение под землей. Строит маршруты с учётом часов пик и учитывает протяженность переходов между станциями. Это позволяет вам меньше ходить по переходам и быстрее добираться до пункта назначения.Тип издания: Пиратка (Полная версия)Релиз состоялся: 17.04.2017Разработчик: Dmitriy V. LozenkoПоддерживаемая ОС: Android 3.2+Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26D186C58F67BBD6583FD8732A1603B123BD1C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126608   (764081) от 19.04.2017
+
+Русская Рыбалка Installsoft Edition (2009) [Ru] (3.7.6.0) License
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русская Рыбалка Installsoft Edition 3.7.6 - популярный бесплатный симулятор рыбалки. В игре больше тысячи различных видов рыб, 70 различных рыболовных баз и почти 700 игровых локаций! Для ловли рыб в игре предусмотрено множество разных наживок, снастей, прикормок, блёсен. Игра способна утолить желания самого привередливого рыболова. Хотите ловить сомов? Ловите! Только (   Читать дальше...   )Тип издания: LicenseРазработчик: InstallSoftЖанр: Симулятор РыбалкиЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A5F3CBFF49F5C31D815DB9065733D3B994E157
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 999526   (864213) от 22.03.2016
+
+Линда - Шаманка (The Best of) (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Шаманка
+02 - Мало огня
+03 - Ворона
+04 - Марихуана(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC73225FD87E9A8C18C251F790AA84C8C90804A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999278   (864727) от 22.03.2016
 
 VA - 100 грамм для храбрости Прими на грудь и слушай! (2016) [MP3|320 кб/с] <Шансон>
@@ -664,33 +691,6 @@ VA - New Music N2 (2016) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A34302E19D5D3A03F5E14B4C20E9FA0A9A1478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873769   (866428) от 01.03.2015
-
-VA - My Favourite Hits of 1972 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Synth Pop, Pop Rock, Hard Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866428.jpg" />
-</div>
-
-
-###  Подробнее
-
-150. Saint-Preux - Le Voyage (02:50)
-151. Harry Chapin - Burning Herself (03:27)
-152. Daniel Boone - Beautiful Sunday (02:55)
-153. ZZ Top - Whiskey'n Mama (03:22)(   Читать дальше...   )Жанр: Easy Listening, Chanson, Funk, Pop, Pop Rock, Classic Rock, Hard RockПродолжительность: 09:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80CA126F606EFFD018E9448D10FFAC25A8F375E
 ```
 
 

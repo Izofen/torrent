@@ -1,3 +1,36 @@
+###  Публикация: 523352   (617217) от 16.07.2012
+
+VA - Esthetics Lounge Vol. 5 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617217.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Late Night Alumni - Empty Streets (5:01)
+2. Mimi Page - Mimi Page - My Vanilla Sky (2:44)
+3. Lemongrass - Riddle (Feat. Jane Maximova) (4:27)
+4. Bloomfield - Rendez-Vous A Paris (6:11)
+5. Afterlife - Black Iris (4:44)
+6. Massive Gold - Lady Love - Radio Gaga Lounge Mix (5:50)
+7. Soulounge - Love's In Need Of Love Today (Feat. Roger Cicero & Nathalie Dorra) (3:59)
+8. Abe Duque - Following My Heart (Feat. Virginia) (6:13)
+9. Mimi Page - Mimi Page - Black Valentine (3:10)
+10. Idenline - At Sunset (3:43)Жанр: Downtempo, Lounge, ChilloutПродолжительность: 03:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A087943FC6526F4D3BCCEB163ED4778998D23E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523350   (617222) от 16.07.2012
 
 VA - Esthetics Lounge Vol. 4 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -701,33 +734,6 @@ VA - Русский Дальнобой 2CD (2012) [MP3|256 кб/с]<Шансон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7B082D5F03AA35206C3982D208995B2D8CB62C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230159   (618976) от 10.06.2018
-
-VA - Record Super Chart 540 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prodigy feat. Vicetone - Omen 3:43
-02. Lucas & Steve - Source 4:22
-03. Rudeejay & Da Brozz - Children 3:05
-04. Brandy, Lucas & Steve - I Could Be Wrong 3:42(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058FDB5B0437C6DA390E3B08BE321232AE106296
 ```
 
 

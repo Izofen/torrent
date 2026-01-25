@@ -1,3 +1,30 @@
+###  Публикация: 1007381   (823300) от 14.04.2016
+
+VA - Зажигательный молодежный музыкайф на Europa Plus - 2 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Иван Гаранин - Я Тебя Люблю
+002. Faydee - Sun Dont Shine
+003. Aisha - Поцелуи
+004. Medina - We Survive(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E26841415B4BC5284F7AC97C5E476429464462B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007379   (823314) от 14.04.2016
 
 VA - Ты придумала счастье. Шансон для души (2016) [MP3|256-320 кб/с] <Шансон>
@@ -668,33 +695,6 @@ VA - В пятницу №76 (2016) [MP3|256 кб/с] <Pop,Shanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E2F21E3556F5BA00C3D8A3609F8A8C13B2B618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006909   (825476) от 13.04.2016
-
-VA - Popular Dance Boy And Girl (2016) [MP3|64-320 кб/с] <Pop, Dance, Eurodance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ro-MINA & Christiano Jordano - Insane (Dave Aude Remix)
-002. Coldplay - Adventure Of A Lifetime (Audien Extended Remix)
-003. Acim - All My Life (Original Mix)
-004. Lenny Kravitz & Merk & Kremont - Are You Gonna Go My Way(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 08:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF3D905F5C759887389763F0724AC16A46F8F56
 ```
 
 

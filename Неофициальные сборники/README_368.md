@@ -1,3 +1,30 @@
+###  Публикация: 1038422   (606065) от 28.07.2016
+
+VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonard Cohen - Waiting for the miracle
+02. Houston - Runaway
+03. Tasmin Archer - Sleeping Satelite
+04. IamX - Your Joy Is My Low (You Are X Remix  By Thomas Sari)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0912EDAD217149E6B942EFEADA7B1D953B3B2498
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546519   (606103) от 24.04.2022
 
 VA - The Official UK Top 100 Singles Chart 22.04.2022 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -673,33 +700,6 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147800   (607522) от 03.07.2017
-
-VA - The Human League SynthSpace Thesis Party (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607522.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Droid Bishop - Color & Data
-002. Das Mortal - Midnight Rendez-Vous (Feat. French Fox)
-003. Lueur Verte - Lueur Verte's Theme
-004. Robert Parker - '85 Again (feat. Miss K)(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520E71AB684B12398426E92445B721E5C46F6C82
 ```
 
 

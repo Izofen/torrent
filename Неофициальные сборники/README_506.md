@@ -1,3 +1,30 @@
+###  Публикация: 1206322   (782540) от 13.02.2018
+
+VA - Deep House Collection vol.157 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agatino Romero feat. Duncan Townsend - All I Wanna Do (Original Mix) 3:07
+02. Airbas - After Hours (Petros Odin Nightwalking Remix) 7:36
+03. Alberto Jossue - Iquitos (Extended Dub) 8:53
+04. Al Bradley - Malandro (Original Mix) 7:43(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D508674DE3819708C08CA7D6D024B7E9AD750D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206325   (782570) от 13.02.2018
 
 VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.5 (2018) [MP3|320 Kbps] <Psy-Trance>
@@ -668,33 +695,6 @@ VA - Record Super Chart #523 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97068FCDDC28C20171E53B42F363A9936B35C2DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204118   (783532) от 10.02.2018
-
-VA - JB-Mix 19 (2017) [MP3|320 Kbps] <Drum n Bass, Dub Step, Jungle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trox - Rising (Marcus Tee Remix) (3:20)
-02. Critical Event & Humanature - Moving Swiftly (3:40)
-03. DBrief - Indian Sun (4:04)
-04. Walk-R - Bedouin (5:34)(   Читать дальше...   )Жанр: Drum n Bass, Dub Step, JungleПродолжительность: 01:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C83D3B2FDEE345B196276B81109D3AF69AFF3D73
 ```
 
 

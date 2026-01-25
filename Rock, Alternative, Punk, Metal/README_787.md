@@ -1,3 +1,55 @@
+###  Публикация: 927512   (524917) от 13.08.2015
+
+Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Sold Our Souls To Metal
+02. Archangel
+03. Sodomites (Feat. Todd Jones Of Nails)
+04. Ishtar Rising(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE4EFD5291A71489A388FD186517D612C099898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 268736   (524931) от 17.09.2016
+
+Green Day - Green Day - 15 альбомов (1990-2014) [APE, FLAC|Lossless|image + .cue|tracks + .cue]<Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Green Day — американская панк-рок-группа, состоящая из трёх участников: Билли Джо Армстронг (вокал, гитара), Майкл Дирнт (бас гитара, бэк вокал), Тре Кул (барабаны).
+Green Day первоначально был, частью панк-рок сцены в 1994 Gilman Street, Berkeley, California. Их первые альбомы на независимом лейбле Lookout!Records, позволили группе заработать множество фанатов. (   Читать дальше...   )Жанр: Punk-RockПродолжительность: 10:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C258A52F9644F685BA9483AE2958306CA0BCAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 371292   (524987) от 03.08.2011
 
 Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassical>
@@ -638,60 +690,6 @@ Sinsid - In Victory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BA0C86DEBEAFF3282E3CC5097880F8669F09EDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559049   (527192) от 24.06.2022
-
-Cân Bardd (Can Bardd) - Devoured by the Oak (2021) Limited edition [FLAC|Lossless|image + .cue] <Epic Black metal, Folk metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Echoes of the Moss (05:02)
-2.Une couronne de branches (10:31)
-3.Devoured by the Oak Pt.I  (08:34)
-4.Devoured by the Oak Pt.II (08:50)(   Читать дальше...   )Жанр: Athmospheric/Epic Black metal, Folk metalПродолжительность: 57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C07A72B247D1945059CD92D6E8FFC81D56C081B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559120   (527195) от 24.06.2022
-
-Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Int(r)o the Gates of Obscurity (05:13)
-02. Praise Hell Satan (02:23)
-03. The Horned Immortal (04:28)
-04. Die In Peace... Arise in Chaos (02:10)(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AB75EA84B4F04BD3D86ED1A421E6DDE8162D5
 ```
 
 

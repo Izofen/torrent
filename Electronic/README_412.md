@@ -1,3 +1,84 @@
+###  Публикация: 1275207   (791154) от 10.01.2019
+
+VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
+02. Mert Avci - Forget Me Not (Original Mix)
+03. Superkluster - Timelapse (Original Mix)
+04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275275   (791156) от 10.01.2019
+
+Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Original Mix) (3:30)
+ 02. Permanent Hadway (Original Mix) (6:38)
+ 03. Carnivalmind (Original Mix) (6:18)
+ 04. Timescope (Original Mix) (6:50)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652D9C6F7C9D64AA3AC9A9CE1E38F3F7FA25E667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275200   (791157) от 10.01.2019
+
+VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Walker - Ocean (Original Mix) 5:09
+02. WDX - Late Night Kiss (Original Mix) 4:17
+03. Ian Deluxe - Feels Like This (Original Mix) 4:40
+04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275193   (791162) от 10.01.2019
 
 VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
@@ -612,87 +693,6 @@ VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040394   (791774) от 01.06.2020
-
-Aythar - Collection 12 Releases (2016-2019) Carpe Sonum, ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Psybient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe (Short Version) (15:03)
- 02. Cosmic Resonance Part 1 (07:14)
- 03. Cosmic Resonance Part 2 (18:52)
- 04. Cosmic Resonance Part 3 (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Psybient/Berlin-School/DroneПродолжительность: 12:35:21 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3FD69EBEF90F0A1E62A4A923097E305C8B1AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387465   (791829) от 01.06.2020
-
-Felix K - Flowers Of Destruction (2013) Hidden Hawaii LTD [FLAC|Lossless|WEB-DL|tracks] <Abstract, Drum n Bass, Techno, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flower Of Destruction #1 (01:12)
- 02. Flower Of Destruction #2 (05:48)
- 03. Flower Of Destruction #3 (02:34)
- 04. Flower Of Destruction #4 (06:10)(   Читать дальше...   )Жанр: Abstract, Drum n Bass, Techno, AmbientПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5A941A38B7342F545E9C1B01026D35AEB12CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387267   (791832) от 01.06.2020
-
-Eusebeia, Atiq & Arlow - Transfiguration EP (2020) Mindtrick Records [FLAC|Lossless|WEB-DL|tracks] <Jungle, Drum n Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eusebeia & Atiq - Through The Motions (07:56)
- 02. Eusebeia & Atiq - Transfiguration (06:59)
- 03. Eusebeia & Arlow - Matter (05:12)
- 04. Eusebeia & Arlow - Anti Repressant (06:28)Жанр: Jungle, Drum n BassПродолжительность: 00:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E0CC698E84955FC6A17DD5AC41077352B52A5D
 ```
 
 

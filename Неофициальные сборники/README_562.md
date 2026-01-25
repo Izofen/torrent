@@ -1,3 +1,30 @@
+###  Публикация: 1378424   (846289) от 25.04.2020
+
+The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chop Chop
+02. Sweet F.A.
+03. Action
+04. Spotlight(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 04:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6188FB8644A97FEE1B7012CA134A382BC35E75F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378204   (846290) от 25.04.2020
 
 Livin' Blues - 100% Livin' Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -665,33 +692,6 @@ VA - German Top 100 Single Charts  01.10.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3376677FAB22FEDF928A059C97E20539C03591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499496   (847357) от 02.10.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Сентябрь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JOHNNY, The Limba - Босс (2:58)
-002. Ruki Vverh!, HammAli & Navai - Последний поцелуй (3:07)
-003. MOT - Август - это ты (2:45)
-004. escape, Даня Милохин - so low (2:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26AF6DA29A7FB5E37C2B729AD4A18BA47997DB99
 ```
 
 

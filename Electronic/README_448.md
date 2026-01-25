@@ -1,3 +1,84 @@
+###  Публикация: 1497986   (861181) от 24.09.2021
+
+New Arcades - Returning Home (The Instrumentals) (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Movies (3:23)
+02. Into the Unknown (3:53)
+03. If Only You Could See (4:18)
+04. Further (4:00)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6137B1DCA98DEBE04A22D16D47E19DE7205EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497989   (861251) от 24.09.2021
+
+New Arcades - In the Deepest of Dreams (2021) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Deepest of Dreams (1:33)
+02. Where We Go (3:56)
+03. Don't Stop Dreaming (feat. Dana Jean Phoenix) (3:56)
+04. Disconnect (4:07)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1C69A8556EDB58B2382AAAFEA75B3ED5C015F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497991   (861356) от 24.09.2021
+
+New Arcades - In the Deepest of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Deepest of Dreams (1:33)
+02. Where We Go (3:56)
+03. Don't Stop Dreaming (feat. Dana Jean Phoenix) (3:56)
+04. Disconnect (4:07)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBA6E4B2AE5FC24B2F66EDEA796309D3ADF5213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198074   (861927) от 16.04.2020
 
 Plesiada - Discography 4 Releases (2013-2020) Miandres Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
@@ -612,87 +693,6 @@ Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D549B079C6DF1FA88E21C1F64286491884F4F564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108357   (864730) от 24.02.2017
-
-VA - Chill Out Waves Vol.2: Finest In Smooth Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roberto Sol - Slow Motion Memories 5:10
-002. Chris Le Blanc - Ahora 4:28
-003. Florito - Funny Valentine 2:33
-004. Prana Tones - Yearning For Love 6:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65CA5B0636F98BD00DD7870809D4DCB03165457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108028   (864732) от 24.02.2017
-
-VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lisa Reinhard - Take My Heart - Original Mix 3:11
-002. Mackenzie Burns - Never Be Bad - Original Mix 4:10
-003. Juicy Lotta - Get Down - Original Mix 6:49
-004. Evie Moore - Savana Life - Original Mix 3:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2E7839EC58E81BBBE6896BE433A92604E23380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108245   (864738) от 24.02.2017
-
-VA - Buddah Vol.3 The Best in Pure Chill Out Lounge Ambient (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864738.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 351 Lake Shore Drive - Butterfly 5:37
-002. Jasmon - Delight 5:01
-003. Inventors Of The Sun - Es Vedrа 5:14
-004. Velvet Dreamer - City Of Pleasures 5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F412C6A72C408DD6641042C54689E1F3D53B1AFC
 ```
 
 

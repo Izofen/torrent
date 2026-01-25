@@ -1,3 +1,30 @@
+###  Публикация: 1209348   (779393) от 26.02.2018
+
+VA - Night Noir Deep House Portrait (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kygo & Selena Gomez - It Ain't Me (DJ VoJo Remix)
+002. Nic Fanciulli - The Light (feat. Constance)
+003. Abel - NYE 2014
+004. Oblomov - Gray-Haired Roses (DJ VoJo Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EBE4F9201B516460FBC22F824C2D1A7E7C5C9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209161   (779416) от 25.02.2018
 
 VA - Дискотека 2018 Dance Club Vol. 175 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
@@ -668,33 +695,6 @@ VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207630   (780424) от 19.02.2018
-
-VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy Jared Knapp and Patrick de Vere - Night Moves (Daniel Kandis Emotional Edit)
-002. Ciaran McAuley - Thoughts Become Things
-003. Fischer & Miethig - Touched By Bermuda (Mindsoundscapes Radio Cut)
-004. Dan Thompson - Lucid(   Читать дальше...   )Жанр: TranceПродолжительность: 10:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
 ```
 
 

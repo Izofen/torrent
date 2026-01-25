@@ -1,3 +1,57 @@
+###  Публикация: 1391552   (773249) от 21.06.2020
+
+Tense Machine - Echoes (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freak Like Me (03:18)
+ 02. Best Mistake (03:06)
+ 03. I Won't Throw It Away (03:10)
+ 04. Bottom of the Bottle (03:14)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB46AE7B00470CDB9ACE5053BF8DEC192DE7CA1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391542   (773262) от 21.06.2020
+
+Coriky - Coriky (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Kill (04:12)
+ 02. Hard to Explain (03:03)
+ 03. Say Yes (02:35)
+ 04. Have a Cup of Tea (03:33)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E735F3D534B0909CA6CF454AFFC577A6DBC1B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278229   (773301) от 24.01.2019
 
 Clandestine Blaze - Tranquility of Death (2018) [FLAC|Lossless|tracks + .cue] <Black Metal>
@@ -652,60 +706,6 @@ Hidden Intent - Walking Through Hell (2013) Not On Label [MP3|320 Kbps] <Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FE223FD824CED387729EF71867CF6F7CBCD22C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014869   (774691) от 10.05.2016
-
-Bring Me The Horizon - Sempiternal (2013) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks|24/44.1] <Metalcore / Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can You Feel My Heart
-02. The House of Wolves
-03. Empire (Let Them Sing)
-04. Sleepwalking(   Читать дальше...   )Жанр: Metalcore / Post-HardcoreПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361F2250A7EB1A284B74CF38D0FB41DC8740EB1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015109   (774932) от 10.05.2016
-
-Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First We Take Manhattan
-02. Different Roads
-03. My Father’s Son
-04. While You See a Chance(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06996C3BA305FF7253FE8754A3F900A44F43DE4E
 ```
 
 

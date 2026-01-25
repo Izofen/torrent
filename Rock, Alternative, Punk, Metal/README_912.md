@@ -1,3 +1,57 @@
+###  Публикация: 1539723   (655049) от 28.03.2022
+
+Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leeches (00:04:12)
+02 - Bits & Pieces (00:05:07)
+03 - Jharia (00:06:56)
+04 - After Dark (00:03:40)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0540B19D4A951E02527603E516637D61AA140529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539620   (655053) от 28.03.2022
+
+Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chemicals (00:04:48)
+02 - I.A.N (00:05:13)
+03 - Waiting For Red (00:02:59)
+04 - Creepers (00:03:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C6D20149CE0DF9F5422CBEAE6870B8B2D59385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903997   (655138) от 02.06.2015
 
 Scorpions - Wind Of Change: The Collection (2013) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Metal>
@@ -652,68 +706,6 @@ At The Gates - To Drink From The Night Itself (2018) [MP3|320 Kbps] <Melodic Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C606B645682325474113C46F40F050E214CAACAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140343   (655789) от 06.06.2017
-
-Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
-
-Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
-02. Hammered to the Cross (The Business) (5:29)
-03. Love Is the Remedy (4:53)
-04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515505   (655818) от 26.06.2012
-
-Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мордор (03:54)
-02. Гламур! (04:33)
-03. На дне (04:40)
-04. D.J.Voorda (04:07)
-05. Страх (04:06)
-06. Hombre Pajaro (04:14)
-07. Суперзвёзды (04:34)
-08. Фитнесс - убийца (03:20)
-09. Машинист (03:47)
-10. Голограмма Пустоты (04:03)(   Читать дальше...   )Жанр: Heavy Metal / IndustrialПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
 ```
 
 

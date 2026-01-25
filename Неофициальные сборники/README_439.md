@@ -1,3 +1,30 @@
+###  Публикация: 1287964   (699770) от 09.03.2019
+
+VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Volkan Erman - Hope (Original Mix)
+002. Jamie Roy - Movin'
+003. Caravaca - Gotcha
+004. Sante Sansone - Keep Movin'(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287942   (699772) от 09.03.2019
 
 VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132634   (701118) от 09.05.2017
-
-VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701118.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
-002. Deeppirate Feat. Vilia - Love (Audio Luxury Remix) 5:41
-003. Ilkay Sencan - Back To Life 3:11
-004. Loungetronic - Ready Or Not - Nu Deep Mix 3:15(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 08:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1297688   (603107) от 24.04.2019
+
+Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar Timing Array (07:45)
+ 02. Gravitational Waves (07:16)
+ 03. Dark Matter (08:32)
+ 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297264   (603115) от 24.04.2019
+
+Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney - Mexican Rave (ID Remix)
+02. Key4050 - Schillachi
+03. ID - ID
+04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297823   (603116) от 24.04.2019
+
+VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Modena - Lover (Extended Mix)
+02. Glitch Matrix - Breeze
+03. Regie Rules - Hour Of The Morning
+04. Juli Lee - Time Warp(   Читать дальше...   )Жанр: Funky, Deep Groove, MinimalПродолжительность: 02:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297807   (603142) от 24.04.2019
 
 Monodisc - Discography 2 Releases (2015-2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dub, Ambient>
@@ -614,87 +695,6 @@ VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5218E01B990C5DAE8135D29EBF21DDACFA422DCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148165   (604408) от 05.07.2017
-
-VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luca Gazzola - North Rose (Black XS Remix) 06:29
-02. Costa Pantazis - Sacrifice (Original Mix) 06:56
-03. Ruslan Radriges - Stronghold (Attila Syah pres. Gamma 05:20
-04. 9eek - Stab Me (R3dub Remix) 07:00(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F40F8F1B33E96437263199B2850503DD2A0636
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245612   (604752) от 21.04.2019
-
-Thomas Fehlmann - Los Lagos (2018) Kompakt [FLAC|Lossless|tracks+.cue] <Techno, Abstract, Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loewenzahnzimmer (08:28)
- 02. Window (08:54)
- 03. Morrislouis (08:49)
- 04. Tempelhof (feat. Max Loderbauer) (06:38)(   Читать дальше...   )Жанр: Techno, Abstract, Dub Techno, AmbientПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAD6855422BB6D66F5F592EBA7A5AB5C70A91EBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297195   (604828) от 21.04.2019
-
-VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klubb Eff3kt - Move It
-02. Poomstyles - Hold Up
-03. Tom Damage - Dreams
-04. Mr Mister &Tasered In Tesco(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
 ```
 
 

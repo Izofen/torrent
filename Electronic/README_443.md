@@ -1,3 +1,84 @@
+###  Публикация: 1377746   (849825) от 23.04.2020
+
+Blank & Jones - Milchbar - Seaside Season 12 (2020) DJ Mix [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Ambient (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blank & Jones – Crosswinds (04:13)
+02. Blank & Jones – High Fly (04:20)
+03. Sixtine – L'exactitude (04:00)
+04. Ambala – Sergios Theme (04:49)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, DowntempoПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC2986CF1E4FA8D220272BA4A6AEAA412A8E7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378023   (849897) от 23.04.2020
+
+Liquid Viking - Spiritual Awakening (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849897.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Invisible (7:32)
+2. Vision (6:43)
+3. Tramatic (7:08)
+4. Fusion (7:39)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65925B8284F95B6DC920C711A3FF5EE49E461973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377802   (850002) от 23.04.2020
+
+VA - Sex On The Beach Summer 2020 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850002.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Modell & Mercier - For My Soul (Early Dance mix) (4:02)
+2.Folder Full - 4 Strings (Fields Forever mix) (3:11)
+3.Alexander Sander - Dubai Beach (It Hurts To Shoot mix) (3:12)
+4.Jep Neil - Muba (Give Me Your mix) (2:36)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB634888A51F8A436CCE16E020DB01817A4B467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378020   (850090) от 23.04.2020
 
 Synergic - A World Beyond (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -612,87 +693,6 @@ VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0B7FD99A594BC0A4320AC3EFA7A15F0058AC967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110401   (852176) от 03.03.2017
-
-VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александер Конинг - Grown & Sexy (David Dorad Remix) 7:54
-002. Alex Roque - Luxuria (Latin Remix) 6:35
-003. Robbie Dee - House Tool 5:45
-004. Tiziano Iervolino - Aurora 5:15(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA13927CF222D3B349E222E2D7B661994966CDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110789   (852272) от 03.03.2017
-
-VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tritonal & Sj ft. Emma Gatsby - Hung Up (Original Mix)  3:40
-02.  LEVV - Collateral Damage (Original Mix)  4:25
-03.  Vanrip - Find Your Love (Original Mix)  2:57
-04.  No Way Back - Minute (Original Mix) (feat. Sophia Black)  3:40(   Читать дальше...   )Жанр: HouseПродолжительность: 03:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C93733253A480F4B86E760CFADE183C3DBC1DF37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110413   (852278) от 03.03.2017
-
-VA - Electro Vibes Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luca Elle - Sleepless  5:04
-02.  Bob Artwood - The Sky  4:26
-03.  Luna Lounge - Sultan Wife  4:00
-04.  Glissman - Fresh Air  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31CF501BB189DB37576A0CE2807E0978684B260
 ```
 
 

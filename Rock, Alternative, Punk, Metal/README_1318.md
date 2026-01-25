@@ -1,3 +1,57 @@
+###  Публикация: 1844445   (1049954) от 26.12.2025
+
+Стольный Градъ - Страж Небытия (2025) [MP3|320 Kbps] <Dark Neofolk, Nordic Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой Дракар [00:05:36]
+02. Белая Земля [00:04:24]
+03. Последний Крестоносец [00:06:52]
+04. Художник [00:04:54](   Читать дальше...   )Жанр: Dark Neofolk, Nordic FolkПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CB3858E3D7885DD09161AC42620F1E6B6C1F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844196   (1049977) от 26.12.2025
+
+Чёрный Кит - Время Перемен (2024) [FLAC|Lossless|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рок-н-Ролл                   [00:03:42]
+02. На Линии Огня             [00:03:54]
+03. Не Смотри Назад          [00:04:22]
+04. Больше Нет Надежд      [00:04:02](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:97
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD805B9AFE1F5AA3A981B8CFE953CD58EBC5CB93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844338   (1050024) от 25.12.2025
 
 Cuervo - Abismo Y Ascensión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -641,60 +695,6 @@ Jim Peterik And World Stage - River Of Music - The Power Of Duets, Vol. 1 (2025)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8C508644DF3CF271CB292E94866E39C94E2E0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845228   (1050611) от 30.12.2025
-
-Free Warren - These 4 Walls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Broken Dreams (5:39)
-02.  These 4 Walls (5:43)
-03.  The Devil's Playground (8:02)
-04.  Psycho (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9A3C118A89E9771495EB92F2CED8ED1D2D70CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845223   (1050613) от 30.12.2025
-
-Danko Jones - Leo Rising (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  What You Need (3:35)
-02.  Danko Jones feat. Marty Friedman - Diamond In The Rough (feat. Marty Friedman) (3:36)
-03.  Everyday Is Saturday Night (3:27)
-04.  I Love It LouderЖанр: Hard RockПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19BD4E90A5AE8F01837301E1336F8F3681A5AE9
 ```
 
 

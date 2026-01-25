@@ -1,3 +1,57 @@
+###  Публикация: 930415   (516139) от 22.08.2015
+
+Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Foolish Things
+02. I've Got You Under My Skin
+03. Rod Stewart feat Dolly Parton - Baby, It's Cold Outside
+04. Time After Time(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 02:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42327191381316370A3017B86343E0B03E435D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242022   (516190) от 21.08.2018
+
+Michaelangelo - One Voice Many (1971) Reissue, 2007, Fallout [MP3|320 Kbps] <Psychedelic Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516190.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. West
+2. Come To Me
+3. Bird
+4. Son (We Kept The Room Just The Way You Left It)(   Читать дальше...   )Жанр: Psychedelic Folk RockПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51611B74DF1160E6EB69414A354660F48B4D646
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242115   (516237) от 21.08.2018
 
 Peddle Train - Natural Disaster (2018) [MP3|320 Kbps] <Southern Rock>
@@ -658,60 +712,6 @@ Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35AB4A094CDBDDE96B3E49D4F5FAB47D2226A701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559996   (522789) от 27.06.2022
-
-Bongskrap - Bong Voyage (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Hellucination Supreme [00:02:55]
-02 Desert Oak [00:05:48]
-03 Eternity Divided [00:04:16]
-04 Carnivorous Bong [00:05:04](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627A7B27CA3C5557B1BF6EB030D35851A4714A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560021   (522790) от 27.06.2022
-
-Green Altar - Green Altar (2022) [MP3|320 Kbps] <Stoner Rock, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rise [00:09:37]
-02 Forgotten Cults [00:05:38]
-03 Of Stone [00:09:43]
-04 The Plague of Man [00:07:34](   Читать дальше...   )Жанр: Stoner Rock, Sludge, Doom MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCA4E213DFCB616B802C52E7067E36FCDCFB27F
 ```
 
 

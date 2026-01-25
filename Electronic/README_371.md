@@ -1,3 +1,84 @@
+###  Публикация: 1021402   (740992) от 29.05.2016
+
+VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uffe Bengtsson - Summer in Ibiza [06:44]
+02. Dimix - Coming Alive - Fallow Remix [07:03]
+03. Nocti Luca - Volver - Zak Gee Remix [06:01]
+04. Lex Luca - Hoop [06:29](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9289C8D9B621CE5C63F3BB6B04BE916574FC0833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021394   (740996) от 29.05.2016
+
+VA - Paul Oakenfold DJ Box May (2016) [MP3|320 кб/с] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juno Reactor - Voyager 303 (06:17)
+02. Paul Oakenfold - Lonely Ones (feat Tawiah - Daniel Davoli Ibiza remix) (06:13)
+03. Max Graham - Amnesia (original mix) (06:15)
+04. Betsie Larkin - We Are The Sound (Chris Metcalfe remix) (06:39)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100956F10AF55AEC5C1CCA3C39F1009E863BEF15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217780   (741037) от 06.04.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Miami (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota - Cafe Del Mar
+02. Boris - Can You Hear Me (Enrico Sangiuliano Remix)
+03. ID
+04. Cosmic Gate - Halo(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412B8C8F6087E27DE52837D339EB929F778403C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217775   (741040) от 06.04.2018
 
 VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -614,87 +695,6 @@ VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126737   (741202) от 20.04.2017
-
-VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Benatural - Little  5:09
-02.  Ialaz - Waves  4:21
-03.  Lo Tide - Never Coming Back  4:01
-04.  Michiko - Outta Sight Outta Mind  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283139   (741232) от 15.02.2019
-
-BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BK & Christopher Lawrence - Warp (7:23)
-02. BK & EJ Doubell - Butterflies (7:46)
-03. BK & Tom Harding - Raucous (2:56)
-04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397185   (741335) от 19.07.2020
-
-Minddigger - A World For You (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World (03:01)
- 02. Behind The Clouds (06:46)
- 03. Universe (07:41)
- 04. Dreaming Of You (feat. Nuphar Solaris) (06:48)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F175516D012FF0C5B831540D61386C25538A52
 ```
 
 

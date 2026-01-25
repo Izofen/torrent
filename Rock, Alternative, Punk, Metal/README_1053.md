@@ -1,3 +1,57 @@
+###  Публикация: 1505946   (801734) от 29.10.2021
+
+The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801734.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Motors - британская группа новой волны, образованная в 1977 году в Лондоне, Англия, бывшими участниками Ducks Deluxe Ником Гарвеем и Энди Макмастером (с гитаристом Брэмом Чайковски и ударником Рики Слотером). The Motors, исполнявшие отмеченный технически точными, размашистыми аранжировками поп-рок с элементами паб- и панк-рока, получили известность благодаря (   Читать дальше...   )Список альбомов:
+1977 - 1
+1978 - Approved By The Motors
+1980 - Tenement Steps(   Читать дальше...   )Жанр: Pub Rock, Power Pop, New WaveПродолжительность: 02:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505979   (801735) от 29.10.2021
+
+This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Le Jour D'avant (00:01:40)
+02 - The Storm (Part I) (00:05:37)
+03 - The Storm (Part II) (00:04:36)
+04 - Limited (00:02:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BE9AA2CD10333D704E5BC5118D67A20A7DF802
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505950   (801736) от 29.10.2021
 
 King Company - Trapped (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -639,60 +693,6 @@ Heretoir - The Circle (2017) [MP3|320 Kbps] <Post-Black Metal, Depressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997889230F3F9BCF0EA976D2BEEB46F12A47EAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120509   (802058) от 31.03.2017
-
-Davey Suicide - Made From Fire (2017) [MP3|320 Kbps] <Industrial Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resurrection
-02. Rise Above
-03. Dancing With The Reaper
-04. No Angel(   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D114081E3EA70A7BECD6CD294B4B6569846575B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010785   (802074) от 25.04.2016
-
-Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. In The Flesh (03:41)
-02. The Thin Ice (02:29)
-03. Another Brick In The Wall Part 1 (03:29)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2CCB99E299F4B46B4DA56DB83A2EE100947053
 ```
 
 

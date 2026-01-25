@@ -1,3 +1,30 @@
+###  Публикация: 1536304   (676447) от 11.03.2022
+
+VA - Громкие новинки Марта (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676447.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Люся Чеботина - АЭРОЭКСПРЕСС (2:34)
+002. Kygo, DNCE - Dancing Feet (3:35)
+003. Nessa Barrett - dying on the inside (3:24)
+004. Scorpions - When You Know (Where You Come From) (4:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5682CC8871386547DAFD6522E6E2DDC98768DF46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136022   (676490) от 21.05.2017
 
 VA - Lets Rock: Good History (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock, Alternative>
@@ -683,39 +710,6 @@ VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508742   (677467) от 11.06.2012
-
-VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Fisun - I remember syndicate
-002. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Club Mix)
-003. Radio Killer - Calling You (Extended Mix)
-004. Mexx feat. Вика Гранд - White Night (Russian Vocal Version)
-005. Chris Parker - Rock'n'Roll Revolution
-006. Мальчишник - Секс без перерыва (DJ Vengerov Remix)
-007. Aura Dione - Geronimo (The Disco Boys Remix Edit)
-008. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
-009. Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
-010. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 06:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
 ```
 
 

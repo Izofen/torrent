@@ -1,3 +1,63 @@
+###  Публикация: 178845   (923067) от 26.02.2010
+
+The White Stripes (with side projects) - Discography (25 albums) (1999-2009) [MP3|320 kbps]<Garage Rock, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923067.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 Star Tabernacle - Lily White Mama and Jet Black Daddy (2:55)
+2. 2 Star Tabernacle - Ramblin' Man (4:29)
+3. Jack White - Christmas Time Will Soon Be Over (3:16)
+4. Jack White - Fly Farm Blues (3:18)
+5. Jack White - Great High Mountain (4:33)
+6. Jack White - Never Far Away (3:40)
+7. Jack White - Sittin' On Top of The World (3:48)
+8. Jack White - Wayfaring Stranger (4:25)
+9. J.White and A.Keys - Another Way To Die (Instrumental) (4:18)
+10. J.White and A.Keys - Another Way To Die (4:18)(   Читать дальше...   )Жанр: Garage Rock, Alternative Rock, Indie RockПродолжительность: 05:25:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095491   (924178) от 21.01.2017
+
+QSP (Quatro Scott Powell) - QSP (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Down 3:45
+02. Long Way from Home 6:14
+03. Tobacco Road 3:42
+04. If Only 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919434E95D82AA69D25AF7F0D087D22F19F32B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095464   (924471) от 21.01.2017
 
 Mason - Harbour (1971) Reissue, 1999, Gear Fab Records [MP3|320 Kbps] <Psych-Prog Rock>
@@ -652,60 +712,6 @@ Erin Evermore - Erin Forever …And Ever …And Ever (1998) Reissue, 1999, King 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB64672439FE277748EF0B18F935F79EE689A66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983672   (942351) от 07.02.2016
-
-Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyhow (06:34)
-02. Laugh About It (05:06)
-03. Don't Know What It Means (05:59)
-04. Right On Time (04:34)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE90976AF25D96C640FCE2FD550318CAC4A55713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091344   (943020) от 09.01.2017
-
-Cold Body Radiation - The Orphean Lyre (2017) [MP3|320 Kbps] <Post-Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ghost of My Things
-02. Sinking of a Wish
-03. All the Little Things You Forget Are Stored in Heaven
-04. At Sea(   Читать дальше...   )Жанр: Post-Rock, ShoegazeПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD294B2316AF178ECBC7D1D3F12C153299D8DD3
 ```
 
 

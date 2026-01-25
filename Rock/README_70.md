@@ -1,3 +1,57 @@
+###  Публикация: 1222252   (686994) от 28.04.2018
+
+Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Little Schoolgirl
+02. I’m Gonna Move To The Outskirts Of Town
+03. Street Fighting Man
+04. An Old Raincoat Won’t Ever Let You Down(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FC6D475AF6F145B66BB9A6A91672381DC5D959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134636   (687453) от 16.05.2017
+
+Blackfoot Gypsies - To The Top (2017) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm so Blue (02:54)
+02. Everybody's Watching (03:36)
+03. Promise to Keep (04:02)
+04. Potatoes and Whiskey (03:38)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC889A18408A12405B126502DE574DB6283F5F08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289261   (687727) от 15.03.2019
 
 dArtagnan - In jener Nacht (2019) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
@@ -641,60 +695,6 @@ Bullfrog - Second Wind (1980) Reissue, 2012, Sireena Records [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7CD6BD68307D328040E201C01C04056B17FE16C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132940   (698863) от 10.05.2017
-
-VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Air - Strange Form (5:24)
-02. A.Perry, L.Delacour - New Life (9:11)
-03. Jean-Pierre Decerf - Gates Of Pop Empire (1:50)
-04. Eddie Warner - Shut Up (2:25)(   Читать дальше...   )Жанр: Electronic, Psychedelic Rock, Prog RockПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED2A4295148C5576EC071699F877E9A80209DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027017   (699846) от 17.06.2016
-
-Один в каное - Один в каное (2016) 2CD [MP3|320 кб/с] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Човен  (02:46)
-02.  Вулиця  (03:47)
-03.  Пішы  (02:35)
-04.  Мамма  (02:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC54CAEC97BBB600AC77ECA7811C9E7D1B56D161
 ```
 
 

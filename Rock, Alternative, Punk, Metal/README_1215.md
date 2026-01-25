@@ -1,3 +1,57 @@
+###  Публикация: 1476858   (1011113) от 14.06.2021
+
+Path of Destiny - The Seed of All Evil (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Division of a Spiral Synergy [00:05:58]
+02. Necromantic Storm [00:02:49]
+03. Erased by Light [00:04:15]
+04. Endbringer [00:04:14](   Читать дальше...   )Жанр: Symphonic Melodic Death, Black MetalПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96BA4A6DA400D0356172E3B54FD977E2C3CAF18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477060   (1011119) от 14.06.2021
+
+Def Leppard - X, Yeah! & Songs From The Sparkle Lounge: Rarities From The Vault (2021) 6 CD, Box Set Volume Three, Super Deluxe Edition,  Mercury[MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elected (Live In Tilburg - 1987) [00:04:19]
+02. Action (Live Recorded On Tour 2005) [00:04:07]
+03. No Matter What (Live Recorded On Tour 2005) [00:03:05]
+04. Rock On (Live - 2006) [00:03:13](   Читать дальше...   )Жанр: Rock /Продолжительность: 6CD, 04:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D59C41B1516D174EE87C49A9B5A4C445B99A33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477088   (1011126) от 14.06.2021
 
 Dig Me No Grave - From Past Aeons (2011) Limited Edition, Reissue, 2016, Symbol Of Domination [FLAC|Lossless|image + .cue] <Death Metal>
@@ -641,60 +695,6 @@ King Gizzard & The Lizard Wizard - Butterfly 3000 (2021) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61A31C29E08F56D13FEE54464CF8B122B5AD8D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476408   (1011672) от 11.06.2021
-
-Crypta - Echoes Of The Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Starvation
-03. Possessed
-04. Death Arcana(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:218C16982AEE606D16841B50CD0BA50469BBFBDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476398   (1011673) от 11.06.2021
-
-Vince DiCola - Only Time Will Tell (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bound & Gagged
-02. Karla
-03. Miracles
-04. Just Hanging On(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043E7FA99B844F58453DCA7DD1841DA16AF218B8
 ```
 
 

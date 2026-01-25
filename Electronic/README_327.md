@@ -1,3 +1,84 @@
+###  Публикация: 1141906   (646730) от 12.06.2017
+
+VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cheapers - Autumn Blues [06:52]
+02. Elekfantz - Diggin' On You (Solomun remix) [06:40]
+03. David Glass - Gimme Love (feat Moji - Mihalis Safras remix)[06:15]
+04. Danniel Selfmade - And On And On [06:26](   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 05:32:38 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141866   (646732) от 12.06.2017
+
+VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirco Berti - The Groove 05:24
+02. Soldera & Poligamyk - Get It Up ! 05:42
+03. Boomerang - Bang Bang 04:21
+04. Anzzor - Hemmm 05:42(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C5425164BC95B6639293F45083DF8F8A6CD2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141779   (646734) от 12.06.2017
+
+VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guna Nada Das - Krishna Trance
+02. Alexander S. Karlov - Fish Brother
+03. Emotive - Street Waves
+04. Ucp Berlin - Arrival In Sechet-Hetep(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61C88858283332691C33132CE28C65EE049F123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291455   (646808) от 29.03.2019
 
 VA - Finest Luxury Spa Music (2019) [MP3|320 Kbps] <Chillout, Relax, Smooth Jazz, Lounge>
@@ -617,87 +698,6 @@ VA - House Summerlove 2018 [MP3|320 Kbps] <House, Dance, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA8430D632E4B84B6A17371186B98764CB4AE87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141889   (648621) от 11.06.2017
-
-VA - Chilling Saturday Nightlife (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pindaric Spleen - Stream Of Consciousness  5:54
-02.  Thomas Dur - Sunday Morning  4:07
-03.  Chillelektro - Hiddensee  6:58
-04.  Dreams Machine - Contact  3:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31AD65D7844975C004C8C1C9C05319598D215536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292113   (648626) от 28.03.2019
-
-Current Value - Far Layer EP (2019) Othercide Records [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ambient>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dispelling Of Fear (feat. Coresplittaz) (05:54)
- 02. Ferromagnetic (04:51)
- 03. Photoelectric (04:27)
- 04. Far Layer (08:08)Жанр: Drum & Bass, AmbientПродолжительность: 00:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9A0BB5AE7EBCC21EBAA52F98978C2D87C1BDF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292282   (648634) от 28.03.2019
-
-Her - Her (2018) [MP3|320 Kbps] <House, Alternative Rock, Indie>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Choose
-02. Five Minutes
-03. Icarus
-04. Blossom Roses(   Читать дальше...   )Жанр: House, Alternative Rock, IndieПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926A949EF5560E8F78069D1F965E3FC471FCBB0E
 ```
 
 

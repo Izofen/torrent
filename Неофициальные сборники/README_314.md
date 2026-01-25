@@ -1,3 +1,30 @@
+###  Публикация: 1156143   (528500) от 06.08.2017
+
+VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу ZеBуte) (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mahmut Orhan - Game Of Thrones  3:55
+02.  ATB - The Summer (Ice & Dmirtiy Rs Remix)  5:36
+03.  Dire Straits - Sultans Of Swing (Hugo Villanoca Dub) (Stefanos Atart Edit)  5:28
+04.  Sebastian Weikum - About You  5:34(   Читать дальше...   )Жанр: House, Deep House, Nu DiscoПродолжительность: 04:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CE7F040FF2EE8046E17A4A65B058E7C5CEE9DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927324   (528637) от 13.08.2015
 
 VA - XXXL блатнячок на радио Шансон (2015) [MP3|256 кб/с]<Шансон>
@@ -672,39 +699,6 @@ VA - Download Now (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3540E0246A761BB83F57F16EDFD91E7FEF17AB0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532760   (530383) от 11.08.2012
-
-VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Good For Me (05:39)
-02. Above & Beyond Pres. Oceanlab - Miracle (06:37)
-03. Above & Beyond Pres. Oceanlab - On The Beach (04:38)
-04. Accadia - Into the Dawn (Accadia Ambient mix) (09:15)
-05. Acoustic Alchemy - Only In My Dreams (05:48)
-06. Activa - This World (07:18)
-07. Adam Novy - Soothing Sunrise (Chill) (02:48)
-08. Adyjay - The only chance (05:37)
-09. Adyjay - Time (05:59)
-10. Aerosoul - Isla Blanca (Aftersun Chill Version) (04:48)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
 ```
 
 

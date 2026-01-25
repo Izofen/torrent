@@ -1,3 +1,84 @@
+###  Публикация: 1540415   (653916) от 29.03.2022
+
+ENiGMA Dubz - The Journey so Far (2015)  Part 1;2 [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Drum & Bass>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sapa (6:24)
+02. Dark & Grey (6:06)
+03. The Dark (4:39)
+04. Down the Rabbit Hole (6:31)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Drum & Bass |Продолжительность: 00:54;00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBB78863D412BBAAD177F9F52463502DED902C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540192   (653917) от 29.03.2022
+
+VA - Techno Club Vol. 65 (Mixed by Talla 2XLC & Signum) (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAM & Ahmed Romel with Julie Thompson - Live For 2 (Extended Mix) (8:05)
+02. Talla 2XLC & Rinaly - Mirage (Extended Mix) (6:39)
+03. Allan Berndtz - Nu Era (Extended Mix) (5:25)
+04. Talla 2XLC - The Rebel (Extended Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91129E97DA6D97D0D018CEF69A8394AA791CB7E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226765   (653929) от 22.05.2018
+
+VA - Club Hits Vol.5 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eximinds & Lucid Blue - A Higher Love (Ruslan Radriges Remix) 3:35
+02. LTN - Wind & Cloud (Denis Sender Remix) 3:36
+03. Airborn & Bogdan Vix feat. KeyPlayer - Syndrome (Original Mix) 3:37
+04. Adip Kiyoi - Space Roadster (Original Mix) 3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D2FD499F40B41E089F68D48C9F6AE94C92E105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140845   (653940) от 08.06.2017
 
 Moskwa TV - 3 Albums (1985-1991) [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
@@ -611,93 +692,6 @@ VA - Deephouse Yearning (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55568F19D59B44531BE496273F5F1CE1C4F57B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904065   (655169) от 02.06.2015
-
-Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks, Electro, House, Big Beat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655169.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Talking 'Bout My Baby (03:44)
-002. Star 69 (05:44)
-003. Sunset (Bird Of Prey) (06:50)
-004. Love Life (07:00)(   Читать дальше...   )Производство: SkintЖанр: Electronic, Breakbeat, Breaks, Electro, House, Big BeatПродолжительность: 02:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2092EBD8A240E62327E7E8460DB6F7B7FC1FB406
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904181   (655234) от 02.06.2015
-
-VA - 538 Dance Smash Vol. 2 (2015) [FLAC|Lossless]<House, Euro House, Electro, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & KSHMR feat. Vassy-Secrets (03:38)
-02. Major Lazer & DJ Snake feat. MO-Lean On (02:55)
-03. Kygo feat. Parson James-Stole The Show (03:31)
-04. Axwell /\ Ingrosso-On My Way (04:21)(   Читать дальше...   )Жанр: House, Euro House, Electro, DanceПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA359721784F8F4BDDD36287176FDC402C6079ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515821   (655268) от 26.06.2012
-
-Marina And The Diamonds - Electra Heart (2012) Deluxe Edition [FLAC|Lossless]<Pop, House, Synth-Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марина Ламбрини Диамандис (англ. Marina Lambrini Diamandis; 10 октября 1985 года), больше известная под псевдонимом Марина и бриллианты (Marina and the Diamonds) - Уэльская певица и композитор греческого происхождения. Марина обладает мощным голосом и невероятной энергетикой, которую она демонстрирует на своих живых выступлениях. Танцевальный сингл из этого альбома "Primadonna" буквально ворвался во все хит-парады мира и не собирается сдавать свои позиции еще очень долго.01. Bubblegum Bitch :: 02:32
-02. Primadonna :: 03:40
-03. Lies :: 03:46
-04. Homewrecker :: 03:22
-05. Starring Role :: 03:26
-06. The State of Dreaming :: 03:36
-07. Power & Control :: 03:47
-08. Living Dead :: 04:02
-09. Teen Idle :: 04:14
-10. Valley of the Dolls :: 04:13(   Читать дальше...   )Жанр: Pop, House, Synth-PopФормат: CD, Album, Deluxe EditionПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 

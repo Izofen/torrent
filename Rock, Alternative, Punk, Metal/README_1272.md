@@ -1,3 +1,57 @@
+###  Публикация: 1443522   (1035447) от 29.01.2021
+
+Michael Schenker Group - Immortal (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drilled to Kill (4:32)
+02. Don't Die on Me Now (4:53)
+03. Knight of the Dead (4:05)
+04. After the Rain (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA9BD8313B3C595998F9A1DD166C1003033B7B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443526   (1035469) от 29.01.2021
+
+Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild and Free (04:44)
+ 02. Run (04:49)
+ 03. My Loveless Lullaby (05:04)
+ 04. Waltz for the Movies (01:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7808B8D21B55F0061B90B8A7D11842BD4770DA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443454   (1035478) от 29.01.2021
 
 Marty Friedman - Tokyo Jukebox 3 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental>
@@ -641,60 +695,6 @@ Therion - Leviathan (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10E5C1D0740302711D5A8FD851C3B708CBFD159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443220   (1035724) от 28.01.2021
-
-Opus - Opus Magnum (2020) 2xCD [FLAC|Lossless|image + .cue] <Melodic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035724.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Future:
-01.Opusphere
-02.We made it
-03.Halfway Done(   Читать дальше...   )Жанр: Melodic Rock, Pop RockПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A60B4A506BFA7B0340AC2AD1495E745A06FD33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443280   (1035733) от 28.01.2021
-
-And Oceans - Cosmic World Mother (2020) [FLAC|Lossless|image + .cue] <Death Metal, Melodic Black Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dissolution of Mind and Matter (4:08)
-02. Vigilance and Atrophy (4:37)
-03. Five of Swords (5:02)
-04. As the After Becomes the Before (5:13)(   Читать дальше...   )Жанр: Death Metal, Melodic Black Metal, IndustrialПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29A2922072F3D5A5375E4D57B0A7AACE8A7947C
 ```
 
 

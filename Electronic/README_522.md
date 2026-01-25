@@ -1,3 +1,84 @@
+###  Публикация: 1095760   (1033412) от 06.02.2021
+
+Darrell Fitton (Bola, Jello) - Discography 18 Releases (1995-2017) Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Abstract, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lungbone (Tongue Bone Mix) (feat. Dennis Bourne) (05:00)
+ 02. Damask (04:39)
+ 03. Vibe-A-Rolla (Scump Mix) (05:48)
+ 04. O'verb (Dualite Mix) (06:11)(   Читать дальше...   )Тип издания: CD, Vinyl, WEB •Жанр: IDM, Ambient, Abstract, Downtempo, Experimental •Продолжительность: 13:16:11 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E952406D936BE29DC333EC9330E535B2204063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245415   (1033440) от 06.02.2021
+
+Frank Mokros (Totakeke, Synth-Etik, Ativ) - Discography 16 Releases (2001-2015) Tympanik Audio, Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Ambient, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (Synth-Etik Remix) (02:22)
+ 02. Horizon (Synth-Etik Remix) (06:12)
+ 03. Digital Variant (Synth-Etik Remix) (04:41)
+ 04. Syntonic (Synth-Etik Remix) (05:53)Тип издания: CD, WebЖанр: Rhythmic Noise, IDM, Ambient, Electro, Industrial •Продолжительность: 19:08:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CCE179849E18C24B75E4A8030ACBE375CC6E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445731   (1033497) от 06.02.2021
+
+VA - Techno Club Vol 60 (Mixed by Talla 2XLC vs. Xijaro & Pitch) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Para X - Dragonfire (Extended Mix)
+02. Alex M.O.R.P.H. - Starfleet Commander (Extended Mix)
+03. Above & Beyond vs. Armin Van Buuren - Show Me Love (A & Z Extended Remix)
+04. Dito - Shadows (Talla 2XLC Remix Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BECB62BDBA48FB72D1AC53969C4E5591498AF55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438496   (1033498) от 06.02.2021
 
 VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro House, Progressive House, Big Room,Techno>
@@ -598,87 +679,6 @@ VA - Liquid Drum & Bass Sessions 2020 Vol 7 (2020) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D21DCFFE7668414CF4C4991EA267DB5C65391B39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445375   (1033776) от 05.02.2021
-
-Koherent - Ripple Effect (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koherent - Endless Haze (04:55)
-02. Koherent - Rave Chatter (04:08)
-03. Koherent, Riya - Talk to Me (04:53)
-04. Koherent, Monrroe - Need U (04:35)Жанр: Drum & BassПродолжительность: 00:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBDDCA806A5F7454C40BA312150F8EE7D1D7DB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445234   (1033778) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2019 Vol 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tali, Macca, Vector - Situations (05:45)
-02. Anthony Kasper - Departure (Technimatic Remix) (05:03)
-03. Dreazz, Mackadena, Emery - Too Fly (05:57)
-04. Need for mirrors - Speedy Boarding (05:13)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E123931C616B6FF22F1232A2CBEF8207485AA2CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445227   (1033779) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2019 Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vanguard Project - Flying Away (Digital Bonus) (05:30)
-02. Villem, McLeod, Leo Wood - Gifted Lover (06:02)
-03. Redeyes - Separated (04:50)
-04. Dreazz, Emery - Starlove (06:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4BD26FD7ADC76160A60A5FCE47751CBDE2544BD
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 915336   (592386) от 05.07.2015
+
+In-Grid - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Pop, Speech>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tu es foutou
+2. In-tango
+3. Нежность
+4. La Trompette (Rico Bernasconi Club Mix)(   Читать дальше...   )Жанр: Pop, SpeechПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915554   (592392) от 05.07.2015
 
 VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<House, Disco, Nu-Disco, Deep, Electronica, Minimal>
@@ -668,33 +695,6 @@ VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Ener
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039982   (593655) от 03.08.2016
-
-VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila With Ahmed Romel -  Kingdoms (Extended Mix) 8:18
-02. LTN Presents Blue Ghost -  Chasing The Arrow (Extended Mix) 6:08
-03. Chris SX -  Angels Demons (Original Mix) 6:52
-04. ArtSpace -  Fantasy Kingdom (Original Mix) 6:54(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 03:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16D8D273B0B882F455A5BDCB05580E95C09BA0E
 ```
 
 

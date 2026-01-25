@@ -1,3 +1,30 @@
+###  Публикация: 989615   (915689) от 23.02.2016
+
+VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ewonee - 1.23 (intro)  02:51
+02. Damon Albarn - Everyday robots  03:57
+03. Air - Who Am I Now  03:01
+04. Damon Albarn - Seven high  01:00(   Читать дальше...   )Жанр: Ambient, Lounge, HouseПродолжительность: 04:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989581   (915817) от 23.02.2016
 
 VA - Electro Sensation (2016) [MP3|320 кб/с] <Dance, Club House, Electro House>
@@ -668,33 +695,6 @@ VA - Workout Chillout (2016) [MP3|320 kbps] <Lounge, Chill House, Soulful>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC64552316FA4696C9B008CB873E47100E763839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490678   (917138) от 21.08.2021
-
-VA - Music News vol.125 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917138.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samantha Jade - Beautiful and Golden (The Sisterhood Song) (03:09)
- 002. Adrian Saguna & Andrew Maze feat. Franny - Alcohol (02:56)
- 003. Akris & Teddy - Ты Моя Беда (03:30)
- 004. Alessia Cara - Sweet Dream Lullaby (Lullaby Version) (03:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DBFBCC688B6988EBB826E4BAD16DF8CC35C3C5E
 ```
 
 

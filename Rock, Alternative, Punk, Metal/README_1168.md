@@ -1,3 +1,57 @@
+###  Публикация: 1090612   (945972) от 07.01.2017
+
+Йорш - Держитесь (2016) [FLAC|lossless|image + .cue] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка сильных (03:21)
+02. Гражданин Мира (04:26)
+03. Граффити (04:29)
+04. Насилие (03:35)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C0B488A0CBCC43AA786B6D6B47F0CB7BC17AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090842   (945974) от 07.01.2017
+
+Orianthi (Orianthi Panagaris) - Heaven In This Hell (2013) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven In This Hell (04:33)
+02. You Don't Wanna Know (03:40)
+03. Fire (02:54)
+04. If U Think U Know Me (03:35)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EF4E472EBF89372D8C77CFD5E56174F55587AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090772   (945977) от 07.01.2017
 
 Gov't Mule - 2016-12-31 The Beacon Theatre, New York, NY (2017) 3CD Live [MP3|320 Kbps] <Rock>
@@ -635,60 +689,6 @@ Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D68B3338F82A8648D8687244A0B2EE609B8ABC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362567   (948321) от 24.02.2020
-
-Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Ask
-02. Capital Letters
-03. Cut Up
-04. Grey Cell Green(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362734   (948322) от 24.02.2020
-
-VA - Radio Gold Volume 4 (2001) [FLAC|Lossless|image + .cue] <Doo Wop, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 –The Contours Do You Love Me
-2 –The Drifters Up On The Roof
-3 –Chuck Berry The Promised Land
-4 –Dion & The Belmonts A Teenager In Love(   Читать дальше...   )Жанр: Doo Wop, Rock & RollПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A790471236A8A5942021616DB3BA3F08A6D38A23
 ```
 
 

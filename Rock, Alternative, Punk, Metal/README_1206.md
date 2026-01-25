@@ -1,3 +1,57 @@
+###  Публикация: 1483702   (1006663) от 15.07.2021
+
+Tom Petty and the Heartbreakers - Angel Dream (2021) Songs and Music From The Motion Picture "She’s The One" [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия, посвященная 25-ой годовщине выхода альбома-саундтрека к фильму "She's the One" 1996 года.1. Angel Dream (No.2)
+2. Grew Up Fast
+3. Change The Locks (Lucinda Williams cover)
+4. Zero From Outer Space(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0D2F367C9827DD39BAAF5AD023C79DD6141AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483696   (1006672) от 15.07.2021
+
+Appice - Sinister (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinister
+02. Monsters And Heroes
+03. Killing Floor
+04. Danger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A259A2C9427B6E680908FBF6A940C9EE1D5D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483712   (1006673) от 15.07.2021
 
 The Moose - Spature (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic>
@@ -642,60 +696,6 @@ Mourn The Light - Suffer, Then We’re Gone (2021) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AC5649A85D52563D93B58BC7F6AE058B74C326E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482988   (1007193) от 11.07.2021
-
-Maniak Cop - Maniak Cop (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get It Out
-02. Darkness Of Night
-03. Shocker
-04. Making Noise And Drinking Beer (Tyrant cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58756A3BB24A271FEA52785EEDEA10CDFD6BEC03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482920   (1007194) от 11.07.2021
-
-Kambrium - Synthetic ERA (2021) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal / Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007194.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Neon Death (Intro) (01:34)
-02. Cybernetic Overload (05:19)
-03. Shadow Construct (05:40)(   Читать дальше...   )Жанр: Sympho Power Metal / Melodic DeathПродолжительность: 02:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF5D9320ED05B28EC41A5C0C74D0FA9377EFAC2
 ```
 
 

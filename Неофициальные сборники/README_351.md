@@ -1,3 +1,30 @@
+###  Публикация: 1553394   (582881) от 25.05.2022
+
+Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bad Touch (Single Version) (4:27)
+02. Along Comes Mary (The Bloodhound Gang Mix) (3:25)
+03. I Wish I Was Queer So I Could Get Chicks (Punk Version) (3:35)
+04. Fire Water Burn (Single Version) (4:56)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3FB0A7FAA3DEF1782002155B84009063C7884E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553373   (582882) от 25.05.2022
 
 VA - Trance Colors (2022) [MP3|320 Kbps] <Trance>
@@ -651,33 +678,6 @@ VA - Классный muzon. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87EDE570BD8ED877A89B66E750282829F0B57AAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041029   (584063) от 07.08.2016
-
-VA - Летний заводной музон. Сборник 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нервы - Слишком Влюблен
-002. Martin Garrix - Don't Look Down
-003. Тамара Викберг - Фата В 24
-004. Sara Hartman - Satellite(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD91E8818433F2372B9844438907989341DDC2F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1453732   (1026795) от 12.03.2021
+
+VA - EDC: Deep Techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модное клубное звучание, потрясающий драйв и незабываемые эмоции ждут Вас на треках представляемого лонгплея. Треки этой сборки набирают популярность не только в сети, их можно услышать и на волнах самых модных радиостанций.001. B.A.N.D.O - Shudder
+002. Arad - Flux States
+003. Alec Troniq - The Sunset Was Apricot
+004. Decim8 & Dstortd - Outbreak(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5696ADB9FE000CD3D6AE95CE83F5E5080C2415
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453565   (1026887) от 11.03.2021
 
 VA - The Rapsody Overture / Hip-Hop Meets Classic (2021) [MP3|320 Kbps] <Hip-Hop, Rap, Classic>
@@ -665,33 +692,6 @@ VA - 8 марта: Женский выпуск (2021) [MP3|320 Kbps] <Шансо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3483713E6A5EC6A023E76B182DDD2E64AF4DF3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451516   (1028137) от 03.03.2021
-
-VA - Shazam Хит-парад World Top 200 Февраль (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028137.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olivia Rodrigo - drivers license (4:02)
-002. Masked Wolf - Astronaut In The Ocean (2:12)
-003. The Weeknd - Save Your Tears (3:35)
-004. ATB, Topic, A7S - Your Love (9PM) (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB33FCFA245B2AECD66887BC08559D7216222DD
 ```
 
 

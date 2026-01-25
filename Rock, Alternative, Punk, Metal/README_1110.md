@@ -1,3 +1,57 @@
+###  Публикация: 873011   (872073) от 26.02.2015
+
+The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Die
+02. One Last Stand
+03. Sacred Fire
+04. Ferryman(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61381B51C51C95D8779FD6E71D55CF8212CFC830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997788   (872080) от 18.03.2016
+
+Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amberstow
+02. Last Prayer to the Lord
+03. Rise or Fall
+04. Thieves of the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B579EC42E05D9D47FE90F750F7F55FB1C575D15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997784   (872087) от 18.03.2016
 
 Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -654,60 +708,6 @@ Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4661B67156E0AE76D7735053AC61D8F4A1109DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374540   (872992) от 10.04.2020
-
-The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Regulator [20:27]
-02. The Longing [07:37]
-03. Apropos Of Nothing [09:33]
-04. Dusting Off The Rust [09:56](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF799ED1654D84EBC88967208E20FDE557743D49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374280   (872993) от 10.04.2020
-
-Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom Metal, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872993.jpg" />
-</div>
-
-
-###  Подробнее
-
-2006 - Mare Vaporum
-2009 - Abysmal Lullabies
-2010  - Earth To Earth
-2012 - Arbors(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Space RockПродолжительность: 9 CD, 07:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7773AF30ACB8DABCB3EE50232A8598AAA078D610
 ```
 
 

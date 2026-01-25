@@ -1,3 +1,57 @@
+###  Публикация: 986223   (931053) от 14.02.2016
+
+Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iselhiem
+02. Koppen Yn ‘e Mist
+03. Wolvetiid
+04. Fredou(   Читать дальше...   )Жанр: Folk, Viking MetalПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D49948D2FA61DA5F9B1D1448202032EAF44821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986344   (931079) от 14.02.2016
+
+Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
+02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
+03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
+04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985937   (931742) от 13.02.2016
 
 Deep Purple - The Audio Fidelity Collection (2013) 4CD Box Set, 24K Gold, Audio Fidelity [FLAC|Lossless|image + .cue]<Hard Rock>
@@ -643,60 +697,6 @@ Myrath - Legacy (2016) [MP3|320 кб/с] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7639FE14A983A79434FE9C318FA93EC5CDD55C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986064   (932527) от 13.02.2016
-
-U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gutter (Instrumental)(1:04)
-02. Metal Eater (3:42)
-03. Thunderforce (3:40)
-04. Overloaded (Instrumental)(1:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D9705D991A2CE0CB8A29C371E740DF3596B55F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986110   (932538) от 13.02.2016
-
-Bloodbound - One Night Of Blood - Live At Masters Of Rock MMXV (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodtale (Live at Masters of Rock 2015)
-02. Iron Throne (Live at Masters of Rock 2015)
-03. When Demons Collide (Live at Masters of Rock 2015)
-04. In the Name of Metal (Live at Masters of Rock 2015)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1731FE033BB6A78834BDA282B61E1E75946FF2D9
 ```
 
 

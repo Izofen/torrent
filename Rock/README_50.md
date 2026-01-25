@@ -1,3 +1,57 @@
+###  Публикация: 1565087   (494661) от 23.07.2022
+
+Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highwired
+02. Transmission From Mothership Earth
+03. Wilted Flowers
+04. Melt Your Head(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A14CC329FDAFDF681F9CC32612CDD665F0DC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318425   (494691) от 06.08.2019
+
+Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494691.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Iron Heart (3:19)
+2.Step by Step (3:15)
+3.Rock Your Jock (3:06)
+4.Tears of Sweat (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565241   (494906) от 23.07.2022
 
 Jack White - Entering Heaven Alive (2022) [MP3|320 Kbps] <Blues Rock, Folk Rock>
@@ -637,60 +691,6 @@ The Searchers - Les Genies du Rock - Sweets For My Sweet (1995) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:165317B905A7351A0F300F3550B448D4E68B4B68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564239   (501660) от 17.07.2022
-
-Big Story - Beast (2022) [MP3|320 Kbps] <Alternative-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rabbit [00:04:03]
-02 - Daydream [00:03:32]
-03 - Losing Sleep [00:03:06]
-04 - Listen [00:03:55](   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B39519616D656B14C67FD1131FE618BDD7D95C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564137   (501721) от 17.07.2022
-
-Sons of Arrakis - Volume I (2022) [MP3|320 Kbps] <Heavy Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shai-Hulud
-02. The Black Mirror
-03. Complete Obliteration
-04. Temple of the Desert(   Читать дальше...   )Жанр: Heavy Stoner RockПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC06E040A46A177C0DA123D3D64D4DFC4BCB907F
 ```
 
 

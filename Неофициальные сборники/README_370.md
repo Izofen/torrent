@@ -1,3 +1,30 @@
+###  Публикация: 1038185   (608703) от 27.07.2016
+
+VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, Smoot Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Pieranunzi - Prolusion
+02. Harry Evans - Jewel
+03. Piano Jazz Calming Music Academy - Get Up, Stand Up
+04. Enrico Pieranunzi - The Flight Of Belphegor(   Читать дальше...   )Жанр: Chill, Smoot Jazz, InstrumentalПродолжительность: 02:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A93B5745D018367D2452F884AFF5E0E778872C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038344   (608711) от 27.07.2016
 
 VA - Zen Sounds Music For Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -680,33 +707,6 @@ VA - Зайцев.Нет лучшие новинки (Апрель) (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50ECC2D48FB55F87E84F99474228F093B9C9AB46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038060   (610109) от 26.07.2016
-
-VA - Disco, Only the Best (2016) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Survive - Gloria Gaynor
-02. Love and Desire - Arpeggio
-03. Ring My Bell - Anita Ward
-04. Y. M.C.A. - The Village People(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353801800E1F0B35F64A868E81E2BFD407146F46
 ```
 
 

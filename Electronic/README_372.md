@@ -1,3 +1,84 @@
+###  Публикация: 1126737   (741202) от 20.04.2017
+
+VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Benatural - Little  5:09
+02.  Ialaz - Waves  4:21
+03.  Lo Tide - Never Coming Back  4:01
+04.  Michiko - Outta Sight Outta Mind  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283139   (741232) от 15.02.2019
+
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397185   (741335) от 19.07.2020
+
+Minddigger - A World For You (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World (03:01)
+ 02. Behind The Clouds (06:46)
+ 03. Universe (07:41)
+ 04. Dreaming Of You (feat. Nuphar Solaris) (06:48)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F175516D012FF0C5B831540D61386C25538A52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396934   (741341) от 19.07.2020
 
 VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
@@ -609,87 +690,6 @@ VA - Tech Trance Essentials Vol.12 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:339BCE27E434F626BFCDCD65DD8B6E998AD63958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217459   (743484) от 04.04.2018
-
-VA - Trance Generator (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.A.R.K.Y - Cloudless (Original Mix)
-02. Higher State of Trance - Memories (Extended Mix)
-03. Sunlight Project - Paths of Love (Original Mix)
-04. MarcW - Grey Day (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25414EB1008E4787D888CB470FBBF75C95D98FEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217429   (743485) от 04.04.2018
-
-VA - The Sound Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outfade - Afterglow (original mix)
-02. Ian Source - Deep In Thought (Trance Arts remix)
-03. The Cracken - Never Say Never (extended mix)
-04. Neoxyne - The Cry Of The Soul (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0846765AABF13349B3513F31835171C47A1A570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020778   (743574) от 27.05.2016
-
-Stereo - Back To Somewhere (2015) [MP3|320 кб/с] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Somewhere   (0:56)
-02. Moving In, Moving Out   (4:37)
-03. Let's Get Minimal   (4:06)
-04. Waiting in Vain   (4:03)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407C606E0A390F66D8A9B7B44592DB03F6D656F9
 ```
 
 

@@ -1,3 +1,62 @@
+###  Публикация: 603685   (997048) от 15.01.2013
+
+DIIV - Oshin (2012) [MP3|320 кб/с]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - (Druun) 2:08
+02 - Past Lives 2:21
+03 - Human 2:57
+04 - Air Conditioning 4:30
+05 - How Long Have You Known 3:33
+06 - Wait 3:16
+07 - Earthboy 3:15
+08 - (Druun Pt.II) 2:46
+09 - Follow 2:46
+10 - Sometime 3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA15CB833395AB81D2C03F9E07F4A70F0629FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603246   (997058) от 15.01.2013
+
+Puzzle - Nothing But The Rain (2012) [MP3|320 кб/с]<Post-Rock, Experimental, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piece V
+02. Piece VI
+03. Piece IVЖанр: Post-Rock, Experimental, SludgeПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACD7BBC8F06AB309F21519C60E068AC0743276A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602290   (997577) от 13.01.2013
 
 Strangefish - Fortune Telling (2006) [MP3|320 кб/с]<Neo Progressive Rock>
@@ -675,60 +734,6 @@ Dear Mr Time - Grandfather: The Dear Mr Time Anthology (2021) Expanded Edition [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6788D75498D0EEF220A2D75245508153EEE67831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484422   (1006146) от 19.07.2021
-
-Babe Ruth - Greatest Hits (2021) Japanese Edition, Compilation [MP3|320 Kbps] <Progressive Rock, Heavy Prog, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack O'Lantern (03:21)
- 02. Living A Lie (06:06)
- 03. Since You Went Away (03:38)
- 04. We People Darker Than Blue (04:45)(   Читать дальше...   )Жанр: Progressive Rock, Heavy Prog, Classic RockПродолжительность: 01:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6B14C0CC64A2F9036D3AE903F1630020CF251A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388280   (1007167) от 11.07.2021
-
-Без Обмежень / БеZ Обмежень / Without Limits - Remix (2020) [MP3|320 kbps] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не мовчи (Duckface Remix) (02:54)
-02. Буду з тобою! (Shumskiy Remix) (03:23)
-03. Зорі запалали (NICHLAVA Remix) (03:50)
-04. Буду з тобою! (Antai & Alter Remix) (04:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CAB5E5A93B7717217E4DCA48E395C02DBBF959E
 ```
 
 

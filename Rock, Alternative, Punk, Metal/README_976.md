@@ -1,3 +1,57 @@
+###  Публикация: 1283911   (730984) от 19.02.2019
+
+Phoebe Bridgers - Stranger In The Alps (2017) Deluxe Edition, 2018, Dead Oceans [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Signals (05:24)
+02. Motion Sickness (03:49)
+03. Funeral (03:52)
+04. Demi Moore (03:18)(   Читать дальше...   )Жанр: Indie Rock, FolkПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D8736B6845E4380E94208F6782910AD7F91C6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127518   (730988) от 22.04.2017
+
+Bear’s Den - Red Earth & Pouring Rain (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Earth & Pouring Rain  (04:52) 
+02. Emeralds  (04:30) 
+03. Dew On The Vine  (05:02) 
+04. Roses On A Breeze  (05:21) (   Читать дальше...   )Жанр: Rock, Alternative, FolkПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32A8B244ACA3DB21938C40EBFCD42C9472448B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283591   (731026) от 19.02.2019
 
 Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -638,60 +692,6 @@ Rod Stewart - Ballads (UY) Unofficial Release [APE|Lossless|image + .cue] <Pop R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83A7741EA5E6FA997823528E9BD9621A26B2E542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127297   (732073) от 21.04.2017
-
-Bonfire - Byte The Bullet (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Train
-02. Stand up 4 Rock
-03. Praying 4 A Miracle
-04. Some Kinda Evil(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FAB40E26FA07F2A78636CAFC995B931F51E7DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021674   (732088) от 30.05.2016
-
-The Corrs - Unplugged (1999) [APE|Lossless|image + .cue] <Folk Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only When I Sleep
-02. What Can I Do
-03. Radio
-04. Toss The Feathers(   Читать дальше...   )Жанр: Folk Rock, Soft RockПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC6BC9AFFEEAEF934C1A9E09B72B619D9956297
 ```
 
 

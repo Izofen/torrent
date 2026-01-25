@@ -1,674 +1,672 @@
-###  Публикация: 1502099   (799389) от 01.11.2021
+###  Публикация: 1201449   (792871) от 24.01.2018
 
-Звезда на грани / Её запах / Her Smell (2018) BDRip
+Lilly Martin - Minetta (2018) [MP3|320 Kbps] <Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799389.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мятежная панк-звезда Бекки пытается вернуть себе вдохновение, которое когда-то привело её рок-группу к успеху. Для этого ей нужно разобраться в отношениях со своими коллегами и с бывшим мужем, а главное — поставить точку в многолетней борьбе с алкоголизмом.Производство: США, Греция / Bow and Arrow Entertainment, Faliro House Productions, Gunpowder & SkyЖанр: Драма, музыкаРежиссер: Алекс Росс ПерриАктеры: Элизабет Мосс, Кара Делевинь, Дэн Стивенс, Агнесс Дейн, Гэйл Ранкин, Эшли Бенсон, Дилан Гелула, Ика Дэрвилл, Линдси Бёрдж, Ханна ГроссПеревод: Дублированный (Lucky Production)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:15:33
+01. Life In The City (04:36)
+02. Fooled Around & Fell In Love (03:51)
+03. Slow Like Honey (04:22)
+04. I Pity The Fool (05:52)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:54:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCAB730527C9C46D2EBBC577A2CDBAF33C5EB111
+magnet:?xt=urn:btih:6A0A18EC80F65A1F4339196A362EC35AAB51D5A8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506427   (799390) от 01.11.2021
+###  Публикация: 1201359   (792872) от 24.01.2018
 
-Рождество кота Боба / A Christmas Gift from Bob (2020) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799390.jpg" />
-</div>
-
-
-###  Подробнее
-
-До встречи с котом Бобом Джеймс не любил Рождество, но рыжий пушистый хулиган всё изменил. Он в буквальном смысле подарил своему хозяину новую жизнь, сотворив настоящее рождественское чудо. Ведь даже если у тебя пусто в кармане, а во всём городе отключили свет, праздник должен состояться!Производство: Великобритания / Studio Pictures, Parkhouse Pictures, AlignЖанр: СемейныйРежиссер: Чарльз Мартин СмитАктеры: Люк Тредэвэй, Кристина Тонтери-Янг, Анна Уилсон-Джонс, Нина Вадиа, Стивен МакКоул, Тим Плестер, кот Боб, Фалдут Шарма, Селин Джонс, Дэйзи БаджерПеревод: Дублированный (Кинопоиск HD)Субтитры: Русские (Full), английские (SDH)Продолжительность: 01:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80D1442A6669FF1DB104E4FA905E800E6B7E542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506670   (799391) от 01.11.2021
-
-Воспоминания / Reminiscence (2021) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Forced, Full), английскиеПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327CF5D64B8A87E492F3FD0B9924FA262A538B16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506743   (799392) от 01.11.2021
-
-Стая / La horde (2009) BDRip [H.264/1080p-LQ] [GER Transfer] [Unrated] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Север Парижа. Собираясь отомстить за убийство сослуживца безжалостной бандой, четыре полицейских пробираются в здание, служащее гангстерам штаб-квартирой. Замеченные и пойманные, офицеры готовятся к казни, как вдруг случается невообразимое: в дом врывается стая кровожадных плотоядных существ, жестоко нападая на всех и каждого. Полицейским и бандитам приходится объединить (   Читать дальше...   )Производство: Франция /  Le Pacte, Coficup, Canal+Жанр: Ужасы, боевикРежиссер: Янник Даан, Бенжамен РошеАктеры: Клод Перрон, Жан-Пьер Мартен, Эрик Эбони, Орельен Рекуан, Дуду Маста, Антуан Оппенхайм, Джо Престиа, Ив Пиньо, Адам Пенгсаванг, Себастьен ПерезПеревод: Многоголосый профессиональный (СВ-Дубль + Вставки Замез)Субтитры: АнглийскиеПродолжительность: 1:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDC34B8066333045A2D0DD675B3D45849D98C22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273686   (799393) от 03.01.2019
-
-4K Stogram 2.6.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799393.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram - это приложение для просмотра и скачивания файлов из Instagram. Скачивайте фотографии, видео, stories из публичных и приватных аккаунтов ваших друзей, выполняйте резервное сохранение своих постов и импортируйте список Instagram-подписок.
-
-Работать с приложением просто — введите название Instagram-аккаунта, хэштега или локации и нажмите "Подписаться". (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2018Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE94E1709A00962C3451FA17453ED7B41A21888
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272439   (799394) от 03.01.2019
-
-Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Main Theme. 2,13
-03. Narrative 02.    9,27
-04. Schindelgeist. 14,5
-05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273550   (799395) от 03.01.2019
-
-Athentech Perfectly Clear Complete 3.6.3.1400 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии "сделайте мне быстро и красиво", позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-
-В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2108Разработчик: AthentechПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB16732E57C2A9ACE838FBC15748997A22B2021A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273797   (799396) от 03.01.2019
-
-Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Moon 02:27
-02. Moon Dance 04:10
-03. Steam Forest 04:59
-04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273575   (799397) от 03.01.2019
-
-VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dan & Dan - 2+2 (D S B Remix)
-002. Leon Krasich - Level 44
-003. Oliver Smith - Foundation
-004. We Ourselves - Good Vibrations(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 10:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53190A269F61E222477027049218101A0B2B6B24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273730   (799398) от 03.01.2019
-
-Coldplay - Live in Buenos Aires (2018) Live album [FLAC|Lossless|tracks + .cue] <Alternative Rock, Britpop>
+Worry Blast - .44 (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799398.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hymn For The Weekend (Live In Buenos Aires) (05:02)
-02. Fix You (Live In Buenos Aires) (05:27)
-03. Viva La Vida (Live In Buenos Aires) (04:11)
-04. Adventure Of A Lifetime (Live In Buenos Aires) (05:06)(   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 00:57:19
+01. Outta Nowhere (03:21)
+02. Dirty Mind (02:42)
+03. .44 (03:12)
+04. Hot'n'ready (03:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7D1CFEE597581E365A018C5746925106CA00FB4
+magnet:?xt=urn:btih:291E01D82F5C6312E14943EBB4B27421C9DFEBEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273665   (799399) от 03.01.2019
+###  Публикация: 1201426   (792873) от 24.01.2018
 
-VA - Отдохни от праздников (2019) [MP3|320 Kbps] <Soul, Pop, Other>
+VA - Night Air: Funk Disco Set (2018) [MP3|320 Kbps] <Soul, Funk, Disco>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sade - The Sweetest Taboo
-02. Lenny Williams - 'Cause I Love You
-03. The Isley Brothers - Between the Sheets (Single Version)
-04. Dalton - Soul Brother(   Читать дальше...   )Жанр: Soul, Pop, OtherПродолжительность: 01:07:12
+001.  Erykah Badu  -  On And On  3:45
+002.  Marvin Gaye  -  What's Going On  3:55
+003.  Brian Mcknight  -  Anytime  3:52
+004.  Soul Ii Soul feat. Caron Wheeler  -  Keep On Movin'  3:37(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 06:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A63AC5AEA97CC18075F9A2B6EFC1015A2ED9A047
+magnet:?xt=urn:btih:9AD8C9A09447F57D4455D9A6A0D0D2BBA7142A0D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273650   (799400) от 03.01.2019
+###  Публикация: 1201199   (792874) от 24.01.2018
 
-CJ Rise - Lost Empire (2019) [MP3|320 Kbps] <Spacesynth, Synthwave>
+PicturesToExe Deluxe 9.0.15 RePack by вовава [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799400.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Lost Empire (4:54)
-2. Echosphere (4:20)
-3. Solar Flare (5:39)
-4. Secret Signs (4:05)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 00:35:13
+Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:266C30A6701FA080B82AF2DBDB6149841587EE11
+magnet:?xt=urn:btih:E807B7F1C601F940EFC5802C0CF993EF6367E163
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273697   (799401) от 03.01.2019
+###  Публикация: 1201204   (792875) от 24.01.2018
 
-VA - Confessin' The Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues>
+VA - Hed Kandi Beach House (2016) [FLAC|Lossless|tracks] <Funky House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Delay - The Boy Is Mine (feat Alexandra Prince - Mark Lower remix) [7:02]
+02. NY's Finest - Do You Feel Me (City Soul Project Club mix) [7:14]
+03. O&O Music - Music's Hypnotising [4:22]
+04. Sonny Fodera - Feeling U (feat Yasmin - Deep mix) [6:09](   Читать дальше...   )Жанр: Funky House, Club HouseПродолжительность: 05:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB410304B15554E79EBE76B2B3B1AA641D2856C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201385   (792876) от 24.01.2018
+
+Emotions Music - Autumn Vol. 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think Different 6:30
+02. Sea Breeze 7:54
+03. Golden Leaves 6:47
+04. Autumn Rustle 10:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13C42779D0C35261B6BD93F47E70307810AE194
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201316   (792877) от 24.01.2018
+
+Black Art Jazz Collective - Presented by the Side Door Jazz Club (2014) 2016, Sunnyside Communications [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799401.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Just Like I Treat You - By Howlin' Wolf
-  2. I Got to Go - By Little Walter
-  3. Carol - By Chuck Berry
-  4. Mona - By Bo Diddley(   Читать дальше...   )Жанр: BluesПродолжительность: 01:29:24
+01. Double Consciousness (Inspired by W.E.B. DuBois) [07:32]
+02. Awaiting Change (Inspired by Barack Obama) [08:39]
+03. Essence of Beauty [03:56]
+04. Salvador da Bahia [10:12](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:071CD8CFE4E8D6A589E07E147FFF59D53CB47CDB
+magnet:?xt=urn:btih:26672F73521BDDF42A6D4E27797CAA665F2D86AE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273801   (799402) от 03.01.2019
+###  Публикация: 1201301   (792878) от 24.01.2018
 
-Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop, Euro House>
+VA - Lounge Affair Vol.2 (2018) [MP3|320 Kbps] <Lounge,Chillout>
 
->>Pop
->>Зарубежная поп-музыка
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не раскрученный, из-за развода с женой, проект продюсера Бони-М, Джиллы, Милли Ванилли и др. - Фрэнка Фариана с участием его дочери Янины.01. Show Me What You've Got (3:33)
-02. School's Out (Radio Version) (3:49)
-03. Pink Lemonade (3:41)
-04. Yummy Yummy (3:55)(   Читать дальше...   )Жанр: Electronic, Disco, Europop, Euro HouseПродолжительность: 00:51:46
+01. Jazzamor - He's Not There (Original Mix)
+02. No Noise - Karma Shabda (Original Mix)
+03. Burning Simitkovic - Pass By (Original Mix)
+04. Joe Le Blanc - Upset (Original Mix)(   Читать дальше...   )Жанр: Lounge,ChilloutПродолжительность: 01:51:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
+magnet:?xt=urn:btih:0013CF831455F60D567F312CD2A7297793094773
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273758   (799403) от 03.01.2019
+###  Публикация: 1201118   (792879) от 24.01.2018
 
-Мэтт Хейг | Отец Рождество и Я (2018) [FB2]
+VA - Hed Kandi: Back To Love (2017) [FLAC|Lossless|tracks] <House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799403.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Человеческому ребёнку нелегко прижиться в сказочном Эльфхельме, даже если твои приёмные родители – Отец и Матушка Рождество. Уж кому как не Амелии Визарт это знать! В школе для эльфят над ней смеются – она на две головы выше других учеников, но ходит в младший класс и никак не может освоить эльфийскую математику, в которой два плюс два равно снег. А к управлению (   Читать дальше...   )Жанр: Фантастика для детейПеревод: Е.И. КолябинаФормат: FB2
+01. Moloko - Sing It Back (Boris Musical Mix Edit) (4:38)
+02. Madison Avenue - Don't Call Me Baby (3:43)
+03. Supermen Lovers - Starlight (3:47)
+04. David Guetta - Just A Little More Love (Wally Lopez Remix Edit) (3:33)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:32:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF0A5C637AFF0B05EF4633CD0D56965AEF8A7DF0
+magnet:?xt=urn:btih:F2F1271139FAA718120C16A8EAB3F58E77F94328
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273182   (799404) от 03.01.2019
+###  Публикация: 1201175   (792880) от 24.01.2018
 
-VA - The Best Of Suanda Base 2018: Mixed by Michael Milov (2018) [MP3|320 Kbps] <Trance, Progressive>
+VA - True Hits Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael Milov - Inner Voice (Extended Mix)
-02. Bigtopo - Gallow (Extended Mix)
-03. Simon Lee & Alvin - Raksasa (Extended Mix)
-04. Kiran M Sajeev - Higher (HamzeH Extended Remix)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:19:55
+01.  Roman Messer  -  True (Temple One Radio Edit)  3:34
+02.  Alpha Force & Mike Van Fabio feat. Robin Vane  -  Save Me (Radio Edit)  3:40
+03.  LTN & Attila Syah  -  B29 (Original Mix)  4:24
+04.  Christian Zechner & Three Faces  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:38:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14001A00FC07032093EC944E56F2B0CACC9FABF
+magnet:?xt=urn:btih:AB92CEF6DA583F3A9FD02D9BDD12E8C515AFEA0F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273790   (799405) от 03.01.2019
+###  Публикация: 1201340   (792881) от 24.01.2018
 
-BestReminder v2019.01.03.15 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61027D8FCE5ACCF7FE866D7DFD63CB49F4AFDAD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273723   (799406) от 03.01.2019
-
-Bandizip 6.19 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bandizip — это быстрая и надежная программа, которая поддерживает работу с форматами WinZip, 7-Zip, и WinRAR, и другими аналогичными архивами. Она использует очень быстрый алгоритм для сжатия и распаковки архивов, высокую скорость архивации, поддержку функции Drag and Drop (перетаскивания) и функцию мультисжатия.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A500B7742CC4E79DAE68ED100363CB1780E6486C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273593   (799407) от 03.01.2019
-
-Inkubus Sukkubus - Tales of Witchcraft and Wonders.(Vol. 1-3) (2016-2018)[MP3|320 Kbps] <Pagan, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol. 1 - Barrow Wake:
-01.The Enchanted Realm (5:53)
-02.Woman to Hare (Daemon Romantica Mix) (5:20)
-03.Lost to the Sea (5:34)(   Читать дальше...   )Жанр: Pagan, RockПродолжительность: 03:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14BE9CB1D27A85E45DE4E8E01297EF3EF0BD8DC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273812   (799408) от 03.01.2019
-
-dBridge - A Love I Can't Explain (2018) Exit Records [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Experimental, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gen 19 (07:00)
- 02. Broadcast Pain (03:52)
- 03. Depersonalised (06:34)
- 04. Syncofated (04:02)(   Читать дальше...   )Жанр: Drum n Bass, Experimental, DowntempoПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49995D51A2B5CB18D003D4FD58C35892DE9F4218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273804   (799409) от 03.01.2019
-
-Cholosus - Way Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lord Will Make It Happen (06:06)
- 02. Aeris (12:48)
- 03. Winter (09:26)
- 04. Loner (12:08)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:24:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBA6840B586DDA5EF6094ACD5C4AFA9C47D283C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273725   (799410) от 03.01.2019
-
-Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight
-02. Missing
-03. Airplane Mode
-04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273721   (799411) от 03.01.2019
-
-VA - Infinite Moment (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+VA - Goa House Party (2018) [MP3|320 Kbps] <House, Big Room, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799411.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Das Butterschnitzel - Alarmclock
-002. OTR - Bliss (feat. Ashley Leone)
-003. Andrea Castello - Stint
-004. Neotropica - Orchidaceae(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:42:46
+01.  Darius & Finlay ft. Mr. Shammi  -  Discotek People (Ancalima Remix Edit)  3:07
+02.  Uberjak'd & Fresh Til Death  -  Lose Our Minds (Original Mix)  5:15
+03.  SCNDL  -  Tahari  3:12
+04.  Will Sparks & Priyanka Chopra  -  Young And Free  3:32(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:59:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99C46FEC0F7B3CBFF178EBED3C86F47D2A57C4AA
+magnet:?xt=urn:btih:1EBBAEC2B3FC042A8382196B93AA7CC950C8261B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273694   (799412) от 03.01.2019
+###  Публикация: 1201315   (792882) от 24.01.2018
 
-VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
+Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image + .cue] <Vocal Jazz, Mainstream Jazz>
 
->>Pop
->>Зарубежная поп-музыка
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799412.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sixsense - Space Walker
-02. Lost Shaman - Loosing Her Grip
-03. Foodsoul - Soulbeat
-04. AudioStorm - Network Error(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 11:33:11
+01. No Moon at All [03:26]
+02. Baron Lazar [02:50]
+03. Imagination [03:23]
+04. After You've Gone [01:58](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:35:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1106DFB5B8EBDE7B16F4ED0E74D8CAC2D2728F14
+magnet:?xt=urn:btih:07F4C33AA1E4156873C4C0FAF4F57CA45886E1BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120040   (799413) от 03.04.2017
+###  Публикация: 1201319   (792883) от 24.01.2018
 
-Windows XP Pro SP3 VL Ru x86 by Sharicov (v.27.03.2017)  [Ru]
+Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC|Lossless|image + .cue] <Post-Bop>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799413.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из самых удачных операционных систем, когда либо выпущенных Microsoft. Остаётся популярной и по сей день. Интегрированы обновления, доступные по март 2017 года, а также набор технических непубличных обновлений "Unofficial RE". Обновлён Internet Explorer до версии 8. Поддерживается откат до "родного" IE6 и возможность установки без IE8.Язык интерфейса: Русский
+01. My Blues House [04:58]
+02. Whisper Not [05:36]
+03. Brielle Samba [05:38]
+04. Dear Kathy [05:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC695BB421318D16F9C47F5B554D10D660FF71A2
+magnet:?xt=urn:btih:8D868D3690B89B45D5A61DEF8B5ACE66048EA128
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121661   (799414) от 03.04.2017
+###  Публикация: 1201294   (792884) от 24.01.2018
 
-Огни большой деревни (2016) WEB-DL [H.264/1080p-LQ]
+VA - Lost In House (25 Groovy Dancefloor Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 
->>3
->>4
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799414.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Родина» в смертельной опасности. Ровно через неделю ее сравняют с землей. Спасти кинотеатр может только успешная премьера. За дело берется пара супергероев без суперспособностей. В их распоряжении — камера, девушка-ниндзя и Дмитрий Дюжев. Правда, он об этом еще не знает.Производство: Россия, ТПО РокЖанр: КомедияРежиссер: Илья УчительАктеры: Дмитрий Дюжев, Кирилл Фролов, Максим Емельянов, Анастасия Мытражик, Василий Кортуков, Юрий Быков, Тагир Рахимов, Карен Мартиросян, Кирилл Полухин, Анна ВоркуеваПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:21:22
+01.  Pedro Mirano  -  Nine Floors (Original Mix)  6:35
+02.  Due Magic  -  Fantastic (Original Mix)  6:20
+03.  Soap Bubbles  -  Banana (Original Mix)  5:34
+04.  Alex Gusti  -  Life For Rent (Original Mix)  6:37(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E115DC2249CC67C3467890E7BB981C38212AB76
+magnet:?xt=urn:btih:C2856D7CDDA2242A7B61ACFB0EAEF6D0BF760B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201298   (792885) от 24.01.2018
+
+Cкелетон. Кубок мира 2017-2018. Санкт-Мориц (Швейцария). 7-й Этап (Full Event) (12.01.2018) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792885.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 января 2018 года, пятница. 15:45 МСК
+7-й Этап Кубка мира 2017-2018 по бобслею и скелетону. Санкт-Мориц (Швейцария)
+Женщины. 1-я и 2-я попытка
+Мужчины. 1-я и 2-я попытка(   Читать дальше...   )Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:58:05 - 02:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74A895F959B54E62C9F0C7CDC84DAD7E911A9D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201302   (792886) от 24.01.2018
+
+Горные лыжи. Кубок мира 2017–2018. Венген (Швейцария). Мужчины. Слалом (14.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792886.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 января 2018 года, воскресенье. 12:15 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Венген (Швейцария).
+Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91693AC342C0F86506F6BFBA93245D2B6495055E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509917   (792887) от 14.11.2021
+
+Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не любит [2020, Movie] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юна Ичихара — тихая и застенчивая девушка, только что простилась со своей лучшей подругой, которая уехала жить в другой город. Она уверена, что больше такой подружки у неё никогда не будет, и что ей остаётся лишь продолжать мечтать о прекрасном принце из любимой детской сказки, который когда-нибудь спасёт её от одиночества. С противоположным полом Юна особо не общается, (   Читать дальше...   )Производство: Студия A-1 PicturesЖанр: комедия, романтикаРежиссер: Куроянаги ТосимасаПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA1F79D15D9F718CCFFF43B3CA46049E6671F9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509726   (792888) от 14.11.2021
+
+Сквозь оливы / Через оливы / Zire darakhatan zeyton / Through the Olive Trees (1994) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Режиссер выезжает на съемки фильма. Деревенские жители Хуссейн и Фархун играют молодоженов, причем в «реальной» жизни их связывают гораздо более сложные любовные отношения.Производство: Франция, Иран / Abbas Kiarostami Productions, CiBy 2000, Farabi Cinema FoundationЖанр: ДрамаРежиссер: Аббас КиаростамиАктеры: Мохамед Али Кешаварц, Фархад Херадманд, Зафирех Шива, Хуссейн Резаи, Тахерех Ладаньян, Hocine Redai, Zahra Nourouzi, Nosrat Bagheri, Азим Азиз Ниа, Ostadvali BabaeiПеревод: Двуголосый профессиональный (Киностудия «Кипарис»)Субтитры: русские, французскиеПродолжительность: 01:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4367E8F12787936F5FCB3B85C54986EA8228B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509817   (792889) от 14.11.2021
+
+Бильярдист / The Hustler (1961) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдди Фелсон (Пол Ньюман) – первоклассный игрок в пул. Вместе со своим напарником Чарли он путешествует по городам Америки от одной бильярдной к другой, где за короткий срок раздевает до нитки доверчивых партнеров. Добравшись до Нью-Йорка и неплохо заработав, Эдди решает, что настало время сыграть по-крупному. Он бросает вызов «королю бильярда» – Толстяку из Миннесоты…Производство: США / Rossen Films, Twentieth Century Fox FilmЖанр: драма, спортРежиссер: Роберт РоссенАктеры: Пол Ньюман, Пайпер Лори, Джордж К. Скотт, Джеки Глисон, Майрон МакКормик, Мюррэй Хэмилтон, Майкл Константин, Стефан Гираш, Клиффорд А. Пеллоу, Джейк ЛаМоттаПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: русские (R5, DVD), английские, украинские, польские, румынскиеПродолжительность: 02:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C461EE452291EF70A1F34E3EE80CD0188FEBB4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510018   (792890) от 14.11.2021
+
+SyncTime 3.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792890.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2021Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0711219803B588C6D0D8D6FC1196F023F2DA1EC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509949   (792891) от 14.11.2021
+
+Следствие вели... (14.11.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792891.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кровавый мальчик». 1982 год. В Перми происходит серия загадочных преступлений и нападений на детские сады. Тысячи подозреваемых и всего одна улика…
+Уникальное дело о молодом убийце — в фильме из цикла «Следствие вели…».Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3158F84F1C36EE172E4820087A8FEDE93EA42481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509961   (792892) от 14.11.2021
+
+Франсин Тун | Дочь ведьмы (2021) [MP3, Алевтина Пугач]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди сосен в темном лесу кто‑то бродит. Призрак, чужой или безмолвная тень женщины? Далеко в полях местные видели костры, находили камни, выложенные в круг. Говорят, это проделки ведьмы. Той самой ведьмы, что давным-давно ушла из дома и не вернулась. С тех пор ее муж Найл научился жить заново. Днями он один воспитывает дочь, вечерами заливает тоску алкоголем. (   Читать дальше...   )Жанр: Мистикa, триллeрПродолжительность: 09:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F443AAEE686AD4A4112C680899DE8BC191F8FD41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509915   (792893) от 14.11.2021
+
+Якопо Оливьери, Розальба Трояно | 20 необыкновенных мальчиков, изменивших мир (2021) [PDF, FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга расскажет о 20-ти мальчиках, впоследствии ставших знаменитыми полководцами, государственными деятелями, учёными, исследователями и деятелями спорта и искусств, чьи имена навсегда останутся в истории человечества. Кому довелось первым увидеть нашу планету из космоса? Кто получил за свои заслуги в области мультипликации целых 26 статуэток "Оскар"? (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73587297061C091CC6B849020096F7F996209D49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509786   (792894) от 14.11.2021
+
+Свято-Елисаветинский женский монастырь (изд.) | Божественная литургия. Смысл и порядок богослужения (2019) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всё в Церкви движется Духом Божиим. И красота, и величие православного богослужения не могут не затронуть сердце верующего человека. Но для того, чтобы благоговейное чувство не изменило нам со временем, необходимо ещё и осмысление того, что происходит в храме.
+
+В этом издании в простой и доступной форме раскрываются смысл и последовательность Божественной литургии (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9934E9795CFFEC2367FC23F55394872C106108A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510002   (792895) от 14.11.2021
+
+Мика Ртуть | «Дети грозы» Книга 4. Сердце убийцы (2021) [MP3, Нелли Новикова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда, чтобы стать бессердечным чудовищем, достаточно подарить свое сердце тому, кто важнее жизни. Иногда, чтобы коснуться мечты, стоит упасть в бездну. Иногда, чтобы выжить, надо забыть все, что тебе дорого, и найти смысл заново. Иногда, чтобы увидеть свет, нужно пройти через предательство, месть и ненависть. Потерять все. И найти… Шанс. Новую судьбу. Или единственное, (   Читать дальше...   )Жанр: Любовное фэнтезиПродолжительность: 12:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F85785780F49B542FD6409B1271F0300D44F5E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509987   (792896) от 14.11.2021
+
+Мика Ртуть | «Дети грозы» Книга 3. Зови меня Смерть (2020) [MP3, Нелли Новикова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792896.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зови меня Смерть» – фантастический роман Мики Ртуть, третья книга цикла «Дети грозы», жанр любовное фэнтези.
+
+Ее первый бал обернулся кошмаром. Ее принуждают к браку с предателем и лжецом. Возлюбленный, который мог бы помочь, сам на пути к эшафоту. Она могла бы спасти его, но какой ценой? И как ей, хрупкой девушке с добрым сердцем, самой не превратиться в злобное (   Читать дальше...   )Жанр: Любовное фэнтезиПродолжительность: 16:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E697EC172C056BFB6A685BA0F4F1D2E3CF2B172
 ```
 
 

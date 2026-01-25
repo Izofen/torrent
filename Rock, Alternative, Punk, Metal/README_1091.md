@@ -1,3 +1,57 @@
+###  Публикация: 1499431   (847969) от 02.10.2021
+
+Evil Scapes - Sanity Of No One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:20)
+02. Bubble Dreams (04:11)
+03. Scars (03:25)
+04. Conscience (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726EBFC7DE62A31D93F38B0A254885BCD585E65F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499511   (847971) от 02.10.2021
+
+Бродячий Цирк - Чтобы нас согреть (2021) EP [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Скоро наступит весна
+2. В глаза смотреть
+3. Разбитая звезда
+4. ШизофренияЖанр: Punk RockПродолжительность: 00:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB07BB978B96C880A1D1C887DB654F543BA2843
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499357   (847974) от 02.10.2021
 
 Steely Dan - Northeast Corridor: Steely Dan Live! (2021) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
@@ -642,60 +696,6 @@ Aspen - III (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492D5C62A6510EB6B8006033DB46EFE726D05716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002153   (848535) от 31.03.2016
-
-Пилот - Кукушка (2016) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Безвозврат
-02. Светлого пути
-03. Проводник и стюардесса
-04. Оттепель(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC1B448502313660B6A3748D9A7CE8A497A29AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001705   (848541) от 31.03.2016
-
-Мумий Тролль - Шамора. Правда О Мумиях И Троллях 1983-1990. Часть 1 (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алло, Попс! (2:19)
-02. Ультиматум (3:44)
-03. Новая Луна Апреля (3:01)
-04. Кассетный Мальчик (3:54)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53FEA51A0AF0023C675E8B10CBE8829F93DE25AB
 ```
 
 

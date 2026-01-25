@@ -1,3 +1,30 @@
+###  Публикация: 1394382   (763671) от 05.07.2020
+
+VA - Громкие новинки Июля (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763671.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Борис Гребенщиков - Не Судьба (7:04)
+2. City Of The Sun - La Luz (5:03)
+3. Bring Me The Horizon - Parasite Eve (4:51)
+4. Beyonce - Black Parade (4:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A343B4A57A0B8709A2852D81DC74F8C9A2A68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279996   (763689) от 01.02.2019
 
 VA - The Disco Mind: Funky Edition (2019) [MP3|320 Kbps] <Funky, Disco House>
@@ -668,33 +695,6 @@ VA - Euro Dance Party (2017) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50263400880E639F6C373E5DEE388B43569B4B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126839   (764491) от 19.04.2017
-
-VA - Club Dance Dependence vol. 6 (2017) [MP3|320 Kbps] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Dont Say (Original Mix)
-02. Rag'n'Bone Man - Skin (Original Mix)
-03. Matoma & MAGIC! feat D.R.A.M. - Girl At Coachella
-04. Mike Wit feat. Brenda Be - Hold Me Now (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 06:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB465C63DB0C159ACF9C50586B3D36154027D9F8
 ```
 
 

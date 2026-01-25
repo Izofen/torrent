@@ -1,3 +1,30 @@
+###  Публикация: 1029681   (678603) от 28.06.2016
+
+Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <Dance Pop, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Guetta feat. Zara Larsson - This One's For You (Stefan Dabruck Remix)
+2. Calvin Harris feat. Rihanna - This Is What You Came For (R3hab & Henry Fong Remix)
+3. F&M Project vs. Iuri DJ feat. Cristina - The Moon (Club Version)
+4. Simone Pacella – Mister Deejay (Extended Mix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B737F086CAA051539CBE02269A8C5511C526F6A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029750   (678604) от 28.06.2016
 
 VA - Dance Super Chart Vol.74 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -674,33 +701,6 @@ VA - Драйвовый весенний музон. Часть № 8 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297B8E847A14719656D29D72B06DD2A1D0671F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135816   (679420) от 20.05.2017
-
-VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zeologic - Intelligence 6:43
-02.  Skyline - Waves 7:57
-03.  Psydog - Mushroom Recipe (141 BPM) 6:56
-04.  Vertigo Records - Wtich Technology (Remix) 7:49(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 05:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
 ```
 
 

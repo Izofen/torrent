@@ -1,3 +1,81 @@
+###  Публикация: 1545596   (609511) от 22.04.2022
+
+Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In the Night Comes Evil (00:02:44)
+02 - When I Was Dead (00:04:34)
+03 - Whore (00:05:20)
+04 - Hate Me (00:04:35)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA8D04D09BBB678277EEEA1AE9A3D6BC6360AF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147117   (609605) от 02.07.2017
+
+VA - Armada Ibiza (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thomas Gold - Magic (Alex Preston Remix)  3:15
+02.  Tommy Trash - Dreamer  3:07
+03.  ATB - Connected  3:36
+04.  DeaDmau5 - Polaris (Original Mix)  9:45(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE7070C427A455814F86D04FBF792F1F4B22D6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147273   (609720) от 02.07.2017
+
+VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147032   (609723) от 02.07.2017
 
 VA - Top Cocktail Music: From Lounge to Deep House Beats (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
@@ -626,87 +704,6 @@ VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5E62F88C1484A3B7DE7AA7437CD33FE17F9A04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296490   (611845) от 17.04.2019
-
-VA - Clubparty (2019) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - King & Queen (feat Diandra Faye)
-02. Kiss Audio - Nightflight (Festival version)
-03. The Buttonheads - Feel The Sun
-04. Dana Blade - All I Need(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D0AD036F87E15B0CBAB874B01756E667B621B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230854   (611941) от 14.06.2018
-
-VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Assessment - Calcare (06:59)
- 02. Magna Pia - Ys Ura (06:36)
- 03. Ryan James Ford - Masthead (05:12)
- 04. Serena Butler - To Tilt The Fulcrum (05:54)Жанр: TechnoПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53220CFBB274A1CE6538C57823A60FD52E3D67AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037793   (612124) от 25.07.2016
-
-aus - Discography 10 Releases (2004-2013) [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  01. Geskia! - Requiem For Genome (aus Remix) (05:33)
- 02. Storms - Letter On The 44th Day (aus Remix) (03:41)
- 03. Motoro Faam - A Change Of A Cityscape (aus Remix) (03:24)
- 04. Miyauchi Yuri - mirea_ (aus Remix) (05:28)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Experimental, Ambient, Broken Beat, Glitch •Продолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF2F235F8BFB3A0BE06AB37E8B1442BFF659F92
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1493304   (897497) от 02.09.2021
+
+Green Grey - Спичка (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EGO [00:03:41]
+02. По тонкому льду [00:03:44]
+03. Спичка [00:03:32]
+04. Машина времени [00:04:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297616CDE71F597F3A69B395EA4A8E5340D7832A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100697   (897976) от 05.02.2017
+
+Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song
+02. After The Storm
+03. Sister Mary
+04. Move That Wigwam(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492787   (898918) от 01.09.2021
 
 U2 - Live At The Apollo (For One Night Only) (2021) [MP3|320 Kbps] <Rock>
@@ -638,60 +692,6 @@ Dr. Friday - Cruisin` (2017) [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04C6AF3A3B6BA0BB5F83FF02E7C5884FAAEEAE8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368185   (912191) от 18.03.2020
-
-Голос Кинчева - Рой Ил (2020) [MP3|320 Kbps] <Psihodelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Son of George [00:02:40]
-02 Курочка [00:03:00]
-03 Спортивный отшельник [00:02:28]
-04 Рассосалась школота [00:02:58](   Читать дальше...   )Жанр: Psihodelic RockПродолжительность: 00:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72491E780AC0F73FA192BA35302886F9D6C253E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097522   (914290) от 27.01.2017
-
-Crosby, Stills, Nash & Young - So Far (1974) [MP3|320 Kbps] <Classic Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja Vu
-02. Helplessly Hoping
-03. Wooden Ships
-04. Teach Your Children(   Читать дальше...   )Жанр: Classic Rock, Soft RockПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9473F72CE8A871A1A8F9B3DC608DCE6F01556A4
 ```
 
 

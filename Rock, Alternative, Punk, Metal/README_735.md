@@ -1,3 +1,57 @@
+###  Публикация: 1406784   (471176) от 05.09.2020
+
+Taake - Nattestid Ser Porten Vid (1999) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I 05:55
+02. Part II 05:34
+03. Part III 04:31
+04. Part IV 04:35(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD50DAE333DE73F7624748992109ECA2A1761B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320420   (471239) от 18.08.2019
+
+Jimmy Barnes - My Criminal Records (2019) [FLAC|Lossless|image + .cue] <Classic Rock, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Criminal Records
+02. Shutting Down Our Town
+03. I'm In A Bad Mood
+04. Stolen Car (The Road's On Fire) part 1(   Читать дальше...   )Жанр: Classic Rock, Rhythm & BluesПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB81BC4493AF4A7BE11CF6D34DA6A1DF9606710
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940094   (471324) от 23.09.2015
 
 Modern Day Babylon - The Ocean Atlas (2015) EP [MP3|320 кб/с]<Progressive Metal, Djent, Instrumental>
@@ -660,60 +714,6 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A6245B36E85D988244E36F2E79001059B17764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227496   (472759) от 04.09.2020
-
-Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|image + .cue] <Modern Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Cipher
-02. Valkyria
-03. My Soldier
-04. Winterfall(   Читать дальше...   )Жанр: Modern Melodic Power MetalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1343ED997151B3FE6823DC4FFAD0705125EED2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406601   (472771) от 04.09.2020
-
-Мураками - Под сердцем (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472771.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Сириус
-3. 52 герца
-4. Рыба(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:571A0AE14CB6B2D0BB36368196AD7AE2E5EABEF7
 ```
 
 

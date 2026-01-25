@@ -1,3 +1,27 @@
+###  Публикация: 340503   (665163) от 22.05.2011
+
+VA - Хитовый Смак (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F4A1AA204CB4360238FBB78E2CA5EA95DD7919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138219   (665213) от 28.05.2017
 
 VA - Музыка отличного настроения на Шансоне выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
@@ -665,33 +689,6 @@ VA - Music News vol.173 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24455E3E194021582994AC377F6963E7EED09B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137705   (666784) от 27.05.2017
-
-VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acidova & Too Dusty - Too Acid [07:12]
-02. Perpetual Present - Collision Course (Bear Moss Remix) [06:06]
-03. Magnus - Frozen Sun (Chris Voro Thumping Remix) [06:00]
-04. Tee-ex - Wonder (Retroid Remix) [05:21](   Читать дальше...   )Жанр: PsybreaksПродолжительность: 04:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94B9D2FA486D8AA0A9058425E7CDD2ACC59FED1
 ```
 
 

@@ -1,3 +1,60 @@
+###  Публикация: 1291075   (672336) от 23.03.2019
+
+Спирин (Тараканы!) и Кежватов - Бард - это слово из четырёх букв (2019) Live [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выходной
+02. Летом
+03. Как в 3-й Quake
+04. 365 дней(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C23B34CAA0324A466B7824DA5F086D12882D2FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510192   (672493) от 13.06.2012
+
+Pg.lost - 3 albums (2007-2012) [FLAC|Lossless] <Post-Rock, Shoegaze, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirits Stampede (06:32)
+02. Vultures (05:03)
+03. Terrain (05:29)
+04. Sheaves (07:17)
+05. I Am a Destroyer (09:18)
+06. Gathering (07:54)
+07. Weaver (13:17)2007-2012Жанр: Post-Rock, Shoegaze, InstrumentalПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536657   (672654) от 13.03.2022
 
 Bryan Adams - Pretty Woman - The Musical (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop Rock, Soft Rock>
@@ -645,60 +702,6 @@ Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06255E7E4BA51D523347B08654A0FA029BAE008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290968   (674191) от 22.03.2019
-
-Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Gambler (US Mix, 2019 Remaster) (3:57)
- 2 - Slide It In (US Mix, 2019 Remaster) (3:19)
- 3 - Slow An' Easy (US Mix, 2019 Remaster) (6:01)
- 4 - Love Ain't No Stranger (US Mix, 2019 Remaster) (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12FDF4254F8C6431A304307235C38DCB8CEC70B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030564   (674269) от 30.06.2016
-
-Нейронная оборона - 404 (2016) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотрудники Яндекса выпустили альбом песен и стихотворений, написанных «нейропоэтом». Выбор пал на уже покойного Егора Летова, лидера советской группы «Гражданская Оборона». Алексей Тихонов сгенерировал набор текстов. К сожалению, компьютеры пока не готовы сочинять музыку надлежащего качества и только начинают делать свои первые музыкальные опыты. Алгоритм успешно (   Читать дальше...   )01. И всё-то как в кайф!
-02. Заново мир
-03. В кино
-04. Комиссар Михаил(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3FBBE015C6B81D536210045F86E17EB1B9A291
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1035071   (630057) от 15.07.2016
+
+VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-320 Kbps] <Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rihanna — Sledgehammer
+02. Hozier — Better Love (OST Тарзан. Легенда 2016)
+03. Бьянка — Никто Кроме Ты (Летняя Песня)
+04. Snoop Dogg — Eyez Closed (Feat. John Legend & Kanye West)(   Читать дальше...   )Жанр: РорПродолжительность: 03:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461747   (630369) от 04.07.2014
 
 Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
@@ -734,39 +761,6 @@ VA - Furious Dubstep Attacks From Evolinte (2012) [MP3|320 кб/с]<Dubstep, Dru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2C9FEEA1F36E57AED5E938B7D3BED986EF19DF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520664   (631740) от 09.07.2012
-
-VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Даша Суворова - До Утра (NoName Dj's Remix)
-02. Pitbull - Back In Time (DJ STYLEZZ Remix)
-03. Jessica Wright - Dance All Night (Rudedog Remix)
-04. MMDance - Баня (Danil Gross Remix)
-05. LMFAO - Sexy And I Know It (DallasK Remix)
-06. Luna Moor - Pa Pa Groove Feat Stan WIlliams (Nopopstar Remix)
-07. Timbaland & Pitbull & Wisin & Yandel - Pass At Me (Official Remix)
-08. 5sta Family - Вместе Мы (DJ Solovey Remix)
-09. Eva Simons - I Don't Like You (R3hab Remix)
-10. Горячий Шоколад - Стены (Andry Makarov Club Remix)Жанр: Pop,DanceПродолжительность: 04:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F79520E9850AD50D919AD06C71628403246899E
 ```
 
 

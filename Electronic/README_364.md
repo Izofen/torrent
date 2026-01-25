@@ -1,3 +1,84 @@
+###  Публикация: 1218035   (725085) от 08.04.2018
+
+VA - DJ Robert Miles - In The Mix (1997) Mixed [FLAC|Lossless|image + .cue] <Breakbeat, Goa Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Offshore (4:14)
+02. Goldie - Inner City Life (3:35)
+03. Prana - Geomantik (4:10)
+04. D-Saw - Track 7:22 (2:51)(   Читать дальше...   )Жанр: Breakbeat, Goa Trance, Progressive TranceПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A68A5D5D83585FDF5DCF19CCB1E0B6C930629AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399919   (725152) от 02.08.2020
+
+Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormy Love, NM. (3:48)
+ 02. Still Want U (3:33)
+ 03. Guilty Love (4:33)
+ 04. Desert Woman (6:15)(   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F950D1BA3AC7F9E3D31C896040BDC8FAAC850AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218204   (725208) от 08.04.2018
+
+VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Skies & Frank Laverne - Celebrate The Love (Radio version)
+02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance mix)
+03. Chris Excess - Secret (Frozen Skies remix edit)
+04. Elaine Winter - Forever Young (Tbo & Vega remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 667373   (725282) от 14.06.2013
 
 ATB - 8 Album, 3 Compilation (1999-2007) (17CD)[FLAC|Lossless]<Trance>
@@ -609,87 +690,6 @@ VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0BCB163E569DBD30EC29E034C51AB8DF2AB361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976393   (727314) от 25.04.2017
-
-Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tunnel (03:23)
- 02. On Track (04:04)
- 03. Accelerant (06:21)
- 04. The Hour Appointed (05:00)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Space |Продолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F1C8A3C286F2172844B5CF145F44D78E63FABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128494   (727322) от 25.04.2017
-
-VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Paul Oakenfold - Conquistador  7:58
-02.  Tommy Johnson - Tubular Bells  5:36
-03.  Radion6 - Shockwave  5:12
-04.  Alex M.O.R.P.H. - Euforia Anthem  8:07(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C0E1B32F3DA11257F7680A27F5549A0269424C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284611   (727543) от 22.02.2019
-
-Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indihop (Live) 1989 (05:46)
- 02. Humility (Ecliptic Mix Edit) 1990 (06:10)
- 03. Disbelief 1991 (06:55)
- 04. Therapy/Terra Om 1992 (10:47)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, AmbientПродолжительность: 03:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5670C69A3289A1193E89067735B8EB78A09D33CA
 ```
 
 

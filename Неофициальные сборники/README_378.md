@@ -1,3 +1,30 @@
+###  Публикация: 1145441   (621529) от 25.06.2017
+
+VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adagio Sensus - Easy For You (Frainbreeze Radio Edit)
+02. Joel Hirsch & Jennifer Rene - Won Me Over
+03. Ellie Lawson - Feeling It All (Radio Edit)
+04. Luke Bond Ft. Georgia Mason - Alone (Luke Bond Uplifting Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B0B8B0158A96F2035CD2D2890F63851B4F7FC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145164   (621539) от 25.06.2017
 
 Dee Snider - After T.S. (2017) Compilation [MP3|320 Kbps] <Rock, Metal, Heavy Metal>
@@ -680,39 +707,6 @@ VA - Дискотека 2017 Dance Club Vol.165 от NNNB (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485B16AA5B65062E18891C776B68DD1335EFC460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522005   (623014) от 13.07.2012
-
-VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electro House, Dutch House, Electro, Drum'n'Bass, Trance, Psytrance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 00.db - Angel
-02. Answer and Shake - No Good 4 You (Lynkin edit)
-03. Basto - I Rave You
-04. Ben Atomgrinder - Shirtless Bastard
-05. Bodybangers feat Victoria Kern - Gimme More (Extended mix)
-06. Brainiac - Alien Technology
-07. Culture Shock - I Remember
-08. Danny Dove and Nathan C - Like That
-09. DBN and Stafford Brothers feat Sean DeClase - Remedy
-10. Deniz Koyu - Bong(   Читать дальше...   )Жанр: Electronic, Club, Electro House, Dutch House, Electro, Drum'n'Bass, Trance, PsytranceПродолжительность: 06:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CC66B07F43F953FD030849C4311A3420AD194D
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1472012   (1014697) от 23.05.2021
+
+Zgard - Place of Power (2021) [MP3|320 Kbps] <Atmospheric Black Metal, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arise [00:02:01]
+02 - Trap of Cold [00:06:09]
+03 - Old Ruins [00:07:58]
+04 - Ascension Fog [00:06:22](   Читать дальше...   )Жанр: Atmospheric Black Metal, Pagan MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED911166747A2B9ADB87BCC56AAFED64310B839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471813   (1014700) от 23.05.2021
+
+Hatecraft - Hear The Winds (feat. Bjorn Strid) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear the Winds (feat. Bjorn Strid)
+02. Fire at Will (feat. Bjorn Strid)
+03. Sacred Tongue (feat. Bjorn Strid)Жанр: Modern Metal, Melodic DeathПродолжительность: 00:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235BC1C5162C467904EE911E8A87D5EE226E06A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471780   (1014701) от 23.05.2021
 
 V-Project - New Machine (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -641,60 +694,6 @@ Anvil - Pounding The Pavement (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8991FF3C5081B641A2E4B2D02335AA22858B2C7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471182   (1015149) от 20.05.2021
-
-Jakob Samuel - CoExist (2021) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Minute Every Hour (03:13)
- 02. Stand By You (03:16)
- 03. One Last Time (03:42)
- 04. Hey Brother (02:45)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2431D6984872F6A9FAE9A4136C094B9ADD9E780C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471162   (1015150) от 20.05.2021
-
-Amorphis - Live at Helsinki Ice Hall (2021) [MP3|320 Kbps] <Melancholic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Bee [00:07:06]
-02-Heart Of The Giant [00:06:17]
-03-Bad Blood [00:05:23]
-04-The Four Wise Ones [00:05:32](   Читать дальше...   )Жанр: Melancholic Progressive MetalПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1E5784AB423CC7769B2D91C17C7FE1E0EAC14E
 ```
 
 

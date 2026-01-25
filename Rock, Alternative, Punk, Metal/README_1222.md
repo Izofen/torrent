@@ -1,3 +1,57 @@
+###  Публикация: 1472918   (1014054) от 27.05.2021
+
+Cardynal - Intro (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falso Profeta
+02. Volver
+03. Mi Camino
+04. Aquel Lugar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D28E329F83045B9C4D56301F7E392759052528
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472971   (1014059) от 27.05.2021
+
+Sacred Gate - Tides Of War (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Coming Storm
+02. The Immortal One
+03. Tides Of War
+04. Defenders (Valour Is In Our Blood)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE2390433288E8AA19AFDB15715AAD564A0760C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472646   (1014232) от 26.05.2021
 
 Pavement Princess - Second Skin (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -643,59 +697,6 @@ CD - 1 - Debauchery:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6943699FF6DEB2AD06BE3A607E8E7829246F5EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472012   (1014697) от 23.05.2021
-
-Zgard - Place of Power (2021) [MP3|320 Kbps] <Atmospheric Black Metal, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Arise [00:02:01]
-02 - Trap of Cold [00:06:09]
-03 - Old Ruins [00:07:58]
-04 - Ascension Fog [00:06:22](   Читать дальше...   )Жанр: Atmospheric Black Metal, Pagan MetalПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED911166747A2B9ADB87BCC56AAFED64310B839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471813   (1014700) от 23.05.2021
-
-Hatecraft - Hear The Winds (feat. Bjorn Strid) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear the Winds (feat. Bjorn Strid)
-02. Fire at Will (feat. Bjorn Strid)
-03. Sacred Tongue (feat. Bjorn Strid)Жанр: Modern Metal, Melodic DeathПродолжительность: 00:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235BC1C5162C467904EE911E8A87D5EE226E06A1
 ```
 
 

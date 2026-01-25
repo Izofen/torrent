@@ -1,3 +1,57 @@
+###  Публикация: 1288179   (697870) от 10.03.2019
+
+Över (Over) - Facing Transcendence (2018) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philosophy (Supposed Truth) (6:30)
+ 02. Freedom Of Paradigms (7:48)
+ 03. Will (9:34)
+ 04. Över Is Transcendence (5:28)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0777134B1EEE8229A4B9ACA311F8149C1C26980
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288032   (697871) от 10.03.2019
+
+The Charlie Daniels Band - Tailgate Party (1999) [FLAC|Lossless|tracks + .cue] <Rock, Southern Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	The South's Gonna Do It 	3:55
+2 	Pride And Joy 	4:00
+3 	Can't You See 	6:25
+4 	Let Her Cry 	4:01(   Читать дальше...   )Жанр: Rock, Southern Rock, Country RockПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE08490CC2A815CE818C3CBD87CBE5CFA1D07DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287841   (697873) от 10.03.2019
 
 Vanir - Allfather (2019) Japan[FLAC|Lossless|image + .cue] <Viking Metal, Folk Metal>
@@ -637,60 +691,6 @@ Havukruunu - Kelle Surut Soi (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2663A3216E9B77A6D25786F5CC179548D27F313A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132940   (698863) от 10.05.2017
-
-VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Air - Strange Form (5:24)
-02. A.Perry, L.Delacour - New Life (9:11)
-03. Jean-Pierre Decerf - Gates Of Pop Empire (1:50)
-04. Eddie Warner - Shut Up (2:25)(   Читать дальше...   )Жанр: Electronic, Psychedelic Rock, Prog RockПродолжительность: 01:16:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED2A4295148C5576EC071699F877E9A80209DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132949   (698873) от 10.05.2017
-
-Kingdom Of Giants - 3 альбома (2013-2017) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cash Out
-02. Lowlife (feat. Charlie Muscle)
-03. Damaged Goods
-04. Bored to Death(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 02:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467A58DE38AAF5FB447A3150E9D2503F92B59F48
 ```
 
 

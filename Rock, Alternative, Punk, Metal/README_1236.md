@@ -1,3 +1,57 @@
+###  Публикация: 1463145   (1020598) от 17.04.2021
+
+The Offspring - Let the Bad Times Roll (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Not Utopia (2:38)
+02. Let The Bad Times Roll (3:19)
+03. Behind Your Walls (3:21)
+04. Army Of One (3:11)(   Читать дальше...   )Жанр: Pop Punk RockПродолжительность: 00:33:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A04A29B46E3F84918200EB95888C6FD146AB9D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463272   (1020617) от 17.04.2021
+
+Альфа - Звездная Серия: Звезды Российской Эстрады (2000) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гуляка (3:18)
+02. Бега (3:00)
+03. Театр (5:24)
+04. Теплый ветер (4:40)(   Читать дальше...   )Жанр: Pop-Rock, RockПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D896A4EEAF0EF5B6DAF9D39985F92E172C21DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463299   (1020625) от 17.04.2021
 
 VA - The Best Rock From Russia (Moroz Records Promo) (1994) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Hard Rock>
@@ -641,60 +695,6 @@ Temple Balls - Pyromide (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A9A52FDED2B1EC035465CF3B609CBA7B1FBE50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462875   (1020873) от 16.04.2021
-
-Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Human
-02. Start The Motor Running
-03. Good Time
-04. Voodoo Woman(   Читать дальше...   )Жанр: AORПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD5A53F04111C9AF6BAB876C6F139BDCEBED696
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462632   (1020877) от 16.04.2021
-
-Alias - Never Say Never (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman Enough
-02. XTCOI
-03. How Much Longer Is Forever
-04. Give Me A Reason To Stay(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E69CCAF47798AE1336FF580ED354F4A5C43784D
 ```
 
 

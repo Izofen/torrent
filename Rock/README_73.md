@@ -1,3 +1,57 @@
+###  Публикация: 1526959   (737784) от 26.01.2022
+
+Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues, Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Find Myself a Home (Live in France, 2017) (03:56)
+02. Feel Love (Live in France, 2017) (03:21)
+03. Heavy Grip (Live in France, 2017) (03:43)
+04. Wheels in Motion (Live in France, 2017) (03:39)(   Читать дальше...   )Жанр: Alternative, Beatbox Blues, Acoustic RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C594449048034D0DB95F58B76838608CC6A0B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526623   (738121) от 25.01.2022
+
+Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз полностью состоит из каверов на классику рока и не только. В частности - на песни Боба Дилана, Fleetwood Mac, Боба Сигера, Cream и The Yardbirds, которые тщательно отбирали все участники группы. Продюсером пластинки вновь стал Боб Эзрин, работавший с группой на предыдущих альбомах.01. 7 And 7 Is (Love cover) (02:28)
+02. Rockin' Pneumonia And The Boogie Woogie Flu (Huey Smith and The Clowns cover) (03:15)
+03. Oh Well (Fleetwood Mac cover) (04:31)
+04. Jenny Take A Ride! (Mitch Ryder and The Detroit Wheels cover) (04:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3B20AF3290A4FFFFB23A48D9C0D4E44A9C3E29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397648   (739869) от 21.07.2020
 
 The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
@@ -639,60 +693,6 @@ Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216298   (749313) от 31.03.2018
-
-Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Send Me an Angel
-03. If I Had the Time
-04. Guilty(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072DA2CB50C37AC4C7C5BA09E8FA614F3FA2138A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216508   (749318) от 31.03.2018
-
-VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749318.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:00] 01. Nickelback - We Will Rock You
-[1:58] 02. Everlone - Breakfast In America
-[3:50] 03. Black–ingvars - Livin' La Vida Loca
-[4:31] 04. Nonpoint - In The Air Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DD1FB80BB1D3E7FD4D5925743CFF76E5A9872E
 ```
 
 

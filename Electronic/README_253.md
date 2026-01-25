@@ -1,3 +1,89 @@
+###  Публикация: 1406994   (471187) от 05.09.2020
+
+VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Darroo - Rave Face 2018 (Original Mix)
+02. DJ Darroo - Lift (Original Mix)
+03. DJ Darroo - X Dream (Original Mix)
+04. DJ Darroo - Visions of Euphoria (Trance Mix)(   Читать дальше...   )Жанр: Hard Trance, TranceПродолжительность: 08:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D23ECE10686DC4007A8844595CD20F64E77E12A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320474   (471393) от 18.08.2019
+
+VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Aco Rolando Martinez - Hey Dj 07:05
+02. Javier Devesa - Warning 04:30
+03. Lonely DJ - All The People 03:43
+04. Midnight Evolution - Dark Secrets 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B936F35B54C44E77093036EABDFDB5395BA3A69A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548085   (471510) от 16.09.2012
+
+David Guetta - Nothing but the Beat 2.0 (2012) [FLAC|Lossless]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471510.jpg" />
+</div>
+
+
+###  Подробнее
+
+David Guetta - Nothing but the Beat 2.0 (2012)
+
+Год: 2012
+Жанр: House
+Продолжительность: 01:15:22
+Лейбл: Virgin
+Кодек: FLAC
+Битрейт: LosslessТрек лист:
+01. David Guetta - Titanium (feat. Sia) [04:05](   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160746   (471879) от 26.08.2017
 
 K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
@@ -626,87 +712,6 @@ VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C94B37C6CB2432AA4B573C7AAAF918FE2193010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320138   (473372) от 17.08.2019
-
-VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Laslau - Gone Yet Never Forgotten 02:46
-02. Amisso - Resistance 05:41
-03. Beatzshocker - Beatz Rules Back 02:56
-04. Dirty Wild - Boomstik 03:32(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A895812F8A029C0C534FE7C685E56EB936A758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939585   (473453) от 22.09.2015
-
-VA - Trilogy The Best of Chillout (Part One) (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Feelings - Vitalie Rotaru
-02. Carry Heart - idenline
-03. I Feel Your Body (Feat. Sone Silver) - DJ Artak
-04. Unplanned Detours - Matthew Billings(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD89DDBECE080024D58663D93928032703E3930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939594   (473470) от 22.09.2015
-
-VA - Trilogy The Best of Chillout (Part Two) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Touch - August Noise - Original Mix
-02. Alastair Pursloe - Ocean Drift - Original Mix
-03. 2F - Sensations - Original Mix
-04. Gemini Tri - Silence of the Universe - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26C7C5ABE368D6377180E69D23BB43FA310EEF5
 ```
 
 

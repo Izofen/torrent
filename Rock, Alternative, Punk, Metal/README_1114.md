@@ -1,3 +1,57 @@
+###  Публикация: 1105882   (875067) от 18.02.2017
+
+Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Out In The Rain (4:16)
+02. Watch Out For Lucy (3:26)
+03. I'll Make Love To You Anytime (3:24)
+04. Roll It (3:43)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F423F2E0A03D5EC37F5465DB3B46E9741E865A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105864   (875070) от 18.02.2017
+
+Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Like It? (3:04)
+02. Brutal And Effective (3:13)
+03. Love Me In Black (4:49)
+04. Pain (4:20)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8E56335ED0C86386C0A266D552EA4B3BD32191
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105868   (875072) от 18.02.2017
 
 Inglorious - Inglorious (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -634,60 +688,6 @@ Tower - Uriel (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Melodic Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336AF2F13D8887BE6D09C3B3A675A10587D67381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496058   (876063) от 15.09.2021
-
-Järnbörd - 2 Albums (2017-2021) [MP3|320 Kbps] <Punk, Crust, Grind, Harcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Parad Av Försupna Män [00:01:33]
-02. Utbytbar Löneslav [00:01:38]
-03. 2 Steg Från Morgonsnapsen [00:03:00]
-04. Mördare Utan Gränser [00:02:43](   Читать дальше...   )Жанр: Punk, Crust, Grind, HarcoreПродолжительность: 2CD, 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE3DAC82A58CB872E212F563D065D525C4C547E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495962   (876068) от 15.09.2021
-
-Thundermaker - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road
-02. Fire Burns Forever
-03. Broken Promises
-04. A Twin Flame Journey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75EAA76BA250D91B9F124C7773B207B112E0BCD
 ```
 
 

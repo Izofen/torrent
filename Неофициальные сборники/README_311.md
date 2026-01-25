@@ -1,3 +1,30 @@
+###  Публикация: 1240651   (523395) от 13.08.2018
+
+VA - Club Dance Ambience Vol.159 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 50 Cent  - Candy Shop  (Synthony Remix)
+002. Aarre & Samlight - Shining Bright (Extended Mix)
+003. Agua Sin Gas, Antoine Clamaran - Moovin' Groovin'  (Gary Caos Edit Mix)
+004. AL Sharif & CORX & Diego Antoine - Vagabond (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300DBA2BB40F0E29D652C42A4A960E5A7B8EB6A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559636   (523415) от 26.06.2022
 
 VA - В машине с музыкой Vol.278 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
@@ -674,33 +701,6 @@ VA - Hedkandi Summer (2019) [MP3|320 Kbps] <Dance, Pop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B22C6B99D99943DF800A2C6AB1943F75A16DC82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240516   (524460) от 12.08.2018
-
-VA - Зарубежные Хиты-Июль (2018) [MP3|320 Kbps] <Pop, Alternative,Rap/Hip Hop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Russo-I Jusswon
-002. A R I Z O N A-What She Wants
-003. Armin van Buuren, Vini Vici, Alok, Zafrir-United
-004. Austin Burke-One Summer(   Читать дальше...   )Жанр: Pop, Alternative,Rap/Hip Hop, BluesПродолжительность: 06:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73BEECDA882804BC0938C4F2B4ABABA7517BA32
 ```
 
 

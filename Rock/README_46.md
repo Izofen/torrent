@@ -438,6 +438,71 @@ magnet:?xt=urn:btih:D1E8CB823DF12DB19B5CE1A5333F4262E575D621
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551023   (449938) от 25.09.2012
+
+The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Angels
+2.Chained
+3.Fiction
+4.Try
+5.Reunion
+6.Sunset
+7.Missing
+8.Tides
+9.Unfold
+10.Swept Away(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242451   (449954) от 06.10.2010
+
+The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449954.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:49] 01.  - Christmas Time is Here Again (outtake 1967)
+[05:05] 02.  - The Beatles Christmas Record (1963
+[04:07] 03.  - Another Beatles Christmas Record (1964)
+[06:26] 04.  - The Beatles Third Christmas Record (1965)
+[06:42] 05.  - The Beatles Fourth Christmas Record (1966)
+[06:14] 06.  - Christmas Time is Here Again (1967)
+[07:56] 07.  - The Beatles 1968 Christmas Record (1968)
+[07:45] 08.  - The Beatles Seventh Christmas Record (1969)
+[04:40] 09.  - Christmas Message (1964)Жанр: Rock and RollПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163388   (450223) от 05.09.2017
 
 Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
@@ -655,57 +720,6 @@ Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A77ACDB134914DDC07D153AD431A54F129924A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569541   (451904) от 13.08.2022
-
-Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devils Rise [00:06:27]
-02. Rollin' [00:05:52]
-03. Trippin' On Evil [00:07:33]
-04. Space Man [00:08:35](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 2 CD, 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCD3E4EDDB421159EADD168CFAC56B9C02A0B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163111   (452404) от 04.09.2017
-
-VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Soft RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9368A87C678A92245A8D7FC3B14367BFFD3EEF7F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1099744   (903592) от 02.02.2017
+
+Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home (4:57)
+02. Ruined By Them (4:23)
+03. Blue Bird (4:42)
+04. All I Am (4:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41768A801743AF770407187FB1516F0A88D496E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099643   (903685) от 02.02.2017
+
+Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Power, Neoclassical, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Earth Dies Screaming 01:11
+02. Angel Of Chaos 05:08
+03. Lost In The Dark 05:18
+04. Right Here, Right Now 04:39(   Читать дальше...   )Жанр: Power, Neoclassical, Heavy MetalПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4861A20DBD76A8082055AA7D1A6B9B5F4C6835DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099649   (903688) от 02.02.2017
 
 Concerto Moon - Between Life And Death (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Power, Neoclassical, Heavy Metal>
@@ -653,66 +707,6 @@ Jimi Hendrix - The Cry Of Love (1971) Remastered 2014 [MP3|320 кб/с]<Psychede
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D5F44ECCF3B1B1C746BF4BF1225F445558A694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099463   (904953) от 01.02.2017
-
-Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Of Time
-02. We Defy
-03. Ode To Leonidas
-04. Back On The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162B392E1E48049756ED021D85B35E15C3B1504A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181257   (904957) от 10.03.2010
-
-Восьмая Марта - С Праздником! (2001) [MP3|256 kbps]<Панк, Гранж, Рок-н-ролл>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Билли-Винки [03:11]
-02. Пароход [03:00]
-03. Нева [03:32]
-04. Ускользай [02:06]
-05. Б.Г. [02:46]
-06. Девичья Честь [02:15]
-07. Лужи [02:47]
-08. Голая [02:39]
-09. Рэп [03:22]
-10. Лётчик [03:09](   Читать дальше...   )Жанр: Панк, Гранж, Рок-н-роллПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 

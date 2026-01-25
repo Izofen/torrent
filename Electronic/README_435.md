@@ -1,3 +1,84 @@
+###  Публикация: 1006737   (825586) от 13.04.2016
+
+VA - Miami House Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Groove - Cherokee 06:02
+02. Marcel Scott - Strike On 04:08
+03. Carl Shawn - Voices 05:45
+04. Leventina - Paramount (Radio Mix) 03:02(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F54C240620F16F8BBCFB18B98A88BCF93F46F8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381570   (826030) от 07.05.2020
+
+VA - Black Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loretta Heywood - Butterfly (Original Mix) 04:43
+02. Michael E - For Laurant (Original Mix) 04:37
+03. Roberto Sol - Can Not Forget You 04:28
+04. Anthony Island - Promets (Original Mix) 03:24(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC9CAC30B4B0BED186346B2AA4F34E8C45C9CDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381468   (826238) от 07.05.2020
+
+VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flor De Lis, Shoree, Gabrielle Chiararo - Close to You
+02. Raquel Silva Joly - Dindi
+03. The Soul Crusaders - When the Night Falls
+04. Chillson, Marc Hartman - Dancing Seahorses (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B75721100A3ED8F8D1895DCE8188E54D70A91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381515   (826242) от 07.05.2020
 
 VA - Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <House, Club House, Electronic, Dance>
@@ -612,87 +693,6 @@ Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9CC5BB5604635C6AE7EBDF04F27035B8AF98BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006392   (829209) от 11.04.2016
-
-Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 More Of You (6:32)
-02 Breathe (7:30)
-03 Meaning (6:54)
-04 Inbetween Thoughts (6:52)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F17285D427288EB54676B867C0C20D99D1D22D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380773   (829745) от 05.05.2020
-
-Cell - Live in Corfu (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Elevation (live edit) 09:02
-2. Over the Roof (live edit) 06:06
-3. Pulse (live edit) 08:03
-4. Traffic (live edit) 08:59(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489E5270EDFEC83F305E962C0FEBD0ADB40A161E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380955   (829759) от 05.05.2020
-
-Fatali - Retro (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829759.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Solid Harmonic (7:56)
-2. Deep (8:01)
-3. I Believe (7:25)
-4. Sleep On (7:33)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB98E66E992D531E44B18FDEBF912C31231C188C
 ```
 
 

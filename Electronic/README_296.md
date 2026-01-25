@@ -1,3 +1,85 @@
+###  Публикация: 1041928   (580592) от 11.08.2016
+
+VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Mar y carino (Eivizzards Mix) (6:22)
+02. Hein+Klein - Sylt (7:03)
+03. Mark Oakland - Something Beautiful (5:27)
+04. Aandra - Sunset Deep (5:34)(   Читать дальше...   )Производство: KarmawhiteЖанр: Deep House, Chill HouseПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95A045825AE33341034C8490AF890BDAFE575D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360100   (580827) от 07.07.2011
+
+VA - Sensation Innerspace (02.07.2011) [FLAC|Lossless]<House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580827.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Sensation Innerspace (02.07.2011)
+Год: 02.07.2011
+Жанр: House
+Продолжительность: 02:29:33Кодек: FLAC
+Битрейт: Lossless
+Тип рипа : tracks+.cueТрек лист:
+CD1: Mixed by Fedde Le Grand
+Продолжительность: 01:12:29(   Читать дальше...)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360412   (580953) от 07.07.2011
+
+Solar Fields - Unreleased (2001-2009) [MP3|192-320 kbps]<Psybient, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Psybient, AmbientПродолжительность: 03:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04C855570F65C29419B5C9A343F0DD767BF0497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553866   (581008) от 27.05.2022
 
 Le Youth - Reminders (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -619,93 +701,6 @@ VA - 100% Hotel Deluxe Music Vol.7 - The Best in Lounge and Chill out Essential 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D47748BDBDB00FD2249CCB13C099B078B8A85D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358740   (583768) от 04.07.2011
-
-Lab's Cloud - Organic Mathematics (2011) [FLAC|image+.cue, Lossless]<Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi Dulce Nu
- 02. In Deepest
- 03. Fibonacci Progression (Feat. Keemiyo)
- 04. Esmeralda 2011
- 05. A Journey With Your Angel
- 06. Increasing Up To Positive
- 07. In A Digital World
- 08. Evolving Natural Forms
- 09. Dani’s Guitar
- 10. A Piece Of The Immensity(   Читать дальше...)Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:19:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919339   (584018) от 18.07.2015
-
-VA - Late Night Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paco Flores - Andalucia [05:33]
-02. Relaxea - Sunshine Delight [07:19]
-03. Chill Bill - Harlem Chillout [04:56]
-04. Heavenly Light - Guardian Angel [05:27](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2AA809030B6B216E76D83F5BA9C3726130B550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919051   (584023) от 18.07.2015
-
-New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantom Ships & Strange Voices (5:22)
-02. Invisible Assailants (4:25)
-03. Encounters With Aliens (4:59)
-04. Spantaneous Human Combustion (7:06)(   Читать дальше...   )Жанр: Ethno Chill, DowntempoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A880705BCDB8CC274992317B6A9EE8E058A8BC
 ```
 
 

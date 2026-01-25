@@ -1,3 +1,84 @@
+###  Публикация: 1121983   (799248) от 04.04.2017
+
+VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
+02.  CJ RcM - Mallorca (Chillout Mix)  4:38
+03.  Doors In The Sand - True Story (Chillout Mix)  4:19
+04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122187   (799251) от 04.04.2017
+
+VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Vegas - Hold Me Down
+02. Echoboy - Get Do It
+03. DJ Favorite - Beautiful Night - Mars3ll Remix
+04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121965   (799252) от 04.04.2017
+
+VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Skendo - Romantic Beach Dinner  3:03
+02.  Mari Billa - Kids Of The Moon  3:01
+03.  Xavier Baptist - The Early Bird  3:33
+04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122111   (799259) от 04.04.2017
 
 VA - Trance Spring Essentials (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -614,87 +695,6 @@ Nulabee - Queen for a Day (2018) [FLAC|Lossless|tracks] <Balearic,Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02E368CE17FA5FB76F5DC78804BBD04029D99B83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199325   (800411) от 17.01.2018
-
-VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard House, Deep House, Progressive House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mason Vs Princess Superstar - Perfect (Exceeder) (Martijn Ten Velden Vocal Remix)
-02.Spektrum - Kinda New (Dirty South Remix)
-03.Sharam - PATT (Party All The Time) (Dennis Christopher Dirty Edit)
-04.Camille Jones - The Creeps (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: House, Disco, Hard House, Deep House, Progressive House, ElectroПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31989CD21EAD0FD2A7D720F6C3D922D8D320F6AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199186   (800413) от 17.01.2018
-
-VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Marcella Feat. I-Fan - Believe In Us (Robbie Taylor Classic Vocal Mix)
-02.Torvill & Deen Feat. Tyree Cooper - Keep It Poppin' (The SoundDiggers Raunchy Re-Rub)
-03.Wez Clarke & Maxine Hardcastle - Bringing Me Back
-04.Daniel Bovie & Roy Rox Feat. Nelson - Love Me(   Читать дальше...   )Жанр: House, Deep House, DiscoПродолжительность: 02:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08A397D29FFA540682C368E5F420BA0C5894F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199361   (800415) от 17.01.2018
-
-VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basement Jaxx - Raindrops
-  02. Freemasons Feat. Sophie Ellis-Bextor - Heartbreak (Make Me A Dancer)
-  03. Booty Luv - Say It (Warren Clarke Vocal Mix)
-  04. Chicane - Poppiholla(   Читать дальше...   )Жанр: Progressive House, House, Electro, Deep House, DiscoПродолжительность: 03:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
 ```
 
 

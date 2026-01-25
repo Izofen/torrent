@@ -1,3 +1,63 @@
+###  Публикация: 1390687   (782728) от 16.06.2020
+
+Captain Beefheart & His Magic Band - Trout Mask Replica (1969) [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frownland (1:41)
+02. The Dust Blows Forward 'N The Dust Blows Back (1:53)
+03. Dachau Blues (2:22)
+04. Ella Guru (2:27)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, ExperimentalПродолжительность: 01:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC710A2E44F0FBB66F5EBABAB6AFD1EACE37E96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199463   (782761) от 10.05.2010
+
+Карнавал - Легенды Русского Рока (1997) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Внезапный тупик (Магнитоальбом "Карнавал")
+02. Остров ("Карнавал")
+03. Пустое слово (Магнитоальбом "Карнавал")
+04. Я знаю теперь (Магнитоальбом "Карнавал")
+05. Мона Лиза (Магнитоальбом "Карнавал")
+06. Тень печали ("Карнавал")
+07. Карусель ("Карнавал")
+08. Взгляды ("Карнавал")
+09. Мир надежд моих (Магнитоальбом "Карнавал")
+10. Рок'n'рольный марафон ("Карнавал")(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199273   (782776) от 10.05.2010
 
 Shocking Blue - 2 Compilations & 1 Remastered (Japan Album) (1973-2008) [MP3|320 kbps]<Classic Rock>
@@ -647,60 +707,6 @@ Colosseum - Colosseum Live (1971) Remastered, 1998, Castle Communications [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59B8D2F950FD0271EAB7990DCF21E282EFFFAB30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205443   (783521) от 10.02.2018
-
-Silex - Arise (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Miles (Intro)
-02. Arise
-03. Metal Nation
-04. Everlasting Symphony(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A860CA9F9F58477DE5B114D4F550383F79B8BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390062   (783683) от 13.06.2020
-
-Creepy John Thomas - 2 Albums (1969, 1970) Reissue, Soundvision, 2011 [MP3|320 Kbps] <Blues Rock, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Австралийский гитарист, родившийся в Сиднее и известный у себя на родине по работе с группой «The Flies» в 60-х. Группа выступала в поддержку на гастролях в Мельбурне таких знаменитых исполнителей как «The Rolling Stones» и Roy Orbison. Перебравшись в Англию, John Thomas записывает на «RCA Records» два сольных альбома : одноименный «Creepy John Thomas» в 1969 году (   Читать дальше...   )01. Gut Runs Great Stone (4:03)
-02. (Do I Figure) In Your Life (2:47)
-03. You've Got To Hide (2:35)
-04. One Way Track Blues (2:10)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Prog RockПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D0148588A698CED428990EAC2BA243616DD046
 ```
 
 

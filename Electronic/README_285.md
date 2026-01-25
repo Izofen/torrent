@@ -1,3 +1,84 @@
+###  Публикация: 1556781   (556503) от 12.06.2022
+
+Centhron - Dystopia (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heer Der Wölfe
+02 - Sieg Oder Untergang
+03 - Ostfront
+04 - Rabenschwarz(   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F705B8E9BA12C9D91363903B0677C20DC9F534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235862   (556608) от 14.07.2018
+
+VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Flu - Mygut (Solomun remix) [08:22]
+02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
+03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
+04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045866   (556782) от 25.08.2016
+
+Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motion Picture (04:34)
+02. Superstitious (04:54)
+03. On The Beach (03:00)
+04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046072   (556923) от 25.08.2016
 
 VA - Sensual Deep House (2016) [MP3|320 Kbps] <Deep House>
@@ -614,87 +695,6 @@ Luca D'Alberto - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2459D9E9D912FC4B370ABAE529201C462A76661A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153595   (558083) от 27.07.2017
-
-Troels Hammer - The/Human/Tree (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letters from Uhuru (5:27)
- 02. Botswana Girl (5:20)
- 03. Mockingbird (4:44)
- 04. Sunrise at Beira Beach (8:10)(   Читать дальше...   )Жанр: Balearic, Downtempo, ChilloutПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD21CE3E42844FC797DD41C619E3FD2D60196798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153472   (558084) от 27.07.2017
-
-Solee - What Remains Are the Memories (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee – What Remains Are the Memories (Continuous DJ Mix)
-02. Solee – Dromen (Reinterpretation)
-03. Solee – Years Gone By
-04. Solee – Infinidad(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 04:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AEA28E0652080D3839E9F7D43B847461CF1F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045674   (558146) от 24.08.2016
-
-VA - Sexy Beach Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magical Corner - Infinite Revelations
-02. Hauba - In Your Bodies Life
-03. Aaron The Baron - A Tu Lado - Salsa on the Beach Mix
-04. Ralf Rondell - My Forgotten Paths - Bar & Lounge Instrumental Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9D95BFB8403AC50E1FBDB8D69B9E3E886DB95C
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1610968   (1041173) от 12.02.2023
+
+VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blufeld - Allusive Alive (Original Mix) [6:00]
+02. Gabriel Carminatti & Abel Mezzomo - Ignition (Original Mix) [4:19]
+03. Vladislav Maximov & 3-YA - Heartbeat (Original Mix) [3:52]
+04. DatabassЖанр: Trance, Progressive, ElectronicПродолжительность: 03:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438518   (1041178) от 08.01.2021
+
+VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khoa Tran - Reality Somewhere (SounEmot Intro Mix)
+02. David Surok - South Beach (Original Mix)
+03. Dawid Jurzyk - Waiting For Sunrise (Original Mix)
+04. KBK feat. Mary Syll - Moments Of Life (Marco MC Neil Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD25B6F1F9A63AD65838596B967689A4BAC3AA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438464   (1041189) от 08.01.2021
+
+VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menno de Jong - Sunleaf (Intro)
+02. Menno de Jong & Kristina Sky - Signals (Original Mix)
+03. Menno de Jong & Kristina Sky & Fiora - The Sun (Extended Mix)
+04. Menno de Jong - Everything (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14D7E7E8B3DEDEED2BF0635AE7BF2A6116EF6870
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438404   (1041194) от 08.01.2021
 
 VA - Markus Schulz - Global DJ Broadcast: Top 20 December (2020) [MP3|320 Kbps] <Trance>
@@ -614,87 +695,6 @@ David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436915   (1042774) от 02.01.2021
-
-Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind (Koan Remix) (7:08)
-02. Commitment (Roeth & Grey Remix) (8:37)
-03. How Big Is a Blue Whale (8:46)
-04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep House |Продолжительность: 01:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8A9F4AFF422059C5426AFB7F7B1C6FC68D475
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436750   (1042792) от 02.01.2021
-
-VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Special & Elev8 - Through The Dust Of Doubt (Intro Mix)
-02. Milosh K - Explore The Unknown (Neil Redden Remix)
-03. Victor Special - Ode For Lightt (Original Mix)
-04. Grande Piano & KBK feat. Agata Pasternak - Mystery Of Tomorrow (DreamLife Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE18CDF275BBE1C2BFF31CF38A8FF2642CA9BAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436778   (1042793) от 02.01.2021
-
-Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Wave, Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theriak - Tragic Romance (Techni-ka Remix) (04:33)
-02. Ultimated - Unforgettable - (Techni-ka Remix) (05:01)
-03. Parralox - A Question Of Love (Telekon Remix) (04:58)
-04. Tegan & Sara - Closer (Techni-ka Remix) (05:20)(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop, ElectropopПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A52C98A822DB3EADF94FC41945BDD63EFDD3670
 ```
 
 

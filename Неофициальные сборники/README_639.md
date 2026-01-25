@@ -1,3 +1,30 @@
+###  Публикация: 975490   (971931) от 15.01.2016
+
+VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kuduro, Ringbang>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extra Latino - Balkan Bachata 03:16
+02. Disco Fever - Gangnam Style 03:38
+03. Katy Tindemark - Titanium 03:55
+04. Elie P., La Fama - Bailando Por El Mundo 03:15(   Читать дальше...   )Жанр: Latin Urban, Salsa, Bouyon Soca, Kuduro, RingbangПродолжительность: 06:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C5B86B58C7A3C3240D82D0FDA4B11871B53178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617357   (971942) от 12.02.2013
 
 VA - Romantic Blues Collection Vol.3 (2013) [MP3|320 кб/с]<Pop,Blues>
@@ -704,33 +731,6 @@ VA - Жажда скорости танцевальный ритм (2016) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5265360A324746B431744284DD075FAFED11C20D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975120   (974465) от 13.01.2016
-
-VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Hello
-002. Matt Simons - Catch & Release
-003. Glasperlenspiel - Geiles Leben
-004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC3B603A77FD812156A7A7048802780F80339AC
 ```
 
 

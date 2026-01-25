@@ -1,3 +1,57 @@
+###  Публикация: 1620397   (1032117) от 20.03.2023
+
+Orphan - Lonely at Night (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely at Night (04:19)
+02. What Kind of Love Is This (04:07)
+03. Miracle (04:55)
+04. She Told Me (03:35)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19CF149A95438AA402D531DC98980328CBAF2499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447025   (1032256) от 11.02.2021
+
+God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrift
+02. Burial
+03. In Flux
+04. Spectres(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37981B375039D4F5425C65FD6F1D4FC799BC94E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446726   (1032566) от 10.02.2021
 
 Artnat - The Mirror Effect (2021) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
@@ -641,60 +695,6 @@ VA - Romantic Collection: Metal Ballads 2 (2000) [OGG Vorbis|480 Kbps] <Rock, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A8C6D40266315A8B2F8C6BC8AE211E9BA8CA01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441034   (1038066) от 20.01.2021
-
-Kungens Man - Trappmusik (2020) 2xCD [MP3|320 Kbps] <Krautrock, Psychedelic Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038066.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Fange i universum (10:46)
- 02. Senvagen (08:53)
- 03. Tricksen for transen (08:14)(   Читать дальше...   )Жанр: Krautrock, Psychedelic Rock, Space RockПродолжительность: 01:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8861A62951BA9849BEB061C999EA64D8A4087847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440689   (1038517) от 18.01.2021
-
-Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faker (03:29)
- 02. How dare you (03:22)
- 03. Don't want to pull the trigger (03:47)
- 04. Say goodbye (03:28)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA71699BB5D95ADECF7E72FCCD11FB6FCCBB1097
 ```
 
 

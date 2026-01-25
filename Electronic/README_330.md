@@ -1,3 +1,84 @@
+###  Публикация: 1291156   (650688) от 27.03.2019
+
+Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerome - One With The Music
+02. Gerome - Sky Citizen
+03. OceanLab & Justine Suissa Vs Exolight & Suncatcher - Siren Of The Sea (Daniel Kandi Mashup)
+04. Daniel Kandi - Child(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDA9090D7BE8EE378A4BE5BD8A3E930DE80AC09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252732   (650814) от 05.06.2015
+
+Pet Shop Boys - Ultimate (2010) [MP3|192-320 kbps]<Pop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West End Girls
+02. Suburbia
+03. It's A Sin
+04. What Have I Done To Deserve This?(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5986FDAE5942BC407B163B570363E277135021
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904880   (650995) от 05.06.2015
+
+Fatboy Slim - Halfway Between The Gutter & The Stars (15Th Anniversary) (2015) [FLAC|Lossless|WEB-DL] <House, Big Beat, Breakbeat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking 'Bout My Baby (03:44)
+  02. Star 69 (05:44)
+  03. Sunset (Bird Of Prey) (06:50)
+  04. Love Life (06:59)(   Читать дальше...   )Жанр: House, Big Beat, BreakbeatПродолжительность: 02:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4853A63824DB35BD9851E62A30CE2E9726E1BC18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905257   (651611) от 05.06.2015
 
 Flash Atkins - The Life & Times (2015) [MP3|320 кб/с]<Deep House>
@@ -620,87 +701,6 @@ VA - When The Sundown - Easy-Listening & Evening Tracks (2018) [MP3|320 Kbps] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CEE27075312E49F1E58435B0A081C2DF80D941B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540415   (653916) от 29.03.2022
-
-ENiGMA Dubz - The Journey so Far (2015)  Part 1;2 [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Drum & Bass>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sapa (6:24)
-02. Dark & Grey (6:06)
-03. The Dark (4:39)
-04. Down the Rabbit Hole (6:31)(   Читать дальше...   )Жанр: Dubstep, UK Garage, Drum & Bass |Продолжительность: 00:54;00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBB78863D412BBAAD177F9F52463502DED902C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540192   (653917) от 29.03.2022
-
-VA - Techno Club Vol. 65 (Mixed by Talla 2XLC & Signum) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM & Ahmed Romel with Julie Thompson - Live For 2 (Extended Mix) (8:05)
-02. Talla 2XLC & Rinaly - Mirage (Extended Mix) (6:39)
-03. Allan Berndtz - Nu Era (Extended Mix) (5:25)
-04. Talla 2XLC - The Rebel (Extended Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91129E97DA6D97D0D018CEF69A8394AA791CB7E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226765   (653929) от 22.05.2018
-
-VA - Club Hits Vol.5 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eximinds & Lucid Blue - A Higher Love (Ruslan Radriges Remix) 3:35
-02. LTN - Wind & Cloud (Denis Sender Remix) 3:36
-03. Airborn & Bogdan Vix feat. KeyPlayer - Syndrome (Original Mix) 3:37
-04. Adip Kiyoi - Space Roadster (Original Mix) 3:12(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D2FD499F40B41E089F68D48C9F6AE94C92E105
 ```
 
 

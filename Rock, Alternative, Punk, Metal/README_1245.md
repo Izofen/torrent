@@ -1,3 +1,57 @@
+###  Публикация: 1456793   (1024890) от 23.03.2021
+
+Suzi Quatro - The Devil in Me (2021) Japanese Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil In Me
+02. Hey Queenie
+03. Betty Who? (feat. Cherie Currie)
+04. You Can't Dream It(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2563971CEC8A33080034010792B04F5E3869D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456789   (1024913) от 23.03.2021
+
+Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern Metal. Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 A Virtual World [00:03:58]
+02 Cloud Connected [00:03:48]
+03 Talisman [00:04:57]
+04 Beyond the Horizon [00:04:54](   Читать дальше...   )Жанр: Melodic Modern Metal. Female VocalПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4066A6F87517850D766A3FD39A2F910B7D7FE46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456733   (1024915) от 23.03.2021
 
 Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -642,60 +696,6 @@ Saxon - Inspirations (2021) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C8358C23391F6DDBBF93FE7D7C29288275C0987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455900   (1025453) от 20.03.2021
-
-Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Elasticity [00:04:01]
-02 Your Mom [00:03:18]
-03 How Many Times- [00:04:16]
-04 Rumi [00:05:28](   Читать дальше...   )Жанр: Alt. Rock, Metal, ExperimentalПродолжительность: 00:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667C770494FDD6330FFC18C1BE621997993FB307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455383   (1025454) от 20.03.2021
-
-Serj Tankian - Elasticity (2021) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Alt. Rock, Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elasticity [00:04:01]
-02. Your Mom [00:03:18]
-03. How Many Times? [00:04:16]
-04. Rumi [00:05:27](   Читать дальше...   )Жанр: Alt. Rock, Metal, ExperimentalПродолжительность: 00:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AACF844E9FC2383A485D9BA0592C397AEFE040A
 ```
 
 

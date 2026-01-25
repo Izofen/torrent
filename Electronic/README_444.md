@@ -1,3 +1,84 @@
+###  Публикация: 1110401   (852176) от 03.03.2017
+
+VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александер Конинг - Grown & Sexy (David Dorad Remix) 7:54
+002. Alex Roque - Luxuria (Latin Remix) 6:35
+003. Robbie Dee - House Tool 5:45
+004. Tiziano Iervolino - Aurora 5:15(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA13927CF222D3B349E222E2D7B661994966CDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110789   (852272) от 03.03.2017
+
+VA - Enhanced Miami (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal & Sj ft. Emma Gatsby - Hung Up (Original Mix)  3:40
+02.  LEVV - Collateral Damage (Original Mix)  4:25
+03.  Vanrip - Find Your Love (Original Mix)  2:57
+04.  No Way Back - Minute (Original Mix) (feat. Sophia Black)  3:40(   Читать дальше...   )Жанр: HouseПродолжительность: 03:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93733253A480F4B86E760CFADE183C3DBC1DF37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110413   (852278) от 03.03.2017
+
+VA - Electro Vibes Lounge Vol.6 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luca Elle - Sleepless  5:04
+02.  Bob Artwood - The Sky  4:26
+03.  Luna Lounge - Sultan Wife  4:00
+04.  Glissman - Fresh Air  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D31CF501BB189DB37576A0CE2807E0978684B260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110534   (852279) от 03.03.2017
 
 VA - Lovely Mood Lounge Vol.25 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:816B983AD47C31D04E6B2891808D42A5701D71C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109944   (855680) от 01.03.2017
-
-VA - Ibiza Beach House Club Royale (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mojety - First Nations [00:06:22]
-02. Tony Mirianda - Mbira [00:04:57]
-03. Punch and Glue - Scoop [00:04:32]
-04. Belize - Caribbean Cocktail [00:05:22](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560E4E26A8612585591B2A3FF3321AECCA4029BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110016   (855685) от 01.03.2017
-
-VA - Ibiza Local The Winter Lounge Compilation 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillelektro - Kap Arkona [00:05:52]
-02. Acoustic Novels - Everybody's Got To Learn Sometime [00:03:53]
-03. Crypton - Outside Solar [00:08:57]
-04. LuzeCor - You [00:05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB273D397CD014787EFDAF15AE09B26CB8C6F411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110184   (855753) от 01.03.2017
-
-VA - Is This Lounge Enough (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Don Gorda Project - Symbolic Interaction [00:06:24]
-02. Enrico Donner - Lasting Memories [00:05:57]
-03. Baghira - Synapses [00:05:55]
-04. Cane Garden Quartet - Arotisme [00:05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9BC72F8BD3FBA17AFD94F279691FD7974D9591
 ```
 
 

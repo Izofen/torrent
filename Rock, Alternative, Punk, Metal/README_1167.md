@@ -1,3 +1,57 @@
+###  Публикация: 983426   (943782) от 06.02.2016
+
+Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The War Has Begun [03:52]
+02. Hypocrisy [03:42]
+03. Wide Awake [03:27]
+04. Every Heartbeat [04:00](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0E8F2F65ACF731BB7628B17DDA015D5236C7C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983396   (943791) от 06.02.2016
+
+Алексей Чернышёв - Пресвятая Русь (2015) [FLAC|lossless|image +.cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пресвятая Русь (04:22)
+02. Потребитель (демо) (03:08)
+03. The Golden Eagle (04:22)
+04. Пресвятая Русь (инструментальная версия) (04:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983324   (943862) от 06.02.2016
 
 Fleshgod Apocalypse - King (2016) 2CD Deluxe Edition [MP3|320 кб/с] <Symphonic Death Metal>
@@ -647,60 +701,6 @@ Magnum - The Valley Of Tears - The Ballads (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE5E50F6BAA93C70443C6CA1F0E7333C09DCDF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090612   (945972) от 07.01.2017
-
-Йорш - Держитесь (2016) [FLAC|lossless|image + .cue] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Музыка сильных (03:21)
-02. Гражданин Мира (04:26)
-03. Граффити (04:29)
-04. Насилие (03:35)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C0B488A0CBCC43AA786B6D6B47F0CB7BC17AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090842   (945974) от 07.01.2017
-
-Orianthi (Orianthi Panagaris) - Heaven In This Hell (2013) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven In This Hell (04:33)
-02. You Don't Wanna Know (03:40)
-03. Fire (02:54)
-04. If U Think U Know Me (03:35)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EF4E472EBF89372D8C77CFD5E56174F55587AD
 ```
 
 

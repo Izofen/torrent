@@ -1,3 +1,84 @@
+###  Публикация: 1293413   (635657) от 04.04.2019
+
+Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpology (4:19)
+02. Tierra Del Fuego (4:33)
+03. No Escape (6:09)
+04. Realism (4:13)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293410   (635658) от 04.04.2019
+
+Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Limits of Our Frontier (5:40)
+02. Destination Mars (6:40)
+03. Spirit (6:11)
+04. Opportunity (6:00)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9455D72E6190B2DA63AEF230C68298C77B1EA51F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293409   (635659) от 04.04.2019
+
+Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lair of the Dragon (6:43)
+02. Spirit Warriors (6:33)
+03. Shadow Dancer (5:58)
+04. Lunar Festival (4:52)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C16936E653D3684FBFB8D13465EEB11DE2BC1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293201   (635669) от 04.04.2019
 
 Siatria - Мой мир (2016) [MP3|320 Kbps] <Dance, EDM>
@@ -617,87 +698,6 @@ VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D889BB33F6F1484DDDD608F731B7D21C407387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033654   (638228) от 11.07.2016
-
-VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rayko - I Keep Forgettin (Rayko Moscow Discow Rework) (8:08)
-02. Julian Sanza - Unleashed (6:13)
-03. Glenn Dale - When the Night Goes On (6:05)
-04. James Rod & Fran Deeper - Mallorcas Island (6:42)(   Читать дальше...   )Производство: Spa In DiscoЖанр: Electronic, Disco, Nu-DiscoПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540B923FF8A1805B0D1BAFCCF04290F1700D8044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033503   (638245) от 11.07.2016
-
-VA - Zuhause Ist Es Am Schonsten: Chillout Musik (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skendo - Romantic Beach Dinner [03:03]
-02. His Name is Frank - Clouds [03:12]
-03. Mari Billa - Kids of the Moon [03:01]
-04. Jupiter Jack - Blank Space [04:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A627C4E4E6CFEF9A4DA3A1BBED4AC35DD3C654C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292732   (639061) от 02.04.2019
-
-UNKLE - The Road: Part II (Lost Highway) (2019) Limited Edition 3CD [FLAC|Lossless|tracks + .cue] <Electronic, Dance, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iter VI: Prologue (feat. Elliott Power) (00:04)
-02. Requiem (When You Talk About Love) (feat. Mark Lanegan, John Isaacs, Michele Lamy & Brian Cox) (04:15)
-03. Ar.Mour (feat. Elliott Power & Miink) (04:38)
-04. Iter VII: Lost (feat. Philip Sheppard & Tom Smith) (00:14)(   Читать дальше...   )Жанр: Electronic, Dance, Trip HopПродолжительность: 02:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0888D3651338C9506C9B82538D957E364F9D26E
 ```
 
 

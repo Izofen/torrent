@@ -1,3 +1,30 @@
+###  Публикация: 1128870   (724673) от 27.04.2017
+
+VA - Лучшая дискотека на Europa Plus. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724673.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Марина Редкая - Не Люблю Никого 3:28
+002. Смирнов & Комапния - Я Люблю Тебя 3:13
+003. Rozhden - Каждый День 3:40
+004. Юран - Пусть Будет Так 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E945C6970CACF095DABDE1579ACE92A07D030E60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359875   (724717) от 02.08.2020
 
 VA - The LoungLegends play Barry Manilow (2011) [MP3|320 kbps]<Easy Listening, Instrumental>
@@ -671,33 +698,6 @@ VA - Kiss FM: Top 40 Апрель (2018) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A27F9872A6669059CDC94E453755CD03EC8F16D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217931   (725104) от 08.04.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 06.04.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL feat. Giang Pham - DJ Is Your Second Name
-02. Jax Jones - Breathe (Ina Wroldsen)
-03. Zayn Malik feat. Sia - Dusk Till Dawn
-04. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468865476F25392B57341B9060E07116176DAF25
 ```
 
 

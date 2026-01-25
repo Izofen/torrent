@@ -1,3 +1,57 @@
+###  Публикация: 1620342   (1032147) от 20.03.2023
+
+Paakallo - Paakallo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Dark, Occult, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kuoleman taikaa [00:04:37]
+02. Muodonmuuttaja [00:04:17]
+03. Musta monoliitti [00:04:05]
+04. Kuparikäärme [00:06:25](   Читать дальше...   )Жанр: Heavy Rock, Psych, Dark, Occult, 70'sПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349A815EDB5E635962C22807598913BFA823F06E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620389   (1032148) от 20.03.2023
+
+Control Denied - The Fragile Art Of Existence (1999) [2CD] Remastered-2020 [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Consumed 7:25
+02 Breaking The Broken 5:41
+03 Expect The Unexpected 7:17
+04 What If...? 4:30(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6179F372F7BB7D12C29B47063CFA4A47F74F6CE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447025   (1032256) от 11.02.2021
 
 God Is an Astronaut - Ghost Tapes #10 (2021) [MP3|320 Kbps] <Post-Rock>
@@ -641,60 +695,6 @@ Mortician - Titans (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5098F0CE00C666BA9A763007F6380F1EBD8CADA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619954   (1032523) от 18.03.2023
-
-Narnia - Ghost Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebel
-02. Thief
-03. Hold On
-04. Glory Daze(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42D273F7E6CC030377A51779BA384894155EA57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619820   (1032529) от 18.03.2023
-
-Молот Родины - Ретроспекция, том 1-2 (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как Революция [00:06:07]
-02. С Нами Бог [00:03:38]
-03. Нация,Кровь и Раса [00:03:12]
-04. На Войну [00:02:43](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4901B5DEACD2E609D14CF6AFA4EA8A4053267193
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1135935   (677386) от 21.05.2017
+
+Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disillusioned  3:51
+2. Afterglow  8:05
+3. Fall Embrace  6:25
+4. West Winds  6:43(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90141B690DAA36901B7AE8C60F1BFE44BF7849DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136202   (677390) от 21.05.2017
+
+M-Tronic - Frontiers (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677390.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 10 Seconds After Sunrise (08:05)
+2. Stratosphere (04:40)
+3. Nightfall (06:29)
+4. Centaur Star (04:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6A22E330E8AE61185C111375A8DA68C6765F82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223286   (677395) от 03.05.2018
+
+VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kacper Kirtz - Funkmaster 03:12
+02. Joscha Rickert - Whitesea 03:09
+03. Gilbert Nouls - Honored 03:09
+04. Georg Miller - Formance 03:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223343   (677408) от 03.05.2018
 
 VA - This Growing Love - Best Love Music To Close The Perfect Date (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -614,93 +695,6 @@ VA - Progressive Ibiza House 2K17 (Annual Anthems) (2017) [MP3|320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEA2582657535375C670217D5A357BA143EDB930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508490   (679795) от 10.06.2012
-
-VA - Shotgun (2012) [MP3|320 кб/с]<Tech House, Progressive Breaks, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pole Folder - Babylon Days (Royal Sapien Vocal Mix)
-02. StereoK - I Don't Wanna Be An Astronaut (Royal Sapien Remix)
-03. Opencloud - Time Stand Still (Royal Sapien Everything Is Relative Remix)
-04. Deerk Hollaender - Nothing Worth Having Comes Easy (Royal Sapien Remix)
-05. Micah - Life With A Robot Butler (Royal Sapien Remix)
-06. Soundsation - Do You Feel It (Royal Sapien DnB Remix)
-07. Derek Howell - Cheer Up (Royal Sapien Remix)
-08. Soulfinder - Poetic Dreams (Royal Sapien Remix)
-09. Great Scott - Tarot (Royal Sapien Remix)
-10. Funk Harmony Park - My Truth (Royal Sapien Back Room Remix)2012Жанр: Tech House, Progressive Breaks, Progressive HouseПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C810899498293613D4376CC005760534BB990C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290217   (680119) от 19.03.2019
-
-Alphaville - Forever Young (2019) 3CD Super Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Synthpop, New-Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680119.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Original Album Remastered:
-01. A Victory Of Love (Remaster) (04:17)
-02. Summer In Berlin (Remaster) (04:46)
-03. Big In Japan (Remaster) (04:44)(   Читать дальше...   )Жанр: Synthpop, New-WaveПродолжительность: 03:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3F27E44C78ED13D294FF572AD2A04DA473DEE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955457   (680139) от 27.06.2016
-
-Tom Box (Human Error, Arbitrarium) - Discography (2009-2016) [FLAC|Lossless|Tracks|WEB-DL]<IDM, Ambient, Industrial, Experimental, Glitch, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirds (03:33)
- 02. Futilitarian (03:00)
- 03. Curated Life (04:35)
- 04. Poverty Tourism (05:09)(   Читать дальше...   )Тип издания: WEB •Жанр: IDM, Ambient, Industrial, Experimental, Glitch, Downtempo •Продолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66025D5439F64953C834E954249ED999F0ABA822
 ```
 
 

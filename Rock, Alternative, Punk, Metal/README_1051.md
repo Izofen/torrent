@@ -1,3 +1,57 @@
+###  Публикация: 888649   (800870) от 16.01.2018
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) Enhanced, Remastered, Stereo /2009, Apple, Parlophone/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sgt. Pepper’s Lonely Hearts Club Band (2:03)
+02. With a Little Help From My Friends (2:44)
+03. Lucy in the Sky With Diamonds (3:28)
+04. Getting Better (2:48)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Pop RockПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F1D8CD3A9A74C4A1205668B1FE2B042351596B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506016   (800893) от 30.10.2021
+
+The Lucid Furs - Damn! That Was Easy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Garage-Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right on My Level
+02. Five Finger Disco
+03. Lying Again
+04. Pull the String(   Читать дальше...   )Жанр: Hard-Rock, Garage-Blues-RockПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B490132274FF0C947BE7216F2E50955F1F9078B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506196   (800896) от 30.10.2021
 
 Эпидемия - Призраки и тени (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -642,60 +696,6 @@ Negator - Die eisernen Verse (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751453B29D640D130AF0B5E333E58678E844D9CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120723   (801279) от 01.04.2017
-
-Hitten - State Of Shock (2016) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Side of Heaven
-02. Don't Be Late
-03. Can't Bring Me Down
-04. Victim of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C527E45B6C11D133AD6176A09E2489E8FCCD575A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120708   (801283) от 01.04.2017
-
-Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Back On The Road
-02. A Man That Got No Heart
-03. Due
-04. The Magic Lamp(   Читать дальше...   )Жанр: AORПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133AAE5C10E93A073A7C6B2F48253C418A1CAD0B
 ```
 
 

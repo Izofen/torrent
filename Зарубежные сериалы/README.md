@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820801   (80) от 29.09.2025
 
 Подноготная / The Lowdown (2025) WEB-DL [H.265/2160p] [4K, HDR10+, Dolby Vision Profile 8, 10-bit] (сезон 1, серии 1-2 из 8) HDrezka, Red Head Sound, WStudio, TVShows, LE-Production (обновляемая)

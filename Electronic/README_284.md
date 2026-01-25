@@ -1,3 +1,84 @@
+###  Публикация: 1307236   (555228) от 08.06.2019
+
+Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Post Rock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Particle X (A Sudden Memory) (01:14)
+ 02. Particle VI (Shadow & Light) (03:11)
+ 03. Particle V (02:09)
+ 04. Particle VI B (Navigators) (04:31)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Post RockПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633E6F118A3FD2BDD4D0E78B735A32322F6EFB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307242   (555239) от 08.06.2019
+
+Black Lung - The Great Manipulator (2019) Metropolis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation Of The Method (06:49)
+ 02. Roth (06:00)
+ 03. The Great Manipulator (05:51)
+ 04. The Crown Family Theme (04:51)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, ElectroПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F4763451027C29A4DF98E439FCA943C0BFE1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307227   (555251) от 08.06.2019
+
+Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Snow (05:33)
+ 02. Pendant Qu'ils Dorment (06:34)
+ 03. Ghetto Berlino (08:26)
+ 04. Lonely Walk (04:32)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39EE59F4217E16F348DE4C25457E6AAD17B94AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306131   (555331) от 07.06.2019
 
 The Chemical Brothers - No Geography (2019) Japanese Edition [MP3|320 Kbps] <Breakbeat, Big Beat>
@@ -611,87 +692,6 @@ VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D83EA3D0D4C807419991381BF3B74DAF64477947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556781   (556503) от 12.06.2022
-
-Centhron - Dystopia (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heer Der Wölfe
-02 - Sieg Oder Untergang
-03 - Ostfront
-04 - Rabenschwarz(   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F705B8E9BA12C9D91363903B0677C20DC9F534
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235862   (556608) от 14.07.2018
-
-VA - Schneeweiss 8 (Presented by Oliver Koletzki) (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Flu - Mygut (Solomun remix) [08:22]
-02. Oliver Koletzki - A Tribe Called Kotori (Koletzki's Woodfloor version) [06:55]
-03. Bloody Shelby Feat. Lazarusman - Ready [07:53]
-04. Rampa - Fluke [06:39](   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9D51D32E736DB2E6A4BD797C987B84756C1C4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045866   (556782) от 25.08.2016
-
-Dinka - Tales Of The Sun (2011) 2CD [FLAC|Lossless|tracks + .cue] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motion Picture (04:34)
-02. Superstitious (04:54)
-03. On The Beach (03:00)
-04. Campfire (04:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE862534D1B30F7DE3DB863B538CF05E4B207DB2
 ```
 
 

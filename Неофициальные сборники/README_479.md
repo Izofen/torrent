@@ -1,3 +1,30 @@
+###  Публикация: 1216075   (753056) от 29.03.2018
+
+VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR Pres.The MVI - Save Me
+02. Jenia Stan - Dimension (Original Mix)
+03. Mike Drozdov & VetLove ft. Natune - I Love You (Original Mix)
+04. Ilkan Gunuc feat. JJ - I Don't Wanna Know (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B802E22AB8A6B9C1AD8BC4FACC0C5D8FA0C4012E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216242   (753058) от 29.03.2018
 
 VA - Deep House Collection Vol.161 (2018) [MP3|287-320 Kbps] <Deep House, Club House, Tech House>
@@ -665,33 +692,6 @@ VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522860   (755313) от 09.01.2022
-
-VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый, кто задается вопросом - как можно слушать и танцевать под хардстайл, должен свыкнуться с мыслью, что ответ на него он может получить только из своего подсознания. Иными словами, никто не может сказать, как надо танцевать под эту музыку, потому что как бы вы не танцевали, всегда этот танец будет правильным, если только вы не пытаетесь тщательно себя контролировать (   Читать дальше...   )001. Sefa - The Omega
-002. Adventum - Abandoned
-003. Mg139 Aka Chemodeath - Acid Session
-004. DJ Stompy - Never Let Me Go(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, Core DanceПродолжительность: 09:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6289A3E990F23FBFC907B388DB1E872BBE5C2C
 ```
 
 

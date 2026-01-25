@@ -1,3 +1,63 @@
+###  Публикация: 975202   (973434) от 14.01.2016
+
+Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Zwischen Menschen
+02.Die Augen zu
+03.Am Meer
+04.Heimweh(   Читать дальше...   )Жанр: Industrial Metal, Gothic Metal, Dark MetalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A9DE7F646CDA01FAE249921A0720C3DC2CFBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439446   (973656) от 20.01.2012
+
+Запрещенные барабанщики + Ботаника - Лицо командира (2012) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лицо командира
+02. На Тибете
+03. Ла ла ла
+04. В середине дождя
+05. В утренем небе
+06. Елабуга
+07. Очi револьвер
+08. Вдоль по улице
+09. 7Х8=78
+10. Тихие людиЖанр: RockПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCCF4E75AF2C1464BE1244EFAA798DC045895A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616777   (973695) от 11.02.2013
 
 Eels - Wonderful, Glorious (2013) Deluxe Edition [MP3|320 кб/с]<Alternative Rock,indie Rock>
@@ -662,60 +722,6 @@ Abbath - Abbath (2016) [MP3|320 кб/с] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F037C27A15A4C2B3A25C5A91FE3CB2A3A8E0280D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616355   (975718) от 09.02.2013
-
-Арктида - Мой Друг (2012) EP [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клятва
-02. Истины свет
-03. Мой друг
-04. Дождь(   Читать дальше...   )Жанр: Power Metal |Продолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150F73AB9B974561B933F3A39697AE7856F8CBA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974161   (975745) от 12.01.2016
-
-Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angst (Pride and Fall) 05:43
-02. Archer (Sun of the Sleepless) 04:29
-03. Game Over (Germ) 06:02
-04. Warp (Encephalon) 05:12(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
 ```
 
 

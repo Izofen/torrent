@@ -1,3 +1,84 @@
+###  Публикация: 1108357   (864730) от 24.02.2017
+
+VA - Chill Out Waves Vol.2: Finest In Smooth Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864730.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roberto Sol - Slow Motion Memories 5:10
+002. Chris Le Blanc - Ahora 4:28
+003. Florito - Funny Valentine 2:33
+004. Prana Tones - Yearning For Love 6:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65CA5B0636F98BD00DD7870809D4DCB03165457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108028   (864732) от 24.02.2017
+
+VA - This Is My Church Vol.2: The Deep-House Edition (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lisa Reinhard - Take My Heart - Original Mix 3:11
+002. Mackenzie Burns - Never Be Bad - Original Mix 4:10
+003. Juicy Lotta - Get Down - Original Mix 6:49
+004. Evie Moore - Savana Life - Original Mix 3:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2E7839EC58E81BBBE6896BE433A92604E23380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108245   (864738) от 24.02.2017
+
+VA - Buddah Vol.3 The Best in Pure Chill Out Lounge Ambient (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864738.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 351 Lake Shore Drive - Butterfly 5:37
+002. Jasmon - Delight 5:01
+003. Inventors Of The Sun - Es Vedrа 5:14
+004. Velvet Dreamer - City Of Pleasures 5:19(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F412C6A72C408DD6641042C54689E1F3D53B1AFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108350   (864740) от 24.02.2017
 
 VA - Canary Islands Chillout Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76484635CE9A57CC096A0D6DBA582C4428B70F14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107622   (866478) от 23.02.2017
-
-VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Disco Gettin' Jacked (Original Mix) (6:15)
-02. Audio Jacker - It's So Funky (Original Mix) (5:07)
-03. Boogie Freaks - Bring The Old Skool Back (Original Mix) (5:04)
-04. Martello - Give It To Me (Original Mix) (7:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7A708BC3D061B160A702A71C9B2247CD5E27AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107831   (866486) от 23.02.2017
-
-VA - Smooth & Smart Vol. 1 Some Perfect Summer Relaxing Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Sol, Ines Prados - Nube De Agua (Extended Mix) (04:55)
-02. Sunyata Project - The Journey Begins (Extended Mix) (03:55)
-03. Wilton de Grey - All-Seeing Power Of The Mind (Short Mix) (04:02)
-04. Sami Sivananda - Inner Peace (04:24)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C316C3C2FC36E2C8B2546C4C025F43992729D21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107923   (866488) от 23.02.2017
-
-VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866488.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mousse T. - Summerdays - Soledrifter's In Sand Mix 6:30
-002. Hans Thalau - North Light - Nekes Remix 7:21
-003. Duererstuben - Geschlossenheit schldgt Ndhe 4:20
-004. Nico Stojan - Princess of the Night - Mira & Chris Schwarzwaelder 7:16(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E67F48B6D33F191E40D4567138A32E4DD3D61C5
 ```
 
 

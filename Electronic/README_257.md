@@ -1,3 +1,83 @@
+###  Публикация: 938171   (484052) от 17.09.2015
+
+Jedidiah - Inner Spirit (2015) [MP3|320 кб/с]<Psychill, Downtempo, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganesh Love (04:39)
+ 02. Tantrika (04:57)
+ 03. Inner Spirit (05:34)
+ 04. Deep Dream (04:09)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB74FA36B440F23832189B97C8B51A8DD7E8586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244254   (484091) от 31.08.2018
+
+Buggles - 2 Albums (1980, 1981) Reissue CD [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Buggles (The Buggles) - британская группа, дуэт, состоявший из Тревора Хорна и Джеффа Даунса. Группа наиболее известна своим дебютным синглом 1979 года «Video Killed the Radio Star» с дебютного альбома The Age of Plastic. Сингл попал на первое место в хит-парадах шестнадцати стран, а потом ещё три песни с этого альбома стали хитами в Великобритании. Кроме того, музыкальное (   Читать дальше...   )01. Living In The Plastic Age (5:13)
+02. Video Killed The Radio-Star (4:14)
+03. Kid Dynamo (3:28)
+04. I Love You (Miss Robot) (4:56)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New WaveПродолжительность: 01:22:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB15F3DE3A804FE0F06E04F64BF5ADF8AA924F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244173   (484204) от 31.08.2018
+
+VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila – Rebirth (Ahmed Romel Extended Remix)
+02. FAN FAVORITE 288: Arman Bas & Melodic Culture – De Profundis (The Sixth Sense Remix)
+03. Sandro Mireno & Aleksey Gunichev – InspirationЖанр: Trance,Uplifting TranceПродолжительность: 02:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1C8519E63CEAD9651F1496570A690DC12E4D6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244182   (484206) от 31.08.2018
 
 Sergei Vasilenko - Melodoc Trance Collection Vol. 44 (2018) [MP3|320 Kbps] <Trance>
@@ -619,87 +699,6 @@ VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED80184AAE4BFDB3AC4170FE1C3CEAC885B7A5D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566155   (486403) от 27.07.2022
-
-VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Indie Elephant -  Retro Heaven Forest  (6:26)
-02.  2JOHN'S, SevenEver -  Stop & Stay  (6:12)
-03.  magic.made.by.r -  Absurdum  (6:59)
-04.  Redspace, GarryG -  Funny Rave  (6:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep House, Indie DanceПродолжительность: 01:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65188775F66C424EAAE65480DD59E7019789E40E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319133   (486593) от 10.08.2019
-
-Erotic Massage Music Ensemble - New Age Erotic Massage (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tantric Massage (4:35)
-2.Gentle Touch (4:04)
-3.Love Bliss (4:05)
-4.Feminine Spiritual Energy (4:01)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D960B27592D17181CF37424380DE3E63A659C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318814   (486679) от 10.08.2019
-
-Remix Sport Workout - The Best Music for Workout, Training & Running 2019 (2018) [MP3|320 Kbps] <Funky, Club House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486679.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Youngblood (3:24)
-2.All I Am (4:58)
-3.Bad Girl (3:26)
-4.Be Alright (3:28)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E5ABA55A33E39CE1D4744EFEB7266EF5E1E1B4
 ```
 
 

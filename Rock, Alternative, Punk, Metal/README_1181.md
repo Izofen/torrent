@@ -1,3 +1,57 @@
+###  Публикация: 975669   (972112) от 15.01.2016
+
+Rhapsody Of Fire - Into The Legend (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Principio
+02. Distant Sky
+03. Into The Legend
+04. Winter's Rain(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662D4E51CEC2EE39DC6587D2B30D6737BF23CE25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974925   (972113) от 15.01.2016
+
+Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amsterdam (01:13)
+02. Black Widow (03:16)
+03. Makin' Babies (01:58)
+04. Stuck On You (02:31)(   Читать дальше...   )Жанр: Alternative, Britpop, Classic Indie RockПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B40DE55ABCF3D81F86D2CFB1DC9BB4E86636F2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617431   (972129) от 12.02.2013
 
 Кассиопея - 3 альбома (2009-2012) [MP3|320 кб/с]<Freak-Pop>
@@ -652,66 +706,6 @@ Gain Eleven - All In (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5007145CBB4515473FDF6C733296E9813B907B68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975202   (973434) от 14.01.2016
-
-Ewigheim - Nachruf (2013) [MP3|320 кб/с] <Industrial Metal, Gothic Metal, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Zwischen Menschen
-02.Die Augen zu
-03.Am Meer
-04.Heimweh(   Читать дальше...   )Жанр: Industrial Metal, Gothic Metal, Dark MetalПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0A9DE7F646CDA01FAE249921A0720C3DC2CFBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439446   (973656) от 20.01.2012
-
-Запрещенные барабанщики + Ботаника - Лицо командира (2012) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лицо командира
-02. На Тибете
-03. Ла ла ла
-04. В середине дождя
-05. В утренем небе
-06. Елабуга
-07. Очi револьвер
-08. Вдоль по улице
-09. 7Х8=78
-10. Тихие людиЖанр: RockПродолжительность: 00:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCCF4E75AF2C1464BE1244EFAA798DC045895A5
 ```
 
 

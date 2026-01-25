@@ -1,3 +1,84 @@
+###  Публикация: 1007180   (823633) от 14.04.2016
+
+VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conte, Ferrarese - Summer Night (Club Mix) 07:32
+02. Danny Junior Crash - Get Party On (Clevz Rmx) 06:41
+03. BO.CA.DA. - Welcome to Satrincha (Massive Bongo Mix) 05:50
+04. Kando - Dark Angel (feat. Alicia) (Radio Edit) 02:41(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAAE1183482B7E711A7D07B40B257318A6A9BA0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006969   (823641) от 14.04.2016
+
+VA - Dangerous Dance Vol.1 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Feelgood - Put It On 05:44
+02. Rochelle Vincente von K - One Starry Night (Animalist Remix) 07:58
+03. Bonetti - Gangsta Boom 05:35
+04. Carsten Rausch - Shokran 08:58(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6203CAC67D53AEC658D09406F0051C411ACBF6DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007100   (823645) от 14.04.2016
+
+VA - Progressive Line Vol.3 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aer0 - Born Again 02:55
+02. Alexey M - Awakening of the Night 05:32
+03. Andrey Meduer - Funny! 06:42
+04. Anna Tarraste - Rain Drops 07:05(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7B45AA7C497ACC884DD6F8A70E7B83C8971803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007007   (823646) от 14.04.2016
 
 VA - Progressive Line (2016) [MP3|320 кб/с] <House>
@@ -613,87 +694,6 @@ VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46248163ED85F5065631139D6898EC599B7C0B58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006737   (825586) от 13.04.2016
-
-VA - Miami House Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Groove - Cherokee 06:02
-02. Marcel Scott - Strike On 04:08
-03. Carl Shawn - Voices 05:45
-04. Leventina - Paramount (Radio Mix) 03:02(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F54C240620F16F8BBCFB18B98A88BCF93F46F8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381570   (826030) от 07.05.2020
-
-VA - Black Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loretta Heywood - Butterfly (Original Mix) 04:43
-02. Michael E - For Laurant (Original Mix) 04:37
-03. Roberto Sol - Can Not Forget You 04:28
-04. Anthony Island - Promets (Original Mix) 03:24(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC9CAC30B4B0BED186346B2AA4F34E8C45C9CDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381468   (826238) от 07.05.2020
-
-VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flor De Lis, Shoree, Gabrielle Chiararo - Close to You
-02. Raquel Silva Joly - Dindi
-03. The Soul Crusaders - When the Night Falls
-04. Chillson, Marc Hartman - Dancing Seahorses (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10B75721100A3ED8F8D1895DCE8188E54D70A91
 ```
 
 

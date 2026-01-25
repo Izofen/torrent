@@ -1,3 +1,57 @@
+###  Публикация: 1362212   (951147) от 22.02.2020
+
+Enuff Z'Nuff - Strength (1991) [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Or Hell [03:45]
+02. Missing You [05:10]
+03. Strength [05:02]
+04. In Crowd [03:08](   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9721F672E0AA098D94085134CFBDC86506AE7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362097   (951159) от 22.02.2020
+
+Indica - A Way Away (2010) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Islands of Light (03:02)
+02.Precious Dark (03:50)
+03.Children of Frost (05:21)
+04.Lilja's Lament (05:54)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA904FA015C61DBDB08FF6325CC850E98CAD3D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362107   (951179) от 22.02.2020
 
 Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -656,60 +710,6 @@ Mystic Braves - Days of Yesteryear (2015) [FLAC|Lossless|WEB-DL|tracks] <60's Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3BDDC18CFF0142553A36EDF7CF50D408FCE4C33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981129   (953047) от 31.01.2016
-
-TNT - A Farewell To Arms (2011) [MP3|201~295 кб/с (V0) ] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engine 04:38
-02. Refugee 04:21
-03. Ship In the Night 04:02
-04. Take It Like a Man - Woman! 03:03(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7701ADBC6C9AA1110988260BD9A119A1944624
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981297   (953061) от 31.01.2016
-
-Viikate - XII - Kouvostomolli (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Rautalanka>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elämä on katiska (3:22)
-02. Mantelinmakuinen (3:50)
-03. Rottinki (4:58)
-04. Puolikulkijat (3:58)(   Читать дальше...   )Жанр: Hard Rock, RautalankaПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F8E96759798B5F2F80D405537E14B28AB7D4AD
 ```
 
 

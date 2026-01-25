@@ -1,3 +1,84 @@
+###  Публикация: 925547   (539007) от 07.08.2015
+
+Dynatron - Escape Velocity (2012) [MP3|320 кб/с]<80s, dreamwave, electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Space Operators (04:35)
+2. Fireburner (03:57)
+3. Propulsion Overdrive (05:15)
+4. Aurora Nights (08:24)(   Читать дальше...   )Жанр: 80s, dreamwave, electronicПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB1C0273A505924CA67A2BF1BBA68D4525F724D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557465   (539071) от 16.06.2022
+
+3Force - Crossfire (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crossfire (00:04:10)
+02 - Pursuit (00:05:02)
+03 - Oversoul (00:04:56)
+04 - Olympus (00:04:36)(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4826A2F5A67F2A4967FB4C12B6B9BFD8B00D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925483   (539112) от 07.08.2015
+
+Droid Bishop - Beyond The Blue (2014) [MP3|320 кб/с]<Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanisher( 03:56)
+02. Out Of My Mind (Ft. Sam Sparro) (04:33)
+03. Beyond The Blue (04:51)
+04. Letter To Earth (01:01)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0701B1C52677B473F081A1736DBE001CE76D538D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154587   (539166) от 31.07.2017
 
 VA - 10 Years Of Universe Media (2017) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
@@ -613,87 +694,6 @@ VA - 50 Chillout Luxury (Deluxe Lounge Experience) (2018) [MP3|320 Kbps] <Balear
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F9A3F2429553561DD12CB557161CA42EEA38C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239112   (542436) от 03.08.2018
-
-VA - Kontor Top Of The Clubs 2018.03 (2018) [MP3|320 Kbps] <House, Tech House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Profesor - Bella Ciao (HUGEL Remix) 2:45
-02. Loud Luxury feat. Brando - Body (PBH & Jack Shizzle Extended Remix) 4:57
-03. VIZE - Glad You Came 3:18
-04. Lost Frequencies feat. James Blunt - Melody (Ofenbach Extended Remix) 3:36(   Читать дальше...   )Жанр: House, Tech House, Club House, ProgressiveПродолжительность: 08:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63F1CCD10C7569073DA02231E1FF6153BB33BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238923   (542437) от 03.08.2018
-
-Nickolay Fedorenko - Magic Universe (2015) [FLAC|Lossless|image + .cue] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starlit Skies
-02. Liftoff
-03. Magic Universe
-04. Space Falcon(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7E69388DD46101D096997DD1A6947BDBF8C598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239034   (542515) от 03.08.2018
-
-Ryuichi Sakamoto - Async (2017) Milan [FLAC|Lossless|tracks+.cue] <Abstract, Ambient, Experimental, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andata (04:39)
- 02. Disintegration (05:46)
- 03. Solari (03:52)
- 04. Zure (05:12)(   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Modern ClassicalПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53D42632BFB3620FF62B1B4A7DA68423889598F
 ```
 
 

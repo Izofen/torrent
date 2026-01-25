@@ -1,3 +1,30 @@
+###  Публикация: 1027718   (694700) от 20.06.2016
+
+VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
+002. Era Istrefi - Bonbon
+003. Gestort aber GeiL & Two Magics - Glucklich wie die Kinder
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 10:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63F0D3EFDD671A76B8FAF4128F1E8B208FC15EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 333200   (694715) от 07.05.2011
 
 VA - Весенний фестиваль хитов 50/50 (2011) [MP3|128 kbps]<Pop>
@@ -663,33 +690,6 @@ VA - Рок в Авто  Зарубежный - Collection  (2012-2017) [MP3|192
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF898E99029C70709E41FB1748C3BDA6CBABAA6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027243   (696529) от 19.06.2016
-
-VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrique Iglesias - Mmacita
-02. Christina Milan - When You Look At Me
-03. Chris De Burgh - Snow Is Falling
-04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
 ```
 
 

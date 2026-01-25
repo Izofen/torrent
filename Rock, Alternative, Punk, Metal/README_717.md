@@ -1,3 +1,68 @@
+###  Публикация: 551023   (449938) от 25.09.2012
+
+The xx - Coexist (Japanese Version) (2012) [MP3|320 кб/с]<Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Angels
+2.Chained
+3.Fiction
+4.Try
+5.Reunion
+6.Sunset
+7.Missing
+8.Tides
+9.Unfold
+10.Swept Away(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 242451   (449954) от 06.10.2010
+
+The Beatles - Complete Christmas Collection [Bootleg] (1994) [MP3|192 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449954.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:49] 01.  - Christmas Time is Here Again (outtake 1967)
+[05:05] 02.  - The Beatles Christmas Record (1963
+[04:07] 03.  - Another Beatles Christmas Record (1964)
+[06:26] 04.  - The Beatles Third Christmas Record (1965)
+[06:42] 05.  - The Beatles Fourth Christmas Record (1966)
+[06:14] 06.  - Christmas Time is Here Again (1967)
+[07:56] 07.  - The Beatles 1968 Christmas Record (1968)
+[07:45] 08.  - The Beatles Seventh Christmas Record (1969)
+[04:40] 09.  - Christmas Message (1964)Жанр: Rock and RollПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163499   (450099) от 05.09.2017
 
 Ронин - Опора (2017) EP [MP3|320 Kbps] <Rock>
@@ -640,60 +705,6 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF364C6AC16D9AF9A11C4B0F3BE7F74161412250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943127   (451181) от 02.10.2015
-
-VA - 100 Hits: Rock (2007) 5CD Box Set [FLAC|track+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия 100 Hits широко известна в музыкальном мире, да и на трекере представлена достаточно полно (см. ссылку в конце поста). Но вот рок-направление упущено и сегодня восполняем этот пробел пятидисковым бокссетом. Я долго терзался сомнениями: выкладывать диск или нет - уж больно плохо поработали с ним звукоинженеры. Но потом всё же решил выложить, а там пусть каждый (   Читать дальше...   )CD1:
-01. T. Rex - Children Of The Revolution  (2:30)
-02. Zz Top - Tush  (2:17)
-03. Santana - She's Not There  (4:03)(   Читать дальше...   )Продолжительность: 06:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2A6FB05D408A798680CE2B7B114C42F4F9508E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247729   (451210) от 16.09.2018
-
-Per Gessle - Small Town Talk (2018) BMG [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's A Place (3:19)
- 02. The Finest Prize (feat. Helena Josefsson) (4:11)
- 03. Small Town Talk (feat. Nick Lowe) (3:40)
- 04. Simple Sound (3:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1067970723E6155D0D1D196BAF1C260621703ACA
 ```
 
 

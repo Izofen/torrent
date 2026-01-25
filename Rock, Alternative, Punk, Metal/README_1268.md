@@ -1,3 +1,57 @@
+###  Публикация: 1618651   (1033671) от 13.03.2023
+
+Sixteen - Dangerous (2023) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart (04:32)
+02. R U Ready (05:42)
+03. Love Me (04:36)
+04. I Am Alone (07:19)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6467318C33047B53B37BA7B0739088F1FC63C439
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618625   (1033672) от 13.03.2023
+
+Wig Wam - Out Of The Dark (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Dark (4:28)
+02. High And Dry (3:34)
+03. Forevermore (4:56)
+04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2CB3446E23FE3ACC978F44A4DFB4A2C287EE6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618684   (1033676) от 13.03.2023
 
 H. Hawkline - Milk For Flowers (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Rock, Alternative Rock>
@@ -638,60 +692,6 @@ Induction - Born from Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4792128BD35AFCC9D6E8728ACFD1A7CD97D4842C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444915   (1034082) от 03.02.2021
-
-VA - Soft Rock Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - Waiting for a Girl Like You
-02. Rod Stewart - Tonight's the Night (Gonna Be Alright)
-03. Orleans - Dance with Me
-04. Todd Rundgren - Hello It's Me (Single Version)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658D88963DE274AC7C706CCCD1CD2E286A2B0EEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618201   (1034128) от 11.03.2023
-
-кис-кис - ламповый альбом (acoustic) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. трахаюсь (acoustic) [00:02:44]
-02. мальчик (acoustic) [00:02:25]
-03. лбтд (acoustic) [00:02:15]
-04. качели (acoustic) [00:02:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C587E30A6E0A703DF670B15D75C61B93E2CE31C
 ```
 
 

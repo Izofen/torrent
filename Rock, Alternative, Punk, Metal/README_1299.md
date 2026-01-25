@@ -1,3 +1,57 @@
+###  Публикация: 1607464   (1044068) от 26.01.2023
+
+Skrizhali - В холодном свете (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Быть твоей болью
+2. Истекло навсегда
+3. Супер-герой
+4. Зови когда ты ослабеешь (Гитарная версия)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D917E7437579BA808A50DD4991C2672C727C5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607168   (1044069) от 26.01.2023
+
+Остров Пасхи - Лифты и лестницы (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Северо-юг [00:05:06]
+02 - Рукавицы [00:04:04]
+03 - Кот Шредингера [00:06:02]
+04 - Лифты и лестницы [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744822AB1A590501CA897795B8AFF836DB97910E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607193   (1044070) от 26.01.2023
 
 Aikko - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative, Rock>
@@ -643,60 +697,6 @@ Skald - Huldufolk (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic, Medieval, Nordic F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78CEA7BDD9E2A74BB55D811791D941A299859D01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606922   (1044249) от 24.01.2023
-
-Lord Gravehill - Majesty Archives I: The Natural Architect And Crown Of Scorpio (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Natural Architect MMXXIII [00:07:36]
-02. Nothingness Fornevermore [00:08:00]
-03. Upon the Blood Red [00:04:13]
-04. Blessed Aloof [00:07:46](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917421A6CB64B27518E796222108ABBBDB3CA43F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606960   (1044256) от 24.01.2023
-
-Toxicon - Be The Fire & Wish For The Wind (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (dis)connect
-02. Parallelysis
-03. Fear Itself
-04. Deletist(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B6094FFAB214C25F740707EB8E4F56B90445B2
 ```
 
 

@@ -1,3 +1,64 @@
+###  Публикация: 517573   (648023) от 01.07.2012
+
+The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough Cool and Here to Mosh 00:40
+02. Ice Road Trucker Vs the Sun 03:45
+03. Don't Step Back 03:04
+04. Beyond the Purple Pipes 03:43
+05. Green Machine Laser Beam 03:36
+06. Sergeant P of the 23 00:18
+07. We Are the Pit Police 03:37
+08. Wake Me Up for Lunch 03:57
+09. Honor to Whom, Honor Is Due 04:12
+10. Captain Quick and the Pirates 04:07(   Читать дальше...   )Жанр: Melodic Death Metal/Thrash MetalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799319   (648072) от 25.06.2014
+
+VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Metal, Album Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648072.jpg" />
+</div>
+
+
+###  Подробнее
+
+По количеству любителей тяжелой музыки наш клуб, наверное мог бы выставить большую команду на чемпионат мира по тяжелой атлетике.
+Я себя к таковым (любителям) не отношу. Но увидев этот сборник в очередной зарубежной командировке не мог пройти мимо. Здесь много известных имен, но я бы обратил Ваше внимание на не представленные на трекере, но очень интересные группы: (   Читать дальше...   )01. Alice Cooper - Poison  (4:32)
+02. Judas Priest - Living After Midnight  (3:31)
+03. Scorpions - The Cross  (4:30)
+04. Joe Satriani - Satch Boogie  (3:14)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Album Rock, Arena RockПродолжительность: 04:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F8D4EDE8E99D81AC71F0C12202CA31A3142756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141424   (648368) от 11.06.2017
 
 Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic Hardcore>
@@ -645,60 +706,6 @@ Wolf - Shadowland (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAB7299FCE37F3392AF7887702F73FC045A8971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540837   (648764) от 01.04.2022
-
-Satan - Earth Infernal (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascendancy (5:04)
-02. Burning Portrait (5:51)
-03. Twelve Infernal Lords (5:16)
-04. Mercury's Shadow (2:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7502B94B659A400F925BBDE01E6CC01683EE32A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541003   (648777) от 01.04.2022
-
-Colonel Petrov's Good Judgement - Hypomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hypomaniac (00:03:48)
-02 - Black Swan (00:06:51)
-03 - Mating Season (00:04:48)
-04 - Pendulum (00:05:31)(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69D02A6CFE0FE1729FD12E73EF7CBBB2204251D
 ```
 
 

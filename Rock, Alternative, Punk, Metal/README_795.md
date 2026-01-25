@@ -1,3 +1,57 @@
+###  Публикация: 1557790   (535708) от 18.06.2022
+
+Grey Daze - The Phoenix (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturation (Strange Love) (3:55)
+02. Starting To Fly (3:28)
+03. Be Your Man (3:40)
+04. Holding You (4:15)(   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C920946C04331559407C035F03D76DF0FEE6A9F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557795   (535826) от 18.06.2022
+
+The Waterboys - An Appointment with Mr Yeats (2011) Remaster, 2022, Cooking Vinyl Limited [FLAC 2.0|44/24|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hosting of the Shee (2022 Remaster) (4:42)
+02. Song of Wandering Aengus (2022 Remaster) (6:00)
+03. News for the Delphic Oracle (2022 Remaster) (4:32)
+04. A Full Moon in March (2022 Remaster) (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B17C454A15710A45E981F3D106AA903516D1C2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557843   (535828) от 18.06.2022
 
 Collective Soul - Disciplined Breakdown (1997) Remaster, 2022, Craft Recordings [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
@@ -637,59 +691,6 @@ Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A54894356532467DD93A167CC614C64656D4094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050451   (536747) от 09.09.2016
-
-Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dim Are The Pathways (Instrumental)
-02. The Faint Pulse Of Light
-03. Mind Mutation
-04. Built On Sand(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154838   (536894) от 01.08.2017
-
-Бездна Анального Угнетения - Всё Превратится в Металл (2017) EP [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я Ненавижу Питер
-02. Всё Превратится в Металл
-03. Кожаная ПуляЖанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
 ```
 
 

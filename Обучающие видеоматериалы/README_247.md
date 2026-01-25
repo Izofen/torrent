@@ -1,3 +1,28 @@
+###  Публикация: 992456   (898652) от 03.03.2016
+
+Udemy | Ultimate AngularJS: Build a Real-World App from Scratch (2016) [EN] [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Build a Single Page App with AngularJS, Angular Material, UI Router, and Firebase. Includes Angular 2 preview!
+This course will show you--from start to finish--how to build a real-life application with AngularJS. Angular is awesome, but it can be tricky to learn, especially if you are newer to web development. This is especially true if you're trying to figure out (   Читать дальше...   )Жанр: AngularJS, JavaScriptПродолжительность: 05:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB4E40A379DEA36DC818FAAD063115D83D94412
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992296   (898654) от 03.03.2016
 
 Andy Anderson | Adobe Photoshop CC Tutorials for Beginners (2014) PCRec [H.264] [EN]
@@ -630,30 +655,6 @@ cmiVFX, Alvaro Segura | Houdini Debris Systems (2012) PCRec [En, Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24B5D7D7C6C9F0F87A854FC58C012DF58D493EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492528   (902351) от 30.08.2021
-
-cmiVFX, Shivani Sondhi | Houdini Cloth Techniques (2013) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902351.jpg" />
-</div>
-
-
-###  Подробнее
-
-cmiVFX представляют новый мастер-класс от Шивани Сонди по работе с Houdini Cloth. Она начнет с основ и шаг за шагом подробно рассмотрит каждый инструмент работы с тканью в Houdini. Это будет долгая глава, которая, тем не менее, позволит новичкам относительно быстро понять схему работы с cloth-динамикой. После рассмотрения основ, Шивани перейдет к более продвинутым (   Читать дальше...   )Производство: cmiVFXЖанр: Создание видеоЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF52F87587D5DEB852B91BF05EBEFF9F5FEAC523
 ```
 
 

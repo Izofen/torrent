@@ -1,3 +1,84 @@
+###  Публикация: 1234324   (572961) от 04.07.2018
+
+VA - Progressive Summer Session (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sannny - Ghost Ship (Original Mix)
+02. 2D Project - Euphoria (Original Mix)
+03. DJ Grand Defence - Impulse (Original Mix)
+04. ADVANIKA - Insomnia (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC3B5B451CFC54944BB11E95CF6584595594B6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303364   (573122) от 21.05.2019
+
+VA - Nothing But... Soulful House Flavours, Vol. 14 (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Jansen – Nothing Is Wrong (5:10)
+02. Jampa – Fly Wood (Extended Mix) (6:56)
+03. Raw Dixon – Better Days (5:31)
+04. Josephine Sweett & Ondagroove – Music & LifeЖанр: HouseПродолжительность: 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F948E5EA161F84DC6CEF58A6B1D39A7465B3AE10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043468   (573157) от 16.08.2016
+
+VA - Sapporossive (2016) [MP3|320 Kbps] <House, Progressive, Melodic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shin Itagaki - Emishi (Original Mix] 06:11
+02. Tomoyuki Sakakida - After That (Suizin Remix] 07:08
+03. Suizin - Tannewensir (Original Mix] 06:57
+04. Izu - Moiwa (Original Mix] 05:17(   Читать дальше...   )Жанр: House, Progressive, MelodicПродолжительность: 02:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31EDEB481485B9225C26EB9CE399930B60F80C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921392   (573431) от 26.07.2015
 
 The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [FLAC|tracks+.cue]<Electronic, Breakbeat>
@@ -618,87 +699,6 @@ VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233936   (576026) от 02.07.2018
-
-VA - The Best Of Critical Overload 001 (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Drop The Pain - Side Effects (Original Mix)
-02.Sam Laxton - Antithesis (Original Mix)
-03.Ra Djan - Ra Maayan (Effective Remix)
-04.Ido Shoam - Feeling Lucky (Altered State Remix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 03:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F74EB028788F8DB846C9A7C0D68C5A8CD36D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233794   (576226) от 02.07.2018
-
-Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Love (4:50)
-02. The Danger (3:40)
-03. Summer Long Gone (4:17)
-04. The Rhythm of Love (3:40)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Synth-popПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A8D54F4CA0E5E9AF33D5625C6B2FD41B41B8B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303151   (576329) от 19.05.2019
-
-Mark Sherry - Confirm Humanity (2019) [FLAC|Lossless|WEB-DL|tracks] <Tech Trance, Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Sherry & Mallorca Lee – The End Is The Beginning (04:52)
-02. Mark Sherry & Joey V – Chopperchunk 2.0 (03:50)
-03. Mark Sherry – I'm Not A Robot (05:18)
-04. Mark Sherry & Tempo Giusto – Celestial Body (04:51)(   Читать дальше...   )Жанр: Tech Trance, Trance, Uplifting TranceПродолжительность: 01:24:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8C613C38C959FF180F645442A25B8E7976BB3A1
 ```
 
 

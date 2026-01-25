@@ -1,3 +1,57 @@
+###  Публикация: 1139847   (658212) от 04.06.2017
+
+The Mudcats - Shake It Up (2017) [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Told You Before (02:03)
+02. The Crawl (02:41)
+03. Diddy Wah Diddy (02:12)
+04. The Key (03:31)(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD01211A1C79CB6758447B5C1E9E593350319BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139920   (658214) от 04.06.2017
+
+Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658214.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wait (3:33)
+2. Tongue-Tied (3:46)
+3. Fall Apart (4:31)
+4. Someone (3:45)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139696   (658216) от 04.06.2017
 
 Smith - A Group Called Smith (1969) Reissue, 1994, Varèse Sarabande[MP3|320 Kbps] <Rock, Psychedelic Rock, Pop Rock>
@@ -646,66 +700,6 @@ Almach - Dream Elegy (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F541D8F7B8DA4B180AFC616A12A5A4631F1E5012
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514440   (659274) от 23.06.2012
-
-Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T.L.C.
-2. Beat The Heat
-3. Mio, My Mio
-4. Ghost Town
-5. I Am The Universe
-6. Shiffin' On The Snakes
-7. I'm A Bitch When I See Red
-8. There's No Way To Fool A Heart
-9. Wild About That Girl
-10. Nearly There1987Жанр: Rock, Pop-RockПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CF0C9F38634FE2DB573B78B36D08697C278B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903024   (659304) от 30.05.2015
-
-Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outcry (03:55)
-02. Playing a Role (04:42)
-03. Only a Pawn (In His Game) (04:28)
-04. Long Gone (05:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE284052FF337547CE13980EE578D83A2BD83AA
 ```
 
 

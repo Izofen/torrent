@@ -1,3 +1,57 @@
+###  Публикация: 1212638   (775812) от 12.03.2018
+
+СМЕТАНА band - Вилка новости 18 (2018) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лучший друг
+2. Олех
+3. Мы не подружимся
+4. Ля-Ля(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB53D898D1FAFB43FADAD337BC6CE12187CF64FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212412   (775813) от 12.03.2018
+
+Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind The Eyelids (6:18)
+02. Lucid Dream IV (4:33)
+03. 02 Panic Room (Remix) (3:24)
+04. Rainbow Trip (O2 Panic Room Single) (6:13)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 05:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49463F37CAD195D3BA93D365FC6C95A52CCA607
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212470   (775825) от 12.03.2018
 
 Elvenstorm - Blood Leads To Glory (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -635,60 +689,6 @@ Motorhead - Tear Ya Down: The Rarities (2002) 2CD [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15533317799E8783493569E5D3D405063B4131F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212011   (776538) от 10.03.2018
-
-Tribulation - Down Below (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lament
-02. Nightbound
-03. Lady Death
-04. Subterranea(   Читать дальше...   )Жанр: Progressive Death Metal, Black MetalПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6186729887ED250E8DC5B64BFEB4C4AE914F20F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212010   (776540) от 10.03.2018
-
-Necrophobic - Mark of the Necrogram (2018) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark of the Necrogram
-02. Odium Caecum
-03. Tsar Bomba
-04. Lamashtu(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BEC3466746EDA60EDD9E41E4FD117DFADCC7A39
 ```
 
 

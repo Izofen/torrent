@@ -1,3 +1,84 @@
+###  Публикация: 1208695   (779524) от 25.02.2018
+
+VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Attila Syah pres. Gamma feat. Cari  -  Every Goodbye (Original Mix)  4:31
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Three Faces feat. Christian Zechner  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2024338DE8D81F407F6B7EAEED5820D9F90FD303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208647   (779525) от 25.02.2018
+
+VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate - Folded Wings 3:02
+02. Craig Connelly Feat. Kate Miles - Lost Without You 3:57
+03. Tiesto Feat. Christian Burns - In The Dark (First State Remix) 3:47
+04. Ferry Corsten - Wherever You Are 2:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEB9CF2B7C7F96A86B96FD6B900ADD24C21C5D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209013   (779533) от 25.02.2018
+
+VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
+02.  Liam Wilson  -  Always With Me (Edit)  5:37
+03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
+04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209114   (779535) от 25.02.2018
 
 VA - Zirkus Zirkus, Vol. 18 | Elektronische Tanzmusik (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
@@ -614,87 +695,6 @@ Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207705   (780302) от 20.02.2018
-
-VA - Fresh Squeezed Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mephia  -  Sequoia Symposium (Original Mix)  3:37
-02.  Oscar Stringz  -  Diversity (Original Mix)  6:46
-03.  Neber Sover  -  Bossa River (Original Mix)  4:40
-04.  Dusty Deckk  -  Mathematics (Original Mix)  5:22(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2671C1E1E3749948710C3FD975063174F0936F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207718   (780303) от 20.02.2018
-
-Manuel Rocca - The Soul Healer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heat Of Love (feat. Charmy) (Original Mix)  7:30
-02.  Favourite Photograph (feat. Emily Richards) (Original Mix)  7:45
-03.  Caribe (Original Mix)  7:28
-04.  Brisa Del Sur (Original Mix)  7:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3612F44700FA0370A039DC99230E265152A0CE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207809   (780304) от 20.02.2018
-
-VA - Nothing But... Essential House Music Vol.01 (2018) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jennifer Marley  -  Hoppin Poppin 2.0 (Original Mix)  7:25
-02.  Gonlez  -  Mellow (Original Mix)  8:12
-03.  Vrekte Natnek  -  Dtroit (Original Mix)  6:19
-04.  Restless And Volatile  -  So Good (Original Mix)  4:31(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF3FC60BF429AFC3AEE5BD36731CE7227139159
 ```
 
 

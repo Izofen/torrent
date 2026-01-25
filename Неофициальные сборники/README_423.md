@@ -1,3 +1,36 @@
+###  Публикация: 508742   (677467) от 11.06.2012
+
+VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677467.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Fisun - I remember syndicate
+002. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Club Mix)
+003. Radio Killer - Calling You (Extended Mix)
+004. Mexx feat. Вика Гранд - White Night (Russian Vocal Version)
+005. Chris Parker - Rock'n'Roll Revolution
+006. Мальчишник - Секс без перерыва (DJ Vengerov Remix)
+007. Aura Dione - Geronimo (The Disco Boys Remix Edit)
+008. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
+009. Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
+010. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 06:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290046   (678210) от 20.03.2019
 
 VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
@@ -669,33 +702,6 @@ VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848E4CC3B141E6FF8E47B64D52DF8452F9A0E64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029681   (678603) от 28.06.2016
-
-Dj DAN62 - Унц Унц Микс Июнь Часть 2 (2016) [MP3|320 Kbps] <Dance Pop, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Guetta feat. Zara Larsson - This One's For You (Stefan Dabruck Remix)
-2. Calvin Harris feat. Rihanna - This Is What You Came For (R3hab & Henry Fong Remix)
-3. F&M Project vs. Iuri DJ feat. Cristina - The Moon (Club Version)
-4. Simone Pacella – Mister Deejay (Extended Mix)(   Читать дальше...   )Жанр: Dance Pop, Electro HouseПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B737F086CAA051539CBE02269A8C5511C526F6A0
 ```
 
 

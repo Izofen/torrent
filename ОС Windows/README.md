@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820723   (144) от 29.09.2025
 
 Microsoft Windows 11 [10.0.26200.6584], Version 25H2 (Updated September 2025) - Оригинальные образы от Microsoft OEM/VLSC [Uk]

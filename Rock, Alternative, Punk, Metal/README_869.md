@@ -1,3 +1,57 @@
+###  Публикация: 1296197   (613305) от 16.04.2019
+
+Nirvana - Live At The Paramount 1991 (2019) [MP3|320 Kbps] <Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Doesn’t Want Me For A Sunbeam 03:29
+02. Aneurysm 04:49
+03. Drain You 03:46
+04. School 02:51(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67A9E3C8857AE8446FCC9672669976D3D36B134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296305   (613308) от 16.04.2019
+
+Pink Floyd - The Division Bell (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cluster One (5:57)
+02. What Do You Want From Me (4:24)
+03. Poles Apart (7:02)
+04. Marooned (5:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05225DF79EE422DB793F460A5396F85D2F99BC77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524519   (613335) от 18.07.2012
 
 Bluesville Station - Step On The Gas (2012) [MP3|320 кб/с]<Blues-Rock>
@@ -653,60 +707,6 @@ magnet:?xt=urn:btih:16134B705262B675050417958CB520AE54E24D1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911885   (614490) от 24.06.2015
-
-Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After the Afterglow
-02. Atomic Doves
-03. The Other Side
-04. Nor'easter(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73D9AC75AB61F5393E46C9093C0F3C5FA6D83C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685185   (614529) от 31.07.2013
-
-Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снежные Волки (2:26)
-02. Ариандна (4:50)
-03. Невеста (5:08)
-04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
 ```
 
 

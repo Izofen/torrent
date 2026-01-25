@@ -1,3 +1,57 @@
+###  Публикация: 1845228   (1050611) от 30.12.2025
+
+Free Warren - These 4 Walls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Broken Dreams (5:39)
+02.  These 4 Walls (5:43)
+03.  The Devil's Playground (8:02)
+04.  Psycho (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9A3C118A89E9771495EB92F2CED8ED1D2D70CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845223   (1050613) от 30.12.2025
+
+Danko Jones - Leo Rising (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  What You Need (3:35)
+02.  Danko Jones feat. Marty Friedman - Diamond In The Rough (feat. Marty Friedman) (3:36)
+03.  Everyday Is Saturday Night (3:27)
+04.  I Love It LouderЖанр: Hard RockПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19BD4E90A5AE8F01837301E1336F8F3681A5AE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845221   (1050614) от 30.12.2025
 
 Blue Madness - Blue Madness (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -513,7 +567,7 @@ magnet:?xt=urn:btih:73BBEA0CA6DBA55D6E164C21AF01131D677ACE3F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846168   (1051145) от 
+###  Публикация: 1846168   (1051145) от 05.01.2026
 
 One Of Nine - Dawn Of The Iron Shadow (2025) [FLAC|Lossless|image + .cue] <Black Metal>
 
@@ -540,7 +594,7 @@ magnet:?xt=urn:btih:AD8F1FEF9FD36E9144531FA072C3264607E99424
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846113   (1051178) от 
+###  Публикация: 1846113   (1051178) от 05.01.2026
 
 Ансамбль Христа Спасителя и Мать Сыра Земля (АХСиМСЗ) - Задорные танцы в намордниках (2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Disco>
 
@@ -567,7 +621,7 @@ magnet:?xt=urn:btih:A46DF5893FD266AB41992FE84AB610E7C62A81D9
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846109   (1051179) от 
+###  Публикация: 1846109   (1051179) от 05.01.2026
 
 Ансамбль Христа Спасителя и Мать Сыра Земля (АХСиМСЗ) - Жернова Катаморфоза (2025) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk>
 
@@ -594,7 +648,7 @@ magnet:?xt=urn:btih:C629B19CB5481FC4B165EDEBE5F1E8BFFF9C64C8
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846125   (1051186) от 
+###  Публикация: 1846125   (1051186) от 05.01.2026
 
 Leprous - Pitfalls (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Prog Rock, Experimental>
 
@@ -621,7 +675,7 @@ magnet:?xt=urn:btih:41FB6E2A35C0B14E8A6672D4E394F36F5834662A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846116   (1051243) от 
+###  Публикация: 1846116   (1051243) от 06.01.2026
 
 Оркестр - Hui na vse (2006) [MP3|320 Kbps] <Punk Rock>
 
@@ -643,60 +697,6 @@ magnet:?xt=urn:btih:41FB6E2A35C0B14E8A6672D4E394F36F5834662A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A020CC52E5CC844ADCB66E3B487D95F025514E9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846243   (1051248) от 
-
-Harlan Cage - The Best Of Harlan Cage (2004) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Arena rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mama Said
-02. Two Ships in the Night
-03. No Sunday Bride
-04. Can't Tame the Raven(   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0625D8C5539CF34C1BD168B74CC01F49CD1B4603
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846693   (1051373) от 
-
-Venger - Times of Legend (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Worlds Unknown(4:24)
-02. Pharaoh's Curse(4:57)
-03. Navigate the Labyrinth(4:22)
-04. Crystal Gazer(4:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C52FEE9BDC34E2339837CC6B52B9FD2D7C73400
 ```
 
 

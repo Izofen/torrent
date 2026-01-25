@@ -1,3 +1,57 @@
+###  Публикация: 1294229   (631702) от 06.04.2019
+
+Tommy James & The Shondells - Hanky Panky & It's Only Love (1994) [WavPack|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hanky Panky 1966 1 album
+01. Hanky Panky [0:02:55.65]
+02. I'll Go Crazy [0:02:17.42]
+03. I'm So Proud [0:03:23.65](   Читать дальше...   )Жанр: RockПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E370ED593DEEF9B9920CC2CFE15B1B6A3FC83EC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144049   (631793) от 20.06.2017
+
+Richard Hell & The Voidoids - Blank Generation (1977) Reissue, 1990, Sire, Warner Bros. Records [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Comes In Spurts
+02. Liars Beware
+03. New Pleasure
+04. Betrayal Takes Two(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E948A4B85FF514411D5693181FC951A257F7BB9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144039   (631794) от 20.06.2017
 
 Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
@@ -641,60 +695,6 @@ The Pop Group - Citizen Zombie (2015) Deluxe Edition [MP3|320 кб/с]<Post-Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEC0180D3A8F79587DFAEC0B75FE96F08C5CCF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908762   (632491) от 15.06.2015
-
-Immension - In Vain (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632491.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Vain
-2. The Fantasy
-3. All That Remains
-4. Lost & Forgotten(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617792990E9A72DD38239CB152BC9803F34C6C84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908654   (632492) от 15.06.2015
-
-Embersland - Dark Ages (2015) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (Part II) (09:17)
-02. Closer (04:26)
-03. Hope (05:10)
-04. WTF…Fuck Off! (04:04)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB774B6B0BDFEF0624F6FC5624583D9FFB035551
 ```
 
 

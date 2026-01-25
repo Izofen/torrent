@@ -1,3 +1,84 @@
+###  Публикация: 1475102   (1012568) от 05.06.2021
+
+Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakodate (Denis Laurent Remix) (Mixed) (6:15)
+ 02. Tribute, Chapter II (Terry Da Libra Remix) (Mixed) (5:46)
+ 03. Hakodate (Digital Sixable Remix) (Mixed) (5:38)
+ 04. Move On (ft. Kazusa) (Matao Remix) (Mixed) (6:13)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01EF5A938F17DAF35D1415D0D506D36BB6FDD07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188616   (1012665) от 04.06.2021
+
+] interstice [ - Discography 4 Releases (2014-2021) Innovative Sonic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existentia (08:39)
+ 02. Against The Tide (06:35)
+ 03. Convalescence (03:05)
+ 04. Lethe (09:45)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/Industrial/Electro/AmbientПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085BF518954B0E3DBA818C05D22F0C9F3743089F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333362   (1012668) от 04.06.2021
+
+Saphileaum - Collection 16 Releases (2016-2021) Controlled Violence, Norite, Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saphileaum - Blue Statue (06:33)
+ 02. Saphileaum - Subtropical (06:38)
+ 03. Sinnertia - Convulse (06:08)
+ 04. Sinnertia - Erosion Surface (06:41)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Techno, Tribal •Продолжительность: 10:24:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C9E344634DE391266AA9C311D3B2829C176BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374968   (1012889) от 03.06.2021
 
 Fugenn & The White Elephants - Discography 22 Releases (2011-2021) Progressive Form [FLAC|Lossless|tracks+.cue, tracks] <IDM, Glitch, Downtempo, Ambient, Breaks>
@@ -614,87 +695,6 @@ VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470655   (1015635) от 17.05.2021
-
-Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Midnight Hour (Zero O Clock Remastered Mix)
-02. Sleep on the Beach (The Bossa Cut)
-03. I Am Calling You (Dial My Number Mix)
-04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470249   (1015733) от 16.05.2021
-
-Solarstone - Electronic Architecture 4 (2021) [FLAC|Lossless|tracks] <Dance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Super-Frog Saves Tokyo - Lament (Mixed) 3:10
-2. Nick Silvestri - Little Things (Mixed) 4:49
-3. Vincent Lewis - Pulse Train (Mixed) 6:56
-4. Xabiso - Children of the Night (Reconstruction) (Mixed) 5:51(   Читать дальше...   )Жанр: Dance, Progressive TranceПродолжительность: 2:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D878D623D20E7F214FAA5D374CF53C43CDAEDAED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470029   (1015793) от 16.05.2021
-
-Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Era de la Bestia [00:04:02]
-02 - Legion [00:03:54]
-03 - No Memories [00:03:46]
-04 - Hope [00:04:29](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
 ```
 
 

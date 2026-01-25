@@ -1,3 +1,30 @@
+###  Публикация: 1222706   (683023) от 30.04.2018
+
+VA - Melodic Techno Tom VI [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Melodic Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Davis - Jima (Solee Remix) [08:47]
+02. Miyagi - Fade Away [07:13]
+03. Supacooks - Aftermath [06:07]
+04. Luttrell - Generate [08:29](   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92EB6F63ABEEE37053E4AB83B2EA9D41982B4462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135233   (683050) от 18.05.2017
 
 VA - The House Meloman Collection (2017) [MP3|320 Kbps] <House, Progressive, Future House>
@@ -683,33 +710,6 @@ magnet:?xt=urn:btih:B25CD02834E2A406A1D10C3B7C4775BC3FE67FED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE8CC548211EC19A91119C004352AAE8B8289DCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222531   (684439) от 29.04.2018
-
-VA - Лучший Клубный Хит (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & Glowinthedark - Clap Your Hands (Original Mix)
-02. George Kwali & Kideko - All On Me
-03. Lucas & Steve - Make It Right (Extended Mix)
-04. Exodus & Kapkano - Let's Get Weird (Original Mix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 02:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA2ABD48BD3682365AF952FB8146433B74C1F02
 ```
 
 

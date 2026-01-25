@@ -1,3 +1,57 @@
+###  Публикация: 980050   (956291) от 29.01.2016
+
+Вorknаgаr - Winter Thriсe (2016) Limited Edition [FLAC|Lossless|image +.cue] <Progressive Viking, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rhymes of the Mountain
+02. Winter Thrice
+03. Cold Runs the River
+04. Panorama(   Читать дальше...   )Жанр: Progressive Viking, Folk MetalПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41927DDA659A986C85E243FFC80E3364C0DF406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980152   (956391) от 29.01.2016
+
+Disquiet - The Condemnation (2016) [MP3|320 кб/с] <MDM, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascending
+02. The Condemnation
+03. Fist Of Persistence
+04. Born To Dissent(   Читать дальше...   )Жанр: MDM, Thrash MetalПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2359C57F923DC400028254B828E8D9BC6C4000F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980209   (956392) от 29.01.2016
 
 Memorain - Duality of Man (2016) [MP3|320 кб/с] <Thrash Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:727E1139D078A745EA84DBB66EAFB3D2AC867224
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 784737   (959334) от 16.02.2020
-
-Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Success [03:20]
-02. Modern Day God [03:59]
-03. Heaven's Door [03:02]
-04. Agoraphobia [04:37](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D252A59BFF516525CE08205C8583DB4A6710F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089738   (959393) от 16.02.2020
-
-Inevitable End - The Oculus (2011) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Us, Parasites  (02:36)
-02. Escaping The Black Hole  (02:28)
-03. Zen  (01:50)
-04. Dogmaties Paralies (02:39)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EFCC879384862A9A62BB7FD8F72B3C386D7B9A
 ```
 
 

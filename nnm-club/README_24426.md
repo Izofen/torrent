@@ -1,246 +1,150 @@
-###  Публикация: 1349683   (1004221) от 02.01.2020
+###  Публикация: 605421   (995901) от 19.01.2013
 
-Дэвид Брукс | Общественное животное. Тайные источники любви, характера и успеха (2013) [FB2]
+VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004221.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из главных научно-популярных бестселлеров последнего времени, книга о том, как наши инстинкты и эмоции формируют наш характер и, в конце концов, определяют всю нашу жизнь – и личную, и общественную. Но одновременно это и увлекательный семейный роман, написанная с большим юмором история двух наших современников – их любви, их карьеры, взросления, странствия по (   Читать дальше...   )Жанр: Прикладная психология, СаморазвитиеФормат: FB2
+01. Jacintha - The Look of Love  [04:10]
+02. Jacintha - California Dreaming  [05:42]
+03. Lauren White - Blue Bayou  [05:46]
+04. Eden Atwood - Meditation  [05:48]
+05. Jacintha - So Danco Samba  [03:14]
+06. Jim Brock - O Vazio  [06:57]
+07. Jacintha - Manha De Carnival  [06:12]
+08. Bernstein - Gabriela Lena Frank : The Mestizo Waitz  [03:13]
+09. Lauren White - Superstar  [04:32]
+10. Jacintha - Que Sera Sera  [05:12](   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:12:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A91293D4FCCC3CB1771093673661ABAC8E063EC
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349556   (1004222) от 02.01.2020
+###  Публикация: 604958   (995904) от 19.01.2013
 
-Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
+Фотография - Фотограф Ирина Жиркова
 
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004222.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Euphoria (6:42)
-2.Trust (6:03)
-3.Sacred Fire (5:25)
-4.Always On My Mind (3:56)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 01:10:41
+Фотография - Фотограф Ирина ЖирковаРазрешение файлов: ~  500x750 ~ 800x800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEDB0B0BB6E81114AE1B69432F3C2A8D254C03C1
+magnet:?xt=urn:btih:0D7E8375BF643A2F1DE8C8DC06C07D34DEDA1C99
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349548   (1004223) от 02.01.2020
+###  Публикация: 603689   (995905) от 19.01.2013
 
-Инна Метельская-Шереметьева | Чего хотят мужчины? Кулинарная и не только энциклопедия идеальной жены (2019) [EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая книга известного блогера и кулинара Инны Метельской-Шереметьевой представляет собой не просто сборник проверенных домашних рецептов вкуснейших блюд, но и является своеобразным "пособием" для женщин любого возраста по тому, как наладить и улучшить свою семейную жизнь. С юмором и в живой, открытой манере автор книги дает ненавязчивые советы о "приручении" (   Читать дальше...   )Жанр: КулинарияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22722D183A65B19B1EA64115BDACCAE436853C48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349744   (1004224) от 02.01.2020
-
-Labyrinths of the World 11: The Wild Side (2020) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фантастической серии игр Labyrinths of the World. Сестра Маргарет подарила вам на День рождения часы и туристическую поездку в Индию. Путешествие началось весьма неожиданно. Обезьянка-хулиганка, стащившая ваши новые часы, вдруг открыла портал в параллельный мир - мир, где власть принадлежит животным: слонам, пантерам, обезьянам. И... началось ваше фантастическое (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B5E260CA638DEA37917378F4045DE8986FFF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349314   (1004225) от 02.01.2020
-
-Shinnobu - The Enigma III (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etheric Worlds III (4:57)
-02. Warriors of Light (5:31)
-03. Mirages (feat. Angelux Ruddy) (5:28)
-04. Enigma from Man (feat. Angelux Ruddy) (8:13)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2DD8F2B531D81D51F8898845B5FF9C612D243A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349650   (1004226) от 02.01.2020
-
-Mark Knopfler - More BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .cue] <Rock, Folk, Country>
+Whispers In The Shadow - The Rites Of Passage (2012) [MP3|320 кб/с]<Gothic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004226.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dixie Flyer (ft. Randy Newman)
-02. Roll with Punches (ft. Randy Newman)
-03. You Better Move On (ft. Randy Newman)
-04. Blue Monday (ft. Dave Bartholomew)(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:18:24
+1 (path 29)
+2 The Rites Of Passage
+3 Words Made Flesh
+4 Call To Arms
+5 Back To The Wound
+6 The Tempest
+7 Reinvention
+8 Wormwood Star
+9 Transmutation Babalon
+10 Secret Of Silence(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:49:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:054C02C5F8CA409E60B32D47EF82557AB2F65316
+magnet:?xt=urn:btih:CD4BF6238317D7C5F52B9BBD419C518327B19FBA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349672   (1004227) от 02.01.2020
+###  Публикация: 605287   (995910) от 19.01.2013
 
-Рем Ворд | Страны Мира. История почти всего (2019) [FB2]
+Armin van Buuren - A State of Trance Episode 596 (17-01-2013) [MP3|256 кб/с]<Trance>
 
->>Научная и техническая литература
->>Историческая литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004227.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совершим путешествие по странам Мира, разберемся в их социальной системе, ментальности, посмотрим на флаги и денежные купюры, прочтем гимн. На этой основе сотворим свою неповторимую историю.Жанр: История, ПублицистикаФормат: FB2
+01. Andy Moor & Betsie Larkin - Love Again (Andrew Rayel Remix) (Ava)
+ 02. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (Infra Progressive)
+ 03. Audien - Warfayer (Anjunabeats)
+ 04. Vadim Spark - Lost Angeles (Club Mix) (Vendace)
+ 05. Kyau & Albert - All Your Colours (Euphonic)
+ 06. Steve Brian & Cressida - Casablanca (Tool Trance)
+ 07. Eximinds - Revolved (Anjunabeats)
+ 08. Antillas & Dankann - Synapse (Soundpiercing)
+ 09. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Lange Remix) (High Contrast)
+ 10. Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Original Mix)Жанр: TranceПродолжительность: 01:57:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57BAC7C9D0DEACF9B2F8F430F57353B471D350FB
+magnet:?xt=urn:btih:8B757B2FF87A07BD8489944223D2BDD74745B56C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349523   (1004228) от 02.01.2020
+###  Публикация: 605022   (995912) от 19.01.2013
 
-Unix исполнилось 50 лет. Что это значит?
+Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Industrial Metal | Electronic | Rapcore | Female Vocal>
 
->>Компьютеры и комплектующие
->>Компьютерные новости
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004228.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995912.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2020 год знаменателен для Unix: в самом начале года оригинальной операционной системе исполнилось 50 лет. Время Unix, известное также как «даты эпохи», — это количество секунд, прошедших с 1 января 1970 года. Но что же беспокоит разработчиков ядра в связи с полувековым юбилеем Unix?Хотя некоторые из ранних разработок Unix предшествуют официальному началу его «эпохи», (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348794   (1004229) от 02.01.2020
-
-VA - Ibiza Day & Night (2010 - 2012) 6 CD [FLAC|Lossless|tracks + .cue]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musikk VS. Chiris Montana - Summer Lovin' ( Acapella )
-02. Martin Villeneuve - Come On Over ( Up Jeet Remix )
-03. Rio Dela Duna & Dani Cohiba - El Cubano ( Martin Villeneuve Remix )
-04. Do Santos - Noti Verisi(   Читать дальше...   )Жанр: EurodanceПродолжительность: 02:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486522   (1004230) от 02.08.2021
-
-Круиз по джунглям / Jungle Cruise (2021) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США, 7 Bucks Productions, Davis Entertainment, Flynn Picture Company, TSG Entertainment, Walt Disney Pictures, Zaftig FilmsЖанр: Приключения, Комедия, ФэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 02:06:08Реклама: Присутствует баннер
+<<<
+----------------------------------------------------------------------------
+01. The Big Sleep
+02. White Knuckle Mountains
+03. New Recruit
+04. Dusk Becomes A Dawn
+05. Dead End Lane
+06. We Must Start Again
+07. Nautifungus
+08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
 
 ## Скачать торент
 ```bash
@@ -250,45 +154,602 @@ magnet:?xt=urn:btih:91AB6704CF234239FE618AFEB5F1CDA26429AEE2
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486439   (1004231) от 02.08.2021
+###  Публикация: 605163   (995914) от 19.01.2013
 
-Форсаж 9 / F9 (2021) WEB-DL [H.264/1080p] [DVO]
+Eddie Baytos & The Nervis Bros. - Take Some Mambo Time (1991) [FLAC|Lossless]<Blues-Zydeco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Suspicion
+ 02. Painted Dream
+ 03. Don't Beat Yourself Up
+ 04. Come Together
+ 05. Do Sumpin'
+ 06. Lonely Man
+ 07. Post Man
+ 08. I Ain't Drunk
+ 09. Take Some Mambo Time
+ 10. Loiusanne(   Читать дальше...   )Жанр: Blues-ZydecoПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605434   (995918) от 19.01.2013
+
+Профессия  репортер. Из логова зверя (2013.01.19) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995918.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Он плакал и просил о помощи. Ему поверили и вышли на улицы. И только он знал, что Ирина никогда не вернется. О чем молчал Алексей Кабанов? Кто помогал ему, а кто не поверил? Что станет с детьми убийцы?
+Эксклюзивные кадры из логова зверя и хронология преступления — в специальном выпуске программы «Профессия — Репортер».Жанр: ДокументальныйПродолжительность: ~ 00:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B43CDE3F5E7ABA21169971C00BEFE661E41417
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605008   (995919) от 19.01.2013
+
+VA - Deep House Masters (2013) [MP3|320 кб/с]<Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Marchisio and Keshia - I Don't No (Retro Lounge Mix)
+02. Pedro Costa - By Your Side (Chris Rubz Remix)
+03. DL3R - Sarasvati
+04. Hector Moran - Ying Feng
+05. Mark Faderfaz - Take Me to the Rhythm
+06. Sandro Peres feat. Raphael - Music Is My Life (Soul Mix)
+07. Funk Force - Walking Dance
+08. Atomic Electrolab - Me and You
+09. Pedro Costa - Indian Flute
+10. Jeancarlo Santin - AmelieЖанр: Deep HouseПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615686AAE837CAB7333910DBFDB8787E8AE06591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605273   (995921) от 19.01.2013
+
+VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Lift Off (Original Mix)
+ 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
+ 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
+ 04. Emma Hewitt - Rewind (Mikkas Remix)
+ 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
+ 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
+ 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
+ 08. Heatbeat - Chow Mein (Noah Neiman Remix)
+ 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
+ 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605174   (995922) от 19.01.2013
+
+Elliott and the Untouchables - Danger Zone (1997) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Little Woman
+ 02. Ain't No Big Thing
+ 03. More Than That
+ 04. Empty Heart
+ 05. Where Were You
+ 06. Check Out Time
+ 07. Crazy 'Bout You
+ 08. Why Baby Why
+ 09.  J.T.'s Groove
+ 10. Danger Zone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605156   (995924) от 19.01.2013
+
+Eddie and Vaan Shaw - Naked (2009) [FLAC|Lossless]<Blues,Acoustic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And My Boy
+02. Lick Skillet
+03. Greedy Man
+04. Voices Crying
+05. Mississippi Sax
+06. Greenville Bound
+07. My Friend Roscoe
+08. Black Eyed Peas
+09. Pickin' Cotton
+10. Motel 6(   Читать дальше...   )Жанр: Blues, AcousticПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605200   (995925) от 19.01.2013
+
+Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love  [03:14]
+02. It Had To Be You  [03:58]
+03. Quando Quando Quando  [04:31]
+04. How High The Moon  [02:51]
+05. Someone To Watch Over Me  [04:16]
+06. I've Got You Under My Skin  [04:04]
+07. Body And Soul  [04:30]
+08. A Time For Love  [04:05]
+09. I Could Have Danced All Night  [03:32]
+10. If Ever I Would Leave You  [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605529   (995926) от 19.01.2013
+
+[Wallpapers] vodopad
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены фотографии водопадов разных стран.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605309   (995927) от 19.01.2013
+
+Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lange - Hold That Sucker Down (Intro Mix)
+ 02. Ferry Corsten - Kudawudashuda
+ 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
+ 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
+ 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
+ 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
+ 07. SkyKeeper - Tornado 2013 (Reload Mix)
+ 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605155   (995933) от 19.01.2013
+
+Angellore - Errances (2012) [MP3|192 кб/с]<Atmospheric Doom Metal/Gothiс Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dans Les Vallсes Eternelles (8:23)
+02. Tears Of Snow (8:23)
+03. I Am The Agony (6:49)
+04. Weeping Ghost (4:30)
+05. Errance (2:14)
+06. ...Where Roses Never Die... (7:30)
+07. Shades Of Sorrow (8:28)Жанр: Atmospheric Doom Metal/Gothiс MetalПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F0DAE61DB25548CFF170A182A89680C63548D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605303   (995934) от 19.01.2013
+
+Psychic - 1 album, 1 single (2012-2013) Discography [MP3|192-320 кб/с]<Progressive Metal, Djent>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Metal, DjentПродолжительность: 00:42:23
+1. Samara´s Dream 05:27
+2. Paranormal Cats 04:05
+3. Compression of Damage Melusine 404 05:58
+4. Octopussy 04:33
+5. Sky Trajection 04:51
+6. Heretic Error of Magnetic Forces 05:50
+7. Dolly in the Christmas Blood 04:32
+8. Wicker 03:58
+9. Katy Perry - I Kissed a Girl (Psychic REMIX) 03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B485C7B363190BB7B94631EEAC64ECF70BCB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605124   (995940) от 19.01.2013
+
+Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till  [03:28]
+02. Night And Day  [03:29]
+03. As Time Goes By  [02:57]
+04. Tea For Two  [03:12]
+05. For Sentimental Reason  [04:02]
+06. Stranger In Paradise  [04:25]
+07. Where Or When  [03:45]
+08. I Get A Kick Out Of You  [03:46]
+09. Dream  [02:32]
+10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605299   (995941) от 19.01.2013
+
+Ronski Speed - True to Trance (January 2013) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - WKND
+ 02. Eleven.Five - The Way We Were (Toby Hedges Remix)
+ 03. ID - ID
+ 04. Dennis Sheperd feat. Molly Bancroft - Silence (Steve Brian Remix)
+ 05. ID - ID
+ 06. Christian Burns, Paul Oakenfold & JES - As We Collide (Orjan Nilsen Remix)
+ 07. ID - ID
+ 08. Andain - What It's Like (Sneijder Remix)
+ 09. Aly & Fila vs. John O'Callaghan - VapourizeЖанр: TranceПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC70743D1C5A6A9CDE94FE63ED8B6CDFCF37D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605408   (995947) от 19.01.2013
+
+Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Atmospheric Doom MetalПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605186   (995948) от 19.01.2013
+
+Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 кб/с]<Industrial Doom Metal/Experemental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necessary (13:26)
+02. 24 Hours (6:21)
+03. A Quickie (Screw Rave) (3:06)
+04. A Foreplay (Screw Seduction) (1:59)
+05. A Screw (5:28)
+06. Zaraza (16:23)
+07. Slavic BlasphemyЖанр: Industrial Doom Metal/Experemental MetalПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603187   (995951) от 19.01.2013
+
+VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deepshakerz - Silbidos 013 (07:52)
+02. Deniz Koyu - Hydra (07:05)
+03. Dabruck - I Found Love (Feat. Ollie James) (07:42)
+04. Jean Elan - What It Takes - Club Edit (03:16)
+05. DBN - Inside Out (06:15)
+06. DJ Shevtsov - Moscow Girls (Feat. Mic E.P.) - Sean Finn Dub Mix (06:30)
+07. Syke'N'Sugarstarr - So Alive - Tito & Slider Dub (06:34)
+08. Cosmic Funk - I'll Never Stop (Feat. Max'C) - Ian Osborn & Nicolas Francoual Remix (06:57)
+09. Kaelig - Bring Back (Feat. Jayhem) - Yves Murasca & Ezzy Safaris NeXu5 Big Room Edit (04:02)
+10. Tom Geiss - No More Tomorrows (Feat. Max C) - Alex Shaje & Luciano Vargas Remix (06:51)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB18251CF19BEA0361426C7F888F2F1A6B5B91E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605105   (995954) от 19.01.2013
+
+Quo Vadis - 2 альбома (2000 - 2010) [WavPack|Lossless]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caducus [05:58]
+02. Blood For Oil [04:37]
+03. Bomba And Fire [05:42]
+04. Blach Horizons [03:54]
+05. Chaos [06:55]
+06. Dreams [03:37]
+07. Cross Of Gold [05:13]
+08. East Vs West [04:25]
+09. Nimue [05:55]
+10. Evil Dad [03:00](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605061   (995957) от 19.01.2013
+
+The Symbioz - 1 альбом + 1 EP (2011-2012) [FLAC|Lossless] <Hardcore / Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hardcore / Metal |Продолжительность: 00:10:18
+
+01 | Без права на майбутнє | 01:11
+02 | Шлях поневірянь | 03:09
+03 | Мовчання | 03:22
+04 | Світ щасливих людей | 02:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600977   (995959) от 18.01.2013
+
+Дмитрий Петров | Полиглот. Французский с нуля за 16 часов! (01-08 из 16 уроков) [2013] SATRip (Обновляемая)
+
+>>След.
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интеллектуальное реалити-шоу "Полиглот. Французский с нуля за 16 часов!" - продолжение проекта телеканала "Россия К" по изучению иностранных языков. В роли преподавателя вновь выступает Дмитрий Петров - настоящий полиглот, в активе которого более 30 языков.
+После курсов английского и итальянского, Дмитрий Петров приглашает телезрителей в мир французского языка. Неизменными остаются главные принципы обучения: нарастающая мотивация - каждый день эффект очевиден; язык - это не только слова, не только грамматическая структура, но и система образов, эмоций и ощущений - их-то и надо развивать; комбинаторика - каждая новая группа слов дает на порядок больше комбинаций.
+Курс состоит из 16 уроков. В группе студентов вновь 8 человек.Жанр: Иностранные языкиПродолжительность: ~ 06:00:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603162   (995960) от 18.01.2013
+
+Марьина роща [1-16 серия из 16] (2012) SATRip
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004231.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доминик Торетто ведет спокойную жизнь вместе с Летти и сыном Брайаном, но новая опасность всегда где-то рядом. В этот раз Доминику придется встретиться с призраками прошлого, если он хочет спасти самых близких. Команда снова собирается вместе, чтобы предотвратить дерзкий план по захвату мира, который придумал самый опасный преступник и безбашенный водитель из всех, (   Читать дальше...   )Производство: США, Таиланд, Канада / One Race Films, Original Film, Perfect Storm Entertainment, Roth/Kirschenbaum Films, Universal PicturesЖанр: Боевик, триллер, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Хелен Миррен, Шарлиз Терон, Майкл РукерПеревод: Двухголосый закадровыйСубтитры: русские (форс., полные), английские (полные)Продолжительность: 02:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C379EFEA247678B9854227976EAEF44CC2D04C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477103   (1004232) от 02.08.2021
-
-Почему женщины убивают / Why Women Kill (2021) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-10 из 10) LostFilm, Jaskier, TVShows
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал расскажет о трёх женщинах, каждая из которых сталкивается с изменой в браке: о домохозяйке 60-х, светской львице 80-х и адвокате из наших дней.Производство: США / CBS Television Studios, Imagine EntertainmentЖанр: драма, комедия, криминалРежиссер: Дэвид Уоррен, Дэвид Гроссман, Марк УэббАктеры: Люси Лью, Джек Девенпорт, Эллисон Толман, Джиннифер Гудвин, Лана Паррия, Кирби Хауэлл-Баптист, В.К. Кэннон, Александра Даддарио, Джордана Кристи, Сэм ДжагерПеревод: Многоголосый профессиональный (LostFilm, Jaskier, TVShows)Язык озвучки: русский, английскийСубтитры: английские (Full)Продолжительность: ~00:50:00 серия
+Легендарная Марьина роща - один из районов Москвы, который на протяжении нескольких десятилетий становился приютом для тех, кто не в ладу с законом - спекулянтов, мошенников и воришек. Здесь всегда можно было приобрести поддельные документы, фальшивые ассигнации или сбыть краденое. Но в 40-х годах разгул бандитизма здесь приобретает невиданный размах. Расцвет "воровских малин" и притонов, дерзкие налеты, грабежи и убийства – явления, с которыми милиция была не в силах справиться.Жанр: Драма, Детектив, ИсторияРежиссер: Александр ХванАктеры: Александр Домогаров, Евгения Крюкова, Виталий Кудрявцев, Сергей Комаров (II), Савва Гусев, Елена Доронина (IV), Яна Львова, Наталья Литвинова, Виктор Тереля, Дмитрий Смирнов (V), Артем Лысков, Виталий Горшков, Виктор Маркин (II), Олег Алмазов, Сергей Потапов (II), Юрий Шлыков, Борис Романов, Константин Желдин, Петр Зайченко, Ольга Науменко, Татьяна Мухина (III), Егор Баринов, Людмила Давыдова (II), Ирина Гордина, Полина Лунегова, Татьяна Чернопятова, Алексей Михайлов (II), Ксения Баринова, Игорь Филиппов, Дмитрий Гусев, Евгений Харланов, Михаил Горский, Анастасия Платонова, Сергей Дьячков, Константин Глушков, Михаил Солодко, Максим Макаров, Игорь Огурцов, Сергей Василюк, Анна Гуляренко, Георгий Пицхелаури, Павел Абраменков, Артем Кобзев, Андрей Лукьянов, Наталья Паламожных, Андрей Тартаков, Артем Хван, Сергей Неробеев, Вадим Померанцев, Павел Крайнов, Марина Блейк, Станислав Житарев, Сергей Неудачин, Сергей Тезов, Любовь Фирсова, Георгий Панагопулос, Андрей Сорока, Сергей Кагаков, Андрей Арзяев, Степан Куликов, (   Читать дальше...   )Перевод: Не требуется (Русский)Продолжительность: 16 х ~ 00:43:57 серия
 
 ## Скачать торент
 ```bash
@@ -298,340 +759,30 @@ magnet:?xt=urn:btih:B3C379EFEA247678B9854227976EAEF44CC2D04C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464397   (1004233) от 02.08.2021
+###  Публикация: 605039   (995961) от 18.01.2013
 
-IT DarkMaycal Sysadmins | Построение сетей CISCO с нуля. Часть 2 (Модуль 1-4) (2018) PCRec
+Nik Software Color Efex Pro 4.005 [Eng]
 
->>
->>
+>>След.
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004233.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Нашей задачей является на глубоком уровне ознакомить Вас с самим сетевым оборудованием Cisco, методологией построения, управления, администрирования и защиты локальных вычислительных сетей крупных компаний.Жанр: CISCO, системная администрацияПродолжительность: 37:00:00
+Color Efex Pro™  — большой набор фотографических фильтров для Adobe Photoshop, которые предназначены для улучшения ваших цифровых фотографий. В состав пакета входит большое количество фильтра и  различных эффектов. Они помогают выполнить цветокоррекцию, ретуширование и многие другие операции. Интерфейс пакета выполнен в стиле плагина DigitalFilmTools с возможностью увеличения размера окна и просмотром изображений до и после применения выбранных фильтров и эффектов.
+Возможности плагина:
+● 52 фильтра и 250 различных эффектов для улучшения фотографий
+● Уникальная технология U Point позволяющая гибко корректировать отдельные участки изображения
+● Новые фильтры: Film Grain, Film Effect, Glamour Glow, Selective Contrast, High Key, Low Key, Polaroid Transfer, Cross Balance
+● Инструмент выделения (Selective tool), позволяющий применять эффект только к выделенной области изображенияНазвание программы: Color Efex Pro  4Релиз состоялся: октябрь 2012Тип издания: Mac OS X softwareЯзык интерфейса: Eng
 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138729   (1004234) от 02.08.2021
-
-Десантура. Никто, кроме нас (2009) DVDRip [8 серий из 8]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абхазия, Таджикистан, Чечня — наши герои там, где другим не пройти. Война подступила к самым границам России. Бывшие республики Союза охвачены огнем. Но есть десантные войска — и нет задач невыполнимых. Сильнее личных невзгод и надвигающегося распада их воля к победе.Производство: РоссияЖанр: боевик, военныйРежиссер: Олег Базилов, Виталий ВоробьевАктеры: Кирилл Плетнёв, Егор Бероев, Никита Емшанов, Анна Снаткина, Екатерина ФедуловаПродолжительность: 8 x ~00:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410462   (1004235) от 02.08.2021
-
-Александр Кронос | «Эйгор» [7 книг] (2020-2021) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: «Эйгор». книги 1-7.
-
-Громадная империя, раздираемая заговорами и испещрённая железными дорогами. Маги, состоящие на службе государства, но скрывающие свои секреты от всех, включая императора. Соседи, жаждущие оторвать кусок земли.
-(   Читать дальше...   )Жанр: Боевая фантастика, Стимпанк, Попаданцы в магические мирыФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486880   (1004236) от 02.08.2021
-
-Почему женщины убивают / Why Women Kill (2019-2021) WEB-DLRip (сезон 1-2, серии 1-20 из 20) Novamedia
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал расскажет о трёх женщинах, каждая из которых сталкивается с изменой в браке: о домохозяйке 60-х, светской львице 80-х и адвокате из наших дней.Производство: США / CBS Television Studios, Imagine EntertainmentЖанр: драма, комедия, криминалРежиссер: Дэвид Уоррен, Дэвид Гроссман, Марк УэббАктеры: Люси Лью, Джек Девенпорт, Эллисон Толман, Джиннифер Гудвин, Лана Паррия, Кирби Хауэлл-Баптист, В.К. Кэннон, Александра Даддарио, Джордана Кристи, Сэм ДжагерПеревод: Многоголосый профессиональный (Novamedia)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486876   (1004237) от 02.08.2021
-
-Почему женщины убивают / Why Women Kill (2019-2021) WEB-DLRip (сезон 1-2, серии 1-20 из 20) LostFilm
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал расскажет о трёх женщинах, каждая из которых сталкивается с изменой в браке: о домохозяйке 60-х, светской львице 80-х и адвокате из наших дней.Производство: США / CBS Television Studios, Imagine EntertainmentЖанр: драма, комедия, криминалРежиссер: Дэвид Уоррен, Дэвид Гроссман, Марк УэббАктеры: Люси Лью, Джек Девенпорт, Эллисон Толман, Джиннифер Гудвин, Лана Паррия, Кирби Хауэлл-Баптист, В.К. Кэннон, Александра Даддарио, Джордана Кристи, Сэм ДжагерПеревод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259276   (1004238) от 02.08.2021
-
-Суперсемейка 2 / Incredibles 2 (2018) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004238.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий первой части суперсемейка пользуется повышенным вниманием со стороны журналистов. Неожиданно оказалось, что обаятельная Миссис Исключительная гораздо лучше смотрится на экране телевизора, чем её муж. Мистеру Исключительному все чаще приходится сидеть дома и приглядывать за детьми, у каждого из которых есть свои причины быть недовольным собственными (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, фантастика, боевик, комедия, приключения, семейныйРежиссер: Брэд БердАктеры: Крэйг Т. Нельсон, Холли Хантер, Сара Вауэлл, Хак Милнер, Кэтрин Кинер, Илай Фучиле, Боб Оденкёрк, Сэмюэл Л. Джексон, Майкл Бёрд, София БушПеревод: Дублированный (iTunes)Субтитры: Русские (Full-length, SDH, Forced), Украинские (Forced), АнглийскиеПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16F37E5506274F93380B4956E9A05BC4CD91FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486815   (1004239) от 02.08.2021
-
-Круиз по джунглям / Jungle Cruise (2021) WEB-DL [H.265/2160p] [4K, HDR10, 10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США / Davis Entertainment, Flynn Picture Company, Seven Bucks ProductionsЖанр: приключения, комедия, фэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: Любительский двухголосый (Pazl Voice)Язык озвучки: русский, английскийСубтитры: английские (full)Продолжительность: 02:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2FDCE13610A5F8FD12048401B4687BF5DBAE2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486862   (1004240) от 02.08.2021
-
-Ложь или действие (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек вместе с женой приезжает на дачу, с которой несколько дней назад пропал его отец. Но настоящая его цель — не поиски, а попытка понять, изменяет ли ему жена. Ситуация совсем осложняется, когда он встречает там загадочную 17-летнюю девушку.Производство: РоссияЖанр: драмаРежиссер: Алексей КамынинАктеры: Кирилл Ковбас, Мария Милешкина, Анастасия Куимова, Николай Ковбас, Игорь Фурманюк, Вячеслав ГуливицкийПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA28187ED3695E7A36F2BF7A55C5A8EF9328449A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486799   (1004241) от 02.08.2021
-
-Телохранитель жены киллера / Hitman's Wife's Bodyguard (2021) WEB-DL [H.264/1080p-LQ] [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь здорово потрепала нервишки Майкла Брайса, так что с карьерой телохранителя он решил завязать. Психотерапевт посоветовал ему отправиться на тихий курорт, вооружившись лишь книжкой и плейлистом расслабляющей музыки. Но и здесь его находит самая безумная в мире парочка: киллер мирового уровня и настоящий магнит неприятностей Дариус Кинкейд и его супруга Соня — (   Читать дальше...   )Производство: Великобритания, США / Above the Line Set Assistance & Security, Campbell Grobman Films, Millennium Media, Summit EntertainmentЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Сальма Хайек, Морган Фриман, Гари Олдман, Фрэнк Грилло, Антонио Бандерас, Том Хоппер, Ричард Э. Грант, Кэролайн ГудоллПеревод: Дублированный (Line), любительский двухголосый (Pazl Voice)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Английские (SDH)Продолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA2E1FFC752D9F9733DFBDF44CA851B8B2A3BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486816   (1004242) от 02.08.2021
-
-Телохранитель жены киллера / Hitman's Wife's Bodyguard (2021) WEB-DLRip [Line]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь здорово потрепала нервишки Майкла Брайса, так что с карьерой телохранителя он решил завязать. Психотерапевт посоветовал ему отправиться на тихий курорт, вооружившись лишь книжкой и плейлистом расслабляющей музыки. Но и здесь его находит самая безумная в мире парочка: киллер мирового уровня и настоящий магнит неприятностей Дариус Кинкейд и его супруга Соня — (   Читать дальше...   )Производство: Великобритания, США / Above the Line Set Assistance & Security, Campbell Grobman Films, Millennium Media, Summit EntertainmentЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Сальма Хайек, Морган Фриман, Гари Олдман, Фрэнк Грилло, Антонио Бандерас, Том Хоппер, Ричард Э. Грант, Кэролайн ГудоллПеревод: Дублированный (Line)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full) - отдельно, Английские (SDH) - отдельноПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01803DB18D66E00A90A2C7D527FCAFFCD60E2EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486810   (1004243) от 02.08.2021
-
-Телохранитель жены киллера / Hitman's Wife's Bodyguard (2021) WEB-DLRip [H.264] [Line]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь здорово потрепала нервишки Майкла Брайса, так что с карьерой телохранителя он решил завязать. Психотерапевт посоветовал ему отправиться на тихий курорт, вооружившись лишь книжкой и плейлистом расслабляющей музыки. Но и здесь его находит самая безумная в мире парочка: киллер мирового уровня и настоящий магнит неприятностей Дариус Кинкейд и его супруга Соня — (   Читать дальше...   )Производство: Великобритания, США / Above the Line Set Assistance & Security, Campbell Grobman Films, Millennium Media, Summit EntertainmentЖанр: Боевик, комедияРежиссер: Патрик ХьюзАктеры: Райан Рейнольдс, Сэмюэл Л. Джексон, Сальма Хайек, Морган Фриман, Гари Олдман, Фрэнк Грилло, Антонио Бандерас, Том Хоппер, Ричард Э. Грант, Кэролайн ГудоллПеревод: Дублированный (Line)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, full), Английские (SDH)Продолжительность: 01:56:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486856   (1004244) от 02.08.2021
-
-Круиз по джунглям / Jungle Cruise (2021) WEB-DLRip [H.264] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважная исследовательница дикой природы Лили Хоутон намерена отправиться в верховья Амазонки, чтобы найти легендарное дерево, которое – согласно преданиям южноамериканских индейских племен – обладает магическими целебными свойствами. Сопровождать Лили будут её утонченный брат Макгрегор и бесшабашный капитан круизного пароходика Фрэнк. В дебрях джунглей путников (   Читать дальше...   )Производство: США / 7 Bucks Productions, Davis Entertainment, Flynn Picture Company, TSG Entertainment, Walt Disney Pictures, Zaftig FilmsЖанр: Приключения, комедия, фэнтезиРежиссер: Жауме Кольет-СерраАктеры: Дуэйн Джонсон, Эмили Блант, Эдгар Рамирес, Джек Уайтхолл, Джесси Племонс, Пол Джаматти, Вероника Фалькон, Энди Найман, Филипп Максимилиан, Дэни РовираПеревод: Любительский двухголосый (Pazl Voice) Tnx.KinoPubЯзык озвучки: РусскийСубтитры: Английские (forced, full, SDH)Продолжительность: 02:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252D832A349EA1075FD88F76A2BD84345FCE7575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486958   (1004245) от 02.08.2021
-
-Бродяга Кэнсин: Начало / Ruroni Kenshin: Saishusho 2 (2021) WEBRip [H.264/1080p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004245.jpg" />
-</div>
-
-
-###  Подробнее
-
-События разворачиваются в 1878 году в эпоху Мэйдзи в Японии. В центре сюжета — история бродяги по имени Химура Кэнсин, который в прошлом был известным ассасином Хитокири Баттосаем — первоклассным убийцей, чья катана отправила на тот свет множество людей. После очередной войны Хитокири решает оставить свое ремесло и обещает, что больше не убьет ни одно живое существо. (   Читать дальше...   )Производство: Япония / Warner Bros. Pictures Japan, Sultamedia FXЖанр: Боевик, драмаРежиссер: Кэиси ОтомоАктеры: Такэру Сато, Касуми Аримура, Иссэй Такахаси, Нидзиро Мураками, Масанобу Андо, Кадзуки Китамура, Ёсукэ Эгути, Эми Такэи, Мунэтака Аоки, Ю АоиПеревод: Профессиональный многоголосый (Flarrow Films)Язык озвучки: русскийСубтитры: РусскиеПродолжительность: 02:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B8DC43C952CA420B1CD79D3273967C33D529546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486977   (1004246) от 02.08.2021
-
-Клаустрофобы: Квест в Москве / Follow Me (2020) BDRip [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярный американский видеоблогер Коул сделал имя на участии в самых зрелищных и опасных испытаниях, которые он находит по всему миру. На 10-летие своего канала он непременно хочет устроить что-нибудь особенное, и друзья предлагают ему пройти необычный квест в Москве. Поначалу Коул настроен скептически. Квест? Кого этим сейчас можно удивить? Узнав, что данные испытания (   Читать дальше...   )Производство: США / Escape ProductionsЖанр: Ужасы, триллерРежиссер: Уилл ВерникАктеры: Кигэн Аллен, Холлэнд Роден, Дензел Уитакер, Ронен Рубинштейн, Павел Лычников, Джордж Янко, Сия, Данияр, Димитар Маринов, Эмилия Арес ЗорянПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CDC4FE4C954AE60CA3B51DEB1A373B701A9CC9
 ```
 
 

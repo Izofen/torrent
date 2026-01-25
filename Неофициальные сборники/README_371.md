@@ -1,3 +1,30 @@
+###  Публикация: 1038060   (610109) от 26.07.2016
+
+VA - Disco, Only the Best (2016) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Survive - Gloria Gaynor
+02. Love and Desire - Arpeggio
+03. Ring My Bell - Anita Ward
+04. Y. M.C.A. - The Village People(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353801800E1F0B35F64A868E81E2BFD407146F46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296617   (610123) от 18.04.2019
 
 Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
@@ -677,33 +704,6 @@ VA - Ballads for Lovers Vol.2 (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F21F10097F13C35804D109D344B5BA15243D35B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037693   (612121) от 25.07.2016
-
-VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Dias - Sorry (Kizomba Remix) 04:23
-02. Vanda May - Nao Me Ligues 04:10
-03. Saaphy - Your Future 03:39
-04. Kaysha - Diamonds 04:43(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 02:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720B19DEC01BBCD47991F6ED30A748155E3D8D87
 ```
 
 

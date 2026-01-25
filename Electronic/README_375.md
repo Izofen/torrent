@@ -1,3 +1,84 @@
+###  Публикация: 1281910   (748151) от 10.02.2019
+
+VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fred V - Burning Me (Original Mix) [03:23]
+02. Degs - Poveglia (feat. DeTune) (Whiney Remix) [04:08]
+03. London Elektricity - Funkopolis (Original Mix) [05:21]
+04. S.P.Y - Dusty Fingers (feat. Diane Charlemagne) (Metrix Remix) [04:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB0CC5ADB32CE0E623D5EEC99507012D92E5BA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019395   (748203) от 24.05.2016
+
+Shakti - Psychedelic Experience (2016) [FLAC|Lossless|image + .cue] <Psychedelic Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brightlight - What are you looking for
+02. Dr Hoffman - My problem child
+03. Ganesha - Waiting for the sun
+04. Ganesha - Space love(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16094997A19080FD8E5818A6622C8594D3503972
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281974   (748292) от 10.02.2019
+
+Sopor Aeternus - Death & Flamingos (2019) [MP3|320 Kbps] <Darkwave, Gothic Rock, Neo-Classic, Deathrock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748292.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Side A
+2. Kinder Des Teufels
+3. Spell Bound
+4. The Boy Must Die(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Neo-Classic, DeathrockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FA4AA5AA2A946EAD5A3E228F07BE6C98115133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396121   (748408) от 14.07.2020
 
 The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synth-pop>
@@ -611,87 +692,6 @@ Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216295   (751342) от 30.03.2018
-
-VA - Markus Schulz & Nifra - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Kyau & Albert and Ronski Speed - Zoom
-02. Ahmet Atasever - Smashed Avo
-03. Cosmic Gate & Markus Schulz - AR (Leo Reyes Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186EF090CB470A1B6EB0ECAE8F1248991BDCD063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216294   (751356) от 30.03.2018
-
-VA - Ori Uplift & tranzLift - Uplifting Only 268 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afternova feat Andrea Becker - For You & Ram - RAMnesia (Lilly Sinatra Mashup)
-02. Etasonic vs. Shostakovich - Waltz 2 Trance (Bootleg)
-03. Dreamlife & Blue Moon - Last Farewell
-04. The Mechanic & Vindicator - The Day That Never Comes (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E103853B35E023770EC85FF2F55E9A277A0F114
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216257   (751358) от 30.03.2018
-
-VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jobe - Jobe Presents Authentic Steyoyoke #012 (Continuos DJ Mix) (01:02:32)
-02. Jobe - Lissome (Original Mix) (08:30)
-03. Dahu - How Do They Know (Nick Devon Remix) (07:04)
-04. Pysh, Sincz - Kawalerskie (Original Mix) (06:21)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
 ```
 
 

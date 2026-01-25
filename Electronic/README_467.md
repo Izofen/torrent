@@ -1,3 +1,84 @@
+###  Публикация: 1099237   (907337) от 31.01.2017
+
+Musical Mandalas - Mantra (2017) [MP3|320 Kbps] <Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Amorous Junction [00:03:37]
+02 -  Loving You [00:02:37]
+03 -  Flowing Forth [00:03:28]
+04 -  Flourish [00:01:35](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DDB3254166B1C0C36A2CFFAD66A9BDDA01924D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368286   (907418) от 21.03.2020
+
+VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlight Project, Fanizza - Light Me Up (Extended Mix) 5:10
+02. Dave Neven, Ocata - Sirens In The Sky (Extended Mix) 8:07
+03. Solarstone, Robert Nickson - Voyager II (Extended Club Mix) 7:59
+04. Somna, Jennifer Rene - Stars Collide (Extended Mix) 5:56(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615C068ACE44669AED1E157B82E01891A61F6D90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368701   (907425) от 21.03.2020
+
+Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907425.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Redemption (Radio Edit) (3:26)
+2. In Love (Radio Edit) (2:59)
+3. Back to Love (Radio Edit) (2:49)
+4. Ankara (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368711   (907426) от 21.03.2020
 
 Flowjob - Beatpolar (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -611,81 +692,6 @@ Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990619   (910113) от 26.02.2016
-
-VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Righi & Dan - Havana Loca (4:59)
-02. Unisono fx - Rain (latin club) (5:20)
-03. Asia Teck - Medioriente (6:39)
-04. Friday Tribe - King Chop (5:16)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8073D8036C1B92E828AFCFEF0CAF536CA39A7F63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880486   (910174) от 29.01.2017
-
-Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless]<Dub Techno, Ambient, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To AuratiaЖанр: Dub Techno, Ambient, Experimental |Продолжительность: 02:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E955C33CEBAB4D82FD6486DC13EA411904C234C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144185   (910227) от 19.03.2020
-
-Pensees (Pensées) - Discography 23 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Bass, Downtempo>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden Hills (03:33)Тип издания: WEBЖанр: Future Garage/AmbientПродолжительность: 09:12:04 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC0CF9DC24D42ED94EF11018770648F65E3E617
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1204254   (784975) от 05.02.2018
+
+VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
+02.  Talamanca  -  Meditation (Deep Mix)  7:21
+03.  Approaching Black  -  You Are (Original Mix)  8:08
+04.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  6:12(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC449E5DDCC6938C907EFF5B7DA8C57C23B8E7C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204380   (784977) от 05.02.2018
+
+VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lossless|tracks] <Progressive House, House,Progressive Trance, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gai Barone – Tanita (Intro Mix) (06:32)
+02. Tannura – Halfway (07:54)
+03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
+04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644B707FB446907C7A48C3BDB7CEA5687016D5A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277249   (784979) от 21.01.2019
+
+Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|320 Kbps] <Indie, Alternative>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immature
+02. Feel It
+03. Love Part II
+04. Waiting For The Feeling(   Читать дальше...   )Жанр: Indie, Alternative, ElectroПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBE1B3D70680A1ACE7531F8ECDFEBED7CD058CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204363   (784989) от 05.02.2018
 
 VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [MP3|320 Kbps] <Progressive House, House,Progressive Trance, Trance>
@@ -614,87 +695,6 @@ VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203834   (785434) от 04.02.2018
-
-VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vincenzo Ricca  -  Oceanic Love (Original Mix)  5:00
-02.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
-03.  Flor De Lis  -  Carinhoso (Original Mix)  1:55
-04.  Gianni Tommas  -  Peacefull Aim (Original Mix)  5:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E91D1615AA63288A2DB9199BB28D15A3348BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203945   (785435) от 04.02.2018
-
-VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
-02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
-03. The Pusher - Sinthy (Pluto Mix) 05:56
-04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203969   (785437) от 04.02.2018
-
-Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravitational Phantom (05:32)
- 02. Spring Will Come As Always (04:38)
- 03. Home-grown Drone (06:20)
- 04. Boreal Estate (04:04)(   Читать дальше...   )Жанр: Ambient, AcousticПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
 ```
 
 

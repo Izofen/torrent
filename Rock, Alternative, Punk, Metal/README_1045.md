@@ -1,3 +1,57 @@
+###  Публикация: 1508552   (797564) от 08.11.2021
+
+Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Madness Took Me
+02. Starfall
+03. Calling My Name
+04. In Perfect Harmony(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21578667A65AF25BBFFE95ADF45E7A44D519BE75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508545   (797588) от 08.11.2021
+
+Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Possessor of Evil (07:35)
+02. Wartorn (03:16)
+03. World At Redemption (04:15)
+04. The Crypt (04:47)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500054018F9639CF0394A618896E1F338F12D44E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011138   (797634) от 26.04.2016
 
 Площадь Восстания - Estrada (2016) [MP3|320 кб/с] <Rock>
@@ -641,60 +695,6 @@ The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53322275DEFB1F4AE4E01B2CE695454ACF70A2EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507450   (798478) от 04.11.2021
-
-7000$ - Прометей (2021) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь и сейчас
-02. Хардкором жги сердца людей
-03. Я человек
-04. Бомбит(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA40FB4CD204141F4DFF18D02772D3D0E1E293A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507324   (798485) от 04.11.2021
-
-VA - Relapse Sampler 2015 (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, atmospheric black metal, other>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torche - Loose Men (02:28)
-02. Windhand - Crypt Key (05:39)
-03. Royal Thunder - Time Machine (07:08)
-04. Tau Cross - Fire In The Sky (04:39)(   Читать дальше...   )Жанр: Black metal, Death metal, Atmospheric black metal, otherПродолжительность: 03:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E120DEB76508E2C1D9C1D043A2A108A5458780
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 683734   (624339) от 26.07.2013
+
+Editors - The Weight of Your Love (2013) Japan Bonus Tracks [FLAC|tracks + .cue]<Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight (4:33)
+02. Sugar (4:17)
+03. A Ton Of Love (3:58)
+04. What Is Thing Called Love (4:12)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722977A9D40081F4684603BB9E6605ECC3EB1CB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229702   (624367) от 07.06.2018
+
+Tremonti - A Dying Machine (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_624367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringer Of War
+02. From The Sky
+03. A Dying Machine
+04. Trust(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1EFD5A3A033554553D4D603F130E84A0777F2D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229583   (624447) от 07.06.2018
 
 Trooper - Two For The Show (1976) Reissue, MCA Records [MP3|320 Kbps] <Classic Rock>
@@ -652,60 +706,6 @@ magnet:?xt=urn:btih:3B49D778A0B0180AAAF2F03B0ECAF1FCFBB9601B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B530CCC1C91CACDA778E5B1773FB9748AAD1CA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543757   (625660) от 13.04.2022
-
-Alexander Palitsin - Beauty of the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Then (03:54)
-02. Far from Me (05:57)
-03. Shooting Star (04:31)
-04. Dishonest Game (05:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDD0AD76AA2232C82C97A47D4B57FFD09FEB62D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144584   (625753) от 23.06.2017
-
-Suffocation - ...Of The Dark Light (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clarity Through Deprivation (4:04)
-02. The Warmth Within the Dark (3:40)
-03. Your Last Breaths (4:36)
-04. Return to the Abyss (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D1D32EEB58FA9EED8A7A6E8CCE8C8FD32CF4D5
 ```
 
 

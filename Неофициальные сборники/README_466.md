@@ -1,3 +1,30 @@
+###  Публикация: 1283883   (732151) от 18.02.2019
+
+VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:170A00C8B57F67473920BD2CB5C7B4842B078FED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125665   (732214) от 21.04.2017
 
 VA - Весенняя танцевальная вечеринка выпуск № 12 (2017) [MP3|256 Kbps] <Pop>
@@ -666,33 +693,6 @@ VA - Beatport Future House: Sound Pack #138 (2020) [MP3|320 Kbps] <Future House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83004F791FFE6A32E3A57B40B46CF095A0FFC602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398918   (734337) от 29.07.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #139 (2020) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hipnotic - Paranormal Fields
-002. Hyperceptiohm - Magic Mushuroms
-003. Burn In Noise - Shamanic
-004. Materia And Escape - On Sequence(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504A65767122DF935D13C8B74F8FACBA1951FD4B
 ```
 
 

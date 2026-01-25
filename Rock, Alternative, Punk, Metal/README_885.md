@@ -1,3 +1,69 @@
+###  Публикация: 521024   (628804) от 10.07.2012
+
+Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628804.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Showdown
+02. Countdown To Zero
+03. End Of The World
+04. The Longest Night
+05. Wishing
+06. Through My Veins
+07. You're The Stranger
+08. Wherever You Are
+09. Rock And Roll Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D03FD20ABECD8C924691CE23CCEE9BAB548C8638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520876   (629084) от 10.07.2012
+
+It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_629084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In The Photograph (3:46)
+02. Wallflower (4:50)
+03. Map Of The Past (4:37)
+04. Clocks (5:44)
+05. Flag (4:36)
+06. The Big Machine (5:19)
+07. Cartoon Graveyard (5:03)
+08. Send No Flowers (4:15)
+09. Meadow And The Stream (6:42)
+10. The Last Escape (6:06)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:52:40 / 00:56:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520782   (629189) от 10.07.2012
 
 Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
@@ -658,60 +724,6 @@ Drowning The Light - From The Abyss (2015) [MP3|320 кб/с]<Raw Black Metal, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B624A0DD7958070F3FCD074F673A3DF57326549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907784   (630221) от 16.06.2015
-
-Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Silent Desire
-03. Emptiness Of Night
-04. Elegy Of Doom(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035104   (630309) от 15.07.2016
-
-Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Made For Loving You
-02. Detroit Rock City
-03. Heaven's On Fire
-04. Crazy, Crazy Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:421A972FFE49EAD5F482B7EF66C7CCFE05BE7D5F
 ```
 
 

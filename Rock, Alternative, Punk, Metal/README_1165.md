@@ -1,3 +1,57 @@
+###  Публикация: 984315   (940160) от 08.02.2016
+
+Status Quo - Rockin' All Over The World (1977) 2CD, remaster, 2016, Mercury, Japan [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Time (4:46)
+02. Can't Give You More (4:16)
+03. Let's Ride (3:03)
+04. Baby Boy (3:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E642A79E2C865B91ECC1DCF9DD74E089A6B4D4A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984325   (940215) от 08.02.2016
+
+Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Young (04:17)
+02. Outsiders (03:54)
+03. No Tomorrow (03:52)
+04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984305   (940216) от 08.02.2016
 
 Status Quo - Hello! (1973) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|image + .cue] <Classic Rock>
@@ -646,60 +700,6 @@ Die Krupps - V-Metal Machine Music (2015) 2CD [FLAC|Lossless|image + .cue] <Indu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98B90FB51581FC0924EDE3157092949401A4492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984008   (942121) от 07.02.2016
-
-The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Energy (4:28)
-02. No Love Lost (3:14)
-03. Dance The Night (4:16)
-04. In Blood (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D359264E3DC126F087CF0CF15F49BCE3EC857A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983831   (942199) от 07.02.2016
-
-The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midnight Summer Dream
-02 - It's a Small World
-03 - Ships That Pass in the Night
-04 - The European Female (In Celebration of)(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 908032   (635564) от 13.06.2015
+
+VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mband - Она Вернётся (04:09)
+002. Nickelback - The Hammer's Coming Down (04:23)
+003. Slava Basyul - Разбуди Меня (04:13)
+004. Dirty South Feat. Kids Without Instruments - The Best Days (04:27)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293681   (635662) от 04.04.2019
 
 VA - Dance - Pop Vol. 2 (2019) [MP3|320 Kbps] <Eurodance>
@@ -679,33 +706,6 @@ VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4789CAE06EC91D4BF7DE8A02FD77D8CCC26FCC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143219   (637078) от 17.06.2017
-
-VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Instrumental Jazz Music Ambient - Soothing Jazz Music  2:50
-002.  Good Morning Jazz Academy - Lucid Dreaming  3:54
-003.  Wake Up Music Paradise - Night Walk  3:28
-004.  Jazz for Study Music Academy - Sweet Music (Activities For Children)  3:11(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5929A54B9FF6A996070A1542CE4D09A9DD11B318
 ```
 
 

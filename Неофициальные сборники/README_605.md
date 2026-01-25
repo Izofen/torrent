@@ -1,3 +1,30 @@
+###  Публикация: 1097973   (910635) от 29.01.2017
+
+VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
+002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
+003. Чаян Фамали - Моделька 3:31
+004. Mona - Счастье 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097932   (910796) от 29.01.2017
 
 VA - Club Dance Ambience Vol.100 (2017) [MP3|320 Kbps] <Dance, Club, Club House>
@@ -669,33 +696,6 @@ VA - Welkom To The Dancefloor (2016) [MP3|320 кб/с] <Dance, Club, Pop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78697A79B9638736D288853D278F6D3BA3A092F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990484   (912291) от 25.02.2016
-
-VA - Collection (2016) [MP3|320 кб/с] <Electronic, Lounge, New Age>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AMB - Barrel of Belief  03:44
-02. Casa Del Sol - Sa Caleta  05:02
-03. Doctor Rockit - Cafe De Flore (Mix)  05:32
-04. Eccodek - In Confidence  04:47(   Читать дальше...   )Жанр: Electronic, Lounge, New AgeПродолжительность: 03:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257DC35A45A3EC1E140355C4E1A85BE50DECD25E
 ```
 
 

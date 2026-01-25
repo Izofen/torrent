@@ -1,3 +1,30 @@
+###  Публикация: 1128887   (724237) от 27.04.2017
+
+VA - Singles Chart Hot 100 Billboard (05 May) (2017) [MP3|320 Kbps] <Pop, Rap, Soul, R&B, Alternative, Bro-Country, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kendrick Lamar - Humble  2:58
+002.  Ed Sheeran - Shape Of You  3:54
+003.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: Pop, Rap, Soul, R&B, Alternative, Bro-Country, DancehallПродолжительность: 06:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B64963DBFEEAE437CFD273D4FDEBA69505B4213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023398   (724238) от 05.06.2016
 
 VA - Хитовый Свежачок. Русский Выпуск (2016) [MP3|256 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Весенний хит-парад на радио Шансон. Выпус
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:488805B71BB1832EB006640B035091916DB86695
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128870   (724673) от 27.04.2017
-
-VA - Лучшая дискотека на Europa Plus. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724673.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Марина Редкая - Не Люблю Никого 3:28
-002. Смирнов & Комапния - Я Люблю Тебя 3:13
-003. Rozhden - Каждый День 3:40
-004. Юран - Пусть Будет Так 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E945C6970CACF095DABDE1579ACE92A07D030E60
 ```
 
 

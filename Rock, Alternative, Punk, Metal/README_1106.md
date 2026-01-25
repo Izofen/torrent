@@ -1,3 +1,60 @@
+###  Публикация: 1497121   (866599) от 21.09.2021
+
+Night Ranger - ATBPO (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming For You
+02. Bring It All Home To Me
+03. Breakout
+04. Hard To Make It Easy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325899B08DE6E5DA2B9B91A319B2137074AC732B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497174   (866600) от 21.09.2021
+
+Amorphis - Live At Helsinki Ice Hall (2021) 2xCD [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом.
+
+Bass – Olli-Pekka Laine
+Crew - Logistics / Merch – Raapale Osolanus(   Читать дальше...   )CD - 1:
+01. The Bee
+02. Heart Of The Giant
+03. Bad Blood(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEEE101B6CAEB5A2AB6D7D083D273AD51697518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999034   (866618) от 21.03.2016
 
 The Treatment - Generation Me (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
@@ -634,57 +691,6 @@ magnet:?xt=urn:btih:0F1726151CEF4545125D9ACBFD8443EC6C4CF628
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507F705CAC530C50A42CDA37DD04BD9BF36C65F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188747   (867812) от 02.04.2010
-
-Эдуард Артемьев - Преступление и наказание (2007) [FLAC|Lossless]<Рок Опера>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Рок Опера, Полустилистика :)Продолжительность: 02:26:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496992   (867893) от 20.09.2021
-
-Eagles - Legacy (1972-2018) 12xCD, Box Set, Compilation, Remastered, 2018, Warner [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1972 - Eagles
-1973 - Desperado
-1974 - On The Border
-1975 - One Of These Night(   Читать дальше...   )Жанр: RockПродолжительность: 09::41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B598C338F0D0E25DA3BC2AA9C3EFE9CBB96E8F43
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1027243   (696529) от 19.06.2016
+
+VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrique Iglesias - Mmacita
+02. Christina Milan - When You Look At Me
+03. Chris De Burgh - Snow Is Falling
+04. Celine Dion - I'm Alive(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01118101F2A1C37CF4E497CC37F1281FC34B2FE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027211   (696532) от 19.06.2016
 
 VA - I Love Ballads - Part VI (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
@@ -667,33 +694,6 @@ VA - Trance Сollection Vol.60 (2017) [MP3|320 Kbps] <Trance , Progressive Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6CC4F75EFA0A6E6D71C6D4CA3FEDC7FECC65CD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132960   (697229) от 11.05.2017
-
-VA - Весна. Высшая лига выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697229.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. M19 - Двадцать Первое 3:48
-002. Полина Гагарина - Драмы Больше Нет 3:14
-003. Terry - Гороскопы 3:16
-004. Пальчики Оближешь - Нецветные Розы 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAFAC0A857CC5E812F0539A047524652908778A
 ```
 
 

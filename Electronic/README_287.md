@@ -1,3 +1,84 @@
+###  Публикация: 1045410   (559832) от 23.08.2016
+
+VA - DUBAI: Best Lounge Music, Vol. 1 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mardon Bros - After the Sack (6:29)
+02. Alex Nothlich - Leisure Choices (4:24)
+03. Hotel Stereo - Believe - Lounge Radio Edit (3:38)
+04. Bahia de Roses - You Got Me for Life (2:26)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4913EEA828CCBD32B90E6562250EFEB2AA1807
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556468   (559869) от 09.06.2022
+
+Biopsyhoz (Биопсихоз) - Осознание (2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industrial Metal, Experimental, Cybercore, Alternative Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Конструкция реальности [00:05:29]
+02. Скажи мне свое имя [00:04:11]
+03. Box [00:04:48]
+04. Храм судьбы [00:03:36](   Читать дальше...   )Жанр: EBM, Industrial Metal, Experimental, Cybercore, Alternative RockПродолжительность: 01:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0011FED949CD78D330FB537032CC1DDE8013A534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304899   (559943) от 28.05.2019
+
+Anthéne (Anthene) - Asymmetry (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Soundscape>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles (05:23)
+ 02. Mirror (04:31)
+ 03. Degrade (04:32)
+ 04. Expedition (06:30)(   Читать дальше...   )Жанр: Ambient, Drone, SoundscapeПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6E8CDBAECF50EA3442116F4D6F1CD566BD25B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304883   (559952) от 28.05.2019
 
 HVL - Rhythmic Sonatas (2019) Bassiani [FLAC|Lossless|Vinyl|tracks] <Acid, Techno, Electro>
@@ -611,87 +692,6 @@ RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7FE944AE122A85C9780088EBA62ACC2AF1F7275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045164   (561664) от 22.08.2016
-
-Roman Messer - New Life (Chillout Edition) (2016) [MP3|320 Kbps] <Electronic, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Sender, Roman Messer - New Life (Chillout Mix) (03:38)
-02. Jan Johnston, Roman Messer - Nebula (UltraNova Chillout Remix) (04:16)
-03. Eskova, Roman Messer - Without You (Aurosonic Chillout Remix)(03:43)
-04. Nomosk, Christina Novelli, Roman Messer - Lost Soul (R.I.B Chillout Remix) (05:20)(   Читать дальше...   )Жанр: Electronic, ChilloutПродолжительность: 02:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4603FCD59AA6E6F5EB047C01F7368DCFA3A6E087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045039   (561679) от 22.08.2016
-
-VA - Deep House Brazil (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Dupree - Another World - Original Mix
-02. John - Alexis' Night - Original Mix
-03. Parfenov - Mi Vida - Original Mix
-04. Ditto* - I Need You - Vox Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB9BB703294966B27410784966C68A6662D557F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153038   (561747) от 25.07.2017
-
-VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ready Or Not & Azmik - That's How It Is (Original Mix)  4:23
-02.  Lion & VENCOR - Pruno (Original Mix)  3:49
-03.  Dirty Sound Society - Ready For The Noise (Original Mix)  4:07
-04.  Ad Voca - New Generation (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA96F354B8246FD822FA643CB447CF36E34FB63
 ```
 
 

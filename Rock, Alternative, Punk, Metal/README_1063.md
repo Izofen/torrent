@@ -1,3 +1,57 @@
+###  Публикация: 1504596   (811542) от 23.10.2021
+
+ДДТ (DDT) - Творчество в пустоте (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811542.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Муха
+2. Борщевик
+3. Хор
+4. В магазине(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A99F6828CC3D5A7930CF55A0F0C663AF1E1C4D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619018   (811638) от 20.04.2016
+
+Placebo - This Picture (2003) Australian Exclusive EP [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Picture
+02. Soulmates
+03. Where Is My Mind (XFM Live Version)
+04. Daddy Cool(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB30A1D72D5DA4F7D4A1BEBD66991A5AFE9E573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009178   (811641) от 20.04.2016
 
 Леонид Фёдоров и Владимир Волков - Гроза (2016) [MP3|320 кб/с] <Rock, Avantgarde>
@@ -634,60 +688,6 @@ Svartrit - I (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19AEDEC48292B59C75606D2A122142257E37E00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504185   (811985) от 23.10.2021
-
-Nestor - Kids In A Ghost Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Fanfare For The Reliable Rebel (Intro)
-02. On The Run
-03. Kids In A Ghost Town
-04. Stone Cold Eyes(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677551FF9A4889EACEEC3FDFAED5EEC64260E9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198076   (812017) от 09.01.2018
-
-Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Metal, Alternative Metal, Electronic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delivered Into Arrival (02:12)
-02. 137 (03:35)
-03. Left Of You (02:22)
-04. Crucial Fracture (03:52)(   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, Electronic MetalПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A972BEFAA2802699D437F47E98C9AFB7C226B4C6
 ```
 
 

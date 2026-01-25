@@ -1,3 +1,57 @@
+###  Публикация: 1222999   (680669) от 01.05.2018
+
+Билли Новик (Billy's Band) - Песни Егора Летова (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680669.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Я, как давний фанат Летова, хотел бы спеть для вас свои самые любимые песни Егора. Для всех тех, кто ценит и главное, для тех, кто по какому-то недоразумению до сих пор не открыл для себя гений Летова. Его кубический сарказм замешанный на кровавой боли и вселенской любви. Не бойтесь, не будет никакого джаза. Только песни. Как дань благодарности, уважения и (   Читать дальше...   )1. Здравствуй, черный понедельник
+2. Непонятная песенка
+3. Зоопарк
+4. Мама мама(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737B19D65ACF5455D1B4FC899D02CFBDFADC7873
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135370   (680803) от 19.05.2017
+
+Foreigner - 40 (2017) 2CD [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680803.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Feels Like The First Time (Remastered)
+02. Starrider (Remastered)
+03. Cold As Ice (Remastered)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B9E3C8198FCE45DAF7A69EE1F076BD9467ADF96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135336   (681092) от 19.05.2017
 
 Charles Manson - Lie: The Love and Terror Cult (1968) 1987, Awareness Records [FLAC|Lossless|image + .cue] <Folk, Rock>
@@ -647,60 +701,6 @@ Spirit Of The Forest - A Brew Of Lightning And Terror (2007) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B62E87524A44D11DE7CA98F231DA124D86A01A1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535770   (682373) от 08.03.2022
-
-Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whole Lotta Love
-2. Kashmir
-3. Stairway To Heaven
-4. The Crunge(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7BC5A1C73B20BAB20C788BD6AE4D1483BDEF85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535687   (682376) от 08.03.2022
-
-Wild Ox Moan - Wild Ox Moan (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am the Mountain
-02. Hollywood
-03. Heavy Lies the Crown
-04. Bad Lieutenant(   Читать дальше...   )Жанр: Classic Hard Rock, StonerПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE366C5825F1690BC021475D89180093B7C25EEC
 ```
 
 

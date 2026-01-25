@@ -1,3 +1,57 @@
+###  Публикация: 1024175   (720435) от 07.06.2016
+
+Krokus - Metal Rendez - vous (1980) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heatstrokes - 4:00
+02. Bedside Radio - 3:18
+03. Come On - 4:23
+04. Streamer - 6:38(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D916B451783A7812B4D9A61F89836A0B45DC7D5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024119   (720458) от 07.06.2016
+
+Dan Reed Network - Fight Another Day (2016) [FLAC|Lossless|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Divided
+02. The Brave
+03. Infected
+04. Champion(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3CCB2C47FCDC47E1AAE482C4D2C1E417CF6408
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129831   (720569) от 29.04.2017
 
 VA - Охота 73 (2017) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:136AA198C73BF6BC1DC87001317A31E9A4F1C950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285597   (721192) от 26.02.2019
-
-Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revery (5:28)
- 02. Reality Wave (4:46)
- 03. World of Ruin (3:47)
- 04. Ash in the Sky (4:19)(   Читать дальше...   )Жанр: Goth Rock, Doom MetalПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D79882A6CC7052CB550294204A227BF82C9842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285588   (721194) от 26.02.2019
-
-WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bleib Tapfer 
-01. Bei Dir (1:32)
- 02. Mein Tod (3:25)
- 03. Nice day (4:20)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
 ```
 
 

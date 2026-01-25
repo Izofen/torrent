@@ -1,3 +1,30 @@
+###  Публикация: 1292004   (646672) от 29.03.2019
+
+VA - Legendary Songs 80s (2019) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646672.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Gеt Hеr - Jараnеsе Girl
+002. Avаlаnсhе - Whееl Of Fоrtunе
+003. 4-Yоu - Shаng-Hаiеd
+004. Zеnеr - Nеw Gеnеrаtiоn(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 10 :27 :11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0D7BF988200E7A58684454033C48B262B8CF78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227474   (646697) от 26.05.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 25.05.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -680,39 +707,6 @@ magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AE581E59081DDACCF51C79F6A3677A0E7B63E3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517503   (647625) от 01.07.2012
-
-VA - Радио Energy - NRJ HOT30 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BEL SUONO  Dj Magic Finger - Te Quiero 2012
-02. Michel Telo - Ai Se Eu Te Pego
-03. Flo Rida - Whistle
-04. DJ Bobo - Everybody's Gonna Dance (Bryce rmx)
-05. Michael Mind Project feat. Bobby Anthony amp Rozette - Rio De Janeiro
-06. Chris Garcia feat. Sherry - I rock alone
-07. Oceana - Endless Summer (Bodybangers rmx)
-08. Far East Movement - Lights Out (Go Crazy) (Feat. Junior Caldera  Natalia Kills)
-09. Global Deejays - Hardcore Vibes (Original Mix)
-10. Example - Changed the way you kiss me (Mike Candys rmx)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2681240A9022783E03061C223CFA3BDABD93FBA4
 ```
 
 

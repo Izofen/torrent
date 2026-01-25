@@ -1,3 +1,30 @@
+###  Публикация: 1135816   (679420) от 20.05.2017
+
+VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zeologic - Intelligence 6:43
+02.  Skyline - Waves 7:57
+03.  Psydog - Mushroom Recipe (141 BPM) 6:56
+04.  Vertigo Records - Wtich Technology (Remix) 7:49(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 05:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135717   (679422) от 20.05.2017
 
 VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Pop>
@@ -687,33 +714,6 @@ VA - Trance Mixtape (Flaming June) (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C51E5F3B7159461EE3FF4BF059ABF96266784A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289857   (681796) от 18.03.2019
-
-VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda Dreams - Warp Drive
-02. Dance With The Dead - Entity
-03. The Gates Of Hell
-04. Galactic Warriors - Mysterious World(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D16ECABF3B3BFEB6243771B8DAEDA207624BAA
 ```
 
 

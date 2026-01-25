@@ -1,3 +1,57 @@
+###  Публикация: 1354885   (985954) от 24.01.2020
+
+Би-2 - Горизонт событий с оркестром (2020) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985954.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лётчик
+2. Чёрное солнце
+3. Детство
+4. Виски(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE6D2CC82323D8774CEF210F9F163FC294EB9FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354893   (985956) от 24.01.2020
+
+Би-2 - Горизонт собыйтий с оркестром (2020) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985956.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лётчик
+2. Чёрное солнце
+3. Детство
+4. Виски(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8095F4FC0B8E695DC1CEDF54C55DFB3F74D86FCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355019   (985963) от 24.01.2020
 
 Annihilator - Ballistic, Sadistic (2020) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, Speed Metal>
@@ -647,60 +701,6 @@ VA - Охота 91 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EFAD98AB0E2D608A371A534180A8BE240ADEC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354598   (987049) от 23.01.2020
-
-The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's In Store (03:42)
-02. Children's Day (03:55)
-03. Pawing (02:38)
-04. I Celebrate My Fantasy (05:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354597   (987053) от 23.01.2020
-
-Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eating Fries (04:06)
-02. The Misanthrope Years (04:34)
-03. Desintegration (04:09)
-04. The Moon (04:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
 ```
 
 

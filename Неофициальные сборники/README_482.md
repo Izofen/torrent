@@ -1,3 +1,30 @@
+###  Публикация: 1280780   (758729) от 04.02.2019
+
+VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A$AP Twelvyy - Child's Play
+002. Aaron May - Let Go
+003. Ady Suleiman - Strange Roses
+004. AJR - 100 Bad Days(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018002   (759017) от 18.05.2016
 
 VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
@@ -665,33 +692,6 @@ VA - National Pop Dance Music (Vol.30) (2021) [MP3|320 Kbps] <Pop, Dance, Schlag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B79467F78D16A884D28E079E63E1C285C0BE893C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522163   (760245) от 06.01.2022
-
-VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прожигаем новогодние праздники по полной программе под звуки лучшей и свежей танцевальной музыки. Делаем звук громче, веселимся до утра, наслаждаемся позитивной музыкой, дарим друг другу улыбки и летим на встречу своей мечте!001. The Pet Detectives - Molehill
-002. Perfect Pitch - Outa Space!
-003. Schizoofr3nik - Find Me
-004. David Enguix - Espace Project(   Читать дальше...   )Жанр: EDM, Dance, Club HouseПродолжительность: 26:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261D202BF478B31ADFD3BD30654CC1F04D075707
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1035575   (626391) от 17.07.2016
+
+Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Bleed Metal
+02. All Hail the King
+03. Against All the Gods
+04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909626   (626392) от 18.06.2015
+
+Ian Toomey (Bitches Sin) - Ascension (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost And Always
+02. Bad Blood
+03. Superman
+04. Very Soon Everyone's Leaving(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9D9BEA8F06AB995605DDDDD427321D9570D315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909623   (626393) от 18.06.2015
 
 The Trousers - Mother of Illusion (2015) [MP3|320 кб/с]<Hard Rock>
@@ -645,65 +699,6 @@ The Murder Of My Sweet - Bye Bye Lullaby (2012) [FLAC|Lossless]<Gothic Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144305   (627016) от 22.06.2017
-
-Imagine Dragons - Evolve (2017) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627016.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Don't Know Why
- 2. Whatever It Takes
- 3. Believer
- 4. Walking The Wire(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7336C29E8DB2E49E5AE8589ED818A4FB6D490C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521014   (627216) от 11.07.2012
-
-Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627216.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Edge Of Knives (4:59)
-2. Deceiver (6:43)
-3. Puresteel (5:03)
-4. An Axe To Grind (5:29)
-5. A Fist In The Face Of God (3:59)
-6. The Seer (5:39)
-7. On The Inside (5:26)
-8. Colossus (3:54)
-9. The Hammer Strikes (Mjolnir's song) (7:28)Жанр: Heavy MetalПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0B7489D75EA22A52E4BCC438B0A4D5DE0BE4E5
 ```
 
 

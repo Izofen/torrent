@@ -1,3 +1,30 @@
+###  Публикация: 990484   (912291) от 25.02.2016
+
+VA - Collection (2016) [MP3|320 кб/с] <Electronic, Lounge, New Age>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AMB - Barrel of Belief  03:44
+02. Casa Del Sol - Sa Caleta  05:02
+03. Doctor Rockit - Cafe De Flore (Mix)  05:32
+04. Eccodek - In Confidence  04:47(   Читать дальше...   )Жанр: Electronic, Lounge, New AgeПродолжительность: 03:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257DC35A45A3EC1E140355C4E1A85BE50DECD25E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990390   (912325) от 25.02.2016
 
 VA - Avantgarde Chillout Vol 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -688,33 +715,6 @@ VA - Progressive Classics (2021) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E60AC79265BD17D14FC7F5494BE708AD522886C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367718   (913996) от 17.03.2020
-
-VA - Beatport Vocal House: Electro Sound Pack #25 (2020) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913996.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tefo - Emaweni
-002. Mr Black And Blue - Know What Love Is (Radio Edit)
-003. Key - Better Come With Me
-004. Da Chick - Watch Me Go(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1FA1F7965BCE9D34FA7D5FC19E20EB4316140C
 ```
 
 

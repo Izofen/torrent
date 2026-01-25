@@ -1,3 +1,57 @@
+###  Публикация: 938614   (479556) от 19.09.2015
+
+Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting
+02. Cat’s Eyes
+03. Hard To Find
+04. Fly Away(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796C505255C0DC3DAFD68582AFFD5CD84D3B762B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244569   (479929) от 02.09.2018
+
+Marc Bolan - Tramp King Of The City (2018) [MP3|320 Kbps] <Glam Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunken Rags
+02. Cadillac
+03. Truck On (Tyke)
+04. Metal Guru(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348666678DF028E94FA56DA50E8889EED93B4571
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938315   (481415) от 18.09.2015
 
 David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progressive Rock>
@@ -662,60 +716,6 @@ God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-R
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565087   (494661) от 23.07.2022
-
-Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highwired
-02. Transmission From Mothership Earth
-03. Wilted Flowers
-04. Melt Your Head(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A14CC329FDAFDF681F9CC32612CDD665F0DC07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318425   (494691) от 06.08.2019
-
-Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494691.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Iron Heart (3:19)
-2.Step by Step (3:15)
-3.Rock Your Jock (3:06)
-4.Tears of Sweat (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
 ```
 
 

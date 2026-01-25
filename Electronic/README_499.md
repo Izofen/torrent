@@ -1,3 +1,84 @@
+###  Публикация: 1483221   (1007008) от 12.07.2021
+
+Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Tender (2:41)
+02. Secret Love (3:05)
+03. Moon River (3:13)
+04. All I Have To Do Is Dream (2:59)(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071649   (1007061) от 11.07.2021
+
+Dewtone Recordings - Label-Pack 56 Releases (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Minimal, IDM, Downtempo>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slumbers (Part 1) (06:43)
+ 02. Slumbers (Part 2) (07:51)
+ 03. Slumbers (Part 3) (04:04)
+ 04. Slumbers (Part 4) (09:21)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Minimal, IDM, Downtempo, Experimental •Продолжительность: 37:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F65ADCE10CF1AF62A057C70B0A965AE8FAA43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205235   (1007111) от 11.07.2021
+
+Yimino - Discography 13 Releases (2003-2021) Ominim Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Causes Cancer (06:54)
+ 02. Squeeze Me (feat. Pigeon) (07:07)
+ 03. Batfood (06:57)
+ 04. Doe (05:55)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Experimental, Downtempo, Ambient •Продолжительность: 11:25:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4C261441856897BBC4F3199621A2FCC5BDE8AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483092   (1007120) от 11.07.2021
 
 VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
@@ -605,87 +686,6 @@ Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228470   (1008056) от 04.07.2021
-
-All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
- 02. In the Sky (Unreleased Track) (03:11)
- 03. Spring Day (Unreleased Track) (02:56)
- 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481594   (1008153) от 04.07.2021
-
-T.Power | Shy FX & T Power | Atomic Dog | Marc Royal - Discography 40 Releases (1993-2017) Soapbar, SOUR, Adastra [FLAC|Lossless|tracks+.cue, tracks] <Drum n Bass, Jungle, Breakbeat, Ambient ...
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstand (03:48)
- 02. Rise (04:10)
- 03. 不可能マシン (04:25)
- 04. Resoudre (04:30)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Drum n Bass, Jungle, Breakbeat, Ambient •Продолжительность: 17:56:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E94E263A797EBCDDBF5FE1B31052B6EDA123E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481743   (1008159) от 04.07.2021
-
-BCee & Charlotte Haining - Life As We Know It (2020) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass, Liquid Funk>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost There (5:24)
-02. Little Bit Lighter feat. Etherwood (4:36)
-03. Give Me A Break (4:53)
-04. The Hills (5:39)(   Читать дальше...   )Жанр: Drum'n'Bass, Liquid FunkПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8566E24416F2C3B736F75AE78245EE28DDC3241
 ```
 
 

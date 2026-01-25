@@ -1,3 +1,30 @@
+###  Публикация: 1044805   (562614) от 21.08.2016
+
+VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. StadiumX  -  Mombasa (Radio Edit)  3:17
+002. Bobby Rock  -  Get Up On This (Original Mix)  5:04
+003. Jay Hardway  -  Stardust  3:24
+004. Bodybangers & Mynoorey  -  Beatrock (Radio Edit)  3:26(   Читать дальше...   )Жанр: House, Electro House, Future House, Progressive, Club, DanceПродолжительность: 09:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6EF9396599036E0498605061C57FB13CD524D63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044743   (562618) от 21.08.2016
 
 VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
@@ -692,33 +719,6 @@ VA - Guitar Track - Instrumental Collection by Pop-Music Vol.1 (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A13A0506328264B0CEBBC63DAD905B107A5ED7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304381   (563870) от 26.05.2019
-
-VA - Guitar Track - Instrumental Collection by Pop-Music Vol.2 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Andrey Farnev - Behind the horizon (3:57)
-02.Юрий Евдокимов - Спринтер (2:14)
-03.Sergei Minaev - Smoothies (4:02)
-04.Mesha777 - Точка Отсчета (2:09)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A8A93E1CF7FF52BCC7FC4BB1C79C359B399669
 ```
 
 

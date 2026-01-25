@@ -1,3 +1,30 @@
+###  Публикация: 1050915   (534655) от 10.09.2016
+
+VA - Звездный Хит - Парад. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534655.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мерседес - На Крыльях Любви
+002. Слот - Круги На Воде
+003. Блокбастер - Девушка-Печаль
+004. Потап & Настя - Вадимка Зачем Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA7C8BE776CFA7F517DD39EA08A498D9C0C68B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155145   (534732) от 02.08.2017
 
 VA - DEEP'КАЧ 90-х Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
@@ -680,33 +707,6 @@ VA - Reality Essence Emotional (2016) [MP3|320 Kbps] <Trance, Energy, Melodic, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F79A8ACF747F1A16D01A3FD23458E54C619F72B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926134   (535375) от 09.08.2015
-
-VA - Sexy Jazz Guitar Sexy Jazz Lounge Chillout Music for Intimate Erotic Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Jazzy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lounge Pilots - Any Lounge Color - Guitar Bar Classics Lounge Mix
-02. Silk Factory - Love Survives - Instrumental Mix
-03. Dial J for Jazz - The Smooth Soul of Life - Guitar Del Mar Mix
-04. Pure Passion - In the Shadows - Instrumental Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, JazzyПродолжительность: 02:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B46D79CE7186740F57158D6141C4B62E52A0B6
 ```
 
 

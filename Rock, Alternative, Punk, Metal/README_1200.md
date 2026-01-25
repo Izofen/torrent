@@ -1,3 +1,57 @@
+###  Публикация: 1487892   (1002809) от 08.08.2021
+
+Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенды тяжелого рока Night Ranger выпускают свой 12-й студийный альбом ATBPO (And The Band Played On). Альбом вышел 6 августа 2021 года на лейбле Frontiers Music Srl.
+Группа начала писать альбом в начале 2020 года, на фоне роста глобальной пандемии. Сузив выбор песен и приблизив их к своему хорошо известному рок-н-ролльному саунду, группа отправилась в студию. Из-за (   Читать дальше...   )01. Coming For You (4:39)
+02. Bring It All Home To Me (4:33)
+03. Breakout (4:15)
+04. Hard To Make It Easy (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CF678D59967B42A8A8ECE5787E3EEBA70709A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485245   (1002812) от 08.08.2021
+
+Hawksley Workman - дискография (14 альбомов, 1 сингл) (1999-2011) [MP3|320 кб/с]<alternative rock, indie rock, canadian songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hawksley Workman - сценический псевдоним Райана Корригана, канадского рок-музыканта и сочинителя песен, также известного по эпизодическим работам в стиле глэм-рок и кабаре-поп.
+
+После выхода в 1999 году первого альбома For Him and the Girls, некоторые уже сравнивали Райана с Томом Уэйтсом и Гарри Нильсоном. С выходом второй пластинки (Last Night We Were) The Delicious (   Читать дальше...   )Жанр: alternative rock, indie rock, canadian songwriterПродолжительность: указана отдельно для каждого альбома
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8319158B5AAEBB36E0AEFAF7BD9A33D35650E00B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487622   (1002814) от 08.08.2021
 
 Vanilla Fudge - 16 Albums, 1 Box-set, 26CD (1967-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Acid Rock, Proto-Prog, Hard Rock>
@@ -639,60 +693,6 @@ Disc 1 - Queen II Tour Live At The Rainbow, March '74:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE89F4C7CFCBE288D220B5CE759DB4B9D6F187A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487652   (1003384) от 06.08.2021
-
-Sorceress Of Sin - Constantine (2021) [MP3|320 Kbps] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Necropolis (07:50)
- 02 - Massacre of Meridian (05:12)
- 03 - Realms of Elysium (05:57)
- 04 - Pathogenic Parasite (05:31)(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4CA2F986303F2FFA090DC2976624E74FA80B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350250   (1003438) от 05.01.2020
-
-Монгол Шуудан - Гуляй Поле Реанимация (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Гуляй Поле
-3. На Белом Коне
-4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3627F2B890C35C4FCF3B12D484BD8D429836C03E
 ```
 
 

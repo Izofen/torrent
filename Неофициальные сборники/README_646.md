@@ -1,3 +1,30 @@
+###  Публикация: 1354405   (987631) от 22.01.2020
+
+VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Myoho - Mandrem
+002. Blackliquid - Diversification
+003. Dj Mnx - In My Mind (Original Mix)
+004. Distant People - Elements(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5438A29BE5F522DAAA5AC46B9199A7567775BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971281   (987658) от 02.01.2016
 
 VA - Sunday Brunch Lounge (Chilled Jazzy Weekend Lounge) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -722,30 +749,6 @@ VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610738   (990507) от 29.01.2013
-
-VA - Armada Beach Festival-Argentina 2013 (25-01-2013) [MP3| ~166-182 кб/с]<Trance,Progressive Trance.>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990507.jpg" />
-</div>
-
-
-###  Подробнее
-
-N/AЖанр: Trance,Progressive Trance.Продолжительность: 06:55:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9957B47C23991DE657BE349AB6E47992EF76CC01
 ```
 
 

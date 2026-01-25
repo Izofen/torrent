@@ -1,3 +1,57 @@
+###  Публикация: 1049060   (544864) от 04.09.2016
+
+The Don Harrison Band - The Don Harrison Band (1976) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Tons     (02:59)
+02. Who I Really Am     (03:05)
+03. Rock 'N' Roll Records     (02:45)
+04. Fame And Fortune     (03:56)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BBE68A2B9F69B64B39CB1640B4408570C170B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048985   (544915) от 04.09.2016
+
+Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лес есть лес (Grove Is Grove)
+02. Подхвати мой клич (Howl)
+03. Нам туда (Go Forward)
+04. Сотня бочек (AHundred Barrels)(   Читать дальше...   )Жанр: Folk Metal, Death MetalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049011   (544923) от 04.09.2016
 
 Crystal of Carpat - Тьма и свет (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
@@ -638,60 +692,6 @@ The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048621   (545803) от 03.09.2016
-
-Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miracle
-02. Apple Pie
-03. Hellbent
-04. Crazier Than You(   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048650   (545852) от 03.09.2016
-
-Lоrd Оf Тhе Lоst - Еmруrеаn (2016) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adonai
-02. Lament For The Condemned
-03. Now We Are The Aliens
-04. Lost In Oblivion(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F611F51611E72D1B3AE8B4460FF1525B35E8F079
 ```
 
 

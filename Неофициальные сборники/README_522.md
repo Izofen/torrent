@@ -1,3 +1,30 @@
+###  Публикация: 1509609   (794028) от 13.11.2021
+
+VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vince Guidotti - Kalli
+002. Alkalino - Pizza Minelli
+003. Miko M - Round Of Bells
+004. Chris Domingo - Another Life(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395F1C5232B803DB3AEC426C92D4E397485263A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509641   (794031) от 13.11.2021
 
 VA - Soul Rhythm: Chill Electronic Mix (2021) [MP3|320 Kbps] <Chillout, Relax Electronic>
@@ -668,33 +695,6 @@ VA - The Sound Of Fractal (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940AA435AC36F91338690A094A264CC786F86510
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200892   (794662) от 22.01.2018
-
-VA - Music Collection - NewAge Enigmatic Meditation Ethnic Electronic (2018) [MP3|320 Kbps] <NewAge, Enigmatic, Ethnic, Electronic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Amethystium - Garden Of Sakuntala
-002 Bella Sonus - Eye of the Beholder
-003 Karl Meddison - Pearls Of Wisdom
-004 Mystical Travel - Chirapaq(   Читать дальше...   )Жанр: NewAge, Enigmatic, Meditation, Ethnic, ElectronicПродолжительность: 25:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117A7CB4EFF510B9F0527E4FEE5267DDFA88D4B0
 ```
 
 

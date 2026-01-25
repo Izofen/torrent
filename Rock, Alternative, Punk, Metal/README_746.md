@@ -1,3 +1,63 @@
+###  Публикация: 1319417   (484727) от 11.08.2019
+
+Hapax - Monade (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creature Of Distance (04:55)
+02. Elegy (04:44)
+03. Parallel Words (04:16)
+04. Shining Lover (04:23)(   Читать дальше...   )Жанр: Synthwave, Gothic RockПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3AFD348D82A5E408726758ACB23371DF45B50A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543593   (484753) от 10.09.2012
+
+Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Industrial Rock, Alternative RockПродолжительность: 00:44:40
+1. So Far Away (4:10)
+2. Perfect (3:46)
+3. I Remember (5:43)
+4. Wasted (4:45)
+5. Happy (4:03)
+6. The Only Thing (5:38)
+7. Angel (4:22)
+8. Breathe You In (4:00)
+9. High (3:21)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66179C24EA105B549525F60B69B0D232AB19215B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319385   (484790) от 11.08.2019
 
 Operators - Radiant Dawn (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Synth-pop>
@@ -662,60 +722,6 @@ Akiavel - V (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C5A25FBF813F02FF64FA952DEFEF245512844A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405178   (485836) от 29.08.2020
-
-Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Catacombs of Flesh
-02. Mass Obliteration
-03. Ossuary Rituals
-04. Funeral Storm(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C8717EE6BF5D39275B82A7327E54134B639387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405160   (485837) от 29.08.2020
-
-Cavern - Powdered (2020) [MP3|320 Kbps] <Progressive Sludge, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. River [00:03:36]
-2. Grey [00:05:23]
-3. Powdered [00:02:38]
-4. Red Moon [00:03:22](   Читать дальше...   )Жанр: Progressive Sludge, Thrash MetalПродолжительность: 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD03A58A30F235ABBD4F5F5FC9D4D80FE34618B
 ```
 
 

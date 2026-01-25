@@ -1,3 +1,84 @@
+###  Публикация: 1244655   (480236) от 02.09.2018
+
+Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow (04:58)
+ 02. Second Encounter (04:47)
+ 03. Oslo House Sunrise 4K (02:46)
+ 04. Unreachable Feeling (05:03)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6077DAF00B760D6E98905F1829A0E7E4FDFBBCCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405727   (481249) от 31.08.2020
+
+Sevdaliza - Shabrang (2020) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Art Pop, Experimental, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joanna [00:04:20]
+02 - Shabrang [00:03:04]
+03 - Lamp Lady [00:03:31]
+04 - All Rivers at Once [00:04:45](   Читать дальше...   )Жанр: Trip Hop, Art Pop, Experimental, DowntempoПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9AE95D2FE9F78626DDC2F8C6BC956CD9E32FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405751   (481260) от 31.08.2020
+
+VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & KINETICA - First Contact (Extended Mix)
+02. Talla 2XLC - Acideria (Original Mix)
+03. Tiësto feat. JES - Everything (STANDERWICK Extended Remix)
+04. Andrew Rayel & Robbie Seed feat. That Girl - Stars Collide (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47ED1C242B0BC48DD0C45EB014277258774E865A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159682   (481945) от 21.08.2017
 
 Innersync - Fairies from the Magic Forest (2017) EP [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -611,86 +692,6 @@ VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938171   (484052) от 17.09.2015
-
-Jedidiah - Inner Spirit (2015) [MP3|320 кб/с]<Psychill, Downtempo, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganesh Love (04:39)
- 02. Tantrika (04:57)
- 03. Inner Spirit (05:34)
- 04. Deep Dream (04:09)(   Читать дальше...   )Жанр: Psychill, Downtempo, AmbientПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB74FA36B440F23832189B97C8B51A8DD7E8586
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244254   (484091) от 31.08.2018
-
-Buggles - 2 Albums (1980, 1981) Reissue CD [MP3|320 Kbps] <Electronic, Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Buggles (The Buggles) - британская группа, дуэт, состоявший из Тревора Хорна и Джеффа Даунса. Группа наиболее известна своим дебютным синглом 1979 года «Video Killed the Radio Star» с дебютного альбома The Age of Plastic. Сингл попал на первое место в хит-парадах шестнадцати стран, а потом ещё три песни с этого альбома стали хитами в Великобритании. Кроме того, музыкальное (   Читать дальше...   )01. Living In The Plastic Age (5:13)
-02. Video Killed The Radio-Star (4:14)
-03. Kid Dynamo (3:28)
-04. I Love You (Miss Robot) (4:56)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New WaveПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB15F3DE3A804FE0F06E04F64BF5ADF8AA924F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244173   (484204) от 31.08.2018
-
-VA - Ori Uplift &  Lockstone – Uplifting Only 290 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila – Rebirth (Ahmed Romel Extended Remix)
-02. FAN FAVORITE 288: Arman Bas & Melodic Culture – De Profundis (The Sixth Sense Remix)
-03. Sandro Mireno & Aleksey Gunichev – InspirationЖанр: Trance,Uplifting TranceПродолжительность: 02:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1C8519E63CEAD9651F1496570A690DC12E4D6D
 ```
 
 

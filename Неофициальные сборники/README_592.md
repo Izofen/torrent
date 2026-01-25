@@ -1,3 +1,30 @@
+###  Публикация: 1371011   (893051) от 29.03.2020
+
+VA - Top 50 Club Tracks 2 (2019) [MP3|320 Kbps] <House, Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LMFAO - Sorry For Party Rocking (Mike Prado & Foma Remix) 3:34
+02. Sean Finn & Paul Jockey - Dare Me (Original Mix) 5:42
+03. Anton Liss - Live Your Moment (Original Club Mix) 5:36
+04. Denis Rublev & DJ Anton - No More (Original Mix) 6:19(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 03:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E411C82D23548DD4C0CE0610EEF4C5E1020394
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101934   (893070) от 08.02.2017
 
 VA - Ресторан Кураж зимний выпуск №3 (2017) [MP3|256 Kbps] <Шансон>
@@ -674,33 +701,6 @@ VA - Beatport Synth Electronic: Sound Pack #341 (2021) [MP3|320 Kbps] <Synthwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DBBC2BA20A8BCA29C2563B44D56D636D36360D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493689   (894088) от 04.09.2021
-
-VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eugenio Tokarev - Time
-002. Kiral - Again
-003. Eskuche - The Sun
-004. Storgards - Be Kind(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
 ```
 
 

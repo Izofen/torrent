@@ -1,3 +1,30 @@
+###  Публикация: 1011691   (796355) от 28.04.2016
+
+VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|256 кб/с] <pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796355.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jarina De Marco - Paranavigar
+002. John Newman Feat. Charlie Wilson - Tiring Game
+003. Rita Ora - Poison
+004. Юрий Федотов & A-Net - Птица(   Читать дальше...   )Жанр: popПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200433   (796384) от 20.01.2018
 
 VA - Record Super Chart #520 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - Говори Мне Говори (2016) [MP3|256 кб/с] <Шансон, А
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD8EA3112DB662C4CB05BA12D52BDD9589B4F04C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011438   (797016) от 27.04.2016
-
-VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto - Into The Night (Laserdance Cover) (08:31)
-02. Spiral - Around The Planet (Laserdance Cover) (04:01)
-03. Galactic Warriors - You And Me (Laserdance Cover) (05:33)
-04. Amateras - New Adventure (Laserdance Cover) (05:33)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
 ```
 
 

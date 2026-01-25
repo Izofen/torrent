@@ -1,3 +1,57 @@
+###  Публикация: 938614   (479556) от 19.09.2015
+
+Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting
+02. Cat’s Eyes
+03. Hard To Find
+04. Fly Away(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796C505255C0DC3DAFD68582AFFD5CD84D3B762B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056731   (479610) от 26.09.2016
+
+Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479610.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Death Wolf
+2. Tidal Wave
+3. You Can't Look Back
+4. Fences(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3AC681B080D48CE84B0B9FE0863E0BF1419893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056636   (479616) от 26.09.2016
 
 Drunkard - Inhale The Inferno (2016) [MP3|320 Kbps] <Thrash Metal>
@@ -644,57 +698,6 @@ Warlord U.K - Maximum Carnage (1996) Reissue, 2016,Transcending Obscurity Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5267CD8488651F6D3ADAAE32025BD0249DF52F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566617   (480564) от 30.07.2022
-
-Warlord U.K - We Die As One (2013) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Worlds Collide
-02. Human Inner Core
-03. Masses Gather in Masses
-04. Insurgents Breed(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9551680A8B16DD3316DD0DB227757BAF67B65E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566622   (480565) от 30.07.2022
-
-Acid Age - Drone Shark Ethics (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knight of the Living ShredЖанр: Thrash MetalПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885FDF001EF3E2E6219111721BCCCFEB08FB531C
 ```
 
 

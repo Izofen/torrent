@@ -1,3 +1,30 @@
+###  Публикация: 1275373   (790471) от 11.01.2019
+
+VA - Vocal Drum And Bass (2018) [MP3|320 Kbps] <Vocal Bass, D&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Base - Locked
+02. Hedex - Ragequit
+03. Theoretical - Venetian Night
+04. Bou - Only One(   Читать дальше...   )Жанр: Vocal Bass, D&BПродолжительность: 05:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E3B62FA20FECE89F808FCBB5D2B6AC0C32F276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202402   (790505) от 28.01.2018
 
 VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
@@ -668,33 +695,6 @@ VA - Empire Records - Red Star (2019) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA3B1746C64CA0CACAA01BC3A2C1F5D99641B2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201706   (790984) от 27.01.2018
-
-VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Маши - Время 3:24
-02. 7hills - Танцы 3:46
-03. 140 Ударов В Минуту - Катажина 3:46
-04. Alex Opium - Не Обижу 3:45(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBE7F0234909BCD3AF7829DB017197E5D2DA342
 ```
 
 

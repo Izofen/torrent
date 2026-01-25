@@ -1,3 +1,30 @@
+###  Публикация: 1622690   (1029796) от 30.03.2023
+
+VA - Easy Evening Mellow Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars, Anderson Paak, Silk Sonic, Thundercat, Bootsy Collins - After Last Night
+02. Duran Duran - Ordinary World
+03. David Guetta, A Boogie wit da Hoodie, Bebe Rexha, Ty Dolla $ign - Family
+04. Simply Red - If You Don''t Know Me by Now(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7AB9ADAC2B94CE01F4A1845BE935E73106F6E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449153   (1029838) от 21.02.2021
 
 VA - 90s Megamix (Vol.05) (2021) [MP3|256-320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Time spent on BBC (2021) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C12D9152E66B1860A4B03B4887E42359E4658B6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447294   (1031825) от 13.02.2021
-
-VA - Music News vol.71 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031825.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rita Ora & Imanbek - Bang Bang (03:00)
- 002. AlexNo - Кардиограмма (04:42)
- 003. Ali Bakgor & Parah Dice - Somebody Like U (03:01)
- 004. Allega - No (02:38)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B67F0D77C71A66BECA3BC41518124B2F4B3195
 ```
 
 

@@ -1,3 +1,96 @@
+###  Публикация: 609031   (987104) от 01.02.2013
+
+VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tahta Menezes - Day Tripper
+02. Marcela Mangabeira - Feel Like Making Love
+03. Rodrigo & Priscilla - Just Can't Get Enough
+04. Saloa Farah - Lucky in the Sky With Diamonds
+05. Patty Ascher - I Say a Little Prayer
+06. Deco Fiori - A Day in the Life
+07. Barbara Mendes - Don't Stand So Close to Me
+08. Paulinho Loureiro - All You Need Is Love
+09. Tahta Menezes - When a Man Loves a Woman
+10. Cecilia Dale - Cheek to Cheek(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B27AE324AE5DADA3ED30E687507D03A4CCCE5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 611717   (987263) от 01.02.2013
+
+VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep House, Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Mallmann - Night Drive - Drahosh Remix
+02. Marlose - Hey Na.. - Mollono.Bass Remix
+03. Christopher Wilde - Bitter Sweet Feelings (Feat. Lu Chase) - Motorcitysoul Basic Remix
+04. Alex Niggemann - Everybodys Darling
+05. Sebastian Davidson - Sunday Morning - BarBQ Remix
+06. Aquarell - Trumpet Lesson
+07. Kollektiv Turmstrasse - Altona Connection
+08. SIS - Janet
+09. The Messenger - Sense of Tomorrow - Arhitekt Remix
+10. Jaxson - Now You're Gone(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 03:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971285   (987582) от 02.01.2016
+
+VA - Winter Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M. Vitoria - Chill in Out [04:49]
+02. Oscar Salguero - Must Be Heaven [04:32]
+03. Chill Bill - Harlem Chillout [04:56]
+04. Paco Flores - Andalucia [05:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5EF5FF04B410638A51062B84759CB2C6B8DC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354532   (987881) от 22.01.2020
 
 Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|image + .cue] <Synth-pop>
@@ -640,97 +733,6 @@ Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
 01. Une Nouvelle Humanite (The Rurals Remix) 7:54
 02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
 03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605635   (995662) от 20.01.2013
-
-David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Larry Mountains 54 (Original Mix) (8:43)
-02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603133   (995874) от 19.01.2013
-
-VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fresh - Gold Dust (Shy FX Re-Edit) (03:02)
-02. Wiley feat. Skepta - Can You Hear Me (Ayayaya) (03:52)
-03. Example - Changed the Way You Kiss Me (Radio Edit) (03:15)
-04. Carly Rae Jepsen - Call Me Maybe (Almighty Mix Radio Edit) (04:14)
-05. Jessie J feat. David Guetta - LaserLight (03:32)
-06. Nicki Minaj - Starships (Edited Version) (03:30)
-07. Lady Gaga feat. Colby O'Donis - Just Dance (04:02)
-08. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem (Radio Edit) (03:52)
-09. Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Radio Edit) (03:21)
-10. Pitbull feat. Ne-Yo - Give Me Everything (03:48)(   Читать дальше...   )Жанр: Club, House, ProgressiveПродолжительность: 04:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603418   (995891) от 19.01.2013
-
-Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Silence Never Heard (2:53)
-02. - Lost In You (feat. Janai) (5:15)
-03. - Stick By This (5:51)
-04. - Plastique (4:12)
-05. - I'm Running (feat. Soloman) (5:44)
-06. - Falling (7:00)
-07. - Grain (4:06)
-08. - Lost Highway (6:47)
-09. - Mr Miyagi (4:51)
-10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
 
 ## Скачать торент
 ```bash

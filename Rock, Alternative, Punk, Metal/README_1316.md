@@ -1,3 +1,57 @@
+###  Публикация: 1841707   (1048286) от 13.12.2025
+
+Машнинбэнд - Вечная память (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Electronic Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крысы [00:04:03]
+02. Утилизация [00:02:40]
+03. Жирный говнюк [00:03:03]
+04. Простыня [00:02:52](   Читать дальше...   )Жанр: Rapcore, Electronic Rock, Punk RockПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CD0A9122BA5ABAC95C68945E6AF4D9AFCD71AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841866   (1048292) от 13.12.2025
+
+Remina - The Silver Sea (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Black Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048292.jpg" />
+</div>
+
+
+###  Подробнее
+
+As with their 2022 debut, Strata, REMINA’s sophomore album demonstrates an especially spaced out approach to gothic doom. The blend recalls Third And The Mortal with enough colossal riffs to stay within metal territory but largely driven by the sort of slow burn textures and ethereal vocals from dream pop and ethereal wave. The execution has a sense of methodical (   Читать дальше...   )01. Trust No One
+02. Algol
+03. Vanta Ray
+04. Theia(   Читать дальше...   )Жанр: Doom Metal, Black Metal, Atmospheric Black MetalПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDED0C0F439566E3EC915E2FC1E0DE17225E4EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841834   (1048320) от 13.12.2025
 
 Юрий Шевчук & ДДТ - Сборник песен №1 (2021) Reissue, Remastered, 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -639,60 +693,6 @@ CD4 - Dream Evil(   Читать дальше...   )Жанр: Heavy Metal, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277DB93251CB8160DB3BD698946DEF3E817B8DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843754   (1049504) от 21.12.2025
-
-Павел Пиковский - Для красоты (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Фергана (Album Version)
-2. Не родись (Album Version)
-3. Всё в порядке будет
-4. С чего ты взял(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AA785AFC55740F7B1B0C1099A0D1C5B80657E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843753   (1049505) от 21.12.2025
-
-Ананасов и Ко - Знак солидарности (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А зори здесь тихие...
-2. Амундсен
-3. Камикадзе (попадают в рай)
-4. Альенде(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67589D045573D647EADA6CCDDB7401C775025B16
 ```
 
 

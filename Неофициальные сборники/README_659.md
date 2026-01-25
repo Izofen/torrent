@@ -1,3 +1,30 @@
+###  Публикация: 1478157   (1010509) от 18.06.2021
+
+VA - Confessions (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bark - Malady
+002. Psychedelic - Tripolasaur
+003. Matthew Sweet - Give A Little
+004. Tomemitsu - And Now(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B95EA6F72EE6D38129175CB24D031503A143514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477977   (1010638) от 17.06.2021
 
 VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Mein Lieblings Schlager (2021) [MP3|320 Kbps] <Pop, Folk, Dance, Schlager>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3906F4FBFDBF817DA3F2A608E0D6C40A093D5087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474970   (1012524) от 05.06.2021
-
-VA - All Out 00s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012524.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga, Colby O'Donis - Just Dance (4:02)
-002. James Blunt - You're Beautiful (3:29)
-003. Maroon 5 - This Love (3:26)
-004. David Guetta - When Love Takes Over (feat. Kelly Rowland) (3:11)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 16:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F3C64434425BB8D7E0BD73E76CB37FD0015DCD
 ```
 
 

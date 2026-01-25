@@ -1,3 +1,57 @@
+###  Публикация: 1464751   (1019671) от 23.04.2021
+
+Vexillum - When Good Men Go To War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlight The Bivouac
+02. Sons Of A Wolf
+03. Voluntary Slaves Army
+04. When A Good Man Goes To War(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998261C59E2477F1B405D85D741BFED3D3FF3A0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464655   (1019675) от 23.04.2021
+
+Instant Curtain - Let Tear Us Apart (2020) [FLAC|Lossless|image + .cue] <Eclectic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverse in the Sand (6:20)
+02. Tell the Tales, May I (5:07)
+03. The Beginning (4:15)
+04. All White (4:26)(   Читать дальше...   )Жанр: Eclectic Progressive RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED27CBB0D3BF72904785ABE224CA00EB6A3C2D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464405   (1019780) от 22.04.2021
 
 Guano Apes - Bel Air (2011) Gold Edition [FLAC|Lossless|track + .cue] <Alternative Rock>
@@ -638,60 +692,6 @@ Rage - Black In Mind (1995) [FLAC|Lossless|image + .cue] <Power Metal, Speed Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21DC6E45BE6A7D4DC50C777E768F17FFE775C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464072   (1020020) от 21.04.2021
-
-Armaggedon - Trumpets of Christian Holocaust (2021) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Freezing Moon (Mayhem cover)
-02. Sous la Banniére au Pentacle Gammé
-03. Trumpets of Christian Holocaust
-04. The Beheading of Mohammed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911A79B5978D96D010953DB354F3D38846554B67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464135   (1020022) от 21.04.2021
-
-Rage - XIII (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. From The Craddle To The Grave
-03. Days Of December
-04. Changes: I. Sign Of Heaven(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC1A7A59D2343571DCB0F34AD3327E4345EC7C0
 ```
 
 

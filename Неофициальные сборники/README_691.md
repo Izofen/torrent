@@ -1,3 +1,30 @@
+###  Публикация: 1844855   (1050415) от 28.12.2025
+
+VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - I Have Everything Now Except
+02 - Riltim - Retona
+03 - Smtve - Let You Down
+04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844843   (1050416) от 28.12.2025
 
 VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
@@ -457,7 +484,7 @@ magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845711   (1050927) от 
+###  Публикация: 1845711   (1050927) от 06.01.2026
 
 VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|320 Kbps] <Rock>
 
@@ -668,33 +695,6 @@ VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845811   (1051093) от 
-
-Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Broken Enough to Bleed
-02 - I Found Forever in You
-03 - I Cant Breathe Without Your Love
-04 - I Still Belong Where You Left Me(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
 ```
 
 

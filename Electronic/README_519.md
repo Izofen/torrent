@@ -1,3 +1,84 @@
+###  Публикация: 1621141   (1030986) от 25.03.2023
+
+VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Larssen - Time Machine (Original Mix) [6:46]
+02. Sybranax - Binary Star (Original Mix) [6:21]
+03. Nick Osta5h - Deja Vu (Original Mix) [7:01]
+04. Atti Master & PUNK JUNGLE - Enter The Future (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFBB8ECAD59BAD8DB48E7ADF04C6FA5B7FB73AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621431   (1030988) от 25.03.2023
+
+VA - Delhi Trance Festival (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flambo - By Your Side (Expand) [3:23]
+02. Flambo - Trancetastic (Original Mix) [4:55]
+03. Tonliebe - Unbreakable (Instrumental Version) [3:21]
+04. Mike Rules - Sunflower (Original Mix) [5:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868E9DD477DB6C571ADD6A4B3D44ED988C20C386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621691   (1030993) от 25.03.2023
+
+VA - Trance Reserve Music 2022 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katrin's World & Trance Reserve - RUSH (Extended Mix) [5:55]
+02. Trance Reserve - Black Shark (Extended Mix) [5:54]
+03. U-Mount & SpaceLine - Libra Terra (Extended Mix) [7:34]
+04. Sergiy Akinshin - RUN (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D05AE6E685C2F73177445AFCE66B12B2BB4E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620876   (1031077) от 24.03.2023
 
 Depeche Mode - Memento Mori (2023) [MP3|277-296 kbps VBR (V0)] <Electronic, Synth-pop>
@@ -612,87 +693,6 @@ Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446981   (1032091) от 12.02.2021
-
-Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032091.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Bygone Daze 6:34
-2 Intrigue 12:43
-3 Emor Femus 10:46
-4 Tera's Secret 4:40(   Читать дальше...   )Жанр: Berlin SchoolПродолжительность: 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C9C9A5845037F1722FFCBD78BED0A3DCBA1BFF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447269   (1032092) от 12.02.2021
-
-Jens Buchert - Dawnrider (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downbeat, Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shimmering Waters (4:13)
- 02. Marvel (6:28)
- 03. Golden Beyond (5:32)
- 04. Orangerie (5:49)(   Читать дальше...   )Жанр: Electronic, Ambient, Downbeat, Trip-HopПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044E109E68A4AB1924836CBF1C8F0FA17C3AE331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447205   (1032127) от 12.02.2021
-
-VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz - Escape to Narva
-01. Markus Schulz - Hanging in a Moment
-02. Kyau & Albert & Steve Brian - Candy
-03. Cosmic Gate & Andrew Bayer - The Launch(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
 ```
 
 

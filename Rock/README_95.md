@@ -1,3 +1,57 @@
+###  Публикация: 1475585   (1012154) от 08.06.2021
+
+Space-Man - Charged (2021) [MP3|320 Kbps] <Progressive Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dint [00:04:44]
+02 - Saturation [00:05:31]
+03 - EINZ [00:05:30]
+04 - Octaves [00:04:24](   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DD36448F7EB9D387F0197DE01E5114EE4CBCC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474813   (1012691) от 04.06.2021
+
+Billy F Gibbons - Hardware (2021) [MP3|320 Kbps] <Southern Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Lucky Card
+02. She’s On Fire
+03. More-More-More
+04. Shuffle, Step & Slide(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D367CCEBF5A0C32AF216EF6F0E0CFC494E1CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474522   (1013077) от 02.06.2021
 
 Rest in Haste - 3 Albums (2014-2021) [MP3|320 Kbps] <Stoner Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:FF5AAF1CF4C184EEF89AB6815209838EA9F5121F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A5A879A6ABBC7C61D6AF8046973A43C8F2E554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460958   (1022280) от 07.04.2021
-
-Joanna Stingray - Stay Together (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот альбом — плод совместного творчества Джоанны Стингрей и патриарха русского рока Бориса Гребенщикова. Английские тексты были написаны ими совместно, музыка на большую часть новых песен также была написана вместе, а записывала их Джоанна уже в США, на студии в Малибу. Профессионально спродюсированная запись, по стилистике близкая к материалу Кейт Буш и Синди Лаупер, (   Читать дальше...   )1. Intro
-2. Drama
-3. Welcome Us Home
-4. Modern World(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D929E17E9810DA367EFDF401DD7EB0B3CCBE5961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461015   (1022284) от 07.04.2021
-
-Thunder - All The Right Noises (2021) Deluxe Edition [MP3|320 Kbps] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Last One Out Turn Off The Lights [00:04:14]
-02 Destruction [00:05:01]
-03 The Smoking Gun [00:04:49]
-04 Going To Sin City [00:03:56](   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D48E8E3B0A507CEF0F4C1EE6A5069CD55FC5B8
 ```
 
 

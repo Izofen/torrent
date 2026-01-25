@@ -1,3 +1,30 @@
+###  Публикация: 978731   (962612) от 24.01.2016
+
+VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manos Hadjidakis - The Waltz of Lost Dreams
+02. Vasilis Saleas - The Honeymoon Song
+03. Vasilis Saleas - Prelude
+04. Yanni - Carol's Theme(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978235   (962621) от 24.01.2016
 
 2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
@@ -665,30 +692,6 @@ VA - Existence In Progress (2016) [MP3|320 кб/с] <Progressive House, Electro,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1B0926878608373307F330181E4C6FE15E148B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978049   (964730) от 22.01.2016
-
-VA - So Sexy, Vol. 2 (Chillout Selection) (2016) [MP3|320 кб/с] <Ambient, Lounge, ChillOut, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Magic - Sweet Rainy Day (feat. Jenny T.)Жанр: Ambient, Lounge, ChillOut, ElectronicПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4114E45195B1893A6F3D9A58FA871B589CD4AA1
 ```
 
 

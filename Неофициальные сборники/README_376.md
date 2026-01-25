@@ -1,3 +1,30 @@
+###  Публикация: 1230159   (618976) от 10.06.2018
+
+VA - Record Super Chart 540 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prodigy feat. Vicetone - Omen 3:43
+02. Lucas & Steve - Source 4:22
+03. Rudeejay & Da Brozz - Children 3:05
+04. Brandy, Lucas & Steve - I Could Be Wrong 3:42(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058FDB5B0437C6DA390E3B08BE321232AE106296
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036745   (618980) от 21.07.2016
 
 VA - Музыка Для Свидания (2016) [MP3|320 Kbps] <Pop, Jazz, Rock, RnB, Relax>
@@ -710,33 +737,6 @@ VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3026A35349D2E9285B70C087B296547DDBC3D6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910776   (620360) от 21.06.2015
-
-VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moby ft. Damien Jurado - Almost Home  (Sebastien 2015 Radio Edit) (03:35)
-02. Exoplanet - Crystal Garden (Mindaugas Jak Remix) (08:39)
-03. Frosun - Endless Road (Original Mix) (07:22)
-04. Julian Dep - Facing The Abyss (Rick Pier O'Neil Remix) (07:07)(   Читать дальше...   )Жанр: House, Club House, Deep House, DanceПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
 ```
 
 

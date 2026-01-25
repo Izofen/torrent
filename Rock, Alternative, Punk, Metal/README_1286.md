@@ -1,3 +1,57 @@
+###  Публикация: 1439577   (1039954) от 13.01.2021
+
+Brad Wallace - Slow Worm (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Alone (04:47)
+ 02. The Armorer (04:18)
+ 03. Slow Worm (03:41)
+ 04. Hail and Fire (04:16)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BA171499C8DF0F2FBD8F35CBF8E2A323488BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428322   (1040026) от 12.01.2021
+
+Кипелов - Концерт с симфоническим оркестром (2020) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыхание тьмы
+02. Безумие
+03. Свет дневной иссяк
+04. Мёртвая зона(   Читать дальше...   )Жанр: Heavy MetalФормат: 2CD + DVDПродолжительность: 01;08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB9B784E2FA7EA6FF27EE2BA53ECDFCBCEF795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439306   (1040053) от 12.01.2021
 
 Diаmоnd Неаd - Lightning То Тhе Nаtiоns 2020 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:562A876ED20ACDC55B711D331E0E7B3B6F0A3DA0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3FEC61DE247F1E61AE2A8E42B26ED676B9E76E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612616   (1040183) от 16.02.2023
-
-Hellpass - Gates Of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gate [00:01:22]
-02. Alter Nation [00:03:54]
-03. Gates of War [00:04:34]
-04. Fallen Hero [00:04:18](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99EE2333B109CD28108F9CC33B2B55B4F8F6402D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439193   (1040186) от 12.01.2021
-
-Nigredo - Flesh Torn - Spirit Pierced (2018) [FLAC|Lossless|tracks + .cue] <Black Metal, Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ten Repellent Antiforces (5:08)
-02. Necrolatry (4:16)
-03. Choronzon Possession (5:43)
-04. Mental Glimpses At Cosmic Horrors (5:08)(   Читать дальше...   )Производство: Transcending Obscurity Records – TOR 37Жанр: Black Metal, Death Metal, Doom Metal, Grindcore, Post Hardcore, Trash MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99095D0AFD75F17472C0183D1889BCE95E7A4AC
 ```
 
 

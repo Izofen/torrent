@@ -1,3 +1,85 @@
+###  Публикация: 1525880   (739136) от 22.01.2022
+
+Tony Birch - Gamechanger (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lone Rider (3:54)
+02. Serene (3:59)
+03. Daydreamer (3:50)
+04. Gamechanger (3:46)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC82B9F724AF75686D5672C87B4B009BAB45CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785018   (739231) от 10.05.2014
+
+VA - Pure... Chillout (2011) Box Set, 4 CD [FLAC|Lossless]<Electronic, Lounge, ChillOut>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739231.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой "комнате свиданий" (а именно так переводит Translate.Ru музыкальный термин Chillout) вы увидитесь, а вернее "услышитесь" с самыми знаменитыми композициями "для отдыха". Остынь, расслабься! Вот именно это каждым своим звуком и говорят они слушателям.
+Chillout – стиль электронной музыки, зародившийся в начале 90-х годов и взявший (   Читать дальше...   )01. Groove Armada - At the River  (3:04)
+02. Smoke City - Underwater Love  (3:59)
+03. Kinobe - Slip Into Something More Comfortable  (3:44)
+04. Skinny - Failure  (4:56)(   Читать дальше...   )Жанр: Electronic, Lounge, ChillOutПродолжительность: 04:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5563ED758A2DE45C8F90A4347A15B7BF36377B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283506   (739555) от 17.02.2019
+
+VA - Female Vocal Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - In A Thousand Skies (Original Mix)
+02. Stargazers feat. Fenna Day - Crystalize (Original Mix)
+03. The Blizzard feat. Carol Lee - Always A Stranger (Nitrous Oxide Remix)
+04. Rub!k feat. Sue Mclaren - Everglow (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCF4B61B98C23530A175641C62781BEBA2868AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283531   (739567) от 17.02.2019
 
 VA - Sick Music 2019 [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
@@ -606,87 +688,6 @@ LTN - People I'll Never Forget (Remixes) (2016) [MP3|320 кб/с] <Trance,Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:743F81CCFEEC27287AA14D74D82C37A8A0563181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021402   (740992) от 29.05.2016
-
-VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uffe Bengtsson - Summer in Ibiza [06:44]
-02. Dimix - Coming Alive - Fallow Remix [07:03]
-03. Nocti Luca - Volver - Zak Gee Remix [06:01]
-04. Lex Luca - Hoop [06:29](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9289C8D9B621CE5C63F3BB6B04BE916574FC0833
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021394   (740996) от 29.05.2016
-
-VA - Paul Oakenfold DJ Box May (2016) [MP3|320 кб/с] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juno Reactor - Voyager 303 (06:17)
-02. Paul Oakenfold - Lonely Ones (feat Tawiah - Daniel Davoli Ibiza remix) (06:13)
-03. Max Graham - Amnesia (original mix) (06:15)
-04. Betsie Larkin - We Are The Sound (Chris Metcalfe remix) (06:39)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100956F10AF55AEC5C1CCA3C39F1009E863BEF15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217780   (741037) от 06.04.2018
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour Miami (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota - Cafe Del Mar
-02. Boris - Can You Hear Me (Enrico Sangiuliano Remix)
-03. ID
-04. Cosmic Gate - Halo(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412B8C8F6087E27DE52837D339EB929F778403C8
 ```
 
 

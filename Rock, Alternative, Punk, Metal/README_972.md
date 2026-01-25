@@ -1,3 +1,57 @@
+###  Публикация: 1284696   (726579) от 23.02.2019
+
+Internal Bleeding - Onward To Mecca (2004) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed by Example (3:20)
+ 02. Siege in the Clouds (3:38)
+ 03. Infidel (3:55)
+ 04. Far Above You (3:47)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075FE015E12DDBE841ED4EDBCA12B49EB6134621
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284688   (726580) от 23.02.2019
+
+Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sengaia (4:24)
+ 02. Uncle Less (3:24)
+ 03. Lionel (4:37)
+ 04. Braindead (4:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142DE572BE41F505C209E8D0A11DB7CC747B2FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128684   (726647) от 26.04.2017
 
 Order From Chaos - Dawn Bringer (1995) [FLAC|Lossless|image + .cue] <Black, Death Metal>
@@ -639,60 +693,6 @@ Paul Simon - Stranger To Stranger (2016) Deluxe [FLAC|Lossless|image + .cue] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DE7E5F0730D952C62C19308D22FB318F11A3C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022973   (727769) от 03.06.2016
-
-First Signal - One Step Over The Line (2016) [MP3|320 кб/с] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Run Free (4:29)
-02. Love Gets Through (4:53)
-03. Still Pretending (4:28)
-04. Broken (3:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD10A3BDEF42058CC9E3D595C2F8B280A133A95E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022979   (727778) от 03.06.2016
-
-Stranded By Choice - Hellroaring (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire (3:34)
-02. Black Seed (5:26)
-03. Resisting (3:40)
-04. The Voice That Only I Hear (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746EC230BBE7D4AC622D5E8EEE39E33B8F4A996D
 ```
 
 

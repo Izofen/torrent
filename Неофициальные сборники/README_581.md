@@ -1,3 +1,30 @@
+###  Публикация: 1373961   (876480) от 08.04.2020
+
+Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Shack
+02. Bad Woman Blues
+03. War In My Mind
+04. Caught Out In The Rain(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374095   (876489) от 08.04.2020
 
 Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -665,33 +692,6 @@ VA - Absolute Acoustic (2017) [MP3|320 Kbps] <Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88B29B0B8E81FE1A878C2DDF19FC645F01CABACA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104550   (878208) от 16.02.2017
-
-VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chris Schweizer - Era (Original Mix)  5:15
-02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
-03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
-04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
 ```
 
 

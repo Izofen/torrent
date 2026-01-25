@@ -1,3 +1,60 @@
+###  Публикация: 1500173   (842716) от 05.10.2021
+
+Crystal Viper - Tales Of Fire And Ice (2019) Japanese Edition, 2020, Rubicon [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз cедьмого полноформатника вокалистки Марты Габриэль и ее команды получил название “Tales Of Fire And Ice” и издан лейблом AFM на CD, лимитированном виниле и в цифровом виде осенью 2019 года. Альбом содержит бонус-трек – кавер-версию "Dream Warriors" DOKKEN, которая была изначально записана для фильма "Кошмар на улице Вязов 3".
+
+Credits:
+Bass (   Читать дальше...   )01. Prelude (1:31)
+02. Still Alive (3:42)
+03. Crystal Sphere (5:02)
+04. Bright Lights (3:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249A939BF14E16AE4F28660299D3479E4CA85049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500050   (842717) от 05.10.2021
+
+Martin Hall - Stranger In The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart & Soul (03:31)
+02. Don't Be A Fool Again (03:18)
+03. Angels Betrayed (03:29)
+04. Somewhere Tonight (04:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC733B746852B0EE1BF1A47D90B29F38D7EF1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500162   (842722) от 05.10.2021
 
 Adamantia - Anhelos del Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal>
@@ -641,60 +698,6 @@ Mob Rules - Tales From Beyond (2016) [FLAC|Lossless|image + .cue] <Melodic Power
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C921EF26412D8A784E3126AB2077D094105B281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003068   (843409) от 03.04.2016
-
-Metal Church - XI (2016) [FLAC|Lossless|image + .cue] <Heavy, Power, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Reset
-02. Killing Your Time
-03. No Tomorrow
-04. Signal Path(   Читать дальше...   )Жанр: Heavy, Power, Thrash MetalПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7351FDBBA21D3EBF9BE26F74586B283AA6650D65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003427   (843418) от 03.04.2016
-
-Kari Rueslatten - To The North (2015) [MP3|320 кб/с] <Rock, Folk, World>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Forevermore    03:50
-02. Mary's Song    03:58
-03. What We Have Lost    04:06
-04. Three Roses In My Hands    03:03(   Читать дальше...   )Жанр: Rock, Folk, WorldПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2A14F845B874C7FC0FA02A4E0C18751532ED1E
 ```
 
 

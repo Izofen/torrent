@@ -1,3 +1,57 @@
+###  Публикация: 983672   (942351) от 07.02.2016
+
+Tedeschi Trucks Band - Let Me Get By (2016) [MP3|320 кб/с] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyhow (06:34)
+02. Laugh About It (05:06)
+03. Don't Know What It Means (05:59)
+04. Right On Time (04:34)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE90976AF25D96C640FCE2FD550318CAC4A55713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091344   (943020) от 09.01.2017
+
+Cold Body Radiation - The Orphean Lyre (2017) [MP3|320 Kbps] <Post-Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ghost of My Things
+02. Sinking of a Wish
+03. All the Little Things You Forget Are Stored in Heaven
+04. At Sea(   Читать дальше...   )Жанр: Post-Rock, ShoegazeПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD294B2316AF178ECBC7D1D3F12C153299D8DD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091492   (943024) от 09.01.2017
 
 The Detroit Cobras - Life, Love And Leaving (2001) [MP3|320 Kbps] <Garage Rock>
@@ -641,66 +695,6 @@ Beefeaters - Beefeaters (1967) Remastered, 2004, Second Life [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B67BAB5BC8F311F8C8FC33F539D14B86C948077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 165738   (974844) от 16.01.2010
-
-Farcry - High Gear (2009) [MP3|320 kbps]<Melodic Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have It All (5:19)
-02. Talk To Me (3:49)
-03. Love Won't Wait (3:55)
-04. Fine Line (3:55)
-05. Kick Me Down (3:52)
-06. Heaven (4:37)
-07. Nowhere Fast (5:34)
-08. Out Of Reach (3:15)
-09. She's Crazy (5:29)
-10. The Same Mistake (4:02)(   Дальше...)Жанр: Melodic Rock/AOR
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356631   (977836) от 31.01.2020
-
-Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Together
-02. Let Me Love You
-03. I Want You Back
-04. Taste of Your Love(   Читать дальше...   )Жанр: Blues, Rock, R'n'BПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE9EA1C6C730A3CBA43073D1E9D4D5D0EA87017
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1355378   (983626) от 26.01.2020
+
+VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
+02. Paul Kalkbrenner - Platscher (4:12)
+03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
+04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355401   (983628) от 26.01.2020
+
+VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
+02. Dr. Space - Right Now (Radio Mix) 3:23
+03. Stephan Vegas & Rizzo DJ - Dime Que Me Amas (Radio Mix) 3:36
+04. Skelectro - The Game (Radio Edit) 2:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355377   (983631) от 26.01.2020
+
+VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schiller - Atemlos (3:11)
+02. Peter Heppner - Give Us What We Need (Truth Is Not The Key) (3:40)
+03. Turntablerocker - Deja-vu (4:08)
+04. Oliver Koletzki & Fran - Fingertips (5:26)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CA95F3BEF81D825515DDF083D0AFE3D05C536B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613278   (984229) от 03.02.2013
 
 V.A. - Lounge Del Mar (2CD) (2012) [FLAC (tracks+cue)|Lossless]<Chillout, Lounge, Deep House>
@@ -637,99 +718,6 @@ VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609031   (987104) от 01.02.2013
-
-VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tahta Menezes - Day Tripper
-02. Marcela Mangabeira - Feel Like Making Love
-03. Rodrigo & Priscilla - Just Can't Get Enough
-04. Saloa Farah - Lucky in the Sky With Diamonds
-05. Patty Ascher - I Say a Little Prayer
-06. Deco Fiori - A Day in the Life
-07. Barbara Mendes - Don't Stand So Close to Me
-08. Paulinho Loureiro - All You Need Is Love
-09. Tahta Menezes - When a Man Loves a Woman
-10. Cecilia Dale - Cheek to Cheek(   Читать дальше...   )Жанр: Lounge, Easy Listening, Bossa NovaПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B27AE324AE5DADA3ED30E687507D03A4CCCE5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611717   (987263) от 01.02.2013
-
-VA - Keep Movin: Late Nite House Grooves Vol.1 (2013) [MP3|320 кб/с]<Deep House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefan Mallmann - Night Drive - Drahosh Remix
-02. Marlose - Hey Na.. - Mollono.Bass Remix
-03. Christopher Wilde - Bitter Sweet Feelings (Feat. Lu Chase) - Motorcitysoul Basic Remix
-04. Alex Niggemann - Everybodys Darling
-05. Sebastian Davidson - Sunday Morning - BarBQ Remix
-06. Aquarell - Trumpet Lesson
-07. Kollektiv Turmstrasse - Altona Connection
-08. SIS - Janet
-09. The Messenger - Sense of Tomorrow - Arhitekt Remix
-10. Jaxson - Now You're Gone(   Читать дальше...   )Жанр: Deep House, Minimal, Tech HouseПродолжительность: 03:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB62355CECF739A10FB59506581210D3BE33F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971285   (987582) от 02.01.2016
-
-VA - Winter Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M. Vitoria - Chill in Out [04:49]
-02. Oscar Salguero - Must Be Heaven [04:32]
-03. Chill Bill - Harlem Chillout [04:56]
-04. Paco Flores - Andalucia [05:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5EF5FF04B410638A51062B84759CB2C6B8DC8E
 ```
 
 

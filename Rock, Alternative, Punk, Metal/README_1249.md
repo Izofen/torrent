@@ -1,3 +1,57 @@
+###  Публикация: 1454416   (1026445) от 14.03.2021
+
+Medea - А Fаtе Sуmрhоnу (2020) А Rосk Ореrа bу Неnrу Mееuws [FLAC|Lossless|image + .cue] <Symphonic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seizures
+02. Traces Of A Fate Symphony
+03. To Change History
+04. Regression(   Читать дальше...   )Жанр: Symphonic Rock, Progressive RockПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0DDA4EAD80C862FE1BBB4AC378503DCB8C8A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454226   (1026446) от 14.03.2021
+
+Starmen - Kiss The Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stealer
+02. Dangerous
+03. All Along The Watchtower {Bob Dylan cover}
+04. Gravity(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E5CB2C69F1F1685D8CC8E0CB7CCC51E10E27D55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454227   (1026450) от 14.03.2021
 
 Starmen - Welcome To My World (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:CEE7D81908F0E91277D9552BF173453099DCB48A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BEDD49F4671877E7F1170216F1E53A39E1C4597
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453635   (1026775) от 12.03.2021
-
-Sea Mouse - Tropical Fish (2021) [MP3|320 Kbps] <Sea Mouse, Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rutherfords [00:03:13]
-02 - Vogons [00:03:49]
-03 - Kickin' [00:05:06]
-04 - Car Smasher [00:02:55](   Читать дальше...   )Жанр: Sea Mouse, Rock, Alternative Rock, Modern Blues RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0812D2952D3D087710E01FD261DC1D72345C76F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453761   (1026776) от 12.03.2021
-
-Starmen - By The Grace Of Rock 'n' Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shining Star
-02. By The Grace Of Rock‘n’roll
-03. Kairi
-04. Black Thunder White Lightning(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A54DD5F14F1E9F8B814E4E92754A255EDBA760
 ```
 
 

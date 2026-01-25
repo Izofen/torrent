@@ -1,3 +1,30 @@
+###  Публикация: 1022871   (727779) от 03.06.2016
+
+VA - Ibiza 2016 (Deluxe Version) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nando Rodriguez - Day of the Days (Original Mix)
+02. Nebogitel - Riders (Original Mix)
+03. GRiSHA - Lonely Night (Original Mix)
+04. Corporate Fony - South Station (Corporate Fony Remix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0544A330A695C7ACDC37B5E85E40AE14C583172A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022528   (727785) от 03.06.2016
 
 VA - Chill Out XSTATION Complete (2016) [MP3|320 кб/с] <ChillOut, Ambient, Downtempo, Lounge, Electronica>
@@ -668,33 +695,6 @@ VA - Top 100 Зайцев Нет Май 2016 (2016) [MP3|192-320 кб/с] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF377EE91A16E01DA38DD5516A0AB61DFF3A3614
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022318   (729509) от 01.06.2016
-
-VA - 50 оттенков музыки 18+ (05.2016) [MP3|128-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filous - Feel Good Inc (feat. Lissa)
-02. Misha Klein feat. Nikita Malinin - Get Better (Original Mix)
-03. This is I - Round & Round (Original Mix)
-04. Alesso ft. Nico & Vinz - I Wanna Know (Manatee Remix)(   Читать дальше...   )Жанр: Pop, Dance, Electronic, Dubstep, Other, RockПродолжительность: 11:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C3E8E8141EDA4C751FA44A7BCF37F9D6ABD5D78
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1604815   (1045230) от 15.01.2023
+
+Shylock - Shylock (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Let U Go (4:25)
+02. I Want To Know (4:01)
+03. Chained (3:29)
+04. The Same (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC32477D87AC9AD27BD8858F9A54B4E326ED506
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604606   (1045297) от 14.01.2023
+
+Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + .cue]<Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wooden Heart
+02. Sentimental Me
+03. Fever
+04. For The Millionth And The Last Time(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 02:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1139D062F53B040A6BDC1A496995D756B18CCDAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752277   (1045300) от 14.01.2023
 
 Wulfgar - With Gods And Legends Unite (2007) [FLAC|Lossless]<Death Metal>
@@ -641,60 +695,6 @@ Deafcarnation - Human Infested (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE6855A46F34A6841092867CEF6C9C200570991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603994   (1045520) от 12.01.2023
-
-Draghoria - Portal to Extinction (2016) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suicide Serenity (05:59)
-02. Crowning the Tyrant (05:53)
-03. Welcome to the New Hell (05:14)
-04. Kill or be Killed (04:45)(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED242D0D015B3971B88E5A050613B3B959927EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603915   (1045524) от 12.01.2023
-
-Deadflesh - The Fifth Assault (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Man's Land (05:15)
-02 - Blood for the Blood God (04:34)
-03 - Via Dolorosa (04:44)
-04 - The Prodigal Sun (02:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C24D462009BC0D254CAF2434B7D79D96927E99E
 ```
 
 

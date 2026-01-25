@@ -1,3 +1,57 @@
+###  Публикация: 1133298   (695192) от 12.05.2017
+
+Thyrant - What We Left Behind... (2017) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695192.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:27] 01. Bury Me
+[04:51] 02. Endless Hunt
+[07:29] 03. Delusion
+[04:02] 04. Damned At Midnight(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A117090FBB58B0029C0EF9DF48980136E096D316
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156422   (695558) от 17.08.2020
+
+Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датское трио , сформированный 2002 в Thisted, Дания. Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Jesper и барабанщика Бенджамина Хова. Они выпустили дебютный альбом группы, «Манифест», в апреле 2003. Хов был заменен Андерсом Хвидтфелдтом в августе 2003. С тех пор группа выпустила в общей сложности 9 альбомов (включая переиздание «Манифеста» и зальный (   Читать дальше...   )--------------------------
+
+01. World Of Trouble (4:27)
+02. Stick To Your Guns (3:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy Blues Rock |Продолжительность: 10:03:20 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDD8BA3B01DFE5840343F12B8334CCFE8753166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288424   (695657) от 11.03.2019
 
 Foals - Everything Not Saved Will Be Lost Part 1 (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -641,62 +695,6 @@ Manfred Mann's Earth Band -  Nightgales And Bombers (1975) Remastered, 1999, Cre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE01F163A61B2DC13AA740BD961F408FE9E24CE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132822   (696932) от 11.05.2017
-
-VA - Dansk Rock Historie (1965-1978) 3 Box Set - 33CD, 2010 [WavPack|Lossless|image + .cue] <Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696932.jpg" />
-</div>
-
-
-###  Подробнее
-
-40 исторических альбомов на тридцати дисках,
-составляющих сливки золотого века датской рок-музыки 1965-1978 гг.
-Каждый бокс дополнен бонусным CD ранее неизданного материала!1. Dunhammeraften 05:25
-2. Itsi-bitsi 04:54
-3. Til Nashet 05:23
-4. Jensen 06:40(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-RockПродолжительность: 32:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D759BC01BCD2D2673F8C936E1855E8713F04C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133166   (696938) от 11.05.2017
-
-Harem Scarem - United (2017) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United
-02. Here Today, Gone Tomorrow
-03. Gravity
-04. Sinking Ship(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4510E592CD437C78CD937982F6DB1E0477C04A88
 ```
 
 

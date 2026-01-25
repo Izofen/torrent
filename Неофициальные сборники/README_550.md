@@ -1,3 +1,30 @@
+###  Публикация: 1006170   (828976) от 11.04.2016
+
+VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лера Туманова - Покажи Мне Любовь
+02. Виктория Дайнеко - R.E.D.
+03. Dan Balan - Домой
+04. Mary Lambert Feat. Angel Haze & K.Flay - Ribcage(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDB9A97AA44D8B96CF9754D2DD316F0E664063C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006174   (828979) от 11.04.2016
 
 VA - Водка в хрустале. Академия хитов (2016) [MP3|256-320 кб/с] <Шансон>
@@ -668,33 +695,6 @@ VA - Жажда скорости (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A36A80E8D8E94ACAD4215E7CB9DFF0CAF22B20D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005975   (830811) от 10.04.2016
-
-VA - Laid Back Evening: Acoustic Guitar (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lan Sub - 7 Years
-02. Cyclon - NO
-03. Quick train - Hotline Bling
-04. Beat four - Hello(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CC70A29D4ABF99B7BE7750D6F10F09609C1BFA
 ```
 
 

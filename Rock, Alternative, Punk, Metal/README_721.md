@@ -1,3 +1,57 @@
+###  Публикация: 1569167   (453829) от 12.08.2022
+
+Black Eye - Black Eye (2022) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hurricane
+02. Space Travel
+03. Break The Chains
+04. No Turning Back(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1200D15A9185B4E7A62F12F3D036E160B95070F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569248   (453831) от 12.08.2022
+
+Shiraz Lane - Forgotten Shades Of Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Life
+02. Maniac Dance
+03. Scream
+04. Forgotten Shades Of Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BBFFB1212992686BE24F3CD2C351D4172F7518A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241661   (453860) от 04.10.2010
 
 Крыница - Во Славу Солнца (2007) [FLAC|Lossless]<Pagan Metal, Dark Folk Metal, Neofolk Metal>
@@ -650,60 +704,6 @@ Black Veil Brides - 2 Альбома 3 Сингла (2007-2011) [MP3|96-320 Кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A7DC4A883827EC95D7255012C40E71B7D2C016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060369   (455040) от 07.10.2016
-
-Kaiser Chiefs - Stay Together (2016) [MP3|320 Kbps] <Indie Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Stay Together (04:33)
-02. Hole In My Soul (04:28)
-03. Parachute (03:53)
-04. Good Clean Fun (05:08)(   Читать дальше...   )Жанр: Indie Rock, ElectronicПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38CCC209FEB22C0347E1D05EBEF09B277A3CD0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163004   (455123) от 03.09.2017
-
-Gil Edwards - Celebrate (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey, Hey, Hey (04:49)
-02. Lying (05:39)
-03. You Keep Me Hangin' On (05:57)
-04. Don't Wanna Hear About It (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:565347169D2E1F7ADD787B4FFB2182AD1505F30E
 ```
 
 

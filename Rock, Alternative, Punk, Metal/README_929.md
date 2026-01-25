@@ -1,3 +1,57 @@
+###  Публикация: 1290968   (674191) от 22.03.2019
+
+Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Gambler (US Mix, 2019 Remaster) (3:57)
+ 2 - Slide It In (US Mix, 2019 Remaster) (3:19)
+ 3 - Slow An' Easy (US Mix, 2019 Remaster) (6:01)
+ 4 - Love Ain't No Stranger (US Mix, 2019 Remaster) (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12FDF4254F8C6431A304307235C38DCB8CEC70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030564   (674269) от 30.06.2016
+
+Нейронная оборона - 404 (2016) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотрудники Яндекса выпустили альбом песен и стихотворений, написанных «нейропоэтом». Выбор пал на уже покойного Егора Летова, лидера советской группы «Гражданская Оборона». Алексей Тихонов сгенерировал набор текстов. К сожалению, компьютеры пока не готовы сочинять музыку надлежащего качества и только начинают делать свои первые музыкальные опыты. Алгоритм успешно (   Читать дальше...   )01. И всё-то как в кайф!
+02. Заново мир
+03. В кино
+04. Комиссар Михаил(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3FBBE015C6B81D536210045F86E17EB1B9A291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030422   (674270) от 30.06.2016
 
 Сурганова и Оркестр - Игра в классики (Live In Crocus City Hall) (2015) 2xCD [FLAC|Lossless|image + .cue] <Rock>
@@ -656,66 +710,6 @@ Grails - 8 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Psychede
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509110   (675084) от 12.06.2012
-
-Реанимация - 2 альбома (2006 - 2008)  [Monkey's Audio|Lossless] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2006-2008О группе:Жанр: Heavy MetalПродолжительность: 01:00:47
-
-01. Письмо (05:31)
-02. Волк (05:43)
-03. Моя земля (06:12)
-04. Было время (06:45)
-05. Козацька (06:06)
-06. Я вернусь (04:54)
-07. Характерник (05:33)
-08. Проклятье Богов (05:33)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223380   (675098) от 04.05.2018
-
-VA - Absolute 70's (2007) 3CD [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - We Are The Champions (2:59)
-02. Frank Zappa - Bobby Brown (2:45)
-03. Chicago - If You Leave Me Now (3:54)
-04. David Bowie - Young Americans (3:12)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 03:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D17EBE1CD555DFB5E9FEA13EED34AD2778B7A59E
 ```
 
 

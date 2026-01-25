@@ -1,3 +1,59 @@
+###  Публикация: 1132822   (696932) от 11.05.2017
+
+VA - Dansk Rock Historie (1965-1978) 3 Box Set - 33CD, 2010 [WavPack|Lossless|image + .cue] <Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696932.jpg" />
+</div>
+
+
+###  Подробнее
+
+40 исторических альбомов на тридцати дисках,
+составляющих сливки золотого века датской рок-музыки 1965-1978 гг.
+Каждый бокс дополнен бонусным CD ранее неизданного материала!1. Dunhammeraften 05:25
+2. Itsi-bitsi 04:54
+3. Til Nashet 05:23
+4. Jensen 06:40(   Читать дальше...   )Жанр: Rock, Blues Rock, Progressive Rock, Psychedelic Rock, Folk-RockПродолжительность: 32:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D759BC01BCD2D2673F8C936E1855E8713F04C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133166   (696938) от 11.05.2017
+
+Harem Scarem - United (2017) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United
+02. Here Today, Gone Tomorrow
+03. Gravity
+04. Sinking Ship(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4510E592CD437C78CD937982F6DB1E0477C04A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132856   (696939) от 11.05.2017
 
 Planet P Project -  Pink World (1984) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock>
@@ -638,60 +694,6 @@ Candlebox - Happy Pills (1998) [FLAC|Lossless|tracks + .cue] <Rock, Grunge, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B037C18CEE9B15B22725A084D681068B15E083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288179   (697870) от 10.03.2019
-
-Över (Over) - Facing Transcendence (2018) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philosophy (Supposed Truth) (6:30)
- 02. Freedom Of Paradigms (7:48)
- 03. Will (9:34)
- 04. Över Is Transcendence (5:28)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0777134B1EEE8229A4B9ACA311F8149C1C26980
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288032   (697871) от 10.03.2019
-
-The Charlie Daniels Band - Tailgate Party (1999) [FLAC|Lossless|tracks + .cue] <Rock, Southern Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697871.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	The South's Gonna Do It 	3:55
-2 	Pride And Joy 	4:00
-3 	Can't You See 	6:25
-4 	Let Her Cry 	4:01(   Читать дальше...   )Жанр: Rock, Southern Rock, Country RockПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE08490CC2A815CE818C3CBD87CBE5CFA1D07DBC
 ```
 
 

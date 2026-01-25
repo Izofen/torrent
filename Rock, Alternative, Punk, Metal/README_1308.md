@@ -1,3 +1,57 @@
+###  Публикация: 1602500   (1046061) от 06.01.2023
+
+Spectral - Autopsy Of Hope (2007) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind
+02. The Unknown Nothing
+03. Autopsy Of Hope
+04. The Art Of Pain(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C128C2A7A202A68457D198BEF643A3BD7B10AC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602502   (1046062) от 06.01.2023
+
+Sincarnate - On The Procustean Bed (2008) [APE|Lossless|image + .cue] <Doom Metal, Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Requiem
+02. Reverence (In Fron Of An Inevitable End)
+03. Desolate
+04. Sincerely YoursЖанр: Doom Metal, Death Metal, Black MetalПродолжительность: 00:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB583C5D0A5B212E93DA7289DBC60D458E1ADB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602603   (1046064) от 06.01.2023
 
 Since The Death - I Belong to Christ (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal>
@@ -639,60 +693,6 @@ magnet:?xt=urn:btih:9FF6D3B35DF92AA1B8D9366191DA233BEAAB3205
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48D485AD5C1756EE2784C5ACC5F8A488B19A19F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602424   (1046136) от 05.01.2023
-
-In Reach - Waterline (1992) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterline
-02. Faded Love
-03. My Heart
-04. The Other Fall Of Cambrai(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E68F03C2EAB8E0755D821386E6ED2382BA1973D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602271   (1046139) от 05.01.2023
-
-24x96 - Toxic Indie (2023) [MP3|320 Kbps] <Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Древесные слухачи [00:02:28]
-02 - Ксв [00:02:33]
-03 - Руморэ латино [00:03:36]
-04 - Редько-хреновый джем [00:01:14](   Читать дальше...   )Жанр: Experimental RockПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC29C4CA5DCA1DA3973BDAC7558155F29A03281E
 ```
 
 

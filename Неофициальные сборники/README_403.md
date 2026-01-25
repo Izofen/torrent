@@ -1,3 +1,30 @@
+###  Публикация: 1031508   (652155) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Harrow - Overpower ( 1985 )
+02. Fun Fun - Could This Be Love ( 1987 )
+03. Divine - Jungle Jezebel ( 1982 )
+04. Gilla - Willst Du Mit Mir Schlafen Gehen ( 1975 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CB08126D72D6C8917BC0C9F333E1DE7372E6A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031352   (652163) от 04.07.2016
 
 A.S.T - The Planet Of Music CD 4 - Mix By A (2016) [MP3|320 Kbps] <Future House>
@@ -695,33 +722,6 @@ VA - Радио Чарт Energy - Жгучий Танцевальный Сбор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140939   (653441) от 08.06.2017
-
-VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ace of Base - All She Wants (SNBRN & KLATCH Remix)  6:04
-02.  Bob Marley - No Woman No Cry (SLAPFISK Remix)  4:26
-03.  Corona - Rhythm Of The Night (Hotel Garuda Remix ft. AObeats)  4:06
-04.  Metallica - Nothing Else Matters (YASTREB Remix) (Radio Version)  3:50(   Читать дальше...   )Жанр: Deep House, Nu Disco, TropicalПродолжительность: 07:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC16C309832BF7698A28D66F2ECE8606BCEE376D
 ```
 
 

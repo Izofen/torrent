@@ -1,3 +1,57 @@
+###  Публикация: 1021403   (740883) от 29.05.2016
+
+The Monkees - Good Times! (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times (02:46)
+02. You Bring The Summer (03:00)
+03. She Makes Me Laugh (03:01)
+04. Our Own World (02:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C5E23618BC320DB3A050ECB00E5759CBF096D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127040   (740897) от 20.04.2017
+
+Sheryl Crow - Be Myself (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone In The Dark (3:41)
+ 02. Halfway There (3:59)
+ 03. Long Way Back (5:08)
+ 04. Be Myself (4:23)(   Читать дальше...   )Жанр: Pop-Rock, CountryПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A098FC99CF64EC752A47B98C49FEABD11EF413A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127278   (740898) от 20.04.2017
 
 Crazy Lixx - Ruff Justice (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Glam>
@@ -637,60 +691,6 @@ Mean Streak - Eye of the Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E33C663BBD4C237460E0B91FCE1093E582A0FF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397169   (741372) от 19.07.2020
-
-Omminous - Immensity (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind All the Consent (04:57)
- 02. Vile Maxim (05:34)
- 03. Prisoner of a Present Time (04:47)
- 04. Black Sun (07:42)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8709A5E923E9BDA5BD1C26C1A2FD0C8D23605B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397240   (741374) от 19.07.2020
-
-Morta Skuld - Wounds Deeper Than Time (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe In The Black (05:04)
-02. Hating Life (03:52)
-03. My Weakness (04:03)
-04. Against The Origin (04:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0961BF59D60EBD00E421BF81866CC8F8D93FED5
 ```
 
 

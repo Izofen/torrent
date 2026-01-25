@@ -1,3 +1,57 @@
+###  Публикация: 1469965   (1016167) от 14.05.2021
+
+Galleons - Galleons (2021) [MP3|320 Kbps] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Playing With Fire is Such a Cliche (5:03)
+02. Youngblood (feat. Tobias Rische of ex-Alazka) (3:38)
+03. That Ain't No Crown (3:43)
+04. Hate the Player, Not the Game (3:39)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915210CBB2D54F169F8D8420A2C1C33A172F66EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469626   (1016168) от 14.05.2021
+
+Batushka - Черная Литургия (2020) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Знаменный Распиев / Znamiennyj Raspiew (0:35)
+02. Ирмос / Irmos I (4:42)
+03. Ирмос / Irmos II (6:08)
+04. Ирмос / Irmos III (6:45)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7FB4067B841976F47802167E79342A1E1D098C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469633   (1016169) от 14.05.2021
 
 Batushka - Raskol (2020) EP [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
@@ -641,60 +695,6 @@ Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 2) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B422413F44A0744CDF35C762D5C2B1DDB0453E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468667   (1016793) от 10.05.2021
-
-World On Edge - Against All Gods (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Goin' Down
-02. Life Passed You By
-03. In Your Eyes
-04. Demolition(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C52246FDCD5F8FCA24B332BF8CE07477A6802D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468980   (1016794) от 10.05.2021
-
-Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 1) (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Battle Of Bargor-Zun
-03. Prophecy Of The Warrior Kings
-04. Chamber Of Wisdom(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E6B368D01AAD289B5E01544B626883C16AFDF7
 ```
 
 

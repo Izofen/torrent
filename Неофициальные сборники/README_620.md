@@ -1,3 +1,30 @@
+###  Публикация: 1363366   (935664) от 03.03.2020
+
+VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935664.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Jacksons - Blame It On The Boogie 3:34
+002. Boney M. - Rivers Of Babylon (Single Version) 4:00
+003. Elvis Presley - Burning Love (Live) 2:57
+004. Billy Swan - I Can Help 3:58(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 19:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364400   (935677) от 03.03.2020
 
 VA - не Громкие новинки недели 57 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -672,33 +699,6 @@ VA - Black Night Empire: New Trance Music (2020) [MP3|320 Kbps] <Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3AB51B7421D067A2829A5F32C57EA3D6C3178C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364226   (937958) от 02.03.2020
-
-VA - EDM International Techno Dance (2020) [MP3|320 Kbps] <Techno, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937958.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rafael Dutra - Let's Make Love
-002. Taptune - Apollo (Original Mix)
-003. Crowd & Norah B. - In The Middle
-004. Joyhauser - Rtrig(   Читать дальше...   )Жанр: Techno, Dance, ElectroПродолжительность: 10:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F3A03D71EEF1F3D0955913ABFCEFDBDE8CFB50
 ```
 
 

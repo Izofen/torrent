@@ -1,3 +1,57 @@
+###  Публикация: 1219896   (709958) от 16.04.2018
+
+Stomper - Thrillers (2018) [MP3|320 Kbps] <Alternative Pop, Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing Well (feat. Lucy Tops)
+02. Bag of Bones (feat. Grant Haua)
+03. Crazy
+04. Snake at the Window (feat. Lucy Tops)(   Читать дальше...   )Жанр: Alternative Pop, Alternative Rock, ElectronicПродолжительность: 00:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F904E7B8210355D221C3C7099ECB38D75A8EA43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792314   (710004) от 02.06.2014
+
+Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Somebody (4:54)
+02. Close To The Sun (3:42)
+03. Hey Last Beautiful (3:26)
+04. Numen (4:07)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98B2C4D70E76BB8E5FABB818DFE2F7A8C976B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025488   (710021) от 12.06.2016
 
 Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal>
@@ -639,60 +693,6 @@ Backyard Babies - Sliver & Gold (2019) Limited Edition [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E4C8033CEA7DE509D4F6CCA39EF246BED775495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401334   (711326) от 09.08.2020
-
-Dukes Of The Orient - Freakshow (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dukes Return (05:01)
-02. The Ice Is Thin (06:01)
-03. Freakshow (04:29)
-04. The Monitors (04:39)(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4427246FFD9F15922CFB2A17BC8972933620BC74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401339   (711335) от 09.08.2020
-
-Onslaught - Generation Antichrist (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise to Power (2:05)
-02. Strike Fast Strike Hard (4:38)
-03. Bow Down to the Clowns (4:51)
-04. Generation Antichrist (5:43)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770444808441E53C342FDFD03B4C32F5E1FFAC4B
 ```
 
 

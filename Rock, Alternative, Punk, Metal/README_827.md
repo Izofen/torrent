@@ -1,3 +1,57 @@
+###  Публикация: 922128   (571866) от 27.07.2015
+
+Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/с]<Rock & Roll, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cabiria (3:27)
+02.  Carol (3:16)
+03.  The slide (5:54)
+04.  Doin' my time (2:44)(   Читать дальше...   )Жанр: Rock & Roll, Psychedelic RockПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9686D04F0EBA88F93FEFF1C01185B3B5F834A93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921251   (571868) от 27.07.2015
+
+I Spit Ashes - 99942 (2015) [MP3|320 кб/с]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Apophis King
+2. Of Venus And Mars
+3. Astronaut
+4. The Fourth Kind(   Читать дальше...   )Жанр: Modern Melodic Death MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C3DDA1F567A98480B7DB7EA806AB126860897AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922171   (571876) от 27.07.2015
 
 Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
@@ -640,60 +694,6 @@ Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FD9B1182E362D4E31087D1DB27CD934D7B132A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043290   (572989) от 16.08.2016
-
-Royal Southern Brotherhood - The Royal Gospel (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where There’s Smoke There’s Fire (4:39)
-02. I’ve Seen Enough To Know (5:02)
-03. Blood Is Thicker Than Water (6:04)
-04. I Wonder Why (4:22)(   Читать дальше...   )Жанр: Blues-Rock, Southern RockПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC418E76A544C43363422E386A699E6FDC624743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151546   (573026) от 19.07.2017
-
-Asylum - Psalms of Paralysis (2017) [FLAC|Lossless|tracks + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Apprehensia 02:06
-2. Spectral Incantation 05:20
-3. Psalms of Paralysis 04:35
-4. Obsidian Spine 04:04(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCD7DCDA3FADF052B78D62D2E91B592AF28FC28
 ```
 
 

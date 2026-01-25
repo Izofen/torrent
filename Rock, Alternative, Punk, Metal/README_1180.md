@@ -1,3 +1,63 @@
+###  Публикация: 617444   (969621) от 14.02.2013
+
+Noir Desir - 12 CDs (1987..2001) Discography [MP3|320 kbps]<Post-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969621.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1987 - Ou Veux Tu Qu'je R'garde
+1989 - Veuillez Rendre L'ame (А Qui Elle Appartient)
+1990 - Du Ciment Sous Les Plaines
+1992 - Tostaky
+1994 - Dies Irae (Live) 2CD
+1996 - 666.667 Club
+1998 - One Trip One Noise
+2000 - En Route Pour La Joie (3CD)
+2001 - Des Visages Des FiguresЖанр: Post-Punk, Alternative RockПродолжительность: 10:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF7FF54CEF5C442E4F337724B680E3145AFBB70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358300   (969637) от 07.02.2020
+
+Green Day - Father Of All Motherfuckers (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Alternative, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Of All...
+02. Fire, Ready, Aim
+03. Oh Yeah!
+04. Meet Me On The Roof(   Читать дальше...   )Жанр: Alternative, Punk RockПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4453CFD099EA1EA10AFC508724C52F87FCF0051
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358387   (969638) от 07.02.2020
 
 VA - 100 Greatest Alt Rock Anthems (2020) [MP3|320 Kbps] <Rock>
@@ -644,60 +704,6 @@ Diamanda Galas - La serpenta canta (disc one)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C061FAF6992E28CBE3E7BD32C42C8C7F1933A0B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975669   (972112) от 15.01.2016
-
-Rhapsody Of Fire - Into The Legend (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Principio
-02. Distant Sky
-03. Into The Legend
-04. Winter's Rain(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662D4E51CEC2EE39DC6587D2B30D6737BF23CE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974925   (972113) от 15.01.2016
-
-Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amsterdam (01:13)
-02. Black Widow (03:16)
-03. Makin' Babies (01:58)
-04. Stuck On You (02:31)(   Читать дальше...   )Жанр: Alternative, Britpop, Classic Indie RockПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B40DE55ABCF3D81F86D2CFB1DC9BB4E86636F2F
 ```
 
 

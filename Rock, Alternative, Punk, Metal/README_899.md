@@ -1,3 +1,63 @@
+###  Публикация: 1292772   (643201) от 31.03.2019
+
+Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diggin' the scene (03:09)
+02. A touch of blue (03:46)
+03. Aila (feat. Heidi Kaarto, Esa Pulliainen) (04:21)
+04. Muddy the water (03:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518420   (643206) от 03.07.2012
+
+Van Der Graaf Generator - ALT (2012) [FLAC (tracks+cue)|Lossless]<Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earlybird
+02. Extractus
+03. Sackbutt
+04. Colossus
+05. Batty Loop
+06. Splendid
+07. Repeat After Me
+08. Elsewhere
+09. Here's One I Made Earlier
+10. Midnite Or So(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227588   (643237) от 28.05.2018
 
 Cadaveria - Horror Metal (2012) [FLAC|Lossless|image + .cue] <Gothic Black Metal>
@@ -646,60 +706,6 @@ HER - Revolution (2016) Special Edition [MP3|320 Kbps] <Alternative Pop, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02D34DBF15ACEC5353509D2686660475FB8BF20E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032542   (643814) от 08.07.2016
-
-Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Rey De Los Cielos
-02. O Fata Romana
-03. Pradesh Hypno Beat
-04. Ringispil(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906476   (643818) от 09.06.2015
-
-Inner Odyssey - Ascension (2015) [MP3|320 кб/с]<Progressive Metal, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why am I Here? (Ouverture)
-02. Something More
-03. A World of My Own
-04. My Purpose(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BCD8F48F7450B27124024698BF93459D85C429
 ```
 
 

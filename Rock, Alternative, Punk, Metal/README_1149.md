@@ -1,3 +1,57 @@
+###  Публикация: 988753   (918986) от 21.02.2016
+
+Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Breaking The Law 	02:36
+02. 	Living After Midnight 	03:31
+03. 	Out In The Cold 	06:28
+04. 	Love Bites 	04:49(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988896   (919003) от 21.02.2016
+
+John Ford - No Talkin' (2014) [FLAC|Lossless|image + .cue] <60's Guitar's Instrumental Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Номинированный на Grammy в 4 номинациях, единственный на 100% инструментальный альбом Джона, стилизованный под звучание легендарных групп 60-ых - The Shadows и The Ventures!01. The Reaper
+02. Spanish Jive
+03. No Talkin'
+04. Tomorrow's World(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:27:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6D0C858A7066E366DB0870F769A1395847EDA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490436   (919004) от 20.08.2021
 
 Slaughter to Prevail - Kostolom (2021) [FLAC|Lossless|image + .cue] <Deathcore>
@@ -642,60 +696,6 @@ Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096551   (919397) от 24.01.2017
-
-Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dangerous Love
-2. Since You've Been Gone
-3. Never Come Back
-4. Please, Call Me(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B18375F67EAC85843411F6741CFEE5C0726623A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096493   (919402) от 24.01.2017
-
-Internal Cold - 1 album, 1 EP (2013-2016) [MP3|192-320 Kbps] <Atmospheric Black Metal, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919402.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cold And Cursed
-2. In A Pursuit Of Death
-3. Nothing Will Turn Out Well
-4. The Morbid Spectre Of Disease(   Читать дальше...   )Жанр: Atmospheric Black Metal, Depressive Black MetalПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC2E600F57AAA2F84377D0DB8476FEA746DC540A
 ```
 
 

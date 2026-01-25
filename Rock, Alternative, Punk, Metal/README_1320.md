@@ -1,4 +1,58 @@
-###  Публикация: 1846689   (1051375) от 
+###  Публикация: 1846243   (1051248) от 06.01.2026
+
+Harlan Cage - The Best Of Harlan Cage (2004) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Arena rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Mama Said
+02. Two Ships in the Night
+03. No Sunday Bride
+04. Can't Tame the Raven(   Читать дальше...   )Жанр: Melodic Hard Rock, Arena rockПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0625D8C5539CF34C1BD168B74CC01F49CD1B4603
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846693   (1051373) от 08.01.2026
+
+Venger - Times of Legend (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Worlds Unknown(4:24)
+02. Pharaoh's Curse(4:57)
+03. Navigate the Labyrinth(4:22)
+04. Crystal Gazer(4:37)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C52FEE9BDC34E2339837CC6B52B9FD2D7C73400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846689   (1051375) от 08.01.2026
 
 Beyond The Black - Break The Silence (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
@@ -25,7 +79,7 @@ magnet:?xt=urn:btih:4A88ECDA6CEF753A1B7F1C9662FD45E522B2EA74
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846677   (1051378) от 
+###  Публикация: 1846677   (1051378) от 08.01.2026
 
 Permyon - Permyon (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
 
@@ -52,7 +106,7 @@ magnet:?xt=urn:btih:113458A8682258A74DE51F675CBED77994F5BF1C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846595   (1051451) от 
+###  Публикация: 1846595   (1051451) от 08.01.2026
 
 Doro - All We Are - The Fight (2007) 2008, CD-Maximum [FLAC|Lossless|image + .cue] <Heavy Metal>
 
@@ -79,7 +133,7 @@ magnet:?xt=urn:btih:4BB3C9E021F62646B62D8A970FF1CCF641341574
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846526   (1051530) от 
+###  Публикация: 1846526   (1051530) от 07.01.2026
 
 Unleashed - Fire Upon Your Lands (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 
@@ -106,7 +160,7 @@ magnet:?xt=urn:btih:6C8A3038269101BA9CB917E6AC47BD6E93FD9908
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846903   (1051551) от 
+###  Публикация: 1846903   (1051551) от 09.01.2026
 
 Petra - Hope (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 
@@ -133,7 +187,7 @@ magnet:?xt=urn:btih:E837D383850C71A59922B53552FC98DC5644F90D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846884   (1051569) от 
+###  Публикация: 1846884   (1051569) от 09.01.2026
 
 Alter Bridge - Alter Bridge (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal>
 
@@ -160,7 +214,7 @@ magnet:?xt=urn:btih:D0D1E137BAC85D0971F0621DBF64386ABF465854
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846798   (1051578) от 
+###  Публикация: 1846798   (1051578) от 09.01.2026
 
 Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
 
@@ -187,7 +241,7 @@ magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846791   (1051580) от 
+###  Публикация: 1846791   (1051580) от 09.01.2026
 
 Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|Lossless|image + .cue] <Electro House, Brostep, Electronic Dance Music>
 
@@ -214,7 +268,7 @@ magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846793   (1051581) от 
+###  Публикация: 1846793   (1051581) от 09.01.2026
 
 Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Hip Hop, Mashup>
 
@@ -241,7 +295,7 @@ magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846710   (1051703) от 
+###  Публикация: 1846710   (1051703) от 08.01.2026
 
 For My Pain... - Buried Blue (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Metal>
 
@@ -268,7 +322,7 @@ magnet:?xt=urn:btih:3E22EA76F2CA7CD3BE41CB2892126C17A0D60C8F
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846938   (1051803) от 
+###  Публикация: 1846938   (1051803) от 10.01.2026
 
 Lahoava - Ja Ränsistyi Ajan Silta (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Folk Metal, Melodic Death Metal>
 
@@ -295,7 +349,7 @@ magnet:?xt=urn:btih:FAF6548E43014F18021EA233DCCB6F4F7FF9904A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846934   (1051812) от 
+###  Публикация: 1846934   (1051812) от 11.01.2026
 
 Aeon Spiral - Королевство Кривых Зеркал (2026) [MP3|320 Kbps] <Progressive Metal, Neoclassical>
 
@@ -322,7 +376,7 @@ magnet:?xt=urn:btih:0063669BD8D47F6CBB0ED4000D53C492884CE078
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847271   (1051860) от 
+###  Публикация: 1847271   (1051860) от 11.01.2026
 
 Within Temptation, Smash Into Pieces - Somebody Like You (2026) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
 
@@ -347,7 +401,7 @@ magnet:?xt=urn:btih:6B2BDEEFDB935C2DE4AEC885A345D8B1FB05D983
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847267   (1051884) от 
+###  Публикация: 1847267   (1051884) от 11.01.2026
 
 Sarkom - Exceed In2 Chaos (2025) [FLAC|Lossless|image + .cue] <Black Metal>
 
@@ -374,7 +428,7 @@ magnet:?xt=urn:btih:57835911C7D778105504AC1D84502ED54261F0A5
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847155   (1051891) от 
+###  Публикация: 1847155   (1051891) от 11.01.2026
 
 The Cribs - Selling A Vibe (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
 
@@ -401,7 +455,7 @@ magnet:?xt=urn:btih:BAD7D5E55F0C489DD7CBD6486D42BD81A2EE82E5
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847247   (1051911) от 
+###  Публикация: 1847247   (1051911) от 11.01.2026
 
 Aeon Spiral - 2 Albums, 1EP (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Neoclassical>
 
@@ -428,7 +482,7 @@ magnet:?xt=urn:btih:061169D859CECE8BBD3C990391AE4C661E7B4F39
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847109   (1051990) от 
+###  Публикация: 1847109   (1051990) от 10.01.2026
 
 Royal Hunt - Behind The Curtain (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Neo-Classical Metal, Progressive Metal>
 
@@ -455,7 +509,7 @@ magnet:?xt=urn:btih:CF70AC7C0A0B4CD2BB93921DBF42635978DA350B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847101   (1051997) от 
+###  Публикация: 1847101   (1051997) от 10.01.2026
 
 Воля и Разум - Воля и Разум (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
 
@@ -482,7 +536,7 @@ magnet:?xt=urn:btih:3C9AE9492D67C462851373D3CA12E7D466809AA8
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847076   (1052004) от 
+###  Публикация: 1847076   (1052004) от 10.01.2026
 
 Dry Cleaning - Secret Love (2026) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Post Punk>
 
@@ -509,7 +563,7 @@ magnet:?xt=urn:btih:74D12732F7B7D27124FF9768A19BD06CF489C82D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846956   (1052022) от 
+###  Публикация: 1846956   (1052022) от 10.01.2026
 
 MOR - Разумное, громкое, вечное (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Southern Metal>
 
@@ -536,7 +590,7 @@ magnet:?xt=urn:btih:D146294C85A50738DDA7606E1045C7F9BCF01303
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847442   (1052029) от 
+###  Публикация: 1847442   (1052029) от 12.01.2026
 
 Revenge - Trust In Metal (2020) Limited Edition, Reissue, 2021, Thrashingfist Productions [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
 
@@ -563,7 +617,7 @@ magnet:?xt=urn:btih:5A3079F3603A5F21D0181A8FCE5590072C8B38D1
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847149   (1052075) от 
+###  Публикация: 1847149   (1052075) от 11.01.2026
 
 Астера - В Сердце Шторма (2016) Remastered, 2025, Astera records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
@@ -590,7 +644,7 @@ magnet:?xt=urn:btih:5DEA30A385B97F024794277A10A9A7EA0508BEA5
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847370   (1052092) от 
+###  Публикация: 1847370   (1052092) от 11.01.2026
 
 ...And Oceans - The Regeneration Itinerary (2025) [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Metal>
 
@@ -617,7 +671,7 @@ magnet:?xt=urn:btih:B8EEB99A1B9A5EE27A40AF4B38F995F0BDCF7482
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847364   (1052096) от 
+###  Публикация: 1847364   (1052096) от 11.01.2026
 
 Blut Aus Nord - Ethereal Horizons (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Avantgarde, Experimental>
 
@@ -639,60 +693,6 @@ Blut Aus Nord - Ethereal Horizons (2025) [FLAC|Lossless|image + .cue] <Atmospher
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D05DE8BA6DB9D1312E8DF2E8CEA3D5ACB03BD32E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847363   (1052098) от 
-
-Messa - The Spin (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Dark Ambient, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052098.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Void Meridian 4:28
-2. At Races 5:59
-3. Fire On The Roof 4:32
-4. Immolation 4:46(   Читать дальше...   )Жанр: Doom Metal, Dark Ambient, Stoner RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C5D21099D9A9CE393A00AB0C5EB8BCB41C0CBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847343   (1052112) от 
-
-Bullet - Kickstarter (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kickstarter (2:55)
-02.  Caught in the action (2:57)
-03.  Open Fire (3:34)
-04.  Keep Rolling (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A26CA7A2B2B97A994A52928058B392F9B727F1
 ```
 
 

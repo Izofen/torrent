@@ -1,3 +1,33 @@
+###  Публикация: 1221491   (692775) от 25.04.2018
+
+VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka)
+Продолжительность: 12:16:26
+
+001. Sean Paul & Major Lazer - Tip Pon It(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 01:34:43
+
+01. K.Melody - Не Зови
+02. Plu-Ton - Harmony Of Silence (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36212E8E078FE17CF6A7E1430B8FACF4C423A246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221451   (692778) от 25.04.2018
 
 Сектор Газа - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock>
@@ -654,33 +684,6 @@ VA - Хиты Под Водочку (2011) [MP3|256 kbps]<Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1682C13ABC1F01A1E085905B9D542F303439FA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027718   (694700) от 20.06.2016
-
-VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
-002. Era Istrefi - Bonbon
-003. Gestort aber GeiL & Two Magics - Glucklich wie die Kinder
-004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 10:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63F0D3EFDD671A76B8FAF4128F1E8B208FC15EC
 ```
 
 

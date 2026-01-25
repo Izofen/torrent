@@ -106,7 +106,7 @@ magnet:?xt=urn:btih:DB6A94243FCC6591B1BE86BA880F5A5E8FC33F30
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846798   (1051578) от 
+###  Публикация: 1846798   (1051578) от 09.01.2026
 
 Linkin Park - Songs From The Underground (2008) Japan, WPCR-13468, 2009 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Alternative Rock>
 
@@ -133,7 +133,7 @@ magnet:?xt=urn:btih:B3670C031775E29673AF605F4C8AC1785C39E35C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846791   (1051580) от 
+###  Публикация: 1846791   (1051580) от 09.01.2026
 
 Linkin Park - Recharged (2013) Brazil, 0093624941606, AB0003000 Pressing [FLAC|Lossless|image + .cue] <Electro House, Brostep, Electronic Dance Music>
 
@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:7A1F0F9A869B9DD0D32A139112414A0C2CE69A99
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846793   (1051581) от 
+###  Публикация: 1846793   (1051581) от 09.01.2026
 
 Jay-Z / Linkin Park - Collision Course (2004) Brazil, 936248963-2, AA0050000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Hip Hop, Mashup>
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:D7C17E36F6047FB8295209DC8100C837DDBB32DD
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847547   (1052168) от 
+###  Публикация: 1847547   (1052168) от 12.01.2026
 
 Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Alternative Metal, Metalcore>
 
@@ -209,6 +209,33 @@ Ends With A Bullet - For All My Sins (2026) [FLAC|Lossless|WEB-DL|tracks] <Moder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A64CE020F58F415F74031CC38B4D4B0CF27BB313
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848772   (1053110) от 18.01.2026
+
+Binding - Cool Memory (2025) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call to Action [00:04:06]
+02. The Things That Never Show [00:03:04]
+03. Impermanent [00:02:21]
+04. Remember the Time [00:03:42](   Читать дальше...   )Жанр: Coldwave, Post-PunkПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A662413CAA9A89B91C322423FF3D5C548470CD
 ```
 
 

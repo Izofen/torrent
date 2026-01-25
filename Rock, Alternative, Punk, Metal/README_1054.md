@@ -1,3 +1,57 @@
+###  Публикация: 1120509   (802058) от 31.03.2017
+
+Davey Suicide - Made From Fire (2017) [MP3|320 Kbps] <Industrial Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrection
+02. Rise Above
+03. Dancing With The Reaper
+04. No Angel(   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D114081E3EA70A7BECD6CD294B4B6569846575B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010785   (802074) от 25.04.2016
+
+Brit Floyd - Live At Red Rocks (2014) 2CD [MP3|320 кб/с] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. In The Flesh (03:41)
+02. The Thin Ice (02:29)
+03. Another Brick In The Wall Part 1 (03:29)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2CCB99E299F4B46B4DA56DB83A2EE100947053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120503   (802090) от 31.03.2017
 
 Heart Attack - The Resilience (2017) [MP3|320 Kbps] <Modern Thrash, Groove Metal>
@@ -639,60 +693,6 @@ Beast in Black (ex-Battle Beast) - 3 Albums (2017-2021) [MP3|320 Kbps] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5436BD58DC55FB6F8A913F6BECBAACC22825F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198265   (802716) от 14.01.2018
-
-Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stairway To The Stars (3:04)
-02. Why Don't You Do It To Me (3:12)
-03. Funk It Up (Disco Mix) (5:28)
-04. A Distinct Lack Of Ancient (4:06)(   Читать дальше...   )Жанр: Rock, Glam-RockПродолжительность: 01:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3A090B22833D2C6ACC6AC26AB7A730DEE38ED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384379   (802747) от 20.05.2020
-
-Anubis - Homeless (2020) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflective (07:10)
-02. Entitled (04:15)
-03. White Ashes (03:23)
-04. Home (05:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEA6027EB9E6A3503A263BDD176A9EC1DB3A156
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 916248   (589826) от 10.07.2015
+
+Within Temptation - 32 альбома, 21 сингл (1997-2014) [FLAC|APE|Lossless]<Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Restless (6:08)
+02. Enter (7:15)
+03. Pearls Of Light (5:15)
+04. Deep Within (4:30)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 25:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B923B27BD14E7CE015A45C46B8313D64AF588C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781846   (589875) от 10.07.2015
+
+Devil You Know - The Beauty Of Destruction (2014) Japanese Edition [MP3|320 кб/с]<Metalcore / Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Beginning (4:08)
+02. My Own (3:43)
+03. Embracing The Torture (3:26)
+04. For The Dead And Broken (3:26)(   Читать дальше...   )Жанр: Metalcore / Groove MetalПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41D4EE16BA4F68B2D262F8B43CA627ECC690308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915322   (589937) от 10.07.2015
 
 Autograph - That's The Stuff (1985) Remastered /2009, Rock Candy/ [MP3|320 кб/с]<Melodic Hard Rock, Glam>
@@ -638,58 +692,6 @@ Ronnie Montrose - Music From Here (1994)/2014/ [OGG|481-538 кб/с]<Classic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A95ADAD4985706EA8A33A1FAD651B38C33BB11F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916293   (590484) от 09.07.2015
-
-Luna - On The Other Side Of Life (2015) [MP3|320 кб/с]<Symphonic Funeral Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590484.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grey Heaven Fall
-2. On The Other Side Of LifeЖанр: Symphonic Funeral Doom/Death MetalПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0ACFEFA5565D567B212726B0CDAF23F182A0E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550890   (590593) от 14.05.2022
-
-The Black Keys - Dropout Boogie (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Child (2:45)
-02. It Ain't Over (3:49)
-03. For the Love of Money (3:31)
-04. Your Team Is Looking Good (3:05)(   Читать дальше...   )Жанр: Blues Rock, Alternative RockПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19937B464CFBAB2F032255DB58A5FA12A1DE288D
 ```
 
 

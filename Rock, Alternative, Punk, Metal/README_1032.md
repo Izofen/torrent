@@ -1,3 +1,57 @@
+###  Публикация: 1275329   (790516) от 11.01.2019
+
+Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes I Am
+02. I’m Alive
+03. Silver Linings
+04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275330   (790519) от 11.01.2019
+
+Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Under the Sun
+02. Falling Down
+03. Wasted Trust
+04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275349   (790523) от 11.01.2019
 
 Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -640,60 +694,6 @@ magnet:?xt=urn:btih:03BC28453CF3AA8DCC84E4480975C7D32907CF07
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A45B04359F0A80A5348DAE3707C57D08EF508C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275286   (791084) от 10.01.2019
-
-All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Calling (3:39)
- 02. Not Alone (3:30)
- 03. It Dwells in Me (3:14)
- 04. We Stand (3:47)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7784DD3382B59276ADB991968655D5F404BA23F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275054   (791086) от 10.01.2019
-
-The Cure - The Cure (2004) Special Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, New wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost (4:08)
- 02. Labyrinth (5:14)
- 03. Before Three (4:40)
- 04. Truth Goodness And Beauty (4:20)(   Читать дальше...   )Жанр: Alternative Rock, New waveПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08937D4380C9DD79AC3AAC1B0AA5AD03200E825A
 ```
 
 

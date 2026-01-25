@@ -1,3 +1,30 @@
+###  Публикация: 1045031   (561256) от 22.08.2016
+
+VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boxtops - The Letter
+02. The Beatles - We Can Work It Out
+03. The Rolling Stones - Play With Fire
+04. Zombies - She's Not There(   Читать дальше...   )Жанр: Rock, ArtRock, HardRockПродолжительность: 07:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304711   (561268) от 27.05.2019
 
 VA - Over Records Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
@@ -680,33 +707,6 @@ VA - Russian Mega Boom (2016) [MP3|256 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90797F91B0A3F4FE8EF5786B7B5B06718B191138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044805   (562614) от 21.08.2016
-
-VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. StadiumX  -  Mombasa (Radio Edit)  3:17
-002. Bobby Rock  -  Get Up On This (Original Mix)  5:04
-003. Jay Hardway  -  Stardust  3:24
-004. Bodybangers & Mynoorey  -  Beatrock (Radio Edit)  3:26(   Читать дальше...   )Жанр: House, Electro House, Future House, Progressive, Club, DanceПродолжительность: 09:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6EF9396599036E0498605061C57FB13CD524D63
 ```
 
 

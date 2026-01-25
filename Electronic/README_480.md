@@ -1,3 +1,84 @@
+###  Публикация: 1090210   (941991) от 28.02.2020
+
+cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subtraktive (Original Mix) (15:46)
+ 02. Subtraktive (Reimagined) (14:03)
+ 03. Subtraktive (Intrusion's Path To Zion Dub) (08:20)
+ 04. Subtraktive (Soultek's Morning Dub) (08:38)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 55:46:44 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983819   (942047) от 07.02.2016
+
+Ultravox - Vienna (1980) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Astradyne
+02 - New Europeans
+03 - Private Lives
+04 - Passing Strangers(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D2BCAD33DDE6D7D262168225ECEEC3EF9CEB1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983810   (942122) от 07.02.2016
+
+Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow Motion
+02 - Can't Stay Long
+03 - Someone Else's Clothes
+04 - Blue Light(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11DB69E99A07E643CA466578A359009AF3438D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363578   (942140) от 28.02.2020
 
 Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle>
@@ -611,87 +692,6 @@ Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362968   (943703) от 27.02.2020
-
-Pet Shop Boys - Hotspot (2020) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, House, Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will-O-The-Wisp (4:29)
- 02. You Are The One (3:35)
- 03. Happy People (3:51)
- 04. Dreamland (3:26)(   Читать дальше...   )Жанр: Electronic, Synthpop, House, DiscoПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647193C374593402AE234DA8ED3C709F980B8E61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983500   (943745) от 06.02.2016
-
-VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|320 кб/с] <Trance, House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Nifra - The Creation (Prague) (Transmission Theme 2015) (07:27)
-02. Arkham Knights - Knightfall (Original Mix) (07:02)
-03. M.I.K.E Push vs Rank 1 - Zenith (Original Mix) (08:59)
-04. Solarstone & Gai Barone - Fata Morgana (Extended Mix) (09:15)(   Читать дальше...   )Жанр: Trance, House, Progressive TranceПродолжительность: 02:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081CA925E08C30B293CEA6767760F6ABA233BADD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090877   (944608) от 08.01.2017
-
-Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - Electronic Space Lounge - One
-2013 - Electronic Space Lounge - Two
-2014 - Electronic Space Lounge - ThreeЖанр: Ambient, Downtempo, Trip HopПродолжительность: 03:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345F50FF126882D48B95DEF8C7E67BB5F07BA2E5
 ```
 
 

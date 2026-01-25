@@ -1,3 +1,55 @@
+###  Публикация: 1141196   (652129) от 09.06.2017
+
+Anathema - The Optimist (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 32.63N 117.14W (1:17)
+02. Leaving It Behind (4:28)
+03. Endless Ways (5:50)
+04. The Optimist (5:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4382F88C9221FE774FA3BCD06B135C5BDDF4F8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141351   (652138) от 09.06.2017
+
+Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paranoiac Personality
+2. I'm EighteenЖанр: Hard RockПродолжительность: 00:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:779E3A750DF92FB1CDF5388E0062BD0CAEB44DD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031620   (652151) от 04.07.2016
 
 Divine Intervention - Traveler (2016) [MP3|320 Kbps] <Heavy Metal>
@@ -665,60 +717,6 @@ Zodiac - A Bit of Devil (2012) [MP3|244-265 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD7AE9147EB01780B3F9A9C467D8E6068CB6EB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904866   (653434) от 04.06.2015
-
-No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nascency 04:09
-02. All As One 04:44
-03. Behold The Screen 06:03
-04. The Spiral 05:05(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3DECF93261F1FDB910862FD85507B85F7B74596
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904569   (653446) от 04.06.2015
-
-Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capitan Crunch
-02. Killer
-03. Savior
-04. Preacher(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock | Rapcore | CrossoverПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
 ```
 
 

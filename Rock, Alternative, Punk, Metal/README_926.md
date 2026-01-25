@@ -1,3 +1,57 @@
+###  Публикация: 1136911   (669217) от 25.05.2017
+
+Dion - Kickin' Child: The Lost Album 1965 (2017) [FLAC|Lossless|image + .cue] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kickin' Child (Dion DiMucci/Buddy Lucas) 03:03
+02. Now (Dion DiMucci/Carlo Mastrangelo) 02:43
+03. My Love (Dion DiMucci) 02:11
+04. I Can't Help But Wonder Where I'm Bound (Tom Paxton) 02:54(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F51987B04CADE5A2DB5BE82212A6424556AC8AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537019   (669233) от 15.03.2022
+
+VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paramore - Misery Business (3:31)
+02. Skillet - Feel Invincible (3:49)
+03. Linkin Park - Numb (3:07)
+04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535968   (669242) от 15.03.2022
 
 Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [MP3|320 Kbps] <Sympho Gothic Metal>
@@ -653,60 +707,6 @@ magnet:?xt=urn:btih:B13C9FBF67DC2928F596AE7FF0C1F85BC6E19A3B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F1A524DE0E0749F6A2CCE934EC0DFE6E78444DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136703   (670766) от 24.05.2017
-
-Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live At Fillmore Detroit) (1:12)
-02. Face Everything And Rise (Live At Fillmore Detroit) (3:18)
-03. Getting Away With Murder (Live At Fillmore Detroit) (4:00)
-04. Between Angels And Insects (Live At Fillmore Detroit) (4:18)(   Читать дальше...   )Жанр: Alternative Rock |Продолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536829   (670877) от 14.03.2022
-
-Виктор Зинчук - Секрет релакса (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Instrumental Rock, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Апрель (Времена года) (3:28)
-02. Лето (Времена года) (2:39)
-03. Осень (Времена года) (1:38)
-04. Рождество (Времена года) (1:49)(   Читать дальше...   )Жанр: Guitar, Instrumental Rock, ClassicalПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DFF2377A9CDC1B1A3D1D3B567DF2696E7C38D96
 ```
 
 

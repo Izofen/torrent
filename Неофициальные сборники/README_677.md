@@ -1,3 +1,30 @@
+###  Публикация: 1447294   (1031825) от 13.02.2021
+
+VA - Music News vol.71 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031825.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rita Ora & Imanbek - Bang Bang (03:00)
+ 002. AlexNo - Кардиограмма (04:42)
+ 003. Ali Bakgor & Parah Dice - Somebody Like U (03:01)
+ 004. Allega - No (02:38)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B67F0D77C71A66BECA3BC41518124B2F4B3195
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447131   (1032044) от 12.02.2021
 
 VA - Greatest Ever 70S Vol.04 (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -668,33 +695,6 @@ VA - Organic Sound (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8648295BE9E054828136F6B64DFE2EB017CA44A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445879   (1033297) от 07.02.2021
-
-VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свежий музыкальный симбиоз танцевальных стилей Disco и Electro House в танцевальном сборнике "Crazy Disco Party" начинает будоражить разум своего слушателя уже с начала первого трека. Музыкальные композиции, вошедшие в микс прекрасно сбалансированы, а также крайне легки для слуха. Саунд микса получился не менее насыщенным и необычайным, чем само содержание (   Читать дальше...   )001. Avrupts & Llolita - Funky Fever
-002. Bass Station - Funky World
-003. Namy F - Bright Eyes
-004. Laser King - Burning Up(   Читать дальше...   )Жанр: Funky House, Disco House, DanceПродолжительность: 08:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3819002B1D16CD94FD9E5129B28E2AD6F0416BF
 ```
 
 

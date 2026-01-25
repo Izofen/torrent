@@ -1,3 +1,57 @@
+###  Публикация: 1022973   (727769) от 03.06.2016
+
+First Signal - One Step Over The Line (2016) [MP3|320 кб/с] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Run Free (4:29)
+02. Love Gets Through (4:53)
+03. Still Pretending (4:28)
+04. Broken (3:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD10A3BDEF42058CC9E3D595C2F8B280A133A95E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022979   (727778) от 03.06.2016
+
+Stranded By Choice - Hellroaring (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fire (3:34)
+02. Black Seed (5:26)
+03. Resisting (3:40)
+04. The Voice That Only I Hear (3:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746EC230BBE7D4AC622D5E8EEE39E33B8F4A996D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530367   (727813) от 12.02.2022
 
 Eddie Vedder - Earthling (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -656,60 +710,6 @@ Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F855DCC643E308A56C936416EC88EAB09EAC3E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530632   (728913) от 11.02.2022
-
-VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Эпидемия - Мёртвые звёзды
-2. 7000$ - Бой!
-3. ПОЛ ПУНШ - Они убили Кенни
-4. Винтаж - Москва(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B61EF65958CFF6F66946301CCDAA3CF4C5D8ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022680   (728930) от 02.06.2016
-
-Derdian - Revolution Era (2016) [MP3|320 кб/с] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Overture (feat. Apollo Papathanasio)
-2. Burn (feat. Henning Basse)
-3. Beyond the Gate (feat. GL Perotti)
-4. Battleplan (feat. Davide Damna Moras)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C093EF5D0D8D680F970C52F6C635B9B6E67B4220
 ```
 
 

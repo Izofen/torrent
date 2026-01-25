@@ -1,3 +1,30 @@
+###  Публикация: 1094628   (929298) от 18.01.2017
+
+VA - Danza Kuduro Dedicated Parade (2017) [MP3|320 Kbps] <Reggae, Calypso, Dancehall, Acapella, Dancehall, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmani & Grey Feat. Peral Andersson - Tattoo 03:13
+02. Nadia Rose - Tight Up (Intro Clean) 03:27
+03. Ariana Grande Ft Nicki Minaj - Side To Side (Shane Hoosong Dancehall Remix) (Clean) (Extended) 03:51
+04. Nadia Rose - Tight Up (Clean) 03:21(   Читать дальше...   )Жанр: Reggae, Calypso, Dancehall, Acapella, Dancehall, InstrumentalПродолжительность: 04:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46129D2FE5F46E87B6F1D36C6B25EA405455B01F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287048   (929372) от 25.01.2011
 
 VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
@@ -672,33 +699,6 @@ VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985918   (931044) от 14.02.2016
-
-Город 312 - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Интервью>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931044.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вне зоны доступа
-2. Павел Воля и Город 312 - Мама, мы все стареем
-3. Город 312 - Невидимка
-4. Не теряй меня, Москва(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA0D631E7D41F3DC0D66C2F3DF7272E7ACC24D9
 ```
 
 

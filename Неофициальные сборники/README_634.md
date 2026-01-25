@@ -1,3 +1,30 @@
+###  Публикация: 979283   (959699) от 26.01.2016
+
+VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Brasil Gossa Party - Extended Mix (05:43)
+02. Peter Pearson - Your Gentle Eyes (05:40)
+03. Newton - Homerun (04:50)
+04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979256   (959771) от 26.01.2016
 
 VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
@@ -672,33 +699,6 @@ VA - Chillhouse Winter Beats (2016) [MP3|320 кб/с] <Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C1EF17A18DE30977BD7399BC924D21E5F2A77CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978731   (962612) от 24.01.2016
-
-VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manos Hadjidakis - The Waltz of Lost Dreams
-02. Vasilis Saleas - The Honeymoon Song
-03. Vasilis Saleas - Prelude
-04. Yanni - Carol's Theme(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
 ```
 
 

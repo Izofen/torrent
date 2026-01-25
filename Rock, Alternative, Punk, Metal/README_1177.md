@@ -1,3 +1,57 @@
+###  Публикация: 978525   (963642) от 23.01.2016
+
+Kroda - Навiй Схрон (2015) [MP3|320 кб/с] <Ambient, Black Metal, Dark Folk, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жухлим Листям Поховане
+2. Тумани Загубленої Землі
+3. Чортові Скелі
+4. Біла Крейда, Чорна Труна...(   Читать дальше...   )Жанр: Ambient, Black Metal, Dark Folk, Pagan MetalПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2AEB80231B7E61FA09EA525CFF3C95C6CDE01D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978454   (963708) от 23.01.2016
+
+Resurrection Kings - Resurrection Kings (2016) Japanese Edition [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963708.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Distant Prayer (4:36)
+2. Livin' Out Loud (5:27)
+3. Wash Away (3:57)
+4. Who Did You Run To (4:46)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C63E78D5A556EFB285D2E97B6263F250C0E78A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978385   (963725) от 23.01.2016
 
 Critical Solution - Sleepwalker (2015) [MP3|320 кб/с] <Thrash Metal>
@@ -653,60 +707,6 @@ I - Between Two Worlds (2006) [FLAC|Lossless|image + .cue] <Blackened Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F08E40FB9714EE25E6A81443110293D259DE6063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359206   (965180) от 11.02.2020
-
-Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Country-Alt>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Stranger Heart [04:11]
-02. Here Comes the Devil [03:49]
-03. The Guttural Blues [04:01]
-04. Taxi [05:20](   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Country-AltПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6640B7969271F37EAAEB47B6AA30F3BF63CA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977385   (965311) от 21.01.2016
-
-БИ-2 - Лучшее (2010) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Реки Любви (04:08)
-02. - Шамбала (03:35)
-03. - Достучаться До Небес (05:30)
-04. - Мой Рок-Н-Ролл (06:45)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019595A0D1F64DC7DE7E320D942492D95E9DA12C
 ```
 
 

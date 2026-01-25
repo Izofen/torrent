@@ -1,3 +1,28 @@
+###  Публикация: 1106101   (873639) от 19.02.2017
+
+VA - I Love Music! - Trap Edition Vol. 36 (2017) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Benasis - AK 3:49
+002. Big Wild - Invincible (feat. iDA HAWK)Жанр: TrapПродолжительность: 02:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E502AC562F63B560DCABF72FF449B79B01A0C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106125   (873649) от 19.02.2017
 
 VA - German Top 100 Single Charts 17.02.2017  [MP3|320 Kbps] <Pop>
@@ -680,33 +705,6 @@ VA - Beatport Deep House: Electro Sound Pack #49 (2020) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4848E77F479026F8570CCC538AE9BF320CC9D19B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374169   (874565) от 09.04.2020
-
-VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even Midnight - Man O Tu
-02. Trace7000 - Want (Original Mix)
-03. Rafa Alcantara - Continental
-04. Red Led - About You(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 08:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1379899   (836523) от 01.05.2020
+
+Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicht kommen sehen [03:38]
+02. Besteste Band [03:34]
+03. Regier'n den Pogo [04:03]
+04. Saunaclub [03:41](   Читать дальше...   )Жанр: Punk-Rock, RapcoreПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EB15A21E8E4EFB7C9D739C7959BE42FB54A1D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501298   (836558) от 09.10.2021
+
+Рабфак 2.0 - Живая классика (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836558.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наш дурдом
+2. Раскачивать лодку
+3. Просрали страну
+4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43E911FA0B33D68229D14CE04144042235B3551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501299   (836563) от 09.10.2021
 
 Мураками - Среди акул (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -668,60 +722,6 @@ magnet:?xt=urn:btih:036E464608AEEF21FAC7C603660C4A62B5075F87
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113265   (838083) от 11.03.2017
-
-Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Song (03:05)
- 02. Personal Jesus (04:07)
- 03. mOBSCENE (03:27)
- 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772693   (838090) от 01.04.2014
-
-AC/DC - Greatest Hell's Hits (2009) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838090.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Thunderstruck
-02. Shoot To Thrill
-03. Big Gun(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2474B018DAF54D36299A4265A12EA3F7128D0A
 ```
 
 

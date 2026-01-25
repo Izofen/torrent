@@ -1,3 +1,30 @@
+###  Публикация: 1037693   (612121) от 25.07.2016
+
+VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Dias - Sorry (Kizomba Remix) 04:23
+02. Vanda May - Nao Me Ligues 04:10
+03. Saaphy - Your Future 03:39
+04. Kaysha - Diamonds 04:43(   Читать дальше...   )Жанр: World, Zouk, KizombaПродолжительность: 02:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720B19DEC01BBCD47991F6ED30A748155E3D8D87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037767   (612126) от 25.07.2016
 
 VA - 50 Perfect Summer Party Hits (2016) [MP3|263~320 Kbps] <House, Club, Dance>
@@ -683,33 +710,6 @@ VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037436   (613666) от 24.07.2016
-
-VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love
-02. Stevie B. - Because I Love You (The Postman Song)
-03. Chris Rea - Ace Of Hearts
-04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
 ```
 
 

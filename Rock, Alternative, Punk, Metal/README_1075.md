@@ -1,3 +1,57 @@
+###  Публикация: 1115327   (826450) от 18.03.2017
+
+Genesis - Duke (1980) Remaster, 1985, Charisma [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind The Lines (5:43)
+02. Duchess (6:25)
+03. Guide Vocal (1:21)
+04. Man Of Our Times (5:34)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Prog RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906041074A23927A8D3AC5A2EB38756134A0C8AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115325   (826451) от 18.03.2017
+
+Genesis - Abacab (1981) Remaster, 1984, Vertigo [FLAC|Lossless|image + .cue] <Pop Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abacab (06:57)
+02. No Reply At All (04:39)
+03. Me And Sarah Jane (05:59)
+04. Keep It Dark (04:31)(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5EA5D6CC624C4FAE668EC23BB21D7D006F30F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502449   (826502) от 15.10.2021
 
 Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore, Alternative Metal>
@@ -644,60 +698,6 @@ Frank Marino - Full Circle (1986) [FLAC|Lossless|tracks + .cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C3A16B4900C0B6944EB03254B3B0AD8F6288BDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006505   (826992) от 12.04.2016
-
-Primal Scream - Chaosmosis (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternative Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trippin' On Your Love (feat. HAIM) (3:30)
-02. (Feeling Like A) Demon Again (4:35)
-03. I Can Change (3:17)
-04. 100% Or Nothing (feat. HAIM) (3:54)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Britpop, Pop-Rock, Dance-RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AA6406C0108C041D160490ABB14A645671D076
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006639   (827173) от 12.04.2016
-
-Skyline - Good Days (2016) [MP3|320 кб/с] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drag Down (04:47)
-02. Lift Me off the Ground (03:30)
-03. Stay on the Line (04:51)
-04. Radio (04:12)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7AF937C8F2783BF42D47325134A579A041F49C
 ```
 
 

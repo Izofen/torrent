@@ -1,3 +1,84 @@
+###  Публикация: 1197196   (813926) от 08.01.2018
+
+VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maria Healy  -  Maktub (Extended Mix)  7:04
+02.  Neofance  -  Omicron (Original Mix)  7:46
+03.  A-Leo feat. Lauren Mayhew  -  Frequency (Virium Remix)  5:39
+04.  Heart Of Steel  -  Try To Forget (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D8474357B854754377D5D4DC73293FDBD6091D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197178   (813927) от 08.01.2018
+
+VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Arty  -  Twilight Tonight (Steve Brian Remix)  2:57
+02.  Daniel Kandi  -  What Happens When We End (Original Mix)  4:21
+03.  Paul Arcane  -  Transcend (Original Mix)  4:14
+04.  Emme  -  Kilimanjaro (Original Mix)  3:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BCEF19DC0F9729CFE85174136537A2D25D86FDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197237   (813928) от 08.01.2018
+
+VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Betsie Larkin & Roman Messer  -  Unite (Extended Full Fire Mix)  5:46
+02.  Sunset & Steve Dekay  -  Turbulence (Extended Mix)  6:02
+03.  Attila Syah feat. Cari  -  Dark Side Of The Moon (Andy Elliass Extended Remix)  6:28
+04.  Cyril Ryaz  -  Punk Connection (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197228   (813929) от 08.01.2018
 
 VA - Dub Hits Vol.7 (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -617,87 +698,6 @@ VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C1277179523A522BEEDB24CEF8C2234C1BB5239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008211   (817464) от 17.04.2016
-
-Data Rebel - Angular (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <IDM, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spektral Strut (04:53)
-02. Angular (04:46)
-03. Replika v2 (04:35)
-04. Tortoise (05:31)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B008B331485782DF2CB37448AA11D4096F53A261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382832   (817515) от 12.05.2020
-
-VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenchord - Untitledub 9 (06:11)
- 02. FaKtor.Ost - 3828 (05:54)
- 03. Markus Masuhr - Forest Lights (10:24)
- 04. Drfct - Unknown (07:35)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 01:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57FD519235D346833CDB1CAFAADB06215DD2E8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382649   (817536) от 12.05.2020
-
-96 Back - ADRISM (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spanning & Adept (03:52)
- 02. Carved Into (05:26)
- 03. Collage Of A Tender Voice (02:49)
- 04. Transport Sticcato (03:45)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2676129CCA909BFB048D3C2BF5281E23B919BE6F
 ```
 
 

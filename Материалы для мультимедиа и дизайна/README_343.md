@@ -1,3 +1,27 @@
+###  Публикация: 1275578   (789751) от 12.01.2019
+
+Шрифты - Creative Market - Smile Pro+ Cyrillic -80% All Family - 365922 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smile pro - этот шрифт содержит различные стили, шрифт без засечек, especila для детских названий и кириллицу.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE32A2C480AEC27E670FEF61936384C5A616EC7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275580   (789754) от 12.01.2019
 
 Шрифты - Creative Market - Sladosti CYRYLLIC - 529733 [TTF, OTF]
@@ -602,32 +626,6 @@ NNM-Club Sound Cleaner Collection from tuxac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AAAEBA97DF7DC388712DCFAADA0F0D7CF2FB8D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202176   (790463) от 28.01.2018
-
-Векторный клипарт - Creative Travel Icons 4 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Иконки творческого путешествия
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE16277336721B2AE45A4A5357DCBCB444C86AFC
 ```
 
 

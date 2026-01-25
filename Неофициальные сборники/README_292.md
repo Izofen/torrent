@@ -1,3 +1,30 @@
+###  Публикация: 1243432   (489976) от 28.08.2018
+
+VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Rock Jazz>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489976.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Golden Gate Quartet - Joshua Fit The Battle Of Jerich
+002. Natalie Cole -  Almost Like Being In Love
+003. Eartha Kitt - A Woman Wouldn't Be A Woman
+004. John Travolta - Greased Lightning(   Читать дальше...   )Жанр: Rock and Roll, Classic Rock, Rock JazzПродолжительность: 11:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97400FA7DD98D949DA704AB6825477CBA85B3C62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243425   (489978) от 28.08.2018
 
 VA - Golden Hour (2018) [MP3|320 Kbps] <Swing, Jazz>
@@ -700,39 +727,6 @@ VA - Number 1 Hits Of The 1950's (2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7B465C0C9BBA80A93B9F3DE7341203FFA156CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544306   (491837) от 07.09.2012
-
-VA - Ночной клуб сентября (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Курильщики - не получил не Time (Original Extended Mix)
-02. WTF! - Da Bop (Extended Mix)
-03. Adrian Sina feat. Диана Hetea - Back To Me (Seepryan Remix)
-04. Tiesto & Showtek - Hell Yeah! (Original Mix)
-05. Bob Sinclar feat. Snoop Dogg - Wild Thing (Michael Calfan Remix)
-06. Adrian Lux feat. Данте - Burning (Extended Mix)
-07. Тело и душа - Fly With You (Extended Mix)
-08. Armin Van Buuren - Full Focus (Alexxx-DAR Remix)
-09. Dave Silcox - Bang Your Head (Original Mix)
-10. DJ Re-Lay feat. Kathleen Moore - Kuss Mich Auf Französisch (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5088B597E7EA07E67301D4839E4506D6CAE5E8
 ```
 
 

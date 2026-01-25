@@ -1,3 +1,56 @@
+###  Публикация: 1564917   (497653) от 21.07.2022
+
+White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Микрозайм [00:04:01]
+02 - Химиотрассы [00:04:46]
+03 - Могильник [00:03:13]
+04 - Сахар [00:03:14](   Читать дальше...   )Жанр: Post Punk, Gothic RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5A92EBF4A9620FC472BF652C722E3D6B926495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318084   (497669) от 04.08.2019
+
+V.A. - The Many Faces Of Queen: A Journey Throught The Inner World Of Queen (2018) 3CD [FLAC|Lossless|image + .cue] <Rock, Arena Rock, Modern Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497669.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Many Faces Of Queen
+CD2 - The Songs
+CD3 - The Queen Symphony: A Night At The OrchestraЖанр: Rock, Arena Rock, Modern Classical |Продолжительность: 02:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0564789B9FEC03ACFA1A6EEF0D1B261FFC911391
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318050   (497679) от 04.08.2019
 
 The New Roses - Nothing But Wild (2019) [MP3|320 Kbps] <Hard Rock>
@@ -638,60 +691,6 @@ Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935639   (498195) от 09.09.2015
-
-Пилот - Изолятор (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пластинка представляет собой первый из заявленных трёх будущих альбомов группы «Пилот», над которыми продолжает вестись работа. Это тяжеловес и с точки зрения музыкальной стилистики, и с точки зрения текстов песен. Музыка на пластинке уходит корнями в начало 90-х годов, в период самого расцвета таких эксклюзивных муз.направлений, как хардкор, индастриал и инди-метал-рок. (   Читать дальше...   )01. Депрессия
-02. В аду
-03. Маниакальное состояние
-04. Истерика(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22963FB3332BA78C7A74C9A8E8105CF9E0988395
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934240   (498238) от 09.09.2015
-
-VA - Легенды Мирового Рока - Time (2001) [FLAC|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Pink Floyd-Time
-02.Uriah Heep-July Morning
-03.Led Zeppelin-Starway To Heaven
-04.Ian Gillan-Gethsamane(I Only Want To Say)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A9879830DA9D343D26507D173BFE092F68D0D6
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1138251   (664489) от 29.05.2017
+
+VA - Chill Luxury Del Mar - Beach Spa Resort Boutique Lounge Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moon de Lounge - La Mer Se Calme (Lounge Mix) 5:05
+02.  Princess Of Lounge - We Found Love (Wish You Were Here Mix) 4:44
+03.  Lounge Traveller - Many Places 5:48
+04.  Drops Of Honey - Pura Vida (Puro Del Mar Sunset Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222EB708B55F99FAF7AF369C58FBEDE945D53E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138257   (664491) от 29.05.2017
+
+VA - Poolside Miami 2017 (Mixed by Tobtok) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobtok - Prelude (Original Mix) 03:39
+02. Alaia Gallo Ft Kevin Haden - Who Is He (Claptone Remix) 05:35
+03. Tchami - Adieu (Original Mix) 06:53
+04. Arle - Close To You (Icarus Edit) 03:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F46B7EC8AB55292AD1874FAA35A7B21CFB962C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138359   (664493) от 29.05.2017
+
+Bassic - Biochrome (2017) [MP3|320 Kbps] <Ambient, Chillout, Nu Disco>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruz (03:45)
+02. Cosmic Dark (03:48)
+03. Mata Hari (05:08)
+04. Drip Drop (02:10)(   Читать дальше...   )Жанр: Ambient, Chillout, Nu DiscoПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78BC386FCA0020A4A509C8A55D3D1C3BDD5CB2E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138353   (664497) от 29.05.2017
 
 VA - Deep-House Aloha Vol.1: 20 Summer Smoothies (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -614,84 +695,6 @@ VA - Chillout Acoustic Sessions (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1653B90A601D935C0922919BE8C20E9A0C9299C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512021   (665854) от 17.06.2012
-
-VA - Balance Series (25 альбомов) (2001-2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, House, Electro, Techno, Minimal, Tech House, Dubstep, Ambient>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все кому нравится прогрессивно звучащая танцевальная музыка уже давно поместили серию “Balance” в разряд самых интересных диджейских миксов, откуда она вышибла Global Underground. За это скажeм спасибо Филу К, Джеймсу Холдену, Крису Фортье и Джимми Ван М – как наиболее отличившимся.CD1Продолжительность: 01:18:40
-
-01. Gianni Callipari - Whybee (4:41)
-02. Simon Baker & Robert James - All Of A Sudden (3:15)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2BBC33AB6769626326B7F381BD74B312530AF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512028   (665857) от 17.06.2012
-
-Eric Prydz Presents Pryda ‎ - Pryda (2012) [FLAC|Lossless]<House , Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 01:15:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224438   (665943) от 10.05.2018
-
-ScAnDroid Experiment's - Erunt Omnia (2018) Авторская раздача [MP3|320 Kbps] <Experimental Electronic, Ambient, Ethno-Electronic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Aves Paradisi
-02. Hoolala
-03. Skal Bare
-04. Brevis Historia(   Читать дальше...   )Жанр: Experimental Electronic, Ambient, Ethno-ElectronicПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FCE00B9D79736B807C0B919AB94C1654754C77
 ```
 
 

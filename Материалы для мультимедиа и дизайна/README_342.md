@@ -1,3 +1,29 @@
+###  Публикация: 1511781   (788330) от 22.11.2021
+
+Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Новый год
+14 EPS +PreviewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1151C628388FDC3697F07486C091B7B2AB2865A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511728   (788334) от 22.11.2021
 
 Векторный клипарт - New year 2022 year of the tiger red and gold flower in vector [EPS]
@@ -607,30 +633,6 @@ magnet:?xt=urn:btih:9CEB982A6665B8C917AB6481DDF30ECFCB1FB8B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5E1ACA087518034415DEF59AEA27D6D9734330
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275578   (789751) от 12.01.2019
-
-Шрифты - Creative Market - Smile Pro+ Cyrillic -80% All Family - 365922 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smile pro - этот шрифт содержит различные стили, шрифт без засечек, especila для детских названий и кириллицу.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE32A2C480AEC27E670FEF61936384C5A616EC7D
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1556216   (563382) от 07.06.2022
+
+VA - When We Dip Presents: Ete (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hosini - Syd 7:06
+02. Lisandro (AR) - Serenade 6:21
+03. Luka Sambe & Eisenzahn - Vanilla 7:41
+04. VieL & Madraas - Vires 7:32(   Читать дальше...   )Жанр: Deep House, Organic House, Melodic House & TechnoПродолжительность: 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E3F1D4A413D059895ADB4FA82CC5EB3A8456CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044664   (563420) от 21.08.2016
+
+VA - John Digweed Live In Montreal: Finale (2016) 3CD Bedrock Records [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Out West - Tuesday Maybe
+02. The Chemical Brothers - Sometimes I Feel So Deserted (C2 Trigger Remix)
+03. Chaim – Genesis
+04. DJ H Ft. Stefy - Come On Boy (Larry Levan Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1791089B713BFD601758E7595A7378AFB1B3CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044662   (563445) от 21.08.2016
+
+Blank & Jones - Dom (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Lumen Ecclesie	[3:48]
+02.	Dona Nobis Pacem	[6:34]
+03.	Genesis	[5:12]
+04.	Exim	[9:11](   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC5A2D4BFCFA9A2E51D122558609387CBAB53A2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044898   (563693) от 21.08.2016
 
 VA - Dubai Best Lounge Music Vol 4 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
@@ -612,87 +693,6 @@ Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26EF9C9078760A1958A9B43D425DC982EED0BDEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044370   (565660) от 20.08.2016
-
-VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Caseli, David Jimenez & Errol Reid  -  Stay Together (Dave Rose Remix)  5:47
-02. Teo Mandrelli  -  Everyday Battle (Club Mix)  5:27
-03. Steve Edwards, RONN, Ron Carroll, Michael Murica & Damon Grey  -  When Love Gets in the Way (Argento Remix)  4:37
-04. Nick Hook  -  House People Pump It Up (Original Mix)  7:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152535   (565673) от 23.07.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik feat. Mark & Lukas - Valley Of Shadows (Extended Mix)
-02. Luttrell - Daylight (Original Mix)
-03. Andre Sobota - Unmute (Original Mix)
-04. Aly & Fila And Paul Thomas - UV (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED165F9EF0621541F613BE35B18A27902D1CE80B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152531   (565711) от 23.07.2017
-
-VA - Acoustic Sweetness. Emotional and Positive Portraits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satta Massimo - All my Girls
-02. Vincent Migliorisi - Farenight
-03. Vincent Migliorisi - Impossible
-04. St. Project - In Your Lips(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C1431508A0AE7AFE13A7C06FB0592ADFA608F5
 ```
 
 

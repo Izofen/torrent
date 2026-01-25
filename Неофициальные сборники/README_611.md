@@ -1,3 +1,30 @@
+###  Публикация: 988771   (919276) от 21.02.2016
+
+2011stress - Лоскутный Мир (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance for one
+02. Жеребёнок
+03. Потомки Звёздной Пыли
+04. James Blond(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Classic stylingПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7704F4A4B932F1F109AA2669AC85A3DB6B6D92DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 632499   (919817) от 20.03.2013
 
 VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive House>
@@ -670,33 +697,6 @@ VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096254   (921072) от 23.01.2017
-
-VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive, Soulful, Nu Disco, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boogie Bros Feat. Big Daddi - Fight For Your Right! (Yelhigh! Remix Edit)  3:14
-02.  R3HAB & ZROQ - Skydrop (Ethyr Remix)  6:07
-03.  Uberjak'd Ft Nuthin Under A Million - All I Need (Bomber) (Nicolas Strands Remix)  4:39
-04.  Stefano Carparelli & Torny - Beautiful Day (Hard Mix)  5:20(   Читать дальше...   )Жанр: House,  Progressive, Soulful, Nu Disco, ClubПродолжительность: 06:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
 ```
 
 

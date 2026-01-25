@@ -1,3 +1,57 @@
+###  Публикация: 1482988   (1007193) от 11.07.2021
+
+Maniak Cop - Maniak Cop (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get It Out
+02. Darkness Of Night
+03. Shocker
+04. Making Noise And Drinking Beer (Tyrant cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58756A3BB24A271FEA52785EEDEA10CDFD6BEC03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482920   (1007194) от 11.07.2021
+
+Kambrium - Synthetic ERA (2021) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal / Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007194.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Neon Death (Intro) (01:34)
+02. Cybernetic Overload (05:19)
+03. Shadow Construct (05:40)(   Читать дальше...   )Жанр: Sympho Power Metal / Melodic DeathПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF5D9320ED05B28EC41A5C0C74D0FA9377EFAC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482792   (1007304) от 10.07.2021
 
 Toby Hitchcock - Changes (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
@@ -641,60 +695,6 @@ Van Canto - To The Power Of Eight (2021) [FLAC|Lossless|image + .cue] <A Capella
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E37EB7357FF95C3799EA5A9977A6EA76C4253B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481927   (1007914) от 06.07.2021
-
-Kayak - Out Of This World (2021) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of This World
-02. Waiting
-03. Under A Scar
-04. Kaja(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B777AACD5467F2D72B2FD68A65CB716D12C74E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481830   (1008003) от 05.07.2021
-
-Crypta - Echoes Of The Soul (2021) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening
-02. Starvation
-03. Possessed
-04. Death Arcana(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113F51348DF4CF5B05FD9FE6A6675E9A32FC5B92
 ```
 
 

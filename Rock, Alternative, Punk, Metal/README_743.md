@@ -1,3 +1,54 @@
+###  Публикация: 1566617   (480564) от 30.07.2022
+
+Warlord U.K - We Die As One (2013) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Worlds Collide
+02. Human Inner Core
+03. Masses Gather in Masses
+04. Insurgents Breed(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9551680A8B16DD3316DD0DB227757BAF67B65E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566622   (480565) от 30.07.2022
+
+Acid Age - Drone Shark Ethics (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knight of the Living ShredЖанр: Thrash MetalПродолжительность: 00:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885FDF001EF3E2E6219111721BCCCFEB08FB531C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566698   (480566) от 30.07.2022
 
 Whipstriker - Troopers of Mayhem (2013) Reissue, 2015, PRC Music [FLAC|Lossless|image + .cue] <Heavy, Speed Metal>
@@ -653,60 +704,6 @@ The Blue Hawaiians - Savage Night (1999) [FLAC|image +.cue]<Surf Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01E4F476E4B2A5003898B97A9009ED81A994F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244496   (482022) от 01.09.2018
-
-Mike + The Mechanics - Silent Running: The Masters Collection (2018) 2CD [FLAC|Lossless|image + .cue] <Pop-Rock, Soft-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Over My Shoulder (2014 Remastered)
-02. All I Need Is a Miracle (2014 Remastered)
-03. Nobody Knows (2014 Remastered)(   Читать дальше...   )Жанр: Pop-Rock, Soft-Rock |Продолжительность: 01:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E2390D4B545A1293CEDD739CD6B91846AC87EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244425   (482034) от 01.09.2018
-
-U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tongue Reaper
-02. Make The Move
-03. Keeper Of My Soul
-04. In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70E866860E6A9DF6FC3D87C3864008D84BF7A7D
 ```
 
 

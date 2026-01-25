@@ -1,3 +1,57 @@
+###  Публикация: 1541812   (642619) от 04.04.2022
+
+Twin Void - Free From Hardtimes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Hardtimes [00:01:34]
+02 HELLCAT [00:03:21]
+03 Bird Days [00:04:58]
+04 Poor Ol' Me [00:01:47](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner'RollПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E29D325D16C97F69DB03E4E77463772BB653CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541559   (642724) от 04.04.2022
+
+VA - Sixty Hits Of The 60s (1996) 3CD, Compilation, BMG[FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Merrilee Rush - Angel Of The Morning (3:12)
+02 - The Lemon Pipers - Jelly Jungle (Of Orange Marmalade) (2:21)
+03 - Johnny Young - It's A Sunny Day (2:30)
+04 - 1910 Fruitgum Company - 1,2,3, Red Light (2:10)(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & Country, Pop Rock, Bubblegum, Beat, Surf, Psychedelic RockПродолжительность: 3CD, 2:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20A78BE5B7C7F50A245DCD465EF865D248D4216
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 280143   (642751) от 03.07.2012
 
 Pearl Jam - 16Albums+26Singles+2EP (1991-2011) [MP3|320 kbps]<Grunge/Alternative Rock>
@@ -647,66 +701,6 @@ The Human Abstract - Nocturne (2006) [FLAC|Lossless|image + .cue] <Progressive M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E6301D4C458C9A209D5D1BEEAD4179541D1271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292772   (643201) от 31.03.2019
-
-Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diggin' the scene (03:09)
-02. A touch of blue (03:46)
-03. Aila (feat. Heidi Kaarto, Esa Pulliainen) (04:21)
-04. Muddy the water (03:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C0B9C1EECF608A148403E88474EB1BD79BC748
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518420   (643206) от 03.07.2012
-
-Van Der Graaf Generator - ALT (2012) [FLAC (tracks+cue)|Lossless]<Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earlybird
-02. Extractus
-03. Sackbutt
-04. Colossus
-05. Batty Loop
-06. Splendid
-07. Repeat After Me
-08. Elsewhere
-09. Here's One I Made Earlier
-10. Midnite Or So(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 

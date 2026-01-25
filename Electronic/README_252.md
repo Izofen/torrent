@@ -1,3 +1,84 @@
+###  Публикация: 1407121   (468611) от 06.09.2020
+
+KMRU - Peel (2020) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Are You Here (15:10)
+ 02. Well (05:30)
+ 03. Solace (12:50)
+ 04. Klang (06:10)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C969EED0063477E60B3A2CE4FB473FC1852737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940481   (468668) от 24.09.2015
+
+Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headlights (feat. Ilsey)
+ 02. Sugar (feat. Francesco Yates)
+ 03. Heatwave (feat. Akon)
+ 04. Yellow(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DF1D0F2148B5E475FDD36501533B9FFE91D667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058529   (468828) от 01.10.2016
+
+VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Knight - Yebisah (original mix) [08:23]
+02. Ian Pooley - Cold Wait (Bicep dub) [06:22]
+03. Eats Everything - Monegros (original mix) [07:17]
+04. Dubspeeka - K377 Unfriended (original mix) [08:22](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058501   (468841) от 01.10.2016
 
 Lustmord - Dark Matter (2016) Touch [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Experimental, Ambient>
@@ -613,92 +694,6 @@ Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:357B5852E943C994144CB2AF7BB78A121A361AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406994   (471187) от 05.09.2020
-
-VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Darroo - Rave Face 2018 (Original Mix)
-02. DJ Darroo - Lift (Original Mix)
-03. DJ Darroo - X Dream (Original Mix)
-04. DJ Darroo - Visions of Euphoria (Trance Mix)(   Читать дальше...   )Жанр: Hard Trance, TranceПродолжительность: 08:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23ECE10686DC4007A8844595CD20F64E77E12A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320474   (471393) от 18.08.2019
-
-VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Aco Rolando Martinez - Hey Dj 07:05
-02. Javier Devesa - Warning 04:30
-03. Lonely DJ - All The People 03:43
-04. Midnight Evolution - Dark Secrets 05:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B936F35B54C44E77093036EABDFDB5395BA3A69A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548085   (471510) от 16.09.2012
-
-David Guetta - Nothing but the Beat 2.0 (2012) [FLAC|Lossless]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471510.jpg" />
-</div>
-
-
-###  Подробнее
-
-David Guetta - Nothing but the Beat 2.0 (2012)
-
-Год: 2012
-Жанр: House
-Продолжительность: 01:15:22
-Лейбл: Virgin
-Кодек: FLAC
-Битрейт: LosslessТрек лист:
-01. David Guetta - Titanium (feat. Sia) [04:05](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

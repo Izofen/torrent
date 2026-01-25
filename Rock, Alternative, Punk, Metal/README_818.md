@@ -1,3 +1,57 @@
+###  Публикация: 1556154   (561524) от 08.06.2022
+
+Reeper - Rise of Chaos (2021) Deluxe Edition, 2022, Art Gates Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rebound (00:03:35)
+02 - Save Me (00:03:30)
+03 - Home (00:04:03)
+04 - Let It Go (00:03:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard, Desert, Stoner RockПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0A56A67D5B0B6A641A07BDB8477455624E3FFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556193   (561525) от 08.06.2022
+
+Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Way is The Highway (00:02:45)
+02 - In The Golden Age (00:03:44)
+03 - Deadly Kisses (00:04:04)
+04 - Love Out of Thin Air (00:04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556153   (561647) от 08.06.2022
 
 Stone Witch - Desert Oracle (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard, Desert, Stoner Rock>
@@ -641,60 +695,6 @@ Mantus — это немецкий дуэт, возглавляет которы
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F422E5E363D44762E0CD6BEAE5A9B09A30741B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556025   (563236) от 07.06.2022
-
-Silverstein - Misery Made Me (2022) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Song
-02. Die Alone (feat. Andrew Neufeld of Comeback Kid)
-03. Ultraviolet
-04. Cold Blood (feat. Trevor Daniel)(   Читать дальше...   )Жанр: Post-Hardcore, Alt. RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC43C126C6BA54AD373E60F7635F706EA849F75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556126   (563237) от 07.06.2022
-
-Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Foot In The Grave 04:13
-02. The Battle Of Locust 03:22
-03. Bluebird 04:05
-04. S.O.S. 03:12(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21251C44DB3D3CFBE1BFFB600D56CC97625B4891
 ```
 
 

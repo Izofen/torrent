@@ -1,3 +1,57 @@
+###  Публикация: 1479688   (1009328) от 26.06.2021
+
+SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Arrival
+02. King Of The Skies
+03. Soldiers Of Light
+04. Constellation(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AE6B93A750AFA4B9FB8D7FE148E3F57067A16E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480072   (1009329) от 26.06.2021
+
+Спикер - Медленный День (2021) EP [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Суицидница (2:01)
+02. Ангел Ночи (3:23)
+03. Любовь - Тяжёлый Наркотик (8:17)
+04. Медленный День (4:16)(   Читать дальше...   )Производство: Not On Label (Спикер Self-released) – spkr-01Жанр: Atmospheric Black Metal, Post Black Metal, Depressive Rock, ShoegazeПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280CD79A1D5745DD84B7D7CBF9EAE8058DD3D52E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480057   (1009331) от 26.06.2021
 
 Modest Mouse - The Golden Casket (2021) [MP3|320 Kbps] <Indie Rock>
@@ -639,60 +693,6 @@ Jeffrey Erik Mack - The Forgotten Earth (2021) [FLAC|Lossless|tracks + .cue] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E94B9E117E16EEF82BB942E7275D695F3D4FB5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478985   (1009865) от 22.06.2021
-
-Sons of Liberty - Animism (2019) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's My Bad
-02. Rich Man Poor Man Beggar Man Thief
-03. Up Shit Creek
-04. Snake Hips Slim(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD69B87CE2CEDBB6D6F7AD1D12DA4560E14A4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478963   (1009869) от 22.06.2021
-
-Sur Austru - Obarsie (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cel din urma [13:02]
-02. Taina [10:50]
-03. Codru Moma [04:30]
-04. Cant adanc [05:18](   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA9081837FAD1553F540AE0284B11D6B55019B5
 ```
 
 

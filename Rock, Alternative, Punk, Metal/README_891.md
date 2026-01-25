@@ -1,3 +1,57 @@
+###  Публикация: 1542898   (635328) от 08.04.2022
+
+Destruction - Diabolical (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Spell (1:13)
+02. Diabolical (4:09)
+03. No Faith in Humanity (4:17)
+04. Repent Your Sins (4:09)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AA50707ACFB66AED6C7BF14BAC000F13EE0D7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542735   (635333) от 08.04.2022
+
+Fortune - Level Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence Of The Heart
+02. Judgement Day
+03. Dangerous Things
+04. I Will Hold You Up(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8371D0DFB28A7BC96861735DFD08655AF510E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542867   (635334) от 08.04.2022
 
 Hallas - Isle of Wisdom (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Hard Rock, Prog Rock>
@@ -642,60 +696,6 @@ Manowar - Warriors of the World (2002) 10th Anniversary Remastered Edition / 201
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033874   (636037) от 12.07.2016
-
-David Gilmour - Paramount Theater, Oakland CA, April 16 2006 (2006) Bootleg, Live [MP3|320 Kbps] <Progressive rock, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Speak to Me
-02 – Time
-03 – Castellorizon
-04 – On an Island(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 02:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC718D1E47A25FC4ACA531128FD73EB020E7138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907444   (636060) от 13.06.2015
-
-Captain Beefheart & The Magic Band - 2 альбома (1980-1982) [FLAC|image+.cue]<Rock, Progressive Rock, Experimental Rock, Alternative Rock, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Cream For Crow 04:35
-02. The Host, The Ghost, The Most Holy-O 02:25
-03. Semi-Multicoloured Caucasian 04:21
-04. Hey Garland, I Dig Your Tweed Coat 03:12(   Читать дальше...   )Жанр: Rock, Progressive Rock, Experimental Rock, Alternative Rock, AvantgardeПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE6876648F0B1490B6A8FDDE5ACB0C909BF9B94
 ```
 
 

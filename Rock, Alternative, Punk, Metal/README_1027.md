@@ -1,3 +1,57 @@
+###  Публикация: 1427801   (787338) от 24.11.2021
+
+King Crimson - The Complete 1969 Recordings (2020) Boxset, 20xCD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc - 1 - Live at Hyde Park:
+  01 - 21st Century Schizoid Man (Live at Hyde Park, 5 July)  (06:37)
+ 02 - The Court of the Crimson King (Live at Hyde Park, 5 July)  (06:31)
+ 03 - Get Thy Bearings (Live at Hyde Park, 5 July)  (08:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 20:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDE2728B0E1EBAD9E524FB175D69DAF72C8595E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512203   (787345) от 24.11.2021
+
+Deep Purple - Turning to Crime (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7 and 7 Is (Love)
+02. Rockin' Pneumonia and the Boogie Woogie Flu (Huey "Piano" Smith)
+03. Oh Well (Fleetwood Mac)
+04. Jenny Take a Ride! (Mitch Ryder & The Detroit Wheels)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0B8E20A14444813FE9AA1F73EFF261D6EB563D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512265   (787373) от 24.11.2021
 
 King Crimson - Music Is Our Friend (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
@@ -644,60 +698,6 @@ Burning Point - Arsonist Of The Soul (2021) [FLAC|Lossless|image + .cue] <Power 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B10679E8A8278ADC165925A47571E2117E5F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203492   (788058) от 02.02.2018
-
-Anti-Flag - American Fall (2017) [FLAC|Lossless|tracks] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Attraction 2:56
-02. The Criminals 2:44
-03. When The Wall Falls 2:46
-04. Trouble Follows Me 3:09(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AFC62AD99FBF5857C776CB4FC64ACE8D6AF796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276578   (788118) от 16.01.2019
-
-Pink Floyd - Meddle (1971) 2011, Reissue, Remastered, EMI [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of These Days (5:56)
- 02. A Pillow of Winds (5:13)
- 03. Fearless (6:08)
- 04. San Tropez (3:43)(   Читать дальше...   )Жанр: Psychedelic Rock, Prog RockПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF30726DD04FCF13BB3DA8C4BFBBDC5D8F4BAC2D
 ```
 
 

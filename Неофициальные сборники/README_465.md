@@ -1,3 +1,30 @@
+###  Публикация: 1127798   (731131) от 22.04.2017
+
+VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731131.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claptone Ft. George Kranz - The Drums (Din Daa Daa) 3:26
+002. Nalin & Kane - Beachball 2017 (Sebastien Remix) 2:58
+003. DJ Higheffect Ft. Silvia Dias - Sweet Dreams 3:35
+004. Tujamo - Make U Love Me 3:08(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946CA398AE0B2F5E51ED000C2E2FEB26861B4598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127757   (731136) от 22.04.2017
 
 VA - Топовая сотня весенняя версия № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -674,33 +701,6 @@ VA - Super Хитовый from AGR (2011) [MP3|320 kbps]<Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F1DB4474EA68511A7B99732E168DAC67824115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283883   (732151) от 18.02.2019
-
-VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Maite Kelly - Die Liebe Siegt Sowieso(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A00C8B57F67473920BD2CB5C7B4842B078FED
 ```
 
 

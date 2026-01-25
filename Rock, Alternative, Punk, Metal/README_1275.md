@@ -1,3 +1,57 @@
+###  Публикация: 1616376   (1036445) от 02.03.2023
+
+U.S. Girls - Bless This Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Only Daedalus (00:03:29)
+02 - Just Space For Light (00:03:56)
+03 - Screen Face (00:03:20)
+04 - Futures Bet (00:04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, SynthpopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A41D8825C8026EC75BC34D03DAC213D81A35F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616405   (1036446) от 02.03.2023
+
+Сегодняможно - Искусство (2023) [MP3|320 Kbps] <Alternative Rock, Emo Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Искусство [00:02:31]
+02 - Кома [00:02:28]
+03 - Ему все равно [00:02:34]
+04 - Когда наступит рассвет [00:02:49](   Читать дальше...   )Жанр: Alternative Rock, Emo PunkПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A43E9FCA7AF54E056F2D56F4599FF26835D1209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616388   (1036449) от 02.03.2023
 
 Illmatic - Watching The World Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore>
@@ -640,60 +694,6 @@ Arcane Focus - Volume One (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF62EECE63584F645E82E65E2B5962D05825BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616141   (1036742) от 01.03.2023
-
-Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hate Well Spent [00:01:02]
-02. Manic Vortex [00:01:56]
-03. Splendor Solis [00:00:10]
-04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615819   (1036744) от 01.03.2023
-
-Okktli - Okktli (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shaman [00:11:04]
-02. Mayahuel [00:05:49]
-03. Deny [00:07:10]
-04. Our Hope Is Gone [00:12:46]Жанр: Doom Metal, Stoner RockПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B35BC052498B549554A4C7F1063FE7AEDF41869
 ```
 
 

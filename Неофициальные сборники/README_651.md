@@ -1,3 +1,36 @@
+###  Публикация: 595757   (1000460) от 02.01.2013
+
+VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Jim & Greysound - Песенка деда мороза и снегурочки 2013 (Radio Edit) [03:48]
+ 02. 5sta Family - Без Ума (prod. by Speen Beatz & BeatMagik) [03:28]
+ 03. Damon Paul feat. Patricia Banks - Last Christmas (Radio Edit) [03:46]
+ 04. Бьянка - Заснеженные [02:53]
+ 05. Kindervater - Heartbeat (Radio Edit) [03:14]
+ 06. DJ Smash feat. Asti - Атом [03:40]
+ 07. Manuel Lauren - DJ Aflame (Radio Edit) [04:07]
+ 08. Niloo - Ola Ola (LaTrack Radio Mix) [03:28]
+ 09. L.A.R.5 feat. Jai Matt - All The Girls (Radio Edit) [03:11]
+ 10. Лера Туманова (Электра) - Новогодняя [03:06](   Читать дальше...   )Жанр: PopПродолжительность: 04:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AD70716829AA9BECB735210539094BE5E15F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597000   (1000470) от 02.01.2013
 
 VA - Новогодний Хит За Хитом 2 (2012) [MP3|256 кб/с]<Pop>
@@ -680,33 +713,6 @@ VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488935   (1001450) от 13.08.2021
-
-VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001450.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Felix Harrer, Jay Frog - Your Lies
-002. Gigi D'agostino - The Love Do Do
-003. Tiesto & Becky Hill - Nothing Really Matters
-004. Allan Mcluhan - Acid Theory(   Читать дальше...   )Жанр: EDM, Pop Dance, Dance HouseПродолжительность: 09:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
 ```
 
 

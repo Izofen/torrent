@@ -1,3 +1,84 @@
+###  Публикация: 1093086   (937415) от 13.01.2017
+
+VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback -  Rien ne va plus (Don Gorda Project remix) 06:59
+02. Don Gorda Project - Recurring Events 06:16
+03. Enrico Donner - The Place 06:17
+04. Gorda's Groove - Vocofeeling 05:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388ECCA7C01EE7829AC787C5DAEECD19B980F53D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092776   (937417) от 13.01.2017
+
+Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will Fast & Major Lover - First Life (6:11)
+02.  Will Fast & Major Lover - I'll Be Back (5:24)
+03.  Touch Me  (4:43)
+04.  You & I  (4:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092832   (937419) от 13.01.2017
+
+VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tsaho - Love in da House  3:55
+02.  E.M.C.K. - Can We Go (Club Mix)  4:40
+03.  Jeremy Bass & Rio Dela Duna - Tropicana  4:34
+04.  DJ Sign & Vince La Monica - Going Crazy  4:32(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092876   (937421) от 13.01.2017
 
 VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
@@ -616,87 +697,6 @@ VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A1A4A36F7A8D446F4EBF6F8860D354DABBFE08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092076   (940302) от 11.01.2017
-
-VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
-02. Don Gorda Project - Do That Again
-03. Enrico Donner - I Need A Love
-04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984126   (940333) от 08.02.2016
-
-VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House, Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust - Music Sounds Better With You (3:24)
-02. Daft Punk - Around the World (2:29)
-03. Azzido da Bass - Dooms Night (Timo Maas remix) (2:45)
-04. The Prodigy - Firestarter (2:27)(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363670   (940556) от 29.02.2020
-
-Boris Brejcha - Space Diver (2020) [MP3|~245 Kbps (V0)] <Tech House, Minimal>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boris Brejcha feat. Laura Korinth - Gravity (9:24)
-02. Boris Brejcha feat. Ginger - Happinezz (7:52)
-03. Boris Brejcha - Never Look Back (8:01)
-04. Boris Brejcha - Lieblingsmensch (8:44)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D611F4F3E6A5876D9B05E684FD4FE75B774F3DB
 ```
 
 

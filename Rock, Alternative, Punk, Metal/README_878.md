@@ -1,3 +1,57 @@
+###  Публикация: 1295141   (622500) от 11.04.2019
+
+Тени Свободы - Нелепость (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня злости
+02. Ритуал
+03. Нет прекрасней минут
+04. Существую(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD32057D446DA20D8581C10D3AAC3B5B4989DA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295143   (622501) от 11.04.2019
+
+Леона - На самом дне рождения (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622501.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Маленькая рыжая дворняга сибирского рока», как Леона себя называет, выросла и записала взрослый, зрелый альбом, в котором можно услышать продолжение традиций сибирского рока, бешеный драйв, отчаянную искренность и собственный поэтический Голос.1. Всё, что мы скажем
+2. Охотник
+3. Допуск к полёту
+4. Лес(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AAD8BC3519455C6A7EB09AF43DF51D92635029
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295142   (622505) от 11.04.2019
 
 Skafandr - Марш красных роботов (2019) [MP3|320 Kbps] <Rock, Dub-Metal>
@@ -664,60 +718,6 @@ Nitro - Nitro II: H.W.D.W.S. (Hot, Wet, Drippin' With Sweat) (1991) Reissue, 199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA69EEE35407A9A555F12898FEF4413C5E9E594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144848   (623793) от 24.06.2017
-
-Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown to Insanity
-02. Final Embrace
-03. In Metal We Trust
-04. Angel In Black(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544188   (623799) от 14.04.2022
-
-Nazareth - Surviving The Law (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strange Days [00:03:22]
-02. You Gotta Pass It Around [00:03:21]
-03. Runaway [00:03:33]
-04. Better Leave It Out [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D802157A63EE09C7D02C0A21A4750D9C7453F50
 ```
 
 

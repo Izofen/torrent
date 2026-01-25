@@ -1,3 +1,84 @@
+###  Публикация: 1216295   (751342) от 30.03.2018
+
+VA - Markus Schulz & Nifra - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Kyau & Albert and Ronski Speed - Zoom
+02. Ahmet Atasever - Smashed Avo
+03. Cosmic Gate & Markus Schulz - AR (Leo Reyes Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186EF090CB470A1B6EB0ECAE8F1248991BDCD063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216294   (751356) от 30.03.2018
+
+VA - Ori Uplift & tranzLift - Uplifting Only 268 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afternova feat Andrea Becker - For You & Ram - RAMnesia (Lilly Sinatra Mashup)
+02. Etasonic vs. Shostakovich - Waltz 2 Trance (Bootleg)
+03. Dreamlife & Blue Moon - Last Farewell
+04. The Mechanic & Vindicator - The Day That Never Comes (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E103853B35E023770EC85FF2F55E9A277A0F114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216257   (751358) от 30.03.2018
+
+VA - Jobe Presents Authentic Steyoyoke #012 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jobe - Jobe Presents Authentic Steyoyoke #012 (Continuos DJ Mix) (01:02:32)
+02. Jobe - Lissome (Original Mix) (08:30)
+03. Dahu - How Do They Know (Nick Devon Remix) (07:04)
+04. Pysh, Sincz - Kawalerskie (Original Mix) (06:21)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 02:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066A0212EEE9622A37F2521A18EE4353C3DA520C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216439   (751362) от 30.03.2018
 
 VA - Trance Maschine Vol. 2 (2018) [MP3|320 Kbps] <Trance>
@@ -613,85 +694,6 @@ Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281414   (753491) от 07.02.2019
-
-Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Formations Of Grace (12:36)
- 02. The Nebulous Chords (08:32)
- 03. Brittle Air Elegy (12:34)
- 04. And All The Murmur Fell (07:46)Жанр: Ambient, Drone, Experimental •Продолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71934AF2B9EE25664DD945BABD0B33A70526B035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281339   (753492) от 07.02.2019
-
-Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon (04:03)
- 02. Parsec (06:19)
- 03. Currents (06:16)
- 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281407   (753594) от 07.02.2019
-
-Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambrose (07:25)
- 02. Individual (07:06)Жанр: Dub Techno, Electro, TechnoПродолжительность: 00:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
 ```
 
 

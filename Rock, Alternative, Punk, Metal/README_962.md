@@ -1,3 +1,57 @@
+###  Публикация: 1130439   (714423) от 02.05.2017
+
+V1 - Armageddon - End Of The Beginning (2017) [MP3|320 Kbps] <NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V1 03:09
+02. Taking You Higher 06:42
+03. Devil Devil 04:59
+04. Don't Cause a Scene 04:01(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0CD99BF6B84C64B5601EDC5C5C3A3827B227AFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130433   (714430) от 02.05.2017
+
+Phil Rudd - Head Job (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Head Job  (03:34) 
+02.  Sun Goes Down  (02:50) 
+03.  Lonely Child  (04:02) 
+04.  Lost In America  (03:42) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C460B4F9F845A6169B3D842B31EFC4B9E8DDCC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130489   (714431) от 02.05.2017
 
 AZ.U.R. - Rock Like Pigz (1990) [APE|Lossless|image + .cue] <Hard Rock>
@@ -640,60 +694,6 @@ Tarja Turunen - The Brightest Void (2016) [FLAC|Lossless|tracks + .cue] <Symphon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E7CDC1560395274573FB50DF85F0A94600CC798
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218557   (715601) от 13.04.2018
-
-Andy James - 6 альбомов (2005-2017) [MP3|320 Kbps] <Modern Metal, Shred, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультиинстументалист, виртуоз Энди Джеймс родился в неметропольном графстве на востоке Англии, в Норфолке. Будучи 12-летним подростком, он уже ознакомился с гитарой. Его навыки совершенствовались, причем скоротечно. Именно тогда молодой Энди понял, что это его призвание и назад дороги нет. Примером музыкального вдохновения юноши были Guns'n'Roses, Extreme, Queen, (   Читать дальше...   )2005 - Machine
-2007 - In the Wake of Chaos
-2009 - Kaos 7
-2011 - Andy JamesЖанр: Modern Metal, Shred, InstrumentalПродолжительность: 03:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0085BF5093EC2A3AA25141C5D61380A19BA35FE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024710   (715618) от 09.06.2016
-
-Garbage - Strange Little Birds (2016) [MP3|320 кб/с] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes
-02. Empty
- 03. Blackout
- 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2DA15B7843E230902B39276C8268FDEE264DF3A
 ```
 
 

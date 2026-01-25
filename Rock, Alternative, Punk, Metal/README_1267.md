@@ -1,3 +1,57 @@
+###  Публикация: 1176990   (1033191) от 07.02.2021
+
+Spooky Tooth - 12 Albums, 1 Box-set, 24 CD (1967-2015) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Roots Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spooky Tooth — британская рок-группа, образованная в 1967 году в Лондоне, Англия, участниками The VIPs, The Ramrods и Art. Spooky Tooth, исполнявшие хард-рок с элементами прогрессив, одними из первых (наряду с The Band и Procol Harum) использовали клавишный дуэт в составе. Группа, в ранние годы нередко сравнивавшаяся с Traffic (делами обеих групп управлял один менеджер, (   Читать дальше...   )--------------------------
+
+01. I Think I'm Going Weird (3:21)
+02. What's That Sound (For What It's Worth) (2:50)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Roots Rock |Продолжительность: 20:56:35 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE14EA7966D3C0EC4CEE5E446744476D2F2ADA86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619330   (1033199) от 15.03.2023
+
+Acid King - Beyond Vision (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 One Light Second Away [00:06:11]
+02 Mind's Eye [00:07:11]
+03 90 Seconds [00:04:48]
+04 Electro Magnetic [00:08:16](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15D547AD11349D6B09D2707AA907FD8E2E06F465
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619255   (1033203) от 15.03.2023
 
 WarKings - Morgana (2022) [APE|Lossless|image + .cue] <Power Metal>
@@ -641,60 +695,6 @@ Tassi - Northland One (2021) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC8E297B47063CECE70083BBA15339310E1AEDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618651   (1033671) от 13.03.2023
-
-Sixteen - Dangerous (2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchain My Heart (04:32)
-02. R U Ready (05:42)
-03. Love Me (04:36)
-04. I Am Alone (07:19)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6467318C33047B53B37BA7B0739088F1FC63C439
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618625   (1033672) от 13.03.2023
-
-Wig Wam - Out Of The Dark (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Dark (4:28)
-02. High And Dry (3:34)
-03. Forevermore (4:56)
-04. Bad Luck Chuck (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2CB3446E23FE3ACC978F44A4DFB4A2C287EE6C
 ```
 
 

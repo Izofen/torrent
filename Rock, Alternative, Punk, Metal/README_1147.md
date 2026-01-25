@@ -1,3 +1,57 @@
+###  Публикация: 1097135   (915971) от 26.01.2017
+
+Kreator - Live Antichrist (2017) Metal Hammer Promo CD [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Of God (05:48)
+02. Phobia (03:26)
+03. Pleasure To Kill (04:17)
+04. Mars Mantra (01:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE91CB5D911821C8B2B6C39E063624CA80198E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097279   (916015) от 26.01.2017
+
+National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Shot No Dead
+02. I Refuse To Cry
+03. Scene Of The Crime
+04. Anotheround(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097166   (916020) от 26.01.2017
 
 Beardfish - +4626-Comfortzone (2015) Limited Edition 2CD Digipak [FLAC|Lossless|tracks + .cue] <Eclectic Prog>
@@ -642,60 +696,6 @@ Hyborian Steel - Blood Steel And Glory (2012) [FLAC|Lossless|image + .cue] <Epic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F39FFC64D750A7C1124A78D8A4CAA751A9FD6431
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989182   (917387) от 22.02.2016
-
-Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark Shadows Room
-02. Lady of the Candles
-03. The Room of a Million Voices
-04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367456   (917420) от 15.03.2020
-
-WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Искры [00:01:17]
-02 На краю [00:03:27]
-03 Карма [00:03:45]
-04 Бессонница [00:03:56](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
 ```
 
 

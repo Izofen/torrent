@@ -1,3 +1,57 @@
+###  Публикация: 1437398   (1042045) от 05.01.2021
+
+Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthcult (14:58)
+02. Everywhere And Nowhere (17:58)
+03. The Heart Of Time (16:06)
+04. Thaw (16:50)Производство: Not On Label (Trna Self-released)Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Ambient Black Metal, Post RockПродолжительность: 01:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437508   (1042051) от 05.01.2021
+
+Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquest (05:01)
+ 02. Mission Control (03:51)
+ 03. Out the Window (05:58)
+ 04. Player 2 (04:10)(   Читать дальше...   )Жанр: Jam Rock, FusionПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10573416B41453A1187A8DCF8D63ED9FFFB25F18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437428   (1042052) от 05.01.2021
 
 Supersuckers - Play That Rock 'n' Roll (2020) [FLAC|Lossless|image + .cue] <Southern Rock, Hard Rock, Punk Rock>
@@ -642,60 +696,6 @@ Red Skywalker - The Origin (2021) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30485C2E2CBC374C0F70C90FE8A858EAC1BDB34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437363   (1042305) от 04.01.2021
-
-Slytherin - When The Darkness Comes (2021) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (Intro) (00:53)
- 02. The Tale of the Three Brothers (06:23)
- 03. Tom Marvolo Riddle (06:40)
- 04. Wizards and Muggles (06:27)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B04EC6EC8BD872A6DF7FC2FB69B8725D14DAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437306   (1042307) от 04.01.2021
-
-Crrombid Traxorm - Anamnesis Morbi (2020) [MP3|320 Kbps] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-Rising Reanimation (06:26)
- 02. Mortalgramma (03:08)
- 03. New Vaccine (07:28)
- 04. Stomatologic Operation (08:10)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E4897A08C23ED8AF565F4E9B6430240D777AA7
 ```
 
 

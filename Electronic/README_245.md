@@ -1,3 +1,84 @@
+###  Публикация: 1247676   (451390) от 16.09.2018
+
+VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand - The Air I Breathe (Original Mix)
+02. Giuseppe Ottaviani feat. Thea Riley - On The Way You Go (Ruben De Ronde Remix)
+03. Sied Van Riel - On A Trip (Original Mix)
+04. Cosmic Gate & Super8 & Tab - Noom (Estiva Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D044E925A7E1582DE2AD3ED491EF37206541A553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408796   (451459) от 14.09.2020
+
+PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night [00:03:48]
+02. Disco Biscuit [00:04:00]
+03. Lose You [00:03:18]
+04. Mine [00:03:51](   Читать дальше...   )Жанр: Electro, SynthpopПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481AF625365E58FC24FB546A035565BA9A16A747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569614   (451521) от 13.08.2022
+
+VA - AFTER DARK 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electropop, Nu Disco, Disco, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wolfram, Desire -  Sad Ibiza Song  (3:39)
+02.  Orion -  Call a Psychic  (3:34)
+03.  MOTHERMARY -  Coming for You (NICOLAAS Remix)  (3:55)
+04.  Double Mixte -  Chateau D'eau  (3:34)(   Читать дальше...   )Жанр: EDM, Electropop, Nu Disco, Disco, RetrowaveПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B28877B7BF0A1CD37C8292A8F46065CCF82174
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408825   (451587) от 14.09.2020
 
 Kyoto - Squares & Triangles (2020) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient>
@@ -624,87 +705,6 @@ Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5199116020AF81BD239DC67EB887469990299E84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569181   (453669) от 12.08.2022
-
-A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft Rock, Ballad>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minor Earth Major Sky	5:24
-02. Little Black Heart	4:36
-03. Velvet	4:19
-04. Summer Moved On	4:37(   Читать дальше...   )Жанр: Synth-pop, Pop Rock, Soft Rock, BalladПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2D062B85CFE20BC15375CD78A5E0B832103169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569360   (453816) от 12.08.2022
-
-VA - Intricate Summer Essentials 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Club House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cloudive, Brian Vaughn -  Tell Me What Is Love  (5:27)
-02.  Æ7 -  Power Light (IN5UM Remix)  (6:24)
-03.  Pash & Tanon -  Memories  (7:19)
-04.  Bitzfork -  Your Love  (6:09)(   Читать дальше...   )Жанр: EDM, Progressive House, Club House, Indie DanceПродолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536A64A601ABE59D79C4E6EB35CF3EBE4CD494BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569312   (453826) от 12.08.2022
-
-39 Kingdom - Live @ Kaliningrad Stadium, Russia (2022-08-03) [MP3|320 Kbps] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Food - Flying Steps
-02. Monastetiq ft. Starving Yet Full - Call On You
-03. Off Night ft. Elly Ball - Young (Nørequest Remix)
-04. Space Food - Dark Force w/Tinlicker X Robert Miles - Children(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C8337C06DD4F10E3821702CF2106526BD836C2
 ```
 
 

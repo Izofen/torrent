@@ -1,3 +1,57 @@
+###  Публикация: 989182   (917387) от 22.02.2016
+
+Hell Theater - Reincarnation of Evil (2012) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Shadows Room
+02. Lady of the Candles
+03. The Room of a Million Voices
+04. Smell of Blood(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D327B9F01DBC6C8639FFD6F3F5A1733601F030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367456   (917420) от 15.03.2020
+
+WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Искры [00:01:17]
+02 На краю [00:03:27]
+03 Карма [00:03:45]
+04 Бессонница [00:03:56](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989183   (917456) от 22.02.2016
 
 Hisstönend - II (2013) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
@@ -661,60 +715,6 @@ Paul McCartney - Grand Collection (1997) [FLAC|Lossless|image + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE3480BB673CD2C2298BB44D38C5CEE707437339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988753   (918986) от 21.02.2016
-
-Judas Priest  - Collections (2008) Compilation [FLAC|Lossless|image + .cue] <Speed Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Breaking The Law 	02:36
-02. 	Living After Midnight 	03:31
-03. 	Out In The Cold 	06:28
-04. 	Love Bites 	04:49(   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41342ACADC2BF1DBE17C8C1623466B4018F1086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988896   (919003) от 21.02.2016
-
-John Ford - No Talkin' (2014) [FLAC|Lossless|image + .cue] <60's Guitar's Instrumental Surf Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Номинированный на Grammy в 4 номинациях, единственный на 100% инструментальный альбом Джона, стилизованный под звучание легендарных групп 60-ых - The Shadows и The Ventures!01. The Reaper
-02. Spanish Jive
-03. No Talkin'
-04. Tomorrow's World(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD6D0C858A7066E366DB0870F769A1395847EDA6
 ```
 
 

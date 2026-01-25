@@ -1,3 +1,30 @@
+###  Публикация: 1350674   (1002871) от 07.01.2020
+
+VA - Ремиксы 2К20 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARIA - Bleu Chanel (Nitrex Remix)(Radio Edit) (2:25)
+02. ARUBA ICE - Зачем топтать мою любовь (Remix) (3:41)
+03. DAVA - Ранила (EDscore Remix) (3:56)
+04. Dj Dimixer - Manatee (Lavrushkin & Max Roven Remix) (2:17)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 04:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB31BDFD870072A08BF04A8D637E4DFF64E37B2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350789   (1002907) от 07.01.2020
 
 VA - Classic Rock timeless! 2 (2020) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
@@ -668,33 +695,6 @@ VA - 5oFoF: Five Years of Friends of Friends (2014) [MP3|320 Kbps] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD9E6A1AC695C53620CCE3AD035F911DF633936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349375   (1003664) от 04.01.2020
-
-The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock & RollПродолжительность: 00:38:26
-05-01 - In Spite Of All The Danger (Feat. The Quarrymen) (1958) (02:44)
-05-02 - That'll Be The Day (Feat. The Quarrymen) (1958) (02:08)
-05-03 - Cayenne (Feat. The Quarrymen) (1960) (02:30)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
 ```
 
 

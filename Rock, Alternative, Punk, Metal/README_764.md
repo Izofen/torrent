@@ -1,3 +1,57 @@
+###  Публикация: 933887   (504012) от 03.09.2015
+
+Five Finger Death Punch - Got Your Six (2015) Deluxe Edition [FLAC|tracks+.cue]<Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got Your Six
+ 02. Jekyll and Hyde
+ 03. Wash It All Away
+ 04. Ain't My Last Dance(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A52437D2ECE5C1D0087CC81F1A4078A692C4352
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933766   (504078) от 03.09.2015
+
+Iron Maiden - The Book of Souls (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death or Glory
+02. Shadows of the Valley
+03. Tears of a Clown
+04. The Man of Sorrows(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A7B48EB06A4FA315D0CC14DF95300138184722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540002   (504116) от 28.08.2012
 
 the Bloodhound Gang - 22 релиза (1994-2010) [MP3|192-320 кб/с]<Rock/Alternative>
@@ -660,60 +714,6 @@ Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F9E580E3314C979D511093E881E75BB8F91FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563226   (505386) от 13.07.2022
-
-Protector - 4 Studio Album (1988-1993) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mental Malaria
-2.Scars Bleed Life Long
-3.The Heritage
-4.Lost Properties(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 02:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AC3FBFB5ABBBAD36143E487D7773F53878A149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563129   (505390) от 13.07.2022
-
-Dovorian - Kneel and Follow (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Falling Down (00:04:56)
-02 - Hopeless (00:04:07)
-03 - Kneel and Follow (00:03:44)
-04 - Raise My Glass (00:06:40)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B31F4D41ABD1DEC018067008CA7FDF9CB37A4E3
 ```
 
 

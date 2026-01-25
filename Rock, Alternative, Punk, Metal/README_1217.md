@@ -1,3 +1,57 @@
+###  Публикация: 1475795   (1012024) от 09.06.2021
+
+Wyatt Olney & The Wreckage - Silver Bullet (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Within 03:43
+02. Allegory 03:03
+03. Get Haunted 03:33
+04. TraumaQueen 04:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6712D5648B49210C384DF64418EF9C393079C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475828   (1012026) от 09.06.2021
+
+The Ogre - Aeon Zero (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Black Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Ride with Demons [00:04:47]
+02. Polybius [00:01:26]
+03. Crawling Chaos Underground [00:05:25]
+04. The Horrible [00:04:55](   Читать дальше...   )Жанр: Progressive Metal, Black Metal, Heavy MetalПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C8179A9A115C176D8790C7E63EE0789B1B2678
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475824   (1012028) от 09.06.2021
 
 Caliban - Gravity (2016) [FLAC|Lossless|image + .cue] <Metalcore>
@@ -642,59 +696,6 @@ Wolf Alice - Blush (2013) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F795FD6CEC0B0E15B391237B7A98AB22A86BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475281   (1012412) от 06.06.2021
-
-Till Lindemann - Ich hasse Kinder (2021) Single [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012412.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ich hasse Kinder
-2. Ich hasse Kinder (AlterBoyz Remix)
-3. Ich hasse Kinder (Ship Her Son Remix)Жанр: Industrial MetalПродолжительность: 00:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E2A76481B2A38FC714FB6DB573BACD3AB49C6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475331   (1012423) от 06.06.2021
-
-Love Life - Goodbye Lady Jane (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Love
-02. Do You Love Me
-03. Hearts On Fire
-04. When Loneliness Comes Knockin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C7158A49524233BB5C131ED49F64CF0E8796E5
 ```
 
 

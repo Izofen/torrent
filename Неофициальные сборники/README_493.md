@@ -1,3 +1,30 @@
+###  Публикация: 1391844   (771184) от 22.06.2020
+
+VA - Romantic 80s (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Rea - I Just Wanna Be with You 03:42
+02. A-ha - Stay On These Roads 04:44
+03. The Dream Academy - Everybody's Gotta Learn Sometime 03:44
+04. Foreigner - Waiting for a Girl Like You 04:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A845B2C86E911CF411B69E76B14BC0AD271727E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016271   (771252) от 13.05.2016
 
 VA - Союз 58 (2016) [MP3|320 кб/с] <Pop>
@@ -668,39 +695,6 @@ VA - Новая Клубная Сборка лето 2016. 50 хитов (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD67BA691B5F2E243B6556062B7088053E6B3869
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318389   (772582) от 06.04.2011
-
-VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
-02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
-03. Tony Igy - Astronomia (Original Mix) [05:58]
-04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
-05. Avicii - Malo [07:14]
-06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
-07. Black Eyed Peas - The Time [05:09]
-08. Nero feat. Alana - Me & You [04:31]
-09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
-10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
 ```
 
 

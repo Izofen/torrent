@@ -1,3 +1,30 @@
+###  Публикация: 1442075   (1036956) от 24.01.2021
+
+VA - Beatport Progressive Trance: Sound pack #224 (2021) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня нас порадует своей музыкой свежий 224-й транс сборник прогрессивной тематики от известного лейбла. Ритмичные и стремительные с перетекающими переходами композиции олицетворяют современный мегаполис как мифическую одушевлённую сущность с разнообразием его проявления к человеку.001. Armin Van Buuren - In And Out Of Love
+002. Sun - Mind Is The Limit
+003. Astrancer - Maelstrom Of Time
+004. The Infonaut - Neural Implant(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D02E78000EB93DF364E448EF4BB6FEFC97170F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615135   (1036963) от 28.02.2023
 
 VA - Музыка для машины Vol.10 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -668,33 +695,6 @@ VA - Beatport Uplifting Trance: Sound Pack #182-1 (2021) [MP3|320 Kbps] <Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DD03D642A5D05C0BAC2FE816A9D5BA022799061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440910   (1038060) от 20.01.2021
-
-VA - Beatport Trance: Electro Sound Pack #180-1 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взрывная энергетика, неординарные образы, яркий аутентичный вокал, всё это ожидает нас в очередном сборнике транс-электроники от Beatport. С большим удовольствием рекомендуем этот микс почитателям Trance музыки и просто тем, кто предпочитает качественную электронную музыку.001. Rene Ablaze - Universe Undone
-002. Narel - Nomad
-003. Ciaran Mcauley - In Memory Of You
-004. Liam Wilson - At That Point In Time(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 11:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1001CD5D186B453C9B49C1FE79634772A337741F
 ```
 
 

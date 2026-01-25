@@ -1,3 +1,30 @@
+###  Публикация: 1030327   (673523) от 30.06.2016
+
+VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673523.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bellini - Samba De Janeiro (Radio Edit)
+002. Cool Cut - Please Let Me Know (Radio Version)
+003. Masterboy - Everybody Needs Somebody (Single Edit)
+004. Masterboy - Is This The Love (Radio Edit)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 07:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13BE7A8356480E306F28E80F3C3666F67562901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030254   (673680) от 30.06.2016
 
 W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
@@ -664,33 +691,6 @@ VA - Total Aerobic Workout (110-130 BPM) (2016) [MP3|192-320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:964DDA7FFF36C7B65848050D2FA1C8567FE4346A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030263   (674708) от 30.06.2016
-
-VA - Русская Дискотека ХХ Века - 8 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Валдай & DJ Василич - Пора По Бабам ( 1997 )
-02. Метрополь - Южный Город ( 1991 )
-03. Коктейль - Мечта ( 1990 )
-04. Хей-Мэн ( Андрей Уманчук ) - Вера ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D58D44AA789824950714FEE31AFD05AFFA5E5F8A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1202524   (789893) от 29.01.2018
+
+VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kbps] <Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kosmos - Vegetable Man 02:51
+02. Kylesa - Interstellar Overdrive 06:55
+03. Intronaut - Arnold Layne 03:55
+04. Stinking Lizaveta - Matilda Mother 05:39(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E84DD835233A911ECBCEC192744766635D55E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202568   (789922) от 29.01.2018
+
+Mai Lan - Autopilote (2018) Wagram Music / Cinq 7 [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autopilote
+02. Peru
+03. Pumper
+04. Vampire(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B9C2918125C20BA689C9577C5773A890A3861F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202493   (789927) от 29.01.2018
 
 Shakin' Stevens And The Sunsets - A Legend (1970) Parlophone, PCS 7112, UK [MP3|192 Kbps] <Classic Rock, Blues, Rock&Roll>
@@ -638,60 +692,6 @@ Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275329   (790516) от 11.01.2019
-
-Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Am
-02. I’m Alive
-03. Silver Linings
-04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275330   (790519) от 11.01.2019
-
-Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Under the Sun
-02. Falling Down
-03. Wasted Trust
-04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
 ```
 
 

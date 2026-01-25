@@ -1,3 +1,30 @@
+###  Публикация: 1369553   (901729) от 24.03.2020
+
+VA - Mystic Adventures (2020) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Enya - White Is In The Winter Night
+002. Secret Garden - Always There
+003. Sex Of Insects - All I Have A Know
+004. Alena Nice - You're My Soul(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 10:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B8229CBD2C078DFB3E6A4E6E2E49E2A29A6A7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099962   (901857) от 03.02.2017
 
 VA - San Valentino Cocktail In Love (2017) [MP3|320 Kbps] <Lounge, Jazz, Chillout, Lo-Fi>
@@ -668,33 +695,6 @@ VA - Beatport Jackin House: Sound Pack #337 (2021) [MP3|320 Kbps] <Jackin, Funky
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2551F80FBA5267E7C00BCC7C2EA58CF66A64682
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492123   (902406) от 30.08.2021
-
-VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bongo & Pusk - Smalltalk
-002. Italobros - Jack
-003. Kemp&Thompson - 9th House
-004. Vorslov - Party(   Читать дальше...   )Жанр: Club, Dance, Tech HouseПродолжительность: 12:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F815EA0151481DAFF71B5793102B17BD59ACDEE
 ```
 
 

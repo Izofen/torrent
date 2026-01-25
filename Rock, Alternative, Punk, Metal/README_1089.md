@@ -1,3 +1,57 @@
+###  Публикация: 1003179   (844921) от 02.04.2016
+
+Doro - Love's Gone To Hell (2016) EP [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844921.jpg" />
+</div>
+
+
+###  Подробнее
+
+DORO выпустла новый сингл, "Love's Gone To Hell", первого апреля на Nuclear Blast.01. Love's Gone to Hell (Radio Version)
+02. Love's Gone to Hell (Single Version)
+03. It Still Hurts (feat. Lemmy Kilmister)
+04. Rock Till Death (feat. Hansi Kürsch) (Live)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49953E2D8DCB7B2BEED4B76D5DB6CAC2AFFE2085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003288   (845015) от 02.04.2016
+
+7000$ - Жизнь не любит слабаков (2016) Maxi-Single [MP3|320 кб/с] <Alt.Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизнь Не Любит Слабаков
+02. Эй, Рок-Звезда!
+03. Каждой Твари По Паре
+04. Потерянный РайЖанр: Alt.Metal, RapcoreПродолжительность: 00:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE6EC8909DDCF6F46EFAC36378F561CAC142ACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002632   (845116) от 02.04.2016
 
 PRAVADA - Мечтать (2016) [MP3|320 кб/с] <Rock>
@@ -641,60 +695,6 @@ Myra - 3 Альбома + 1 EP (2008-2016) [FLAC|Lossless|tracks+.cue]<Metalcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7E8B6691CE8195B56CC5A030C829FDF5BEC62D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111654   (846658) от 06.03.2017
-
-Heat Exchange - Reminiscence (1972) remastered, 2017 [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog, Hard Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Those Who Listen (3:44)
-02. Inferno (3:53)
-03. Reminiscence (4:37)
-04. Can You Tell Me (3:06)(   Читать дальше...   )Жанр: Prog, Hard Rock, PsychedelicПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AB22C800898D4D2D24A8516E29B1E51E0ED979
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111660   (846739) от 06.03.2017
-
-Strawberry Girls - Italian Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Math-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Night, Golden Circus (6:11)
-02. Vanilla Rainforest (4:38)
-03. Thank God Ft. Nic Newsham And Kathleen Delano (3:30)
-04. Welcome To The Woods (1:19)(   Читать дальше...   )Жанр: Progressive Rock, Math-RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7435E4AE2C0783998A36E80381214B39A501C2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1010253   (804304) от 24.04.2016
+
+VA - Hands Up Freaks Vol. 5 (Deejay Edition) (2016) [MP3|256 кб/с] <Club, Dance, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special D. & Scott Brown - Elysium (Ti-Mo Remix) 04:46
+02. Viper Tone - Fast Car (Raindropz! Remix) 04:44
+03. Basslovers United & DJ G4bby - Addicted (Extended Mix) 05:19
+04. Club Electric - Sweet Lovin' (Malu Project Remix) 04:46(   Читать дальше...   )Жанр: Club, Dance, HardstyleПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61C6C6240D271E80790449B5ABE19DD1AE753EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010208   (804308) от 24.04.2016
 
 VA - Trance Collection vol.42 (2016) [MP3|320 кб/с] <Trance>
@@ -668,33 +695,6 @@ VA - Notre Idylle: Musique De Chanson (2020) [MP3|320 Kbps] <Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC979C3FC2147AFF46ACE6BDF2805D610F4F6E90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384037   (806265) от 18.05.2020
-
-VA - Beatport Electro House: Sound Pack #83 (2020) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karl Van Dee - Mexico
-002. Armin Van Buuren - Blah Blah Blah
-003. Tomio - Selfie (Radio Cut)
-004. Kurupted Kid - Metrovida (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99B30DCA9EA52A719FD968639E8E73C7079F8AD
 ```
 
 

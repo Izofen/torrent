@@ -1,3 +1,57 @@
+###  Публикация: 1016129   (771150) от 13.05.2016
+
+Led Zeppelin - Physical Rarities (2003) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jenning's Farm Blues (Studio Session 1969)
+02. Poor Tom (Outtake From Led Zeppelin IV 1971)
+03. Walter's Walk (Previously Unreleased Session Take 1972)
+04. Trampled Underfoot (Alternate Work-in Progress Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310A0FC1FD8F1E20E4810BDA4394196B969BC7FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016283   (771612) от 13.05.2016
+
+Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedelic Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss That Wealth Goodbye
+02. Bend With The Wind
+03. Place Your Bets
+04. Desperado(   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Pop, Indie RockПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8868B318828AAFC7AA98302B98AE27E8EDF9525F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278388   (771711) от 25.01.2019
 
 Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
@@ -634,60 +688,6 @@ Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208943   (779681) от 24.02.2018
-
-John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779681.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Through
-2. Hello L.A., Bye Bye Birmingham
-3. Oobleedooblee Jubilee
-4. I've Been Scorned(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208832   (779811) от 23.02.2018
-
-Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Records [MP3|320 Kbps] <Rock, Progressive Rock, Art Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нил Морс (англ. Neal Morse, 2 августа 1960 года, Ван-Найс, США) — американский певец, мультиинструменталист, композитор и автор песен в стиле прогрессивного рока. Вместе со своим братом Аланом основал группу Spock's Beard, которая позже станет одной из самых успешных прогроковых команд конца 90-х, таких как Dream Theater, Porcupine Tree, и The Flower Kings. C 1999 (   Читать дальше...   )01. Living Out Loud 4:32
-02. Lost Cause 5:02
-03. Landslide 5:28
-04. That Which Doesn't Kill Me 4:42(   Читать дальше...   )Жанр: Rock, Progressive Rock, Art Rock, Symphonic ProgПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
 ```
 
 

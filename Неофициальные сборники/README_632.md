@@ -1,3 +1,30 @@
+###  Публикация: 1361543   (954190) от 20.02.2020
+
+VA - Absolute Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wailing Trees - Nos Jours Égarés
+002. Ultimate Rejects - Disorder
+003. Hi-Fi X Eva Lazarus - Amsterdam
+004. Solaion - Esmeralda(   Читать дальше...   )Жанр: Reggae, Ska, Dancehall, SoulПродолжительность: 06:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43B38B485FE84A2F694D41FA8C2AE97F510A161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361552   (954194) от 20.02.2020
 
 VA - Caola: Rythm And Blues Mix (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -677,33 +704,6 @@ VA - EDM Resources: Techno Dance Set (2020) [MP3|320 Kbps] <Techno, Dance, Club,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22D1454DF961B484ECA0E857E82C4C080F44D81A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980195   (955933) от 29.01.2016
-
-The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955933.jpg" />
-</div>
-
-
-###  Подробнее
-
-25. You Dont Have Me
-26. Already Gone
-27. Victim of Love
-28.You Dont Know Me At All(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 03:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6A0160CCBBC7BACF07EB4509AEF42800876148
 ```
 
 

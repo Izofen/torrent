@@ -1,3 +1,84 @@
+###  Публикация: 1369135   (905646) от 22.03.2020
+
+VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome - Take My Hand (Extended Mix) 3:33
+02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
+03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
+04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369247   (905651) от 22.03.2020
+
+Phanatic - Bounce Showcase (Phanatic) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mind Control (6:46)
+2. Phanatic; Delirious - Lucid Dreaming (7:15)
+3. Phanatic; Electro Sun; Bizzare Contact - Trilodyne (8:10)
+4. Phanatic; Spade - Mandala (7:18)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:154BBE9445CADC6D312E56F37C6802A1B2F6D8D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369129   (905698) от 22.03.2020
+
+Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acos CoolKAs Feat. Metropoliz - Miracle (Original Mix) (9:01)
+02. Dos Buratinos - Deep Into You (4:42)
+03. Playone - Your Summer (6:43)
+04. SNG - Morning (6:40)(   Читать дальше...   )Жанр: Trance, Techno, ElectroПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C568A194F2F9764442BB4E049260678A5537C210
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369137   (905702) от 22.03.2020
 
 Dj Бинокль - Tribalhouse 1 (2003) [MP3|256 Kbps] <House, Disco, Progressive House>
@@ -599,87 +680,6 @@ Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099237   (907337) от 31.01.2017
-
-Musical Mandalas - Mantra (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Amorous Junction [00:03:37]
-02 -  Loving You [00:02:37]
-03 -  Flowing Forth [00:03:28]
-04 -  Flourish [00:01:35](   Читать дальше...   )Жанр: AmbientПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DDB3254166B1C0C36A2CFFAD66A9BDDA01924D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368286   (907418) от 21.03.2020
-
-VA - Black Hole Trance Music 03-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunlight Project, Fanizza - Light Me Up (Extended Mix) 5:10
-02. Dave Neven, Ocata - Sirens In The Sky (Extended Mix) 8:07
-03. Solarstone, Robert Nickson - Voyager II (Extended Club Mix) 7:59
-04. Somna, Jennifer Rene - Stars Collide (Extended Mix) 5:56(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615C068ACE44669AED1E157B82E01891A61F6D90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368701   (907425) от 21.03.2020
-
-Dani Corbalan - Best of . 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907425.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Redemption (Radio Edit) (3:26)
-2. In Love (Radio Edit) (2:59)
-3. Back to Love (Radio Edit) (2:49)
-4. Ankara (Radio Edit) (3:20)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:04:1
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62F0B7390898D289956E91508DAF36740148C36
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1023682   (724248) от 05.06.2016
+
+Рада и Терновник - Сёстры (2016) [MP3|320 кб/с] <Folk-rock, Progressive Dark Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сёстры — 11-й студийный альбом прогрессив-дарк-фолк группы «Рада и Терновник». На альбоме представлены как новые композиции, так и заново аранжированные старые. Также исполнена народная песня «Дороженька», сделанная по мотивам аранжировки Владимира Миклошича.01. Я расскажу тебе о том...
+02. Дороженька
+03. Когда будет тепло
+04. Ладная(   Читать дальше...   )Жанр: Folk-rock, Progressive Dark FolkПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927560D2D402DECB72606B81B4292389C2FA11FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023203   (724249) от 05.06.2016
+
+The Kelly Family - Over The Hump (1994) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Why Why
+02. Father's Nose
+03. First Time
+04. Baby Smile(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D948EFB477F9F0E4852530DDB8042F828EE971
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285056   (724328) от 24.02.2019
 
 Pink Floyd - Shine On (1992) 9CD BoxSet, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -649,60 +703,6 @@ magnet:?xt=urn:btih:8CC414339519D0A9D3AAC9E4F1B946FD91B8CBF4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D004FC056783F51B24E27EA9F6DD0E7AC9E981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399678   (725065) от 02.08.2020
-
-Lockdown Revival - Stay Home (2020) [MP3|320 Kbps] <Modern Metal, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown (01:18)
- 02. Wake Me Up (03:10)
- 03. The Call (04:17)
- 04. Wrong (04:38)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED946E687A87BE61315E98CA87F638DDFE1358F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399886   (725082) от 02.08.2020
-
-The Neologist - Are We Not Drawn Onward To New Era (2020) Disc 1 [MP3|320 Kbps] <Melodic Death Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall Of An Empire (2020) (04:37)
- 02. Cyclical Timing (2020) (04:12)
- 03. 3.0 (2020) (04:04)
- 04. A Place Where The Dead Don't Bother Me (2020) (03:43)(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4EF529B10597B68C02FDA3B681D97756D45CA9
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1104216   (881975) от 14.02.2017
+
+Mors Principium Est - ...And Death Said Live (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Awakening 00:55
+02. Departure 05:44
+03. I Will Return 04:28
+04. Birth Of The Starchild 04:12(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B96EC161E59AF339611587228BBE0156AF6DA8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372912   (882206) от 05.04.2020
+
+Ильин - Кровь (2020) [MP3|320 Kbps] <Metal, Prog-Metal, Rock, Piano>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882206.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Слово
+2. Тополь
+3. Между тенями
+4. Воздух(   Читать дальше...   )Жанр: Metal, Prog-Metal, Rock, PianoПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C75F46F89748B6DCB04E4EFCB26B151FEA7E17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277592   (882265) от 11.09.2021
 
 China - 7 albums, 9 CD (1988-2014) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
@@ -638,60 +692,6 @@ Hard and heavy (сборник) - ХИТЫ XX - XXI ВЕКА (2008) [MP3|256 kbp
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103836   (883522) от 13.02.2017
-
-VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883522.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-
- 1. Queen - Another One Bites the Dust [03:32]
- 2. Status Quo - Rockin' All Over the World [03:32](   Читать дальше...   )Жанр: RockПродолжительность: 03:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103762   (883553) от 13.02.2017
-
-VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883553.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mr. Mister - Broken Wings [03:18]
- 2. Warrant - Heaven [03:55]
- 3. Winger - Miles Away [04:09]
- 4. Stryper - I Believe in You [03:13](   Читать дальше...   )Жанр: MetalПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A855B1EDFA2EB36FC6F6E19CA993FB03E8F5D3AA
 ```
 
 

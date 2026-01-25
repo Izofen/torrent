@@ -1,3 +1,57 @@
+###  Публикация: 1621226   (1031229) от 24.03.2023
+
+Luna Ad Noctum - The Perfect Evil In Mortal (2006) [APE|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantoms ov wrath (Intro) 1:38
+02. The perfect evil in mortal 5:44
+03. Diablex virus 4:25
+04. Devilrising impact 5:21(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99433A62B674BCD033B0B73FDBCED06192BA8D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447802   (1031341) от 15.02.2021
+
+AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Easiest Way
+02. Too Late For Tears
+03. Give Her The Moon
+04. The Edge Of The World(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83357F654CFF6BE2A7C70587E6A5AB222189DADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447890   (1031359) от 15.02.2021
 
 Гран-КуражЪ - Эпохи, Герои и Судьбы (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:DAFECCBCDFFA0F26FCC9C779EE507BD0690D1094
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79BD06A61DC9179456DE83D495446F127D94FFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620901   (1031675) от 22.03.2023
-
-Preview - Preview (1983) Reissue, 2006, Rock Candy [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night (03:05)
-02. Open Up Your Heart (03:03)
-03. So Blind (03:04)
-04. Running Back (03:33)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0807832324337A857D46739E9A3ABF49796BBB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620894   (1031678) от 22.03.2023
-
-Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moth (4:21)
-02. War (3:50)
-03. Martyr May I (4:51)
-04. The Beast (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D799287E1766AA28484C72B4FDA2A7A4257A77EA
 ```
 
 

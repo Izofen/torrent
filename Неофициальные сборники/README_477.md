@@ -1,3 +1,30 @@
+###  Публикация: 1216476   (749316) от 31.03.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+02. Luis Fonsi, Demi Lovato - Echame La Culpa
+03. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession
+04. Jax Jones - Breathe (Ina Wroldsen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04FB74F9D1A936ABB78710BB4BF4E1F83FFA1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216507   (749327) от 31.03.2018
 
 VA - Hits Cocktail Vol.17 (2018) [MP3|320 Kbps] <Club, Dance, House>
@@ -665,33 +692,6 @@ VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216234   (751240) от 30.03.2018
-
-VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adriatique - Ray (Original Mix)
-002. al l bo & Leerex - Fighters (Original Mix)
-003. Alex Metric &  Ten Ven - Otic (Extended Mix)
-004. Anderson Soares feat. Luiza Caspary - You Make Me High  (Soares Main Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
 ```
 
 

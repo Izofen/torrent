@@ -1,3 +1,55 @@
+###  Публикация: 916293   (590484) от 09.07.2015
+
+Luna - On The Other Side Of Life (2015) [MP3|320 кб/с]<Symphonic Funeral Doom/Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grey Heaven Fall
+2. On The Other Side Of LifeЖанр: Symphonic Funeral Doom/Death MetalПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0ACFEFA5565D567B212726B0CDAF23F182A0E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550890   (590593) от 14.05.2022
+
+The Black Keys - Dropout Boogie (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Blues Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Child (2:45)
+02. It Ain't Over (3:49)
+03. For the Love of Money (3:31)
+04. Your Team Is Looking Good (3:05)(   Читать дальше...   )Жанр: Blues Rock, Alternative RockПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19937B464CFBAB2F032255DB58A5FA12A1DE288D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550964   (590738) от 14.05.2022
 
 The Big Deal - First Bite (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -641,60 +693,6 @@ Visions Of Atlantis - Pirates (2022) [MP3|320 Kbps] <Symphonic Metal, Female Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BB9D82D926549BAB595E1A33AD4706121AE92EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550893   (591229) от 13.05.2022
-
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livets Trädgård (3:29)
-02. Svekets Prins (6:37)
-03. Hjärtat Vet Vad Handen Gör (8:30)
-04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
 ```
 
 

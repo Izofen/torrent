@@ -1,3 +1,30 @@
+###  Публикация: 1466171   (1018762) от 28.04.2021
+
+VA - Beast Mode Hip Hop (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ - Whoopty (2:03)
+02. DJ Khaled, Drake - POPSTAR (3:20)
+03. Jack Harlow, Tory Lanez, DaBaby, Lil Wayne - WHATS POPPIN (Remix) (3:47)
+04. Ty Dolla $ign, Post Malone - Spicy (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 03:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E021677A862C0A5474E780D42D83A06D401D36ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466099   (1018777) от 28.04.2021
 
 VA - House of the Spirit NA (2020) [MP3|320 Kbps] <Native American, New age, World music>
@@ -668,33 +695,6 @@ VA - Deep House Relax 2 (2021) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A7D1CAE5FF8AC4D9F9D5C0B68924C45A11E3CF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463541   (1020055) от 20.04.2021
-
-VA - Best 80s Disco Hits 3 (2021) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Culture Beat - Mr. Vain (5:41)
-02. Army Of Lovers - Crucified (3:34)
-03. Army Of Lovers - La Plage De Saint Tropez (3:33)
-04. Arabesque - Midnight Dancer (3:40)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 04:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F32EC03C3F6B6BB496CC1C8A0F1E8A8D28F0C3
 ```
 
 

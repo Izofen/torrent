@@ -1,3 +1,57 @@
+###  Публикация: 1489249   (927069) от 15.08.2021
+
+The Killers - Pressure Machine (2021) [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. West Hills
+2. Quiet Town
+3. Terrible Thing
+4. Cody(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EB63A7E973EE37A9B3101C9EE9266ECEE5823B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365892   (927129) от 09.03.2020
+
+Kamelot - The Black Halo (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - March of Mephisto
+02 - When the Lights Are Down
+03 - The Haunting (Somewhere in Time)
+04 - Soul Society(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA85845DB96D0052F77165F9DE20796A34AEA90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 863111   (927146) от 25.01.2015
 
 Sweet & Lynch (Stryper, Dokken) - Only To Rise (2015) Japanese Edition [FLAC|Lossless]<Hard Rock>
@@ -641,60 +695,6 @@ RPWL - 2 альбома (2015-2016) Live [MP3|320 Kbps] <Rock, Progressive & Art
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8E82E5FAA4FEF09300A3FB6E89512E16579D25D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094958   (927700) от 19.01.2017
-
-Peter Cetera - One More Story (1988) [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best Of Times (4:13)
-02. One Good Woman (4:35)
-03. Peace Of Mind (4:25)
-04. Heaven Help This Lonely Man (4:25)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F13BFE1075EF6557286F078B2D16F55FBB77A76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094414   (927706) от 19.01.2017
-
-Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream About You (remastered) (from 2002 - Breath of Life)
-02. Back In Your Arms Again (newly re-recorded) (from 1994 - Rock Art)
-03. The Valley Of Tears (remixed, remastered) (from 2014 - Escape From the Shadow Garden)
-04. Broken Wheel (newly re-recorded) (from 1992 - Sleepwalking)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D4A70D444578FE5A2E60754231CFC6F2A52A3D
 ```
 
 

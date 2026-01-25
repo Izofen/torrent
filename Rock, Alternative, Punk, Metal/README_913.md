@@ -1,3 +1,65 @@
+###  Публикация: 1140343   (655789) от 06.06.2017
+
+Jorn - Life on Death Road (2017) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лейбл Frontiers Music Srl выпустит новый студийный альбом норвежского вокалиста Йорна Ланде (Jorn Lande) "Life On Death Road" 2 июня.
+
+Йорн – однозначно один из величайших рок-певцов XXI века, и его голос вновь звучит во всю мощь на его девятом сольном диске с оригинальным материалом. Ему аккомпанирует новый состав музыкантов, который обеспечил релизу более (   Читать дальше...   )01. Life on Death Road (7:20)
+02. Hammered to the Cross (The Business) (5:29)
+03. Love Is the Remedy (4:53)
+04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9008E6F0E0827F0C8CA5E9949DA1DA46F3816832
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515505   (655818) от 26.06.2012
+
+Mordor - Glamour, Glamour (2008) [MP3|320 kbps] <Heavy Metal / Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мордор (03:54)
+02. Гламур! (04:33)
+03. На дне (04:40)
+04. D.J.Voorda (04:07)
+05. Страх (04:06)
+06. Hombre Pajaro (04:14)
+07. Суперзвёзды (04:34)
+08. Фитнесс - убийца (03:20)
+09. Машинист (03:47)
+10. Голограмма Пустоты (04:03)(   Читать дальше...   )Жанр: Heavy Metal / IndustrialПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22182EE950AC6829ED46021658731C9D3657CF96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226205   (655838) от 20.05.2018
 
 Bonfire - Temple of Lies (2018) Ltd. Ed. [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -650,60 +712,6 @@ magnet:?xt=urn:btih:82DED34D1681B378837A0B60793F1157F29934F4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B3F31DF7FF354A025F7CBCCED08C45698A1BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903967   (656568) от 01.06.2015
-
-Judas Priest - Screaming For Vengence & Turbo (1982, 1986) [FLAC|tracks + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screaming For Vengence 1982
-01. The Helion
-02. Electric Eye
-03. Riding On The Wind(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6156A40EE1206F8B9B094A62DC400FD93A8C1A78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140075   (656587) от 05.06.2017
-
-U2 - The Joshua Tree (30th Anniversary Edition) (2017) 4CD, Remastered [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luminous Times (Hold On To Love) (Remastered 2007) (4:35)
-02. Walk To The Water (Remastered 2007) (4:49)
-03. Spanish Eyes (Remastered 2007) (3:16)
-04. Deep In The Heart (Remastered 2007) (4:31)(   Читать дальше...   )Жанр: Rock, Pop-Rock |Продолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8000BB33E0836983B7E285C6008D332CE51941
 ```
 
 

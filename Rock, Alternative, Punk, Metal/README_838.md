@@ -1,3 +1,57 @@
+###  Публикация: 919165   (583956) от 18.07.2015
+
+Bring Me the Horizon - Live at Wembley (2015) 2CD [MP3|320 кб/с]<Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chelsea Smile
+02. Pray for Plague
+03. Blessed with a Curse
+04. Antivist(   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 01:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583E31B39612FCD84F19940D4B7D8CE84CC15419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624734   (584001) от 12.05.2019
+
+Tony MacAlpine - 30 albums (1986 - 2011) Full Discography [MP3|128 кб/с - 350 кб/с]<Heavy/Instrumental/Neoclassical metal/Jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moonbabies (5:39)
+2. The Noble Savage (6:14)
+3. Ataraxia (6:17)
+4. 70 VIR (4:02)(   Читать дальше...   )Жанр: Heavy/Instrumental/Neoclassical metal/JazzПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EE21567CF2782CD045719016CCDA1A11ABFDE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919293   (584027) от 18.07.2015
 
 VA - Heart Rock - Rock Fur's Herz vol. 6 (1994) 2CD [FLAC|tracks + .cue]<Rock, Soul, Pop>
@@ -644,60 +698,6 @@ Wucan - Reap The Storm (2017) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock, Vintage
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B84A35258A6CEC925082A2EC128CC1A8CAAFBAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552814   (584817) от 23.05.2022
-
-Oculto - Caos, Cosmos & Cataclismos (2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Barbatros (00:06:34)
-02 - Transmutacion (00:06:02)
-03 - Coven (00:07:58)
-04 - El Nahual (00:07:37)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2E0C49689F339EA94D21536D9410CE73DE92DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552547   (584818) от 23.05.2022
-
-Gospel - The Loser (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progressive Rock, Screamo, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravo (4:37)
-02. Deer Ghost (3:25)
-03. Hhyper (6:05)
-04. S.R.O. (6:01)(   Читать дальше...   )Жанр: Post-Hardcore, Progressive Rock, Screamo, Math RockПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00172C88DE7BD54DCAF8CCFEE1256BF4BA8C0F3
 ```
 
 

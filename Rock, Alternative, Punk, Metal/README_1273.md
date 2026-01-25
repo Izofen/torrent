@@ -1,3 +1,57 @@
+###  Публикация: 1443220   (1035724) от 28.01.2021
+
+Opus - Opus Magnum (2020) 2xCD [FLAC|Lossless|image + .cue] <Melodic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035724.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Future:
+01.Opusphere
+02.We made it
+03.Halfway Done(   Читать дальше...   )Жанр: Melodic Rock, Pop RockПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A60B4A506BFA7B0340AC2AD1495E745A06FD33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443280   (1035733) от 28.01.2021
+
+And Oceans - Cosmic World Mother (2020) [FLAC|Lossless|image + .cue] <Death Metal, Melodic Black Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dissolution of Mind and Matter (4:08)
+02. Vigilance and Atrophy (4:37)
+03. Five of Swords (5:02)
+04. As the After Becomes the Before (5:13)(   Читать дальше...   )Жанр: Death Metal, Melodic Black Metal, IndustrialПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29A2922072F3D5A5375E4D57B0A7AACE8A7947C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443308   (1035740) от 28.01.2021
 
 Antti Martikainen - Sonic Savior (2020) [MP3|320 Kbps] <Instrumental Epic Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:3F1970C252708108C9F6D09E92765C4D48F8B602
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0003057D1B4F289C2D0968B301C77B933A87BEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443035   (1036014) от 27.01.2021
-
-Crystal Viper - The Cult (2020) [MP3|320 Kbps] <Heavy Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Providence (01:50)
- 02. The Cult (04:37)
- 03. Whispers from Beyond (04:44)
- 04. Down in the Crypt (03:14)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalsПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FE2FC7D9AE83FED04C97438B5287379A3768C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443145   (1036034) от 27.01.2021
-
-Riverside - Wasteland (2018) Reissue, 2019, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036034.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Day After (1:48)
-02. Acid Rain (6:03)
-03. Vale of Tears (4:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3A533A63D61252985BF7B624AC11FCDF719B50
 ```
 
 

@@ -1,97 +1,20 @@
-###  Публикация: 1120070   (567127) от 22.07.2017
+###  Публикация: 1305381   (557104) от 30.05.2019
 
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044386   (567129) от 19.08.2016
-
-Звездный путь VI: Неоткрытая страна / Star Trek VI: The Undiscovered Country (1991) HDRip [H.264] [MP4|1024x436] SDI Media
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567129.jpg" />
-</div>
-
-
-###  Подробнее
-
-После взрыва Праксиса, одной из лун Кроноса, уничтожившего у клингонов практически все средства к существованию, противостояние Федерации и Клингонской Империи окончилось. Настала пора мирных переговоров, но, как выяснилось, не все хотят мира - некоторых устраивает непрекращающаяся война.
-Кирк и его верный экипаж, уже «без пяти минут в отставке», получают секретное (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Николас МейерАктеры: Уильям Шетнер, Леонард Нимой, ДеФорест Келли, Джеймс Дуэн, Уолтер Кениг, Нишелль Николс, Джордж Такей, Ким Кэтролл, Марк Ленард, Грэйс Ли УитниПеревод: Многоголосый закадровый - SDI MediaЯзык субтитров: Русский, АнглийскийПродолжительность: 01:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B1D9ADC4EE61376AE44D85485A340DC7F5DD40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044195   (567130) от 19.08.2016
-
-VA - Billboard Hot 100 Singles Chart 27.08. (2016) [MP3|320 Kbps] <Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia Feat Sean Paul - Cheap Thrills
-002. Major Lazer Feat Justin Bieber And Mo - Cold Water
-003. Calvin Harris Feat Rihanna - This Is What You Came For
-004. Twenty One Pilots - Heathens(   Читать дальше...   )Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2E9E1240FA5B4512DC010FBF6F9FF12D8984A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151763   (567131) от 22.07.2017
-
-VA - Pop Giganten Sommer-Hits (2017) 2CD [MP3|320 Kbps] <Pop, Dance>
+Векторный клипарт - Vector Animal Collection #71 [AI]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567131.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_557104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-01.  Alvaro Soler - Sofia  3:30
-02.  Ricky Martin - Livin' la Vida Loca  4:02
-03.  Pharrell Williams - Happy (From ''Despicable Me 2'')  3:52(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:39:19
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
@@ -101,153 +24,201 @@ CD1
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044261   (567133) от 19.08.2016
+###  Публикация: 1305303   (557105) от 30.05.2019
 
-Picture Collage Maker 3.6.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Picture Collage Maker — простой в использовании генератор коллажей, который превращает обычные фотографии в потрясающие подарки на память, чтобы поделиться с семьей и друзьями. С помощью всего лишь нескольких щелчков мыши, вы можете создавать разнообразные фотоколлажи, плакаты, приглашения, календари и поздравительные открытки с применением вращений, изменения размеров, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 августа 2016Разработчик: PearlMountain Technology Co., LtdПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F153D1E9E05A6F5C640902D8F5FABDE81891A2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152155   (567134) от 22.07.2017
-
-Orishas - El Kilo (2004) [FLAC|Lossless|tracks + .cue] <Latinos, Cubano Rap, Hip Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Naci Orishas
-02 Distinto
-03 Elegante
-04 El Kilo(   Читать дальше...   )Жанр: Latinos, Cubano Rap, Hip HopПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8789F3D17112F12F64E0C00FC312AC5FBE91D340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044351   (567136) от 19.08.2016
-
-VA - Союз Максимальный. Спецвыпуск (2016) [MP3|256 Kbps] <Поп, Dance>
+VA - Cyberspace: Techno Electronic Mix (2019) [MP3|320 Kbps] <Electronic, Techno>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567136.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nickelback - She Keeps Me Up
-02. Massive Attack & Azekel - Ritual Spirit
-03. Penthox - Give It Away
-04. Jasmine Thompson - 7 Years(   Читать дальше...   )Жанр: Поп, DanceПродолжительность: 06:06:27
+01. Unifire - Bang The Underground
+02. Wasted Penguinz - Not That Easy
+03. Diginsect - Shadowblast (Original Mix)
+04. Gal Tsadok-Hai - The Green Eden(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 08:17:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:077CAE1D93F66346F794BAC3B80694D931F98BF2
+magnet:?xt=urn:btih:05BF7B15AF6ACFDB243872138C1A4B6FB76B18E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147037   (567137) от 22.07.2017
+###  Публикация: 1305357   (557106) от 30.05.2019
 
-Cryptey - a menu bar cryptocurrency ticker 1.4.2 [En]
+Векторный клипарт - Vector Animal Collection #67 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:176A411B6AAD8D3589BE2BDFC178D1AA3C4EFF00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305378   (557107) от 30.05.2019
+
+Векторный клипарт - Vector Animal Collection #70 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Зверушки
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A435073145DF1ABD9150C6119724BC7F01BD175F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305302   (557108) от 30.05.2019
+
+VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lounge Pilots - Any Lounge Color
+002. Molda Sensa - Trawler
+003. Moby - The Waste Of Suns
+004. Too Ugly - Gold Coast(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 09:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB328C4C4F93D967CD93AFB78F05EF96172F00A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305234   (557109) от 30.05.2019
+
+А. М. Минасян | Диалектика и софистика [опыт философской дискуссии] (1985) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557109.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии доктора философских наук А. М. Минасяна с принципиальных позиций марксизма-ленинизма разоблачаются современные многочисленные софистические ухищрения буржуазной, ревизионистской идеологии, софистические фальсификации принципов материалистической диалектики. Последовательно вскрывается научная несостоятельность софистики во всех сферах современной идеологической (   Читать дальше...   )Жанр: История, науковедение, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC7AAA36727A2A0091CD24FE587D9C74BE044CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305323   (557110) от 30.05.2019
+
+EdgeView 2 v2.788 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567137.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cryptey - это криптовалютный код в строке меню, позволяющий вам следить за текущими ставками для всех основных монеты, таких как биткойн, Litecoin, Ethereum и многое другое. Вы можете добавить наиболее важные тарифы в панель меню, чтобы они были всегда видимыми или добавлять их в список избранных, чтобы они могли находиться всего в одном клике. С несколькими ходами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2017Разработчик: Nice AppsПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский
+EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Корейский и Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:704E85AF1ECD389C2B55E2C303498402BFC91592
+magnet:?xt=urn:btih:3B8BC0D7C566C2A5F310F3778CBFB46FB8CD3721
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044188   (567139) от 19.08.2016
+###  Публикация: 1305343   (557111) от 30.05.2019
 
-VA - Летние Хиты За Рулём! 7 (2016) [MP3|256 Kbps] <Pop>
+Векторный клипарт - Vector Amphibians #05 [AI]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567139.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Нужный Ритм - Незабываемая
-002. The Vamps - Stolen Moments
-003. Клава Кока Feat. Ольга Бузова - Если
-004. Bolier & Natalie Peris - Forever And A Day(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:35
+Векторный клипарт для дизайна.
+Земноводные
+50 AI + PreviewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E07E92D4E4FB2059D4EE7F13E0EEBBE88F5141A
+magnet:?xt=urn:btih:F27A27C800D9B4788E3C72525EC21FC8DA183619
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152425   (567140) от 22.07.2017
+###  Публикация: 1556817   (557112) от 11.06.2022
 
-Steve Aoki - Steve Aoki Presents Kolony (2017) [MP3|320 Kbps] <Electronic, Electro House>
+Журнал | Popular Woodworking №265 (2022) [PDF][En]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567140.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_557112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Steve Aoki - Kolony Anthem (feat. ILOVEMAKONNEN & Bok Nero)
-2. Steve Aoki & Yellow Claw - Lit (feat. Gucci Mane and T-Pain)
-3. Steve Aoki & DVBBS - Without U (feat. 2 Chainz)
-4. Steve Aoki - How Else (feat. ILOVEMAKONNEN and Rich The Kid)(   Читать дальше...   )Жанр: Electronic, Electro HouseПродолжительность: 00:31:48
+Журнал, посвященный столярному делу. Проекты, идеи, обзоры материалов и инструментов. Многочисленные идеи и проекты от создателей одного из популярнейших изданий для любителей столярного дела. Журнал является одним из основных ресурсом для энтузиастов работы с деревом, от среднего уровня мастерства до профессионалов в своем делеЖанр: Столярное делоФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -257,379 +228,78 @@ Steve Aoki - Steve Aoki Presents Kolony (2017) [MP3|320 Kbps] <Electronic, Elect
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152450   (567142) от 22.07.2017
+###  Публикация: 1556790   (557113) от 11.06.2022
 
-VA - Eighty Eight: This is Fokuz (2017) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phaction - Fantasy (SpectraSoul Remix) (04:54)
- 02. Intelligent Manners & Command Strange - Memories (Satl Remix) (05:16)
- 03. Kasper - The Departed (Technimatic Remix) (05:04)
- 04. Bert H - Bring Away (05:36)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FCF42FDF5E1AFAB71F87743CA567F7FFB57C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044280   (567143) от 19.08.2016
-
-VA - Goa Session by Outsiders (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outsiders vs Symbolic  -  Life on Earth  8:40
-02. Circuit Breakers  -  Square Stomp (Outside the Universe Remix)  8:34
-03. Outsiders  -  Our Moment Has Arrived  7:50
-04. Sonic Species  -  The First and the Last (Mad Maxx Remix)  7:57(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 02:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F34FF1FB1495C5D5BC7F6616D028349F1E8C2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044307   (567145) от 19.08.2016
-
-Grand Prix - Mach 1 (1983) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Electro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruisin' (5:21)
-02. Challenger (5:02)
-03. Crash Barrier (4:40)
-04. Grand Prix (4:51)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, ElectroПродолжительность: 00:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C9B1C13A1366EF0F9FB3F7C1B4E1921AC1D580
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152292   (567146) от 22.07.2017
-
-Faces of Illusion: The Twin Phantoms / Иллюзия Облика: Тайна двойников (2017) [Ru] (1.0) Unofficial
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайна двойников, которая покажет вам немало интересных мест. Предлагаю вам ознакомиться с новым приключение в жанре поиск предметов, так что готовьте свои серые клеточки, ведь для них скоро наступит встряска. Тебя ждет захватывающее приключение в мире магии и иллюзий. Проведи собственное расследование, раскрой дело об исчезновении восходящей звезды театра и узнай, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Moonrise InteractiveЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37169D34DA4DB46344927A11D617137EC9C91C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044225   (567147) от 19.08.2016
-
-Журнал | ХлебСоль №9-10 (74) (сентябрь-октябрь 2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567147.jpg" />
-</div>
-
-
-###  Подробнее
-
-«ХлебСоль» - кулинарный журнал с Юлией Высоцкой. Издание для современных активных женщин, которые с удовольствием готовят для родных и близких. "ХлебСоль" - простые решения, легкие рецепты.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A7371BC1753D4BF8A09C905C5FFC60F62BD193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044202   (567149) от 19.08.2016
-
-VA - Любимые хиты (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mseven — Листья
-02. Денис Любимов — На Постели Лета
-03. Иракли — На Бульварном
-04. Тимати — Девочка-Конфета(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC0B05074A895041F4E60357909BAB8DFB9ECED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044121   (567151) от 19.08.2016
-
-Журнал | Мой любимый дом №9 (сентябрь 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой любимый дом — журнал о создании комфорта и уюта в квартире и частном доме. Разделы журнала — «Квартира», «Частный дом» и «Идеи и решения» — дают полное представление о том, как обустроить свой любимый дом. Издание рассказывает о современных тенденциях строительства и ремонта, оригинальных интерьерах квартир и частных домов, новинках в области дизайна интерьера, (   Читать дальше...   )Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657D27A9EDF2CBCB532FE88A052644A55423A5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044247   (567152) от 19.08.2016
-
-VA - Душевный сборник Шансона (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567152.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Закшевский - Лишь Бы Ты Меня Любила
-002. Дмитрий Прянов & Сергей Ильин - Дружба
-003. Владимир Пахновский - Возвращайся
-004. Адвокат Капаров - Еду В Город Свой Родной(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A113DF69EDD8652161EA3F5979E7612E40C9E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787182   (567153) от 05.06.2022
-
-Claude Thornhill - Snowfall (2000) [FLAC|Lossless]<Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stealin' Aplles (A.Razaf - T. Waller) [03:14]
-02. Snowfall (C.Thornhill) [02:56]
-03. Where or When (R.Rodgers - L. Hart) [02:59]
-04. A Sunday Kind of Love (B.Belle -L. Prima - A. Leonard - S. Rhodes) [03:22](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF9ACD586235330073C6FAED76399AD4DEDD9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555649   (567154) от 05.06.2022
-
-История группы Bee Gees: Как собрать разбитое сердце / The Bee Gees: How Can You Mend a Broken Heart (2020) BDRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567154.jpg" />
-</div>
-
-
-###  Подробнее
-
-История британско-австралийской музыкальной группы Bee Gees, основанной в 1958 году тремя братьями — Барри, Робином и Морисом Гиббами. Фильм рассказывает о рождении нового уникального звучания, о трех мужчинах, осуществивших свою детскую мечту, и о невероятном счастье, которое принесла им музыка.Производство: США, Diamond Docs, PolyGram RecordsЖанр: документальный, биография, музыкаРежиссер: Фрэнк МаршаллПеревод: многоголосый профессиональный (Первый Канал)Субтитры: отсутствуютПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7AC7A3A80BB724D921CA428421504C44BD6DB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555833   (567155) от 05.06.2022
-
-Хитобои - Пятница (2022) [MP3|320 Kbps] <Rock, Ska>
+Deep Sun - Dreamland - Behind The Shades (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567155.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Гороскоп
-2. Пятница
-3. Валентина
-4. Голова(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:33:20
+01 - Prologue (00:01:35)
+02 - Behind The Shades (00:07:14)
+03 - Dreammaster (00:04:09)
+04 - Living The Dream (00:03:44)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB0FF2BBD2A74C995BD421E377B754AFA5A111B0
+magnet:?xt=urn:btih:636F667715888EF42EDA31F8C0076325A3E3729B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555677   (567156) от 05.06.2022
+###  Публикация: 1556689   (557114) от 11.06.2022
 
-Тимоти Зан | Звёздные Войны / Траун: Доминация (Книга 2). Высшее благо (2022) [MP3, Павел Константиновский]
+Downset - Maintain (2022) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore, Rap Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567156.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во второй книге эпичной трилогии «Звёздные войны. Траун. Доминация» Траун и его соратники вступают в гонку со временем, чтобы спасти Доминацию чиссов от неведомого врага.
-Недавние победы Трауна окутывают его имя шлейфом признания. Благодаря ему чиссы разбили захватчиков, а семья Митт приумножила свою славу, но истинная угроза для Доминации еще не искоренена. Враги (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 17:09:23
+1. Maintain
+2. Blackest Of Days
+3. New Respect
+4. Won't Forget(   Читать дальше...   )Жанр: Rapcore, Hardcore, Rap MetalПродолжительность: 00:36:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C51C7EC76EAFAAC5A9606FD9BC4B39178E6180B3
+magnet:?xt=urn:btih:537DFD509948406FF8E371AB2AE8E59FE2484A16
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555870   (567157) от 05.06.2022
+###  Публикация: 1556691   (557115) от 11.06.2022
 
-Журнал | National Geographic Traveler №1 (март-май 2022) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567157.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic Traveler - это журнал о путешествиях и о культуре народов разных стран, о животном и растительном мире, о гостиницах, курортах, пляжах, маршрутах, турагенствах, предоставляющий энциклопедически точную информацию и советы по посещению экзотических стран.Жанр: Журнал о путешествияхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD1A0A5024AE3780AE5CF8DAE2AD509908FD321
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555790   (567158) от 05.06.2022
-
-На троне вечный был работник (2022) WEBRip [MPEG-2/720p]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он действительно был первым во всем. Со дня рождения Петра прошло 350 лет. Но тем, какая Россия сегодня, мы во многом обязаны именно ему. При нем у нас впервые появились классные чины и социальные лифты. Петр Первый заложил фундамент современного государственного устройства — об этом в нашем фильме говорят современные политики. Первым создал флот — об этом расскажут (   Читать дальше...   )Телекомпания: Россия / Первый канал, КонтрастЖанр: Документальный, Биография, ИсторияРежиссер: Роман НоволюкинСубтитры: отсутствуютПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD320A97A8611223D5A04A3016A6F4AC46695FA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555809   (567159) от 05.06.2022
-
-Orient | Ориент [2022, TV, 12 эп.] WEBRip 1080p rus
+FALSET - Monarch (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Electronic>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567159.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_557115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пять лет назад двое друзей десяти лет, Кодзиро Канэмаки и Мусаси, поклялись друг другу, что, повзрослев, станут самураями, соберут команду и отправятся истреблять демонов. К сожалению, за пять лет много утекло воды, и теперь демонов не убивают, им поклоняются, а самураи стали изгоями общества. Несмотря на это Мусаси не отказался от своей мечты, но, не желая лишних (   Читать дальше...   )Производство: A.C.G.T.Жанр: приключения, фэнтези, драма, фэнтезиРежиссер: Янагисава ТэцуяЯзык озвучки: Русский, профессиональный дублированный | Force MediaСубтитры: русские (хардсаб, на надписи) | CrunchyrollПродолжительность: 12 эп. по 25 мин.
+1. Monarch
+2. Lullabies
+3. Medulla Oblongata
+4. Eyes of a Snake(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:34:13
 
 ## Скачать торент
 ```bash
@@ -639,28 +309,373 @@ Orient | Ориент [2022, TV, 12 эп.] WEBRip 1080p rus
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555694   (567160) от 05.06.2022
+###  Публикация: 1556692   (557116) от 11.06.2022
 
-Christina Aguilera - AGUILERA (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Pop, Latin Pop>
+Future Palace - Run (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Paradise
+2. Dead Inside
+3. Flames
+4. Locked(   Читать дальше...   )Жанр: Post-Hardcore, Alternative MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C745A3A03124C8F7EBAFDF862A01CA1A4C7EBB01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556878   (557117) от 11.06.2022
+
+To/Die/For - Cult (2015) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557117.jpg" />
+</div>
+
+
+###  Подробнее
+
+To/Die/For — финская готик-метал-группа. Основана в 1996 году под названием Mary-Ann, с 2000 года стала называться To/Die/For (умереть за...)01. In Black
+02. Screaming Birds
+03. Unknown III
+04. Mere Dream(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8D6D3A7E2493CC64A997DF34C503EC765C1709B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556478   (557118) от 11.06.2022
+
+Bee Gees - Idea (1968) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567160.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ya Llegué (03:03)
-02. Pa Mis Muchachas (feat. Nathy Peluso) (03:37)
-03. Somos Nada (03:02)
-04. Santo (03:03)(   Читать дальше...   )Жанр: Pop, Latin PopПродолжительность: 00:37:40
+01. Let There Be Love (3:35)
+02. Kitty Can (2:42)
+03. In The Summer Of His Years (3:13)
+04. Indian Gin And Whisky Dry (2:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E6F4141E3FD8AD03A4B79AFA002DA7096C21CD4
+magnet:?xt=urn:btih:752C312B6E44B77F1596D3A191CA8D3DAC095307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556642   (557119) от 11.06.2022
+
+The Silverblack - Judgment (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Judgment (feat. Burton C. Bell from Fear Factory)
+2. Punishment
+3. A Lifetime Ago
+4. Chasing Ghosts(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FA57BD7913065C00BFF1FDD1EC79F1418F52DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556701   (557120) от 11.06.2022
+
+Secrets - The Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_557120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Collapse
+2. Get Outta My Head
+3. Falling Out
+4. Parasite(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556801   (557121) от 11.06.2022
+
+Ларс Браунворт | Морские волки. История викингов (2022) [MP3, Владимир Овуор]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 793 г. н. э. норвежские воины напали на английский остров Линдисфарн и полностью его опустошили. Волна за волной скандинавские «морские волки» следовали за добычей, землей или славной смертью в битве. Большая часть Британских островов пала под их мечами, а континентальные столицы Париж и Аахен были по очереди разграблены. Повернув на восток, они плыли по неизведанным (   Читать дальше...   )Жанр: Научно-популярная литература, Популярно об историиПродолжительность: 09:26:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F8E555CFC70ADA7895C28AB33B201DDD0DA47E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556680   (557122) от 11.06.2022
+
+NateWantsToBattle - The Critical Hits (2022) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hero of Our Time
+2. The Evil King
+3. Drowning
+4. Mangled(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Pop RockПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5F6E084D71ABCFAED2165A11977F67E3D5EC7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556843   (557123) от 11.06.2022
+
+AudioLab v1.2.95 Mod by Alex.Strannik [Ru/Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_557123.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudioLab является наиболее передовым, современным, быстрым, профессиональным аудио редактором, который имеет все функции, которые вы хотели бы когда-либо.Тип издания: Пиратка (В модификации получен PRO, удалена аналитика и реклама)Релиз состоялся: 27.04.2022Разработчик: HitroLabПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556765   (557124) от 11.06.2022
+
+Amethyst - Time Of Slaughters (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pandemonium (instrumental)01:38
+02.Subversive Mind 06:21
+03.Time of Slaughters 05:17
+04.Entrapped 05:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B246F699A27FAD09593E364F27DB53C4625EB901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556693   (557125) от 11.06.2022
+
+Kardashev - Liminal Rite (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Deathcore, Atmospheric>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557125.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Approaching of Atonement
+2. Silvered Shadows
+3. Apparitions in Candlelight
+4. Dissever(   Читать дальше...   )Жанр: Death Metal, Post-Metal, Progressive Metal, Deathcore, AtmosphericПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B3C830AAE81D8FA2BFBA6471EED26788FC32F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556771   (557126) от 11.06.2022
+
+Irdorath - Gotterdammerung MMXXII (2022) [FLAC|Lossless|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Der flammen Preis (00:03:00)
+02 - Windgeist (00:03:36)
+03 - Form des Todes (00:06:01)
+04 - Bald ersaeuft die Menschenbrut (00:03:33)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EB5CC23B1933A54347DC460D8ED49499B75C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556698   (557127) от 11.06.2022
+
+Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. How To Leave Painlessly
+2. Disintegrate
+3. Constrict
+4. Red Light Gossip(   Читать дальше...   )Жанр: Post-Hardcore, Alternative Metal, MetalcoreПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556767   (557128) от 11.06.2022
+
+Sun of the Endless Night - Life... a Tragedy Tainted by Malevolence (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Open Skies closed Minds 01:52
+02.Who let the Night in? 02:36
+03.Where there is God there is Nothing 03:59
+04.Once upon a Death 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E523E28B6BB3EA5E188A9D6577342716AAF8B08B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556682   (557129) от 11.06.2022
+
+Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557129.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Connections
+2. The Cycle
+3. Ebb & Flow
+4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
 
 

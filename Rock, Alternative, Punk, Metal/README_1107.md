@@ -1,3 +1,54 @@
+###  Публикация: 188747   (867812) от 02.04.2010
+
+Эдуард Артемьев - Преступление и наказание (2007) [FLAC|Lossless]<Рок Опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок Опера, Полустилистика :)Продолжительность: 02:26:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496992   (867893) от 20.09.2021
+
+Eagles - Legacy (1972-2018) 12xCD, Box Set, Compilation, Remastered, 2018, Warner [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1972 - Eagles
+1973 - Desperado
+1974 - On The Border
+1975 - One Of These Night(   Читать дальше...   )Жанр: RockПродолжительность: 09::41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B598C338F0D0E25DA3BC2AA9C3EFE9CBB96E8F43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497041   (868026) от 20.09.2021
 
 Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal>
@@ -643,59 +694,6 @@ Graveyard Disciples - Devil's Night (2020) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ABC3F4D640BE45CBDF034666599EB41E7BD0F24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375023   (869098) от 12.04.2020
-
-Dawn Of Winter - Pray For Doom (2018) [MP3|320 Kbps] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Dream Within A Dream
-02 The Thirteenth Of November
-03 Woodstock Child
-04 The Sweet Taste Of Ruin(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84780FB7A279F933F7A811FFDB12CCB600CF7DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998115   (869664) от 19.03.2016
-
-Аквариум и Борис Гребенщиков - Песни Нелюбимых (2016) [MP3|320 кб/с] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869664.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песни нелюбимых (03:34)
-2. Собачий вальс (04:17)
-3. Пыль (03:46)Жанр: РокПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848566FA290C44B5BBC60DCC770A7948FE7579D1
 ```
 
 

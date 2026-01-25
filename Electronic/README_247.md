@@ -1,3 +1,84 @@
+###  Публикация: 1569020   (455806) от 11.08.2022
+
+VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SounEmot, InStars & Elissandro - Tenías Que Ser Tú (Intro Mix)
+02. AXIS-Y - I Remember You (Original Mix)
+03. Chris Rane - You Never Left My Heart (Original Mix)
+04. D-J. Santos - Vida (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81510A0EEAD3C751DC913051ACC1677B11CA92BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408408   (455902) от 12.09.2020
+
+Lemongrass - Soulful (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whereever You Go
+02. Killing Me Softly
+03. Femme Fatale
+04. July Sky (feat. Jane Maximova)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22C36BDF162B1950E9F5A3CB8D8D5617DE7D4B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942227   (455959) от 30.09.2015
+
+Bitcrush - Shipwrecked (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Post Rock>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glacial (03:34)
+ 02. Antivent (03:46)
+ 03. As End Begins (04:37)
+ 04. A Place Of Exits (04:24)(   Читать дальше...   )Жанр: Ambient, IDM, Post RockПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E1AAD0D042F3414C5BADAF16A82414E0FD73C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551078   (456181) от 23.09.2012
 
 VA - A Long Hot Summer (Mixed & Selected by Chris Brann from Ananda Project) (2012) [MP3|320 кб/с]<House, Deep House, Club House>
@@ -612,87 +693,6 @@ Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90BC0029F1293B0EE018A6750C9963D82ABDDEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321499   (459087) от 24.08.2019
-
-Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany 2019-07-13 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kamaya Painters - Wasteland (Alex M.O.R.P.H. Remix)
-02. Paul Oakenfold - Madagascar
-03. Midway - Cobra (Niko Zografos Remix)
-04. Greg Downey - Midnight (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7446164932D35710737652317E46DF1860C4C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162492   (459145) от 01.09.2017
-
-VA - Deep House Hits (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Groove Squad - I Don't (Deep House dub version) (5:40)
-02. Edi P - All On You (7:27)
-03. Hans Justin - Let's Go Back (5:51)
-04. Michael J Mathews - Machine Aided Rhythm (7:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235F1039B3D77A2E7B220ECE99260B1277852965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162298   (459147) от 01.09.2017
-
-Jiva & Fr.om - Saturnine (2017) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geologic (Original Mix) (07:34)
- 02. Saturnine (Original Mix) (07:22)
- 03. Remote Station (Original Mix) (07:25)
- 04. Interference (Original Mix) (06:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281A654D16538A0B9301897758996A4526BA1F17
 ```
 
 

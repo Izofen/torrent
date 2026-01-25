@@ -1,3 +1,57 @@
+###  Публикация: 1092710   (938877) от 12.01.2017
+
+Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938877.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Longest Winter
+2. Insignificant Sense
+3. Life Passed By
+4. MeridianЖанр: Doom-Death MetalПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8803A230C32EAF84BB5E982D34D9C516FD147CC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984619   (938936) от 09.02.2016
+
+The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Defying Gravity
+02. Watch You Lose
+03. You Can't Have It All
+04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092338   (938946) от 12.01.2017
 
 Aqueous - Best in Show (2016) [FLAC|Lossless|tracks + .cue|WEB-DL] <Crossover Prog>
@@ -647,60 +701,6 @@ Striker - Stand in the Fire (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D539A7C614FD2550EE51D661ADE5E576603881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984315   (940160) от 08.02.2016
-
-Status Quo - Rockin' All Over The World (1977) 2CD, remaster, 2016, Mercury, Japan [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Time (4:46)
-02. Can't Give You More (4:16)
-03. Let's Ride (3:03)
-04. Baby Boy (3:13)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E642A79E2C865B91ECC1DCF9DD74E089A6B4D4A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984325   (940215) от 08.02.2016
-
-Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Art Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You Are Young (04:17)
-02. Outsiders (03:54)
-03. No Tomorrow (03:52)
-04. Pale Snow (02:43)(   Читать дальше...   )Жанр: Alternative Rock, Art Rock, BritpopПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
 ```
 
 

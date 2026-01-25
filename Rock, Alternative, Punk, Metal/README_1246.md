@@ -1,3 +1,57 @@
+###  Публикация: 1455900   (1025453) от 20.03.2021
+
+Serj Tankian - Elasticity (2021) EP [MP3|320 Kbps] <Alt. Rock, Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Elasticity [00:04:01]
+02 Your Mom [00:03:18]
+03 How Many Times- [00:04:16]
+04 Rumi [00:05:28](   Читать дальше...   )Жанр: Alt. Rock, Metal, ExperimentalПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667C770494FDD6330FFC18C1BE621997993FB307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455383   (1025454) от 20.03.2021
+
+Serj Tankian - Elasticity (2021) EP [FLAC 2.0|48/24|tracks|WEB-DL] <Alt. Rock, Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elasticity [00:04:01]
+02. Your Mom [00:03:18]
+03. How Many Times? [00:04:16]
+04. Rumi [00:05:27](   Читать дальше...   )Жанр: Alt. Rock, Metal, ExperimentalПродолжительность: 00:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AACF844E9FC2383A485D9BA0592C397AEFE040A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455258   (1025482) от 20.03.2021
 
 Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -638,60 +692,6 @@ Papa Roach - Greatest Hits, Vol. 2: The Better Noise Years 2010-2020 (2021) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848F09B060A1BB6E150EBEAE2C965CAB92DF2973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455294   (1025795) от 18.03.2021
-
-Batushka - Carju Niebiesnyj (2021) EP [MP3|320 Kbps] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pismo I [00:04:31]
-02 - Pismo II [00:04:23]
-03 - Pismo III [00:03:45]
-04 - Pismo IV [00:04:10](   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:27:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B86EB3F364A4A0DAD3311D81668F65625EB13CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455028   (1025798) от 18.03.2021
-
-Хитобои - Вниз головой (2016) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Уй на руль [00:02:04]
-02 - Долб [00:02:30]
-03 - Дело-табак [00:02:37]
-04 - Пружина [00:02:30](   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820FF4A1552F981175A366B4F22C7A3884BB50AF
 ```
 
 

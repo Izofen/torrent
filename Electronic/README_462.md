@@ -1,3 +1,84 @@
+###  Публикация: 1101610   (894844) от 07.02.2017
+
+VA - Silencio Collection Vol.1 Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IJO - Forey
+02. Fran Rodriguez - Guitar Star Dub
+03. Schurakin - I Love You
+04. Union Jack - There Will Be No Armageddon - Remastered(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E34B352E9E7D61C35A3FD7DD5A61252F1BD23A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370665   (895088) от 28.03.2020
+
+VA - Cafe Del Mar Essentials (Vol. 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. José Padilla - Walking on Air
+02. A Man Called Adam & Eddie Parker - Easter Song
+03. Afterlife - Dub in Ya Mind (Beach Club Mix)
+04. The Metaluna Mutant - Blinky Blue Eyed Sunrise(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA5CBC845D8F223421EE89C1E03C3BE341262B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277105   (895112) от 28.03.2020
+
+Secede - Discography 7 Releases (2003-2019) Merck, Sending Orbs [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hospital Requiem (04:22)
+ 02. Foliage Pathway (04:28)
+ 03. Leraine (With Kettel) (07:45)
+ 04. The Realms Of Sanda (07:53)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient/IDM/Breaks/DowntempoПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100F67C2010BF67B93BA4E6D332C42D85CA233D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370633   (895143) от 28.03.2020
 
 Steve O'Sullivan & Mike Schommer - Submerged (2020) Mosaic [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dub Techno>
@@ -625,84 +706,6 @@ Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02F85620D152EB37C72E49F9E259BCDC726FD842
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993074   (897631) от 04.03.2016
-
-Joey Fehrenbach - Mellowdrama (2006) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Around You (07:35)
-02. Runaway Child (04:58)
-03. Behold (05:19)
-04. Particles (06:08)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A3D49888C3563414D3FC60150DFD066E0FA360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101061   (897722) от 05.02.2017
-
-Starcluster And Marc Almond - Silver City Ride (2016) [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver City Ride (4:39)
-02. Pixilated (4:09)
-03. Avatar (3:11)
-04. The City Cries (4:38)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB08A9122D7CB8016877E8533867D2719190EDD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993150   (897770) от 04.03.2016
-
-VA - Ausklang Entspannung Spa (2016) [MP3|256-320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shara El Noras - Energy and Mood Booster (Fast Forward 5)Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFFC828363BBCC8754065DF93310582CFA8EACA
 ```
 
 

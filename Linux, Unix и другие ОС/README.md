@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1819961   (829) от 26.09.2025
 
 CrossOver Linux 25.1.0 [x64] (deb, rpm, bin)

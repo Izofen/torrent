@@ -1,3 +1,84 @@
+###  Публикация: 1222203   (687008) от 28.04.2018
+
+Prairie - After the Flash Flood (Bonus Track) (2018) Denovali Records [FLACFLAC|24/44.1|Lossless|WEB|tracks] <Experimental, IDM, Industrial, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flash Flood (05:36)
+ 02. Raindeaf (03:46)
+ 03. Sisters (05:06)
+ 04. A Permanent War Economy (03:12)(   Читать дальше...   )Жанр: Experimental, IDM, Industrial, AmbientПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5ED5D1E1E20C06F24774FC15726D8967725CF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134718   (687083) от 16.05.2017
+
+Rainforest - Life On Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle, Ambient, Downtempo>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth From Above (07:45)
+ 02. Garden Of Souls (Part I) (07:49)
+ 03. Lyla & Saleem (05:33)
+ 04. Black Ocean Temple (06:59)(   Читать дальше...   )Жанр: Drum & Bass, Jungle, Ambient, DowntempoПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A28EDD60B5F9E07DBF24925C5D4550D80EC157
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222251   (687110) от 28.04.2018
+
+VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic feat. Ana Criado - Ask Me Anything 3:10
+02. 4 S'trings feat. Fenna Day - Everybody's Gotta Learn Sometime 3:13
+03. Katty Heath - Connection Through Sound 3:57
+04. Steve Allen feat. Sue McLaren - Old Flame 3:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222020   (687122) от 28.04.2018
 
 Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
@@ -610,87 +691,6 @@ Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403693   (688567) от 21.08.2020
-
-Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Number (Hot Chip Remix) (9:54)
- 02. Give It All (Lxury Remix) (6:20)
- 03. Mountain at My Gates (Alex Metric Remix) (6:45)
- 04. Into the Surf (Hot Since 82 Remix) (8:10)(   Читать дальше...   )Жанр: Electro House, Disco, Funky, Indie RockПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBF19A9875A017A285AFC4183C2A7959F593A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403669   (688568) от 21.08.2020
-
-Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Water (05:11)
-02. Like Breaking Glass (04:51)
-03. Love Is All We Share (06:01)
-04. Stop, Horizon (05:28)(   Читать дальше...   )Жанр: Electropop, Dance Punk, IndieПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E9D077A1ADF33FB3B612F08BE18BF950B6A573
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028482   (688760) от 23.06.2016
-
-Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/с] <Electronic, Pop, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E.V.A. (Vessels) (5:52)
-02. Tomorrow (Copy Paste Soul) (6:44)
-03. Go! (Kauf) (4:27)
-04. The Other Side (Maps) (5:24)(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE5284E37FF828907D8ECD57DC9A467547E393D
 ```
 
 

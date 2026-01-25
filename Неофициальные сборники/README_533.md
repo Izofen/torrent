@@ -1,3 +1,30 @@
+###  Публикация: 1120603   (801614) от 31.03.2017
+
+VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Turbotronic - Iriwa (Radio Edit) 3:03
+002. Jason Derulo - In My Head (Kr8 x CandyCrash Remix) 3:19
+003. Imad Kotbi Ft. Ryan McTogy - Wild (Original Mix) 3:42
+004. Steven Nicola & Karim Razak feat. Honorebel - Bootyshake 3:13(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 07:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199332   (801645) от 15.01.2018
 
 VA - Vocal Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
@@ -668,33 +695,6 @@ VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505368   (802837) от 28.10.2021
-
-VA - Synth of Waves 8 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. roadblok - DeLorean Heavy Kneedeep In Neon (Gertrudda Edit) (11:05)
-02. c152 - Romantic Night (feat. shiruku & chirrrex) (Gertrudda Edit) (6:16)
-03. Прожектор Перестройки - Lighting Strike (4:00)
-04. Maria Davis - Echo (3:55)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F83E0464970909DEDE628D2BFB7208F0CE71A9C
 ```
 
 

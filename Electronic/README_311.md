@@ -1,3 +1,84 @@
+###  Публикация: 1296490   (611845) от 17.04.2019
+
+VA - Clubparty (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - King & Queen (feat Diandra Faye)
+02. Kiss Audio - Nightflight (Festival version)
+03. The Buttonheads - Feel The Sun
+04. Dana Blade - All I Need(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11D0AD036F87E15B0CBAB874B01756E667B621B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230854   (611941) от 14.06.2018
+
+VA - AWRY003 (2018) AWRY [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Assessment - Calcare (06:59)
+ 02. Magna Pia - Ys Ura (06:36)
+ 03. Ryan James Ford - Masthead (05:12)
+ 04. Serena Butler - To Tilt The Fulcrum (05:54)Жанр: TechnoПродолжительность: 00:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53220CFBB274A1CE6538C57823A60FD52E3D67AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037793   (612124) от 25.07.2016
+
+aus - Discography 10 Releases (2004-2013) [FLAC|Lossless|tracks+.cue] <IDM, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  01. Geskia! - Requiem For Genome (aus Remix) (05:33)
+ 02. Storms - Letter On The 44th Day (aus Remix) (03:41)
+ 03. Motoro Faam - A Change Of A Cityscape (aus Remix) (03:24)
+ 04. Miyauchi Yuri - mirea_ (aus Remix) (05:28)(   Читать дальше...   )Тип издания: CDЖанр: IDM, Downtempo, Experimental, Ambient, Broken Beat, Glitch •Продолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF2F235F8BFB3A0BE06AB37E8B1442BFF659F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037522   (612136) от 25.07.2016
 
 Dinka - Hotel Summerville (2010) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -620,87 +701,6 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23602095E43B601B4BC4D9C93243BB985DA7803D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684903   (614182) от 31.07.2013
-
-VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Always Loved, Never Forgotten - The Day Will Come (Original Mix)
-02. Robert Lyttle - Never Forget (Sean Murphy Remix)
-03. RAM - RAMplify (Original Mix)
-04. Ico - And She Made It All Of Light (Original Mix)(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 204:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF96E6F0077A31B08E5B2722490B7D054A2EABE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911560   (614230) от 24.06.2015
-
-Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sodium (05:44)
-02. Found My Peace (feat. BBK) (06:43)
-03. You Panic (06:15)
-04. Red Frog (05:49)(   Читать дальше...   )Жанр: Electronic, Breakbeat, BreaksПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41719CDB21401AB4AA0A98E687BFEEE67C6850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911886   (614402) от 24.06.2015
-
-Crywolf - Dysphoria (2015) [MP3|320 кб/с]<Chillstep, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Never Asked for This (3:51)
-02. Neverland (6:01)
-03. Interlude; 9/23/87 4:34 am - Falling (1:09)
-04. Shrike (3:28)(   Читать дальше...   )Жанр: Chillstep, ElectronicПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C8FDE806E5BC836066FB56A5BEDC26EF61863A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1002153   (848535) от 31.03.2016
+
+Пилот - Кукушка (2016) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Безвозврат
+02. Светлого пути
+03. Проводник и стюардесса
+04. Оттепель(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1B448502313660B6A3748D9A7CE8A497A29AC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001705   (848541) от 31.03.2016
+
+Мумий Тролль - Шамора. Правда О Мумиях И Троллях 1983-1990. Часть 1 (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алло, Попс! (2:19)
+02. Ультиматум (3:44)
+03. Новая Луна Апреля (3:01)
+04. Кассетный Мальчик (3:54)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FEA51A0AF0023C675E8B10CBE8829F93DE25AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111357   (848579) от 05.03.2017
 
 Magnum - The Valley Of Tears: The Ballads (2017) Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -638,57 +692,6 @@ BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377694   (850161) от 23.04.2020
-
-The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AftermathЖанр: Metalcore, Melodic HardcoreПродолжительность: 00:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CF6CB6AC7A9BC4E89F51DF955AA6A98E9059DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002102   (850210) от 30.03.2016
-
-Louna - Песни о мире (С симфоническим оркестром Globalis) (2016) Live [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестровая увертюра
-02. Зачем
-03. Путь к себе
-04. Кто, если не мы(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF830D79864747E8FA115BA18EAEC0B318A5CE0
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1044370   (565660) от 20.08.2016
+
+VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Caseli, David Jimenez & Errol Reid  -  Stay Together (Dave Rose Remix)  5:47
+02. Teo Mandrelli  -  Everyday Battle (Club Mix)  5:27
+03. Steve Edwards, RONN, Ron Carroll, Michael Murica & Damon Grey  -  When Love Gets in the Way (Argento Remix)  4:37
+04. Nick Hook  -  House People Pump It Up (Original Mix)  7:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152535   (565673) от 23.07.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik feat. Mark & Lukas - Valley Of Shadows (Extended Mix)
+02. Luttrell - Daylight (Original Mix)
+03. Andre Sobota - Unmute (Original Mix)
+04. Aly & Fila And Paul Thomas - UV (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED165F9EF0621541F613BE35B18A27902D1CE80B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152531   (565711) от 23.07.2017
+
+VA - Acoustic Sweetness. Emotional and Positive Portraits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satta Massimo - All my Girls
+02. Vincent Migliorisi - Farenight
+03. Vincent Migliorisi - Impossible
+04. St. Project - In Your Lips(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C1431508A0AE7AFE13A7C06FB0592ADFA608F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152644   (565719) от 23.07.2017
 
 VA - Good Morning Beats Vol.6 (Finest Tropical Lounge Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638BC3B12838BC794272A8B087D84B845B7D7834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151813   (568792) от 21.07.2017
-
-VA - Trance Energy 2017 (Mixed By ReOrder And Svenson & Gielen) (2017) [FLAC|Lossless|CD|Scene] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rank 1 - L.E.D. There Be Light  3:05
-02.  Paul Van Dyk - For An Angel (Pvd Remix 09)  1:47
-03.  Tiesto - Traffic  4:02
-04.  Yahel & Eyal Barkan - Voyage  3:43(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306241A35C06660F941095305CD929F9FC52B6C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152044   (568841) от 21.07.2017
-
-VA - York: Planet Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Headstrong - Here In The Dark (Headstrong & Tasos Panagis Chill Mix) (feat. Shelley Harland)  5:35
-02.  David Busmer - Urban Analogue Movements  5:09
-03.  York - Moving In The Shadows (R.I.B. Chillout Mix)  5:43
-04.  Matthew Kramer - Off My Mind (Planet Chill Mix)  3:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C69FE08D68C0F4645ED99EA3F2D102D793CDA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152174   (568849) от 21.07.2017
-
-VA - Obsession Lounge Vol.10 (Smooth Sounds For More Than) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Photo In Lounge - Sahara  5:00
-02.  Clelia Felix - Your Spirit  3:57
-03.  Chris le Blanc - Now And Zen  4:23
-04.  No Logo - Matter Of Time (feat. Steve Smith)  4:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC7E8CFBFB46DF55F0261F4D5E79B09F2987FA7
 ```
 
 

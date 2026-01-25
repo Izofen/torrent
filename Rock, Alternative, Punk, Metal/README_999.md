@@ -1,3 +1,57 @@
+###  Публикация: 1394665   (762298) от 06.07.2020
+
+Ravenlight - Project Genesis (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle (04:57)
+ 02. The End of the World (03:54)
+ 03. Sanctuary (03:51)
+ 04. Echoes (03:34)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Female VocalПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B80324B89A4B305FF6E0C13F3A403E8B0DF8F764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394691   (762303) от 06.07.2020
+
+Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Story That I Live (03:09)
+ 02. The Sound Of Everyone (03:21)
+ 03. An Average World (02:33)
+ 04. A Weird Interaction (03:05)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886689   (762430) от 10.04.2015
 
 Van Halen - 12 альбомов (1978-2012) [MP3|320 кб/с]<Classic Rock & Hard Rock>
@@ -640,57 +694,6 @@ Sleepsculptor - Sleepsculptor (2020) [MP3|320 Kbps] <Mathcore, Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB960982275B7E6D6CFD3D71AC6C5B2D25224100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394410   (763755) от 05.07.2020
-
-The Wolfhounds - Electric Music (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cant' See The Light (album version) (04:56)
- 2. Like Driftwood (04:41)
- 3. Song Of The Afghan Shopkeeper (after Ben Judah) (04:25)
- 4. Lightning's Going To Strike Again (05:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A81480A22DEDF8E3671307A1A0DC6CCF999A28BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214586   (763970) от 22.03.2018
-
-Ночные Снайперы - инстаграм (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. инстраграмЖанр: RockПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF02BBE84A075B6BF675D0C935BD070DF2AA624F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1543757   (625660) от 13.04.2022
+
+Alexander Palitsin - Beauty of the Rain (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Then (03:54)
+02. Far from Me (05:57)
+03. Shooting Star (04:31)
+04. Dishonest Game (05:24)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDD0AD76AA2232C82C97A47D4B57FFD09FEB62D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144584   (625753) от 23.06.2017
+
+Suffocation - ...Of The Dark Light (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clarity Through Deprivation (4:04)
+02. The Warmth Within the Dark (3:40)
+03. Your Last Breaths (4:36)
+04. Return to the Abyss (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D1D32EEB58FA9EED8A7A6E8CCE8C8FD32CF4D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144593   (625768) от 23.06.2017
 
 Manilla Road - To Kill A King (2017) [FLAC|Lossless|tracks + .cue] <Epic Heavy, Power Metal>
@@ -641,60 +695,6 @@ Fading Distance - I Have Hidden An Ocean [EP] (2014) [MP3|320 кб/с]<Post-Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3561CFAFC0B30AD5354712F40A969EA56040AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035575   (626391) от 17.07.2016
-
-Chastain - We Bleed Metal (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Bleed Metal
-02. All Hail the King
-03. Against All the Gods
-04. Search Time for You(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702F58EF2086274E087983FE2D2E0E0603152D8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909626   (626392) от 18.06.2015
-
-Ian Toomey (Bitches Sin) - Ascension (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost And Always
-02. Bad Blood
-03. Superman
-04. Very Soon Everyone's Leaving(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9D9BEA8F06AB995605DDDDD427321D9570D315
 ```
 
 

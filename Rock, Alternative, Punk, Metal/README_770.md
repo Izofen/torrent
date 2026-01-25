@@ -1,3 +1,57 @@
+###  Публикация: 1562384   (509028) от 09.07.2022
+
+Tiny Moving Parts - Tiny Moving Parts (2022) [MP3|320 Kbps] <Pop-Punk, Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Decibel [00:02:40]
+02 - North Shore [00:02:59]
+03 - Demons Are Taking Over [00:02:23]
+04 - Tangled Up [00:02:39](   Читать дальше...   )Жанр: Pop-Punk, Math RockПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861C7F792E523673655E72AD52C0FEE9225750CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562049   (509036) от 09.07.2022
+
+BelMel Studio - Хозяйкам на заметку (2022) [MP3|320 Kbps] <Russian Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дед Грибоед [00:02:02]
+02 - Грязный Гарри [00:01:45]
+03 - Хозяйкам на заметку [00:01:50]
+04 - Казачья [00:02:06](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4574B768A205045ED86866AB2C35A5A4B6582165
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562080   (509037) от 09.07.2022
 
 Blind Channel - Lifestyles of the Sick & Dangerous (2022) [MP3|320 Kbps] <Rap Rock, Alt.Rock, Electronic>
@@ -637,66 +691,6 @@ Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931946   (510336) от 28.08.2015
-
-Tad Morose - St. Demonius (2015) [MP3|320 кб/с]<Power/Heavy, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bow To The Reapers Blade
-02. Forlorn
-03. Where Ignorance Reigns
-04. Remain(   Читать дальше...   )Жанр: Power/Heavy, Progressive MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1460DA9CE8C2747D267921DDD15EA23D4043A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536603   (510580) от 22.08.2012
-
-Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born a Bit Blue (3:10)
-02. Pause for Thought (0:45)
-03. Travels (5:12)
-04. Gathering Dreams (0:20)
-05. The Rally (11:44)
-06. Long Dark Night (0:39)
-07. The Final Dawn (2:53)
-08. The Noble Pauper (0:58)
-09. Outcry (10:54)
-10. Turmoil (0:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
 ```
 
 

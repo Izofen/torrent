@@ -1,3 +1,30 @@
+###  Публикация: 1104550   (878208) от 16.02.2017
+
+VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Schweizer - Era (Original Mix)  5:15
+02.  Allen & Envy ft. Gemma Pavlovic - Heaven Won't Wait (Eximinds Remix)  4:44
+03.  Filo & Peri ft. Aruna - Ashley (Maria Healy Remix)  7:48
+04.  Eximinds & Vigel - Handprint (Original Mix)  5:26(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, EuphoricПродолжительность: 09:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104443   (878215) от 16.02.2017
 
 VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансон>
@@ -663,33 +690,6 @@ magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAD5C6E5B4C601A48D35DCDF8E2470F96272379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104001   (879377) от 15.02.2017
-
-VA - The Best Of Trance 52 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Emotional, Energy, Euphoric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
-02.  Estigma - Artemis (Allen & Envy Remix)  7:17
-03.  Allen Watts & Amir Hussain - Parallax (Original Mix)  6:58
-04.  Fresh Code - Supernova (Original Mix)  6:20(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Emotional, Energy, EuphoricПродолжительность: 02:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9063B0203ED7AF4FF8C5005D5953A8BF6B4D57A0
 ```
 
 

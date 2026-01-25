@@ -1,3 +1,58 @@
+###  Публикация: 1161837   (463239) от 30.08.2017
+
+Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
+Релиз от1. Intro
+2. Starlight
+3. Living For Tonite
+4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530D454C20E2B25ED4B69AF37C37E58BF9D2680A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940958   (464011) от 26.09.2015
+
+Smokie - Greatest Hits 1975-1979 (2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертные выступления известной группы Smokie в период с 1975 по 1979 год в легендарном составе Chris Norman, Terry Uttley, Alan Silson, Pete Spencer.01. Living Next Door To Alice
+02. Needlies And Pins
+03. Don't Play Your Rock'n'Roll To Me
+04. If You Think You Know How To Love Me(   Читать дальше...   )Жанр: Pop - RockПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46FD6B178C556A779C2FAA14AC5CCD8885EA54A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 240737   (464179) от 29.09.2010
 
 Бандера Андрей и Рада Рай - Не любить невозможно (2010) DVDRip
@@ -615,66 +670,6 @@ Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5885A31E62F192E70099D79EDB8AC4BBFF5C536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548478   (468866) от 17.09.2012
-
-Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monarchy of Roses
-02. Can't Stop
-03. Dani California
-04. Scar Tissue
-05. Look Around
-06. Throw Away Your Television
-07. Charlie
-08. The Adventures of Rain Dance Maggie
-09. Right on Time
-10. If You Have to Ask(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 386891   (469058) от 12.09.2011
-
-Lara Fabian - Un regard 9 (2006) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт уже ставшей легендарной певицы Лары Фабиан. В феврале 2005 года вышел альбом “9”. На его обложке Лара предстает перед нами в положении эмбриона. Можем ли мы сделать вывод, что с этим альбомом речь идет о ее возрождении? Быть может в связи с тем, что Лара претерпела множество изменений в своей творческой и личной жизни? Она покинула Канаду, чтобы вновь (   Читать дальше...   )01. Aime
-02. Les Homericains
-03. Jy Crois Encore
-04. Il Ne Manquait Que Toi(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C40556C9C587A161E4AD2DC84C1DB5365B67F26
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1217459   (743484) от 04.04.2018
+
+VA - Trance Generator (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.A.R.K.Y - Cloudless (Original Mix)
+02. Higher State of Trance - Memories (Extended Mix)
+03. Sunlight Project - Paths of Love (Original Mix)
+04. MarcW - Grey Day (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25414EB1008E4787D888CB470FBBF75C95D98FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217429   (743485) от 04.04.2018
+
+VA - The Sound Of Trance Vol.09 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outfade - Afterglow (original mix)
+02. Ian Source - Deep In Thought (Trance Arts remix)
+03. The Cracken - Never Say Never (extended mix)
+04. Neoxyne - The Cry Of The Soul (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0846765AABF13349B3513F31835171C47A1A570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020778   (743574) от 27.05.2016
+
+Stereo - Back To Somewhere (2015) [MP3|320 кб/с] <Electronic, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to Somewhere   (0:56)
+02. Moving In, Moving Out   (4:37)
+03. Let's Get Minimal   (4:06)
+04. Waiting in Vain   (4:03)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407C606E0A390F66D8A9B7B44592DB03F6D656F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524474   (743636) от 16.01.2022
 
 VA - Uplifting Only - Orchestral Trance Year Mix 2020 (Mixed by Ori Uplift) (2021) [FLAC|Lossless|WEB-DL|tracks|image] <Uplifting Trance>
@@ -610,87 +691,6 @@ Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282422   (745407) от 12.02.2019
-
-Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Land Of The Highway (05:55)
- 02. Sonar Conversation (08:15)
- 03. Robotic Arm Wrestle (07:32)
- 04. Love Hate (08:10)(   Читать дальше...   )Жанр: Techno, Electro, Dub TechnoПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB13ECE40671BEDB858D662E47A8A3BF814A2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396710   (745432) от 16.07.2020
-
-VA - Psychedelic Addict, Vol.1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745432.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. FlyAway - The Virus (6:08)
-2. Sabedoria; Creepy Deep; Cosmic Sound; SIL - Pachamama (8:07)
-3. Zeg; CiriZen - Hustle (7:40)
-4. Hasten; Cymatic Effects - Mind Effects (7:37)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0C429D8ECFE1D12FA70B36648FFAD5DC0897CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020655   (745463) от 26.05.2016
-
-VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kai Tracid - Tracid Theme (Album Version) (1:11)
-02. Kai Tracid - Your Own Reality (Energy Mix) (6:43)
-03. Tiësto - Adagio For Strings (7:33)
-04. Kai Tracid - Tiefenrausch (The Deep Blue) (NRG Mix) (6:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1355764   (980499) от 29.01.2020
+
+VA - Мы не оставим города свои! Песни донбасской войны (2017) 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980499.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Александр Ф. Скляр - Миллионы
+02. Зверобой - Едут-едут БТРы
+03. Чичерина - Рвать(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F1516DCA85F290D71AFDEDFC54A06874EF247B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355758   (980505) от 29.01.2020
+
+VA - Мы не оставим города свои! Песни донбасской войны (2017) 2CD [MP3|320 Kbps] <Alternative Rock, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980505.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Александр Ф. Скляр - Миллионы
+02. Зверобой - Едут-едут БТРы
+03. Чичерина - Рвать(   Читать дальше...   )Жанр: Alternative Rock, Hip-HopПродолжительность: 02:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249065F5FE832ECD1E5DF920159B81EEC9362EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356030   (980552) от 29.01.2020
 
 Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Heavy Metal>
@@ -647,62 +701,6 @@ H.E.A.T - Live In London (2015) Japanese Edition [MP3|320 кб/с] <Rock, Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8209E449F9FCEE83C2CCFB3E9BDDAE33BB92CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972011   (981936) от 06.01.2016
-
-Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Man (04:30)
-02. My Manifesto (03:38)
-03. By Your Side (03:07)
-04. Heartbreak Radio (05:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972461   (981983) от 06.01.2016
-
-Nostradamus - Testament (2008) [FLAC|Lossless|image + .cue]<Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarissimo
-02. Troy
-03. Shadow In The Rain
-04. Divine Comedy(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:04:20
-
-Благодарность
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED78566FED9420FCB66F59E8B8214A9E918E032
 ```
 
 

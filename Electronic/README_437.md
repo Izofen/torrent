@@ -1,3 +1,84 @@
+###  Публикация: 1380772   (831579) от 04.05.2020
+
+VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oöphoi - Potala Pt.1 (12:32)
+ 02. Hum - The Spectral Ship (12:13)
+ 03. Voice Of Eye - Virya (19:00)
+ 04. Michael Northam - Through (11:58)(   Читать дальше...   )Жанр: Dark Ambient, DroneПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828900BF2B2DC8E83B3C9F46B537E684985B07AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380751   (831668) от 04.05.2020
+
+Cathode Ray Tube - Invisible Soundtracks (2018) M-tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Omega Transect (07:58)
+ 02. O Broken World (08:10)
+ 03. Cyonara (09:05)
+ 04. The Sleep Market (09:15)(   Читать дальше...   )Жанр: IDM, Ambient, GlitchПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99FAFAF2B3DE34C7E213121C2BABC1E87EF0A80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421999   (831820) от 12.10.2021
+
+Korablove - Sociopath's Diary (2011) [MP3|320 kbps]<Tech House, Minimal, Ambient>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kostamus (6:25)
+ 02. Puppet Theatre (4:17)
+ 03. Nothing To Say (feat. Ryba) (5:21)
+ 04. Percussionata (8:53)(   Читать дальше...   )Жанр: Tech House, Minimal, AmbientПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECEDE25EA6DE5031B30ADC4057F25988255CDE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310533   (831876) от 21.03.2011
 
 Didier Marouani & Space - Back to The Future (2008) [FLAC|Lossless]<Electronic>
@@ -614,87 +695,6 @@ VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AECB4F29775F4D697D76835C29377207CF4EE6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380204   (834892) от 02.05.2020
-
-VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cam Lasky - Island [05:08]
-02. DJ Stompy - Carousel (Mountain Terrace Dub Mix) [04:52]
-03. Caustipher - The Eternal Storm (Extended Mix) [05:17]
-04. Asymmetric - Stamping [06:35](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29172996B332A279099114E6A70CA71E1D6B162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380212   (835056) от 02.05.2020
-
-VA - Deep Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakan Akkus - Just My Time (VOLB3X Remix) [03:42]
-02. Deep Emotion - United [03:43]
-03. Dani Corbalan - Forbidden Sax [04:43]
-04. Brazyleros - We Are Free (Derek Armstrong Remix) [05:23](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2C3A12AD9092E409FF3F09B3CA04391FF8009C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380206   (835059) от 02.05.2020
-
-VA - Inferno (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Von - Heaven [03:52]
-02. Dub Rich - I Never Met You [03:38]
-03. Steve Golen - Another World [07:44]
-04. Temple Cow - Stranger [07:17](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325940798E1426E66AE708407F8A7BD5B1DCA50C
 ```
 
 

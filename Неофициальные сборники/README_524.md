@@ -1,3 +1,30 @@
+###  Публикация: 1012024   (795503) от 29.04.2016
+
+VA - Classical in Jazz Vol.2: New Jazz Version of Classical Masterpieces (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnu Quartet - My Favorite Things
+02. Riccardo Arrighini - Polacca, Op. 53 "Eroica"
+03. Armando Corsi - Encantado
+04. Riccardo Arrighini - Nabucco: Va, pensiero(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A95631CD4320E68361CF95B266BD92EACD7E872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012152   (795565) от 29.04.2016
 
 VA - Alternative Spring by Evaluator Pt.1 (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
@@ -668,33 +695,6 @@ VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:363C6D26A866B2F8496B8936E21D3E26078D1E55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385963   (795879) от 27.05.2020
-
-Gary Glitter - 100% Gary Glitter (2020) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock And Roll Part II
-02. Rock & Roll Part 2
-03. Rock On
-04. I'm the Leader of the Gang (I Am)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 04:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923C1DE04CAC938B990195A9DDFCF54B13F90064
 ```
 
 

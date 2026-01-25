@@ -1,3 +1,57 @@
+###  Публикация: 1437910   (1041500) от 07.01.2021
+
+Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bed`n`Belfast (07:43)
+ 02. Epi Senn Zen (05:41)
+ 03. Eureka 83 (06:21)
+ 04. Vinny Veddeci (03:04)(   Читать дальше...   )Жанр: Instrumental Progressive RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7D3A21499A6E4C539CC09B3F0BFB87AE574166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438247   (1041504) от 07.01.2021
+
+Gepetto - Evolutive Songs (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Your Mind (09:07)
+ 02. Al Final Del Camino (07:28)
+ 03. My Darling (07:02)
+ 04. Red Sky (06:55)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BE72571E2BBFB46A4450F0682CC26A5CDCBFA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610893   (1041922) от 09.02.2023
 
 Shivalila - Meditations On The Kali Yuga (2023) [MP3|320 Kbps] <Psychedelic, Space Rock>
@@ -641,60 +695,6 @@ Davide Ronfetto - Enlightening Nights, Darkening Days (2023) [MP3|320 Kbps] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:284F60FF1D7E0C4F17A4BE5DA05B6A60797D7856
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607340   (1043963) от 27.01.2023
-
-Overhead - Telepathic Minds (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telepathic Minds [00:17:17]
-02. Tuesday That Never Came [00:04:03]
-03. Planet Of Disorder [00:07:18]
-04. Sheep Stay Silent [00:07:45](   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 2 CD, 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BE0445567322A4898BA5420332445BD7BFB4A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607440   (1043964) от 27.01.2023
-
-Eric Clapton - Behind The Sun (1985) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|450 Kbps] <Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Shes Waiting 04:55
-02.See What Love Can Do 03:59
-03.Same Old Blues 08:15
-04.Knock On Wood 03:19(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE5350D0883E39197D7C257148BEB01D53713F5
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1439555   (1039528) от 14.01.2021
+
+VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DIMA - Я Рядом (03:24)
+ 002. Aize - Falling For You (02:43)
+ 003. Alex Ferrari - Dueto Do Tik Tok (Mi Pan Su Su Sum) (Funk Remix 2021) (02:32)
+ 004. ARCHI - Там Где Хулиганы (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B732780AA73E8E7D20DA9656F1434F15B3B9E320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439745   (1039555) от 14.01.2021
 
 VA - Glam Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -668,33 +695,6 @@ VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB37B7A53AAEC7B2AC0BEBC006A9C3B69D32BE76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612058   (1040526) от 14.02.2023
-
-VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Azi - Just Wanna (02:48)
- 002. Albina - Scusa (03:00)
- 003. Alyona Poli - Убийца (02:10)
- 004. Aquaneon - Девчонка Со Двора (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC61344E058B34DCD3F964E039D1984B3BD85112
 ```
 
 

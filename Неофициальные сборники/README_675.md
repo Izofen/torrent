@@ -1,3 +1,30 @@
+###  Публикация: 1450426   (1029054) от 26.02.2021
+
+VA - Beatport Progressive Trance: Electro Sound Pack #246 (2021) [MP3|264-320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка 246-го релиза с площадки Beatport это источник неисчерпаемой энергии поступательного движения, это символ жизни выраженный в прогрессирующем темпе. Мелодии и ритмы погрузят вас в полное безумство электронной музыки, а также подарят массу положительных эмоций. Вас ждет великолепная музыка от знатоков электронной музыки.001. Tony Lemato - Suffering Fools
+002. Farius - Forever (Extended Mix)
+003. Arggicx Kmile - Don't Leave Me
+004. Gelvetta - Cold Horizont(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6392FEEF976014BFA9CA8518CB07B31A6007B814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450421   (1029057) от 26.02.2021
 
 VA - Mystical Waves: Future House Music (2021) [MP3|320 Kbps] <Future House>
@@ -668,33 +695,6 @@ VA - Carbon Synthwave Sound (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C35A5159193BD2166C5BF65365D3DF374D71CCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622690   (1029796) от 30.03.2023
-
-VA - Easy Evening Mellow Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars, Anderson Paak, Silk Sonic, Thundercat, Bootsy Collins - After Last Night
-02. Duran Duran - Ordinary World
-03. David Guetta, A Boogie wit da Hoodie, Bebe Rexha, Ty Dolla $ign - Family
-04. Simply Red - If You Don''t Know Me by Now(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7AB9ADAC2B94CE01F4A1845BE935E73106F6E2
 ```
 
 

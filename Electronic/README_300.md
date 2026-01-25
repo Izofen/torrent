@@ -1,3 +1,84 @@
+###  Публикация: 1550907   (591223) от 13.05.2022
+
+Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of The Night (4:10)
+02. Let's Get Ridiculous (4:23)
+03. R U Ready 4 The Boom (4:38)
+04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550802   (591224) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born in '82 - Resisted (4:03)
+02. Ildar Bik - Racer (5:22)
+03. A-Reis - Meteor (3:45)
+04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550790   (591228) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unfancy D - Teslagirl (5:12)
+02. Fraver & Born in '82 - Void In Space (4:40)
+03. Enium - Nostalgia (Let's Do The Night) (7:06)
+04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550798   (591230) от 13.05.2022
 
 VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -611,87 +692,6 @@ VA - Meditation Music for Inner Peace Vol.2 (Beautiful Ambient and Chillout Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74D280167B470BF312E1D1CD82EFE8E0F256506C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233508   (593011) от 30.06.2018
-
-Ди-джей КЕФИР & Евгений Арсентьев - Мы сделаем Вас счастливыми (1999) [FLAC|Lossless|image + .cue]<House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Возьми меня ( Ди-Джей Кефир* & Евгений Арсентьев )
-02. Soul 99 ( Ди-Джей Кефир )
-03. Когда моя любовь звонит 99 ( Ди-Джей Кефир )
-04. Soul 99 ( Евгений Арсентьев )(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C15E3AF87F1076E679DF29322104B36D1FA0C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233507   (593012) от 30.06.2018
-
-VA - Автобан 1 (1997) [FLAC|Lossless|image + .cue] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascura - Nobody Sed't Me ( Remix )
-02. Руки Вверх - История Любви ( Remix )
-03. Trancedriver - Синий Иний ( Remix )
-04. Action Directe - Funky Life(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7957D771946397EADB85AEA44F58CBE555501D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233497   (593019) от 30.06.2018
-
-VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stan Kolev - Oblivion (Extended Mix) 07:21
-02. Max Freegrant - Drama King 06:49
-03. Orphyd - Replicant (Original Mix) 05:43
-04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
 ```
 
 

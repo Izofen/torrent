@@ -1,3 +1,57 @@
+###  Публикация: 1244496   (482022) от 01.09.2018
+
+Mike + The Mechanics - Silent Running: The Masters Collection (2018) 2CD [FLAC|Lossless|image + .cue] <Pop-Rock, Soft-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. Over My Shoulder (2014 Remastered)
+02. All I Need Is a Miracle (2014 Remastered)
+03. Nobody Knows (2014 Remastered)(   Читать дальше...   )Жанр: Pop-Rock, Soft-Rock |Продолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E2390D4B545A1293CEDD739CD6B91846AC87EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244425   (482034) от 01.09.2018
+
+U.D.O. - Stееlfасtоrу (2018) Limited Editiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tongue Reaper
+02. Make The Move
+03. Keeper Of My Soul
+04. In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70E866860E6A9DF6FC3D87C3864008D84BF7A7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244270   (482037) от 01.09.2018
 
 U.D.O. - Steelfactory (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -671,60 +725,6 @@ Luna's Call - 2 Albums (2016-2020) [MP3|320 Kbps] <Progressive Metal, Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36FAB371B8A823CD7CAFC4ABF7CFD49139F0FD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405281   (483679) от 30.08.2020
-
-Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katana - the Moths and the Dragonflies/Katana - Mud (14:39)
-02. To Nanjing (1:57)
-03. The Farmer's Tale, Pt. 3 - Eaten by the Beasts (4:23)
-04. Slaughter in the Desert Room (6:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5031B9ABD6C481E7C062AFBE4174D5632F8FA039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405375   (483681) от 30.08.2020
-
-Laaz Rockit (Lääz Rockit) - No Stranger To Danger (1985) Reissue, Remastered, 2009, Massacre [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Below (5:53)
-02. I Lose Hope (4:44)
-03. Observe The Train (5:08 )
-04. By My Throne (5:45)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5869B62B70DA2A034061EDB7D6BE2B1F93286251
 ```
 
 

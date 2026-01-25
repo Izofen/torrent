@@ -1,3 +1,84 @@
+###  Публикация: 1569181   (453669) от 12.08.2022
+
+A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft Rock, Ballad>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minor Earth Major Sky	5:24
+02. Little Black Heart	4:36
+03. Velvet	4:19
+04. Summer Moved On	4:37(   Читать дальше...   )Жанр: Synth-pop, Pop Rock, Soft Rock, BalladПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2D062B85CFE20BC15375CD78A5E0B832103169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569360   (453816) от 12.08.2022
+
+VA - Intricate Summer Essentials 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Club House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cloudive, Brian Vaughn -  Tell Me What Is Love  (5:27)
+02.  Æ7 -  Power Light (IN5UM Remix)  (6:24)
+03.  Pash & Tanon -  Memories  (7:19)
+04.  Bitzfork -  Your Love  (6:09)(   Читать дальше...   )Жанр: EDM, Progressive House, Club House, Indie DanceПродолжительность: 01:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536A64A601ABE59D79C4E6EB35CF3EBE4CD494BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569312   (453826) от 12.08.2022
+
+39 Kingdom - Live @ Kaliningrad Stadium, Russia (2022-08-03) [MP3|320 Kbps] <Progressive House, Tech House, Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Food - Flying Steps
+02. Monastetiq ft. Starving Yet Full - Call On You
+03. Off Night ft. Elly Ball - Young (Nørequest Remix)
+04. Space Food - Dark Force w/Tinlicker X Robert Miles - Children(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C8337C06DD4F10E3821702CF2106526BD836C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569235   (453828) от 12.08.2022
 
 VA - Uplifting Trance Selection 001 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -612,87 +693,6 @@ VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594959D95FA45CEAD44D46560020A4F719C9D399
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569020   (455806) от 11.08.2022
-
-VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SounEmot, InStars & Elissandro - Tenías Que Ser Tú (Intro Mix)
-02. AXIS-Y - I Remember You (Original Mix)
-03. Chris Rane - You Never Left My Heart (Original Mix)
-04. D-J. Santos - Vida (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81510A0EEAD3C751DC913051ACC1677B11CA92BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408408   (455902) от 12.09.2020
-
-Lemongrass - Soulful (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whereever You Go
-02. Killing Me Softly
-03. Femme Fatale
-04. July Sky (feat. Jane Maximova)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22C36BDF162B1950E9F5A3CB8D8D5617DE7D4B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942227   (455959) от 30.09.2015
-
-Bitcrush - Shipwrecked (2015) [FLAC|Lossless|WEB-DL]<Ambient, IDM, Post Rock>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glacial (03:34)
- 02. Antivent (03:46)
- 03. As End Begins (04:37)
- 04. A Place Of Exits (04:24)(   Читать дальше...   )Жанр: Ambient, IDM, Post RockПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E1AAD0D042F3414C5BADAF16A82414E0FD73C0
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1441879   (1037109) от 23.01.2021
+
+Группа товарищей - Бараны (2021) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037109.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бараны
+2. Свобода
+3. Враги
+4. Люди(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E1CBE337C83E929EE50A70614E8B49AD386CEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441946   (1037114) от 23.01.2021
+
+The Pat McManus Band - Full Service Resumed (2020) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doomsday Clock (4:11)
+02. Long Haul Trucker (3:52)
+03. Bury Me (3:59)
+04. Waiting For A Friend (4:22)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5FB949BA766B81E032198EFBB08694855FAB89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441911   (1037124) от 23.01.2021
 
 Salvo - Back to My Blues (2021) Vol. 1-2 [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues Rock>
@@ -640,60 +694,6 @@ The Inner Road - The Last Temple (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5308118696BB2D9AA8001F7D4539B82241E78C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615601   (1037303) от 27.02.2023
-
-Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Il Giardino Degli Incensi [00:06:32]
-02 - Il Nemico Allo Specchio [00:04:18]
-03 - Dove [00:01:17]
-04 - Domanda Alla Vita [00:04:39](   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14AB7617C38DEF6E255377491DB83AC3C6C04FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615644   (1037304) от 27.02.2023
-
-Tierra Santa - Gillman Fest 2018 (2018) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Quinto Elemento
-02 Caín
-03 Nerón
-04 Juana De Arco(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0387CCB576147EA3E398F787C3A784CB77AB925
 ```
 
 

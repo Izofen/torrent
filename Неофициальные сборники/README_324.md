@@ -1,3 +1,30 @@
+###  Публикация: 1048257   (547044) от 01.09.2016
+
+VA - Новая Жажда Скорости. Полный Драйв! (2016) [MP3|320 Kbps] <Club, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiosonik X Jerome - Thong Song
+02. Flo Rida - Right Round (Crystal Sea Remix)
+03. Nick Skitz & Raverockerz Feat. Brooklyn Bounce - Rock The Party (Original Mix)
+04. Real Club Mafia - Hi Russia! (From Sweden)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 05:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA6AAA9AACE8CFB72F2135128BE73435D1D5FAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238414   (547110) от 29.07.2018
 
 VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
@@ -674,33 +701,6 @@ Part 1 (Discoteka 2019!):
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80A87EF1602A28A24829F51C2D9DB5A480EFFCB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046711   (549247) от 30.08.2016
-
-VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Настасия - Если Мы С Тобой
-002. North Base Feat. Mica - Give You Up
-003. Prospektr - Окна
-004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
 ```
 
 

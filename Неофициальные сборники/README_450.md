@@ -1,3 +1,30 @@
+###  Публикация: 1130672   (714225) от 02.05.2017
+
+VA - Romantic Erotic Piano: Sensual Erotic Jazz (2017) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Music Lovers Club - Romantic Erotic Piano
+02. Lovely Heart Zone - Intimate Evening
+03. Romantic Piano Background Music Academy - All Night
+04. Sexy Lovers Music Collection - Pure Romance(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998504CD82446C00941E16B924B722D3B31C8B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024780   (714317) от 10.06.2016
 
 VA - Nu Collection: Cool Tunes, Electronic and Chill Tracks (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -666,33 +693,6 @@ VA - Душевный сборник радио Шансон (5) (2018) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4849426DA972892763D5537A53BCF5EE8058FCE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219190   (715727) от 13.04.2018
-
-VA - Душевный шансон в хорошей компании (3) (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715727.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Таушканов & Мария Азарская - Тучи
-002. Юлия Андреева - Красная Рябина
-003. Федор Чистяков Feat. Татьяна Буланова - Самый Красивый Цветок
-004. Александр Закшевский - Жизни Река(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6580707602DDE8A228F3A95422B35BE64B3098A
 ```
 
 

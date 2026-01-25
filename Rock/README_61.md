@@ -1,3 +1,57 @@
+###  Публикация: 913270   (605359) от 29.06.2015
+
+Stone The Crows - Teenage Licks (1971) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Big Jim Salter
+2. Faces
+3. Mr Wizard
+4. Don't Think Twice(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8954EEA67852CC3B0004415642EB4FC054E2F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297141   (606451) от 20.04.2019
+
+The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Remastered) 3:33
+02. Doom And Gloom 3:59
+03. Brown Sugar 3:50
+04. Beast Of Burden 4:25(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011FBB0DB218A37252125F11016057942F7EBA77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913191   (607232) от 28.06.2015
 
 Apogee - The Art Of Mind (2015) [MP3|320 кб/с]<Progressive Rock>
@@ -647,60 +701,6 @@ Swing Cats - A Special Tribute To Elvis (2001) [MP3|256 Kbps] <Rock, Blues, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50159CAA177082E49F7F067CDA616E58E6E4D670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230673   (613958) от 13.06.2018
-
-VA - 60s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Monkees – I’m a Believer
-02. Otis Redding – Satisfaction
-03. The Animals – Don’t Let Me Be Misunderstood
-04. Buffalo Springfield – For What It’s Worth(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419B0D13E37A5A5B6AEEA99EEE1E9740DEACE623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146390   (614322) от 29.06.2017
-
-Imagine Dragons - Evolve (2017) Japanese Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Know Why
-02. Whatever It Takes
-03. Believer
-04. Walking The Wire(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2851476498199DEC292E4C3067F640F4815320
 ```
 
 

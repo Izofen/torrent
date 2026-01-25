@@ -1,3 +1,57 @@
+###  Публикация: 1441034   (1038066) от 20.01.2021
+
+Kungens Man - Trappmusik (2020) 2xCD [MP3|320 Kbps] <Krautrock, Psychedelic Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038066.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Fange i universum (10:46)
+ 02. Senvagen (08:53)
+ 03. Tricksen for transen (08:14)(   Читать дальше...   )Жанр: Krautrock, Psychedelic Rock, Space RockПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8861A62951BA9849BEB061C999EA64D8A4087847
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440689   (1038517) от 18.01.2021
+
+Fee Waybill - Fee Waybill Rides Again (2020) [MP3|320 Kbps] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faker (03:29)
+ 02. How dare you (03:22)
+ 03. Don't want to pull the trigger (03:47)
+ 04. Say goodbye (03:28)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA71699BB5D95ADECF7E72FCCD11FB6FCCBB1097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614282   (1038595) от 22.02.2023
 
 Rick Miller - Altered States (2023) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
@@ -644,60 +698,6 @@ Neon Heart - Temporaria (2020) [MP3|320 Kbps] <Psychedelic Rock, Space Rock, Kra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566646DE6C70E6431AC97114A0B73952D1E4AFF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437910   (1041500) от 07.01.2021
-
-Bubka - Epi Zenn (2020) [MP3|320 Kbps] <Instrumental Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bed`n`Belfast (07:43)
- 02. Epi Senn Zen (05:41)
- 03. Eureka 83 (06:21)
- 04. Vinny Veddeci (03:04)(   Читать дальше...   )Жанр: Instrumental Progressive RockПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7D3A21499A6E4C539CC09B3F0BFB87AE574166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438247   (1041504) от 07.01.2021
-
-Gepetto - Evolutive Songs (2020) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Your Mind (09:07)
- 02. Al Final Del Camino (07:28)
- 03. My Darling (07:02)
- 04. Red Sky (06:55)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BE72571E2BBFB46A4450F0682CC26A5CDCBFA3
 ```
 
 

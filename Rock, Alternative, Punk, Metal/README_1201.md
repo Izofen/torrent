@@ -1,3 +1,57 @@
+###  Публикация: 1487652   (1003384) от 06.08.2021
+
+Sorceress Of Sin - Constantine (2021) [MP3|320 Kbps] <Melodic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Necropolis (07:50)
+ 02 - Massacre of Meridian (05:12)
+ 03 - Realms of Elysium (05:57)
+ 04 - Pathogenic Parasite (05:31)(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4CA2F986303F2FFA090DC2976624E74FA80B2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350250   (1003438) от 05.01.2020
+
+Монгол Шуудан - Гуляй Поле Реанимация (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003438.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Гуляй Поле
+3. На Белом Коне
+4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3627F2B890C35C4FCF3B12D484BD8D429836C03E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350278   (1003442) от 05.01.2020
 
 Монгол Шуудан - Гуляй Поле Реанимация (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -639,60 +693,6 @@ Type O Negative - Bloody Kisses (1993) Japanese Edition, Reissue, 1996, Roadrunn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1753FF41E98FBCFEFAC16A0ADA3916FF46E1D20E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349684   (1004300) от 02.01.2020
-
-Type O Negative - October Rust (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Ground (0:38)
-02. Intro (0:21)
-03. Love You To Death (7:09)
-04. Be My Druidess (5:26)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634B7881B110E94A1FFD96F2CC5A3C2D2BDCF1D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349676   (1004301) от 02.01.2020
-
-Type O Negative - Bloody Kisses (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Screw (0:41)
-02. Christian Woman (8:58)
-03. Black No. 1 (11:15)
-04. Fay Wray Come Out and Play (1:04)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:13:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E5D1FA3C8E07FED943D4FC7CC3E060F2CE251F
 ```
 
 

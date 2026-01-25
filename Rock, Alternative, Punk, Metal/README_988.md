@@ -1,3 +1,57 @@
+###  Публикация: 1524285   (745267) от 15.01.2022
+
+Eliminator - Ancient Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival
+02. Silent Stone
+03. Ancient Light
+04. Goddess Of Life(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B8D1E8D8688456033E8330E42C527AD4D105D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020118   (745300) от 26.05.2016
+
+Human Zoo - My Own God (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Direction (3:50)
+02. Cry Baby Cry (3:24)
+03. Love Train (2:55)
+04. A Day to Remember (4:38)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E39DC8811CC6670155FB8B0C02911C00AE9D20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282413   (745317) от 12.02.2019
 
 Tina Turner - What's Love Got To Do With It (1993) [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -637,60 +691,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A419EA7E81FCB61324D3FFFC51EE67D172B9710E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524038   (746513) от 14.01.2022
-
-Коррозия Металла - Каннибал + Дебош в Орлёнке (2021) 2xCD, Reissue, Remastered, Meat Stocks Records [FLAC|Lossless|image + .cue] <Thrash Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746513.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Каннибал:
-01. Каннибал (2021)
-02. Моторокер
-03. I'm President(   Читать дальше...   )Жанр: Thrash Metal, RockПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D575761A407A07B3ACF57EFA56E5D7B4154996C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524081   (746522) от 14.01.2022
-
-Коррозия Металла - Орден Сатаны, Жизнь В Октябре (1987-1988) 2xCD, Reissue, Remastered, 2021, Meat Stocks Records [FLAC|Lossless|image + .cue] <Thrash Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746522.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - "Орден Сатаны" (Demo • 1988):
-01. СПИД
-02. Моторокер
-03. В шторме викинг и меч(   Читать дальше...   )Жанр: Thrash Metal, RockПродолжительность: 01:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278A641B0B20A2ABB0E563306362B0E439C3840F
 ```
 
 

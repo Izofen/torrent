@@ -1,3 +1,56 @@
+###  Публикация: 1380729   (831664) от 04.05.2020
+
+Peter Straker - This One's On Me (2020) Deluxe Expanded Edition, 3CD Box-Set [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock, Cabaret>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 | This On's On Me
+1978 | Changeling
+1980 | Real Natural ManЖанр: Pop Rock, Soft Rock, CabaretПродолжительность: 02:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654E41969C7C9F3B6B96C6F80BBC3F71EA0752A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380691   (831665) от 04.05.2020
+
+VA - Women of Doom (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nighthawk and Heavy Temple - Astral Hand (5:12)
+02. Amy Tung Barrysmith - Broken (6:04)
+03. Besvarjelsen - A Curse to be Broken (6:47)
+04. Mlny Parsonz - A Skeleton is Born (4:58)(   Читать дальше...   )Производство: Desert RecordsЖанр: Doom Metal, Stoner RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474C77BA5404D5DBA5AB3F866A49F18570CFAD03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380682   (831667) от 04.05.2020
 
 Beast of Revelation - The Ancient Ritual of Death (2020) [FLAC|Lossless|Web-DL|tracks] <Death Metal, Doom Metal>
@@ -645,58 +698,6 @@ Lord Of The Lost - 5 Альбомов (2010-2015) Дискография [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D7839BAD64FC9F448AA87277188263808BE6388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380469   (832936) от 03.05.2020
-
-Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Purple - Man Alive
-02. Deep Purple - Throw My BonesЖанр: RockПродолжительность: 00:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114487   (833030) от 14.03.2017
-
-Александр Пушной - Как правило – без правил! (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хакну
-02. Серо-жёлтая весна
-03. Дай мне вырастить тех…
-04. Бегемотьи ушки(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4F1D7D1A5B3E067A39F9BED1AC24B84F2EBF61
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1606989   (1044244) от 24.01.2023
+
+VA - Simply Dance Vol. 04 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BLACK / WHITE & Brontл - Slave To The Sound (Extended Mix)
+02. Pete Flame & FlyMyk & Patrick Roulette feat. Iris Monй - Bigger Picture (VIP Extended Mix)
+03. Alex Di Lecce Feat. Carot - I Think Of You (Original Mix)
+04. Vasco C & Nason - Fantasia (Original Mix)(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:40:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809BE1DDC949405C5DCB0CB414EA8429AF303BB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606996   (1044246) от 24.01.2023
 
 VA - Simply Dance Vol. 05 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
@@ -668,33 +695,6 @@ VA - Trance Anthems 2023 [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D42D2E76C5CD61CF770D9E1D1FDC65955EEC0A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604110   (1045476) от 12.01.2023
-
-VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alessandra - Queen Of Kings (02:28)
- 002. Alexandra Ungureanu feat. Paul Ananie - Cea Mai Frumoasa Iarna (02:31)
- 003. Allnity - По Барабану (02:31)
- 004. Almost Weekend feat. Michael Shynes - Nice Face (Konn Remix) (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181B1876238906E1625F83B975EDEBF3D61B4747
 ```
 
 

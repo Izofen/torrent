@@ -1,3 +1,57 @@
+###  Публикация: 1549041   (594732) от 05.05.2022
+
+Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. So Called Life
+2. I Am The Weapon
+3. Neurotic (feat. Lukas Rossi)
+4. Lifetime(   Читать дальше...   )Жанр: Post-Grunge, Alternative RockПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45147C665E9B95054436837ED467569F12E9B8F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548837   (594745) от 05.05.2022
+
+Conception - State of Deception (2020) Deluxe Edition, 2022, Conception Sound Factory [FLAC 2.0|44.1, 48/16, 24/|WEB-DL|tracks] <Progressive, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. in: Deception (1:46)
+02. Of Raven and Pigs (4:46)
+03. Waywardly Broken (4:38)
+04. No Rewind (3:12)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 02:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED28187A6A6491B5258DDB5EA162C6B8EF71E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039663   (594797) от 02.08.2016
 
 Embraced - Within (2001) Japan [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -638,59 +692,6 @@ Silverstein - Dead Reflection (2017) [MP3|320 Kbps] <Post-Hardcore, Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B5B69DF77974B9C9FCEF5D40E3D8C494649193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525759   (595447) от 25.07.2012
-
-George Harrison - Best Of Dark Horse 1976-1989 (1989) Japan 22P2-3071 [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1974 году, находясь в Лос-Анджелесе и готовясь к своему концертному туру, Джорж Харрисон открыл офис своей новой компании звукозаписи Dark Horse Records в здании, принадлежавшем лейблу A&M Records, на La Brea Avenue.
-На представляемом диске собраны лучшие песни, записанные на Dark Horse Records в разные годы.
-В сборнике включены композиции с дисков Харрисона: (   Читать дальше...   )1. Poor Little Girl (4:34)
-2. Blow Away (3:59)
-3. That's The Way It Goes (3:34)
-4. Cockamamie Business (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525800   (595462) от 25.07.2012
-
-George Harrison - The Best Of George Harrison (1976) /EMI C2 46682/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 

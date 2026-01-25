@@ -1,3 +1,30 @@
+###  Публикация: 1211032   (778086) от 05.03.2018
+
+VA - Trance Collection Vol.68 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila with Sue McLaren  -  Surrender (Extended Mix)  7:29
+02.  Driftmoon feat. Julie Thompson  -  Only You (Extended Mix)  8:09
+03.  Ula  -  Re Zero (Jimmy Chou pres Prototype Remix)  6:07
+04.  Standerwick feat. HALIENE  -  Deep End (Club Mix)  4:52(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, ProgressiveПродолжительность: 10:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2446057CE97512EBB263FB95A0848C354F07267
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211123   (778154) от 05.03.2018
 
 VA - Nostalgie Chansons Francaises (2018) [MP3|320 Kbps] <Chanson>
@@ -668,33 +695,6 @@ VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210519   (778575) от 03.03.2018
-
-VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Анастасия Спиридонова  -  Прыжок в облака  3:17
-02.  Роман Рябцев  -  Вернуться домой (Radio Version)  4:56
-03.  Дана Соколова и L'One  -  Голос  3:36
-04.  Moby  -  This Wild Darkness  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
 ```
 
 

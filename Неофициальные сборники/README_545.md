@@ -1,3 +1,30 @@
+###  Публикация: 1196736   (820417) от 04.01.2018
+
+VA - Новогодняя Дискотека Руки Вверх! (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! & Astero - Когда мы были молодыми
+02. МС Вспышкин и Никифоровна - Новогодняя (Scorpio Rework)
+03. Вирус! - С Новым Годом!
+04. Serebro - Новый год!(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425919229AC9347ED2C9E44C91B27D4184CC3B00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382198   (820601) от 10.05.2020
 
 VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
@@ -671,33 +698,6 @@ VA - Dance Alliance: Original Playmix (2016) [MP3|320 кб/с] <Dance, Pop, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4130EA2F67BE9702019A5F29D8D25C5BDB5BE4CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007419   (821691) от 15.04.2016
-
-VA - Chill House Diamonds Vol.3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immer Groove - Immer Space - Grand Dee Mix
-02. House Republic - Intillah - Hr Deep Mix
-03. Le Griffe - Touring Fat - Pfister Mix
-04. Kosta - Kosta - Phenomenon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECD67E97B3529880F0E3920CE367A65921FFBFD
 ```
 
 

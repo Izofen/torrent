@@ -1,3 +1,90 @@
+###  Публикация: 904065   (655169) от 02.06.2015
+
+Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks, Electro, House, Big Beat>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655169.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Talking 'Bout My Baby (03:44)
+002. Star 69 (05:44)
+003. Sunset (Bird Of Prey) (06:50)
+004. Love Life (07:00)(   Читать дальше...   )Производство: SkintЖанр: Electronic, Breakbeat, Breaks, Electro, House, Big BeatПродолжительность: 02:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2092EBD8A240E62327E7E8460DB6F7B7FC1FB406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904181   (655234) от 02.06.2015
+
+VA - 538 Dance Smash Vol. 2 (2015) [FLAC|Lossless]<House, Euro House, Electro, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & KSHMR feat. Vassy-Secrets (03:38)
+02. Major Lazer & DJ Snake feat. MO-Lean On (02:55)
+03. Kygo feat. Parson James-Stole The Show (03:31)
+04. Axwell /\ Ingrosso-On My Way (04:21)(   Читать дальше...   )Жанр: House, Euro House, Electro, DanceПродолжительность: 01:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA359721784F8F4BDDD36287176FDC402C6079ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515821   (655268) от 26.06.2012
+
+Marina And The Diamonds - Electra Heart (2012) Deluxe Edition [FLAC|Lossless]<Pop, House, Synth-Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_655268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марина Ламбрини Диамандис (англ. Marina Lambrini Diamandis; 10 октября 1985 года), больше известная под псевдонимом Марина и бриллианты (Marina and the Diamonds) - Уэльская певица и композитор греческого происхождения. Марина обладает мощным голосом и невероятной энергетикой, которую она демонстрирует на своих живых выступлениях. Танцевальный сингл из этого альбома "Primadonna" буквально ворвался во все хит-парады мира и не собирается сдавать свои позиции еще очень долго.01. Bubblegum Bitch :: 02:32
+02. Primadonna :: 03:40
+03. Lies :: 03:46
+04. Homewrecker :: 03:22
+05. Starring Role :: 03:26
+06. The State of Dreaming :: 03:36
+07. Power & Control :: 03:47
+08. Living Dead :: 04:02
+09. Teen Idle :: 04:14
+10. Valley of the Dolls :: 04:13(   Читать дальше...   )Жанр: Pop, House, Synth-PopФормат: CD, Album, Deluxe EditionПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904233   (655386) от 02.06.2015
 
 VA - Future Sound Of Egypt Vol. 3 (Mixed By Aly & Fila) (2015) [FLAC|Lossless]<Trance>
@@ -621,87 +708,6 @@ VA - Palm Garden Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98F41DB2A23B6869BC0B9E076408BAE4CE02E309
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140250   (656996) от 05.06.2017
-
-VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dani Sbert - Autodestroyers (Original Mix) 06:50
-02. Dani Sbert - Big Bang 07:44
-03. Dani Sbert - Filter 07:37
-04. Dani Sbert - Obsession 08:15(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED51907371FE178A5A8C02F8A6A8016F76137F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140130   (657001) от 05.06.2017
-
-VA - Leisure Zone Vol.1 (The Beauty of Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kevin Place - Dottoressa Payot 4:21
-02.  351 Lake Shore Drive - You Don't Know 4:45
-03.  Inventors Of The Sun - Agua Of Life 5:42
-04.  Smooth Deluxe - Solaris Aqualux 5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93369F38C932DE8B00B996E87B675C8DE35FA1BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140264   (657002) от 05.06.2017
-
-VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick.Sal - Dark Road (original mix) (06:31)
-02. Ben Polzin - Desire For Freedom (original mix) (08:11)
-03. Patrick Tijssen, Maickel Telussa - Gods House (Ultraverse Remis) (06:45)
-04. Nightbob, Wesper - Groove 59 (Nightbob dub) (12:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
 ```
 
 

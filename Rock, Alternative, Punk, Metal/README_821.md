@@ -1,3 +1,57 @@
+###  Публикация: 1555823   (565358) от 06.06.2022
+
+Elephant Riders - Impure (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impure
+02. Happy in This Shithole
+03. Quicksands
+04. Tough Lesson(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A3D3E72C98192298B50B254AC1CE7B23C85DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555781   (565364) от 06.06.2022
+
+Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.This Glorious Nightmare 04:20
+02.Giles 03:56
+03.March of the Mutes 03:58
+04.Sanctity of Brothers 03:26(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304380   (565416) от 25.05.2019
 
 Fleshgod Apocalypse - Veleno (2019) 2CD Deluxe Edition [MP3|320 Kbps] <Symphonic Death Metal>
@@ -641,60 +695,6 @@ Darklands - Darklands (1998) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0FB9A93CCE9C64F75C1051BE955A1BA9E917F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923129   (566243) от 30.07.2015
-
-Alice Cooper - Billion Dollar Babies (1973) Hybrid SACD, Limited Edition /2014, Audio Fidelity/ [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Hooray [4:14]
-02. Raped And Freezin' [3:15]
-03. Elected [4:05]
-04. Billion Dollar Babies [3:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC9C0FB451045C71A2F0F153AD4C98CA0B36801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922797   (566596) от 30.07.2015
-
-Phoenix - Journey From Night to Day (1979) [MP3|320 кб/с]<Krautrock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566596.jpg" />
-</div>
-
-
-###  Подробнее
-
-У меня сложилось впечатление, что в мире существ(ует)овало столько групп с таким названием, сколько стран на планете. Эта из Германии, просуществовала с 1977-го по 1983-й, на свои средства ("самопрессом") выпустила единственную пластинку. На ней им удалось совместить, редко совместимые, краут и мелодичный поп-рок.1. Losing Man
-2. Journey From Night to Day
-3. Phoenix
-4. To Be Free(   Читать дальше...   )Жанр: Krautrock, Prog RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F93C5D2415B2336C47E46C83B86ACF88A4BA943
 ```
 
 

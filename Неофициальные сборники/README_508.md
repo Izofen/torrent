@@ -1,3 +1,30 @@
+###  Публикация: 1204615   (784225) от 07.02.2018
+
+VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русский Рок, Авторская Песня>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784225.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Пилот - Нет иного рая (05:23)
+002. Lumen - Домой (05:37)
+003. СерьГа - Сказочный лес (03:20)
+004. Сплин - Тепло родного дома (03:51)(   Читать дальше...   )Жанр: Русский Рок, Авторская ПесняПродолжительность: 06:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BC340A1C07472F7F314E28FF6DA50CA875C6F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204628   (784228) от 07.02.2018
 
 Alan Walker - Faded (2017) Remix, Cover Sara Farel [MP3|192 Kbps] <Deep House>
@@ -662,33 +689,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204540   (784668) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baccara feat. Maria Mendiola & Cristina Sevilla - I Belong To Your Heart ( Ext. Version 2017 )
-02. Chip Chip - So Close To Heaven ( 1987 )
-03. Max Coveri - Guy Guy ( Full Power Version 2003 )
-04. Peter Wilson (3) - Love Into Action ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
 ```
 
 

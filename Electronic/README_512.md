@@ -1,3 +1,84 @@
+###  Публикация: 1202479   (1025738) от 18.03.2021
+
+Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Woods (03:41)
+ 02. Putrefactio (04:49)
+ 03. Heart Of The Wilderness (08:15)
+ 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454890   (1025784) от 18.03.2021
+
+Jay-Jay Johanson - Rorschach Test (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Trip Hop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romeo (05:32)
+02. Why Wait Until Tomorrow (04:24)
+03. Vertigo (04:29)
+04. Amen (03:24)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D552760018F4613556EA188C89673C0C4B95BB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455182   (1025801) от 18.03.2021
+
+VA - Chillout Retreat: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Bliss of Water - Original Mix (6:00)
+02. Matt Sour - Unknown Future - Original Mix (3:50)
+03. Beamy - Reflections (4:06)
+04. Gary B - Afterglow - Original Mix (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B6B620AA50ECEA64186BA336C634BC03DE2CC65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455236   (1025821) от 18.03.2021
 
 Tin Man - Tin Man Remixes (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
@@ -614,87 +695,6 @@ Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454136   (1026419) от 14.03.2021
-
-VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Tishkov - Feel So Good (Microsha 89 Remix) (3:18)
-02. Born In '82 - Night Never Ends (New Night Version) (4:38)
-03. Aurolab - You Are No More (7:38)
-04. #Mali - Brisbane (4:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9798A26CCC139011EB8A3E822B1C0EF31AD25F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454139   (1026425) от 14.03.2021
-
-VA - Synthwave Dreams, Vol. 12 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born In '82 - Night Never Ends (TELEGIMNASTIKA Remix) (6:09)
-02. Kukuzenko - Sweet As Candy (5:26)
-03. Microsha 89 - Play! (4:25)
-04. Aurolab - You Are No More (The Frost Remix) (4:47)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2CB2A611F3805A1F2692462F5D885A5D9A9C39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454101   (1026435) от 14.03.2021
-
-VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anastasia - Join Me (Vectrex Remix) [06:28]
-02 - Westbam feat. TL Pipmps - Do The Rambo [06:59]
-03 - Lexy & K-Paul - The Greatest DJ (Extended Mix) [05:43]
-04 - Paffendorf - Where Are You ? (Radio Edit) [03:28](   Читать дальше...   )Жанр: Techno, Euro HouseПродолжительность: 01:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D97766DE76ACFEBFE026FEA8BD18A99343F3DAA
 ```
 
 

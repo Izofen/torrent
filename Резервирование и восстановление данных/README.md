@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1819499   (1501) от 22.09.2025
 
 AOMEI Backupper Technician Plus 8.0.0 (DC 19.09.2025) RePack by KpoJIuK [Multi/Ru]

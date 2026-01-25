@@ -1,3 +1,57 @@
+###  Публикация: 1569474   (451662) от 13.08.2022
+
+Sunstorm - Afterlife (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterlife (4:00)
+02. One Step Closer (3:54)
+03. Swan Song (5:14)
+04. Born Again (4:20)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B76144B0942FBB8879D7C1D6DCBE7C413FB7CD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408898   (451710) от 14.09.2020
+
+Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood from Above (3:21)
+02. Make Love Great Again (5:53)
+03. Let Him In (3:52)
+04. Do Unto Others (4:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFBD6266C458558215EA4466E354422DFA3EC37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942752   (451748) от 02.10.2015
 
 Sinead O'Connor - Sean-Nos Nua (2002) [APE|image+.cue]<Folk Rock>
@@ -632,60 +686,6 @@ Tarja (Tarja Turunen) - My Winter Storm (2007) [FLAC|Lossless|image + .cue] <Sym
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07CBF09C399DEE2BAA255ED7B505A841DF47ADA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682424   (452510) от 04.09.2017
-
-Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Mall
-02. Things I Miss The Most
-03. Blues Beach
-04. Godwhacker(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24285FFBCDD91FB686B360116098CED568A05164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322047   (452593) от 27.08.2019
-
-Nemesea - White Flag (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The Storm[3:24]
- 2 - Kids with Guns[2:42]
- 3 - White Flag[3:29]
- 4 - Sarah[4:16](   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060D9D1EDDF64CD0641C020A0D41173E6AC6176B
 ```
 
 

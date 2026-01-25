@@ -1,3 +1,84 @@
+###  Публикация: 1359427   (963270) от 13.02.2020
+
+VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance, Progressive, Deep House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pavliga - Reptile (Original Mix) (6:25)
+02. Neshproject - MTR (Gallen & Prozac 303 Remix) (5:19)
+03. Sergio Fernandez - Space Salt (Ismael Rivas Remix) (6:23)
+04. Pablo Briales & Ruben Cano - Monfrague (Original Mix) (4:37)(   Читать дальше...   )Жанр: Trance, Progressive, Deep HouseПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33385B07745114DB4DC35087B7D5FDE106595E1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359417   (963276) от 13.02.2020
+
+VA - Royal Royce - Pornpop (2004) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phonique Feat. Die Elfen - The Red Dress (Dub Mix) (6:26)
+02. Random Factor - Dreamstate (5:34)
+03. Ciudad Feliz - How (3:31)
+04. The Visitors - No Under On The Ground (3:39)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E34726E1C5AA52E33E08C3718A5A9D64227FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359426   (963277) от 13.02.2020
+
+VA - Что бы лето не кончалось (Mixed by Dj Decibel) (2005) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (5:58)
+02. Untitled (5:24)
+03. Untitled (4:16)
+04. Untitled (2:31)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E14779C171A141FBECD629A22C404F1C6B060A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359414   (963279) от 13.02.2020
 
 VA - Body (Mixed by Dj Zezick) (2005) [MP3|320 Kbps] <House>
@@ -611,87 +692,6 @@ Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4000C8E667651E09A386B47424F3844205125785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358450   (967309) от 09.02.2020
-
-VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Candy Winterfeld - Tonestar 4:01
-2. Brian Chesnik - Butch 4:01
-3. Bouks - Lifeform 4:01
-4. Bollen - Tiptop 4:01(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 06:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC1EDED43A70B0108172D4F522FBD9E4097A90C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358657   (967312) от 09.02.2020
-
-VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - So True (Original Mix) 03:50
-02. Aldous - Control (Original Mix) 03:31
-03. Kyau & Albert - Meteorite (Em Kole Remix) 04:29
-04. Francesco Sambero - Chekaty (Original Mix) 03:30(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358527   (967316) от 09.02.2020
-
-La Roux - Supervision (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 21st Century (04:15)
-02. Do You Feel (05:00)
-03. Automatic Driver (05:05)
-04. International Woman of Leisure (04:18)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB24DDAD9CF4AE5EDAE1B8EF6291AB3CB885BA3
 ```
 
 

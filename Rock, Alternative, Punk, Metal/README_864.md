@@ -1,3 +1,57 @@
+###  Публикация: 1546199   (608131) от 23.04.2022
+
+RVH Project - Enter the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caught in the Middle
+02. Enter the Machine
+03. Point of No Return
+04. Blame(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF77477A1D07ED4947FE1FCAFD329B34161CBC3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546174   (608132) от 23.04.2022
+
+День Гнева - Храм Из Песка (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Храм Из Песка [00:03:56]
+02 - Джинн [00:05:31]
+03 - Аллея МиГов [00:06:15]
+04 - Неоновый Город [00:05:05](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:541D809C675CC8B934826272E9FDC4634E976015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546429   (608135) от 23.04.2022
 
 4ерешня - Неуклюжесть (2022) [MP3|320 Kbps] <Alternative Rock>
@@ -640,60 +694,6 @@ Slowmotion Apocalypse - Obsidian (2007) [FLAC|Lossless|image + .cue] <Melodic De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46AF76366FEA1E08831795A15E1ABC99E922B61C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147575   (609387) от 02.07.2017
-
-Don Barnes - Ride The Storm (2017) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ride the Storm (4:50)
-2. Looking for You (5:11)
-3. I Fall Back (4:15)
-4. Don't Look Down (4:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7801CF139CA5594FAD5A57B231A987A601138E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147291   (609389) от 02.07.2017
-
-Five Horse Johnson - Jake Leg Boogie (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Leg Boogie (02:40)
-02. Magic Man (04:17)
-03. Cryin’ Shame (04:33)
-04. Ropes and Chains (03:40)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EABCFAF79A8D93E664820C3C3E08DD374FD82AD
 ```
 
 

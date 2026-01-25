@@ -1,3 +1,84 @@
+###  Публикация: 1551743   (589393) от 17.05.2022
+
+VA - Black Hole Trance Music 05-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor & Somna ft Natalie Major - Born to Run (Extended Mix) [05:34]
+02. Eddie Murray - Jagged Edge (Extended Mix) [06:56]
+03. Dennis Sheperd & DR. DRTY - Afterlife (Extended Mix) [06:02]
+04. Kolonie - Tenebris (Extended Mix) [06:41](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4DEDC88C5D27BDB39245FE72C937ACDA79730A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917228   (589574) от 11.07.2015
+
+VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Lotus - Bondage Love - Sexy Jazz Beat City Remix
+02. Perrymann - Free Hugs - Deep Ocean Beat Chill Remix
+03. Jamie White Dean - Lost in a Daydream - Downbeat Relax Cafe Version
+04. Alchemists and other Liar - Fantasy Lounge - Classic Buddha Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917389   (589577) от 11.07.2015
+
+VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marlo - Atlantis (Radio Edit) (02:56)
+02. Above & Beyond Feat. Zoe Johnston - Peace Of Mind (Myon & Shane 54 Summer Of Love Radio Mix) (03:13)
+03. Andrew Rayel Feat. Jonny Rose - Daylight (Radio Edit) (02:44)
+04. Cosmic Gate With Sarah Lynn - Sparks After The Sunset (Rafaеl Frost Radio Edit) (03:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917162   (589595) от 11.07.2015
 
 VA - Chillout (The Beauty Of Lounge & Jazz Music) (2015) [MP3|320 кб/с]<Lounge, Chillout, Jazzy>
@@ -612,87 +693,6 @@ Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F783682AE8CE818DB324DC57B1C2C0C226084146
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550907   (591223) от 13.05.2022
-
-Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night (4:10)
-02. Let's Get Ridiculous (4:23)
-03. R U Ready 4 The Boom (4:38)
-04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550802   (591224) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born in '82 - Resisted (4:03)
-02. Ildar Bik - Racer (5:22)
-03. A-Reis - Meteor (3:45)
-04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550790   (591228) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfancy D - Teslagirl (5:12)
-02. Fraver & Born in '82 - Void In Space (4:40)
-03. Enium - Nostalgia (Let's Do The Night) (7:06)
-04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
 ```
 
 

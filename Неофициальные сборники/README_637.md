@@ -1,3 +1,30 @@
+###  Публикация: 976865   (967669) от 19.01.2016
+
+VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дискотека Авария - Девушка За Рулём
+02. Nick Jonas - Wilderness
+03. Vicetone feat. Kat Nestel - Nothing Stopping Me
+04. Maduk - Approaching Me(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93237578E4725D4ABE5E16578BF0BFDDA9B3019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976938   (967718) от 19.01.2016
 
 VA - Звездный снегопад хитов (2016) [MP3|256-320 кб/с] <Pop>
@@ -710,33 +737,6 @@ VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976486   (969844) от 17.01.2016
-
-VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Diggs - Ojala
-02. Lemon Grass - It's Easy
-03. Groovecatcher - Shifting Skies
-04. Madison Park - Don't Let Go(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
 ```
 
 

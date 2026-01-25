@@ -454,6 +454,30 @@ magnet:?xt=urn:btih:F965022334E34AB94376246B7439B4DB4B2AB753
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463605   (489556) от 14.09.2015
+
+VA - Золотые Цыганские Романсы и Песни (2012) [MP3|256 кб/с]<Поп, Цыганские>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_489556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Поп, ЦыганскиеПродолжительность: 05:22:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404869   (489564) от 27.08.2020
 
 VA - Liquid Chill Bass (2020) [MP3|320 Kbps] <D&B, Bassline>
@@ -719,33 +743,6 @@ VA - Зайцев.нет Музыкальные новинки 4 Август 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B1C0B4BBF5A591B0EC34324ADD76A57062FED9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243432   (489976) от 28.08.2018
-
-VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Rock Jazz>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489976.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Golden Gate Quartet - Joshua Fit The Battle Of Jerich
-002. Natalie Cole -  Almost Like Being In Love
-003. Eartha Kitt - A Woman Wouldn't Be A Woman
-004. John Travolta - Greased Lightning(   Читать дальше...   )Жанр: Rock and Roll, Classic Rock, Rock JazzПродолжительность: 11:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97400FA7DD98D949DA704AB6825477CBA85B3C62
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1462077   (1021446) от 12.04.2021
+
+Браво & Евгений Осин - Скажем мы друг другу "Браво!" (1989) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021446.jpg" />
+</div>
+
+
+###  Подробнее
+
+По случаю 60-летнего юбилея первого полета человека в космос, мы решили приурочить к этой дате релиз нашего альбома "Скажем мы друг другу "Браво!", который был записан в далеком 1989 году, но до сих пор не был представлен официально в нашей дискографии. Одна из заглавных песен с этого альбома как раз посвящена выдающемуся человеку - Юрию Гагарину! (   Читать дальше...   )1. На танцплощадке
+2. Юрий Гагарин
+3. Звёздный Шейк
+4. Мне грустно и легко(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F4840C195B4EC4263EAB76E278027B0A1B0224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462040   (1021455) от 12.04.2021
+
+Sellout - Микрорайоны потухших глаз (2021) [MP3|320 Kbps] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Русская боль
+2. Андеграунд на Руси
+3. Мама, я Панк (feat. Смех)
+4. В плену панических атак (feat. Операция Пластилин)(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:34:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0506DDD3B988A3E76CBA5EAE4E8339FAC39566CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462036   (1021456) от 12.04.2021
 
 Motorjesus - Hellbreaker (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -640,60 +694,6 @@ Manigance - 8 Studio Albums (2002-2018) 8xCD [FLAC|Lossless|image + .cue] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B2940BFA7A3C3133D58B332CB97ADF66D45B740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461417   (1021819) от 10.04.2021
-
-Marianas Rest - Fаtа Моrgаnа (2021) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrificial
-02. Glow From The Edge
-03. Pointless Tale
-04. The Weight(   Читать дальше...   )Жанр: Melodic Doom Metal, Melodic Death MetalПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94F8352BB811FE9BE94C6B3DFF63F1E4F9CEEB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461501   (1021822) от 10.04.2021
-
-Marianas Rest - Ruins (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kairos (8:00)
-02. The Spiral (6:44)
-03. Hole In Nothing (6:38)
-04. The Defiant (6:57)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BC5DF7F4B02C9D3A0C4552B8140DD061260E89
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1151813   (568792) от 21.07.2017
+
+VA - Trance Energy 2017 (Mixed By ReOrder And Svenson & Gielen) (2017) [FLAC|Lossless|CD|Scene] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rank 1 - L.E.D. There Be Light  3:05
+02.  Paul Van Dyk - For An Angel (Pvd Remix 09)  1:47
+03.  Tiesto - Traffic  4:02
+04.  Yahel & Eyal Barkan - Voyage  3:43(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306241A35C06660F941095305CD929F9FC52B6C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152044   (568841) от 21.07.2017
+
+VA - York: Planet Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Headstrong - Here In The Dark (Headstrong & Tasos Panagis Chill Mix) (feat. Shelley Harland)  5:35
+02.  David Busmer - Urban Analogue Movements  5:09
+03.  York - Moving In The Shadows (R.I.B. Chillout Mix)  5:43
+04.  Matthew Kramer - Off My Mind (Planet Chill Mix)  3:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C69FE08D68C0F4645ED99EA3F2D102D793CDA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152174   (568849) от 21.07.2017
+
+VA - Obsession Lounge Vol.10 (Smooth Sounds For More Than) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Photo In Lounge - Sahara  5:00
+02.  Clelia Felix - Your Spirit  3:57
+03.  Chris le Blanc - Now And Zen  4:23
+04.  No Logo - Matter Of Time (feat. Steve Smith)  4:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC7E8CFBFB46DF55F0261F4D5E79B09F2987FA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151989   (568967) от 21.07.2017
 
 VA - Trance Maschine Vol.4 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -611,87 +692,6 @@ VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27C246D30D22EB74B9FEBC8C7ADD790B356152C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234485   (571028) от 05.07.2018
-
-VA - Chillout Summer Essentials (2018) [MP3|320 Kbps] <Chillout,Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Living Room - Open (SineRider Remix)
-02. State Azure - Moth (Original Mix)
-03. Puremusic - Muses (Original Mix)
-04. Kyohei Akagawa - Fusen (J-Punch Remix)(   Читать дальше...   )Жанр: Chillout,LoungeПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70B131D79265606F4A3151DA2ED93BAA31F0119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234533   (571032) от 05.07.2018
-
-VA - The Fitness Series, Vol. 3 (2018) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Walters - Soundcheck (Shock-Force Remix) 07:39
-02. Audio Hedz - Just Another (Original Mix) 08:31
-03. Noath - The Cataclyms (Original Mix) 06:41
-04. Systemic Noise - The Devil (Original Mix) 07:20(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 06:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0B7151B6400222EAAF7A250141192475DBF522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234390   (571034) от 05.07.2018
-
-VA - Poolside Tech House Sundays, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pablo Caballero - That
-02. Adam Hofer, Prala - Praise It
-03. Rudy V - Three In The Morning
-04. Anton Stellz - Combine(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580CA89F6B75F5EC6752571CF64C88C279D590EF
 ```
 
 

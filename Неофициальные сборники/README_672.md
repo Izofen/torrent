@@ -1,3 +1,30 @@
+###  Публикация: 1455583   (1025617) от 19.03.2021
+
+VA - Music News vol.83 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Polina - Поцелуй Со Вкусом Текилы (02:58)
+ 002. Alexander Oscar - One More Dance (03:01)
+ 003. Alok feat. Matheus & Kauan - TU (02:41)
+ 004. Avy - Сошла С Ума (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D72EBAF8A13A6E49CB3EE0825F276CD02E8E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455562   (1025621) от 19.03.2021
 
 VA - Music News vol.82 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - Beatport Progressive House: Electro Sound Pack #253 (2021) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2974DD57887A120C48F27165E48052A912FB4AE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453732   (1026795) от 12.03.2021
-
-VA - EDC: Deep Techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Модное клубное звучание, потрясающий драйв и незабываемые эмоции ждут Вас на треках представляемого лонгплея. Треки этой сборки набирают популярность не только в сети, их можно услышать и на волнах самых модных радиостанций.001. B.A.N.D.O - Shudder
-002. Arad - Flux States
-003. Alec Troniq - The Sunset Was Apricot
-004. Decim8 & Dstortd - Outbreak(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 12:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5696ADB9FE000CD3D6AE95CE83F5E5080C2415
 ```
 
 

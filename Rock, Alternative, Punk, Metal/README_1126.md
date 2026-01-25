@@ -1,3 +1,57 @@
+###  Публикация: 1102749   (889656) от 10.02.2017
+
+Eyesberg - Masquerade (2016) [FLAC|Lossless|image + .cue] <Neo Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Joke On You (5:19)
+2. Come And Take A Look At My Life (6:33)
+3. Faceless (5:13)
+4. Here And Now (4:37)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF24CA7422E5C6C331B2CF4281CA9BD9D950FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102691   (889664) от 10.02.2017
+
+Nth Ascension - In Fine Initium (2016) [FLAC|Lossless|image + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kingdom Keys (15:18)
+2. End Of Days (11:23)
+3. So That Was The Apocalypse (4:42)
+4. The Cage (17:06)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:07:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9034100FF145FDE8EC342CFA58271F985DADE91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994574   (889850) от 08.03.2016
 
 Fight - War Of Words (1993) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -639,60 +693,6 @@ Fight The Fight - Fight The Fight (2017) [MP3|320 Kbps] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ECF659B399F0236FB4B891A8523B7F2340AEF3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101552   (891197) от 09.02.2017
-
-Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bone Machine (3:09)
-02. Hey (3:18)
-03. Ana (2:16)
-04. Magdalena 318 (3:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102586   (891207) от 09.02.2017
-
-Багира - Шрамы (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волна
-02. Шёпот
-03. Залечь На Дно
-04. Шрамы(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB60535F25C0FA287822AF49FB0E18BE7CD3745D
 ```
 
 

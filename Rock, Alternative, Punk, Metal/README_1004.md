@@ -1,3 +1,57 @@
+###  Публикация: 1279053   (767668) от 27.01.2019
+
+Калинов Мост - Даурия (2018) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767668.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Летят Вороны
+2. Даурия
+3. До Улет
+4. Только Здесь(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBC626BDCF55B0973AB54A954CDC38A3DF84A32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278927   (767673) от 27.01.2019
+
+Santana - In Search Of Mona Lisa (2019) EP, Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Remember Me
+02. In Search Of Mona Lisa
+03. Lovers From Another Time
+04. Do You Remember Me (Edit Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AFB2187538830A7AA65999952225AEE5FE5E5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393367   (767686) от 30.06.2020
 
 VA - Message of Love: Rock Love Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -641,60 +695,6 @@ Digimortal - Создатель (2019) [MP3|320 Kbps] <Industrial Metal, Modern 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4379B7708B795A994A4173B25186B592AF515650
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264282   (768413) от 26.01.2019
-
-Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Река (4:55)
-2. Жемчужина (4:21)
-3. Русалка (4:39)
-4. Невеста лешего (4:09)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889DF248EC200074DDF7AD73CE5251429AE0DB8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263874   (768417) от 26.01.2019
-
-Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (4:46)
-2. Тропа к Весне (5:18)
-3. Вслед молодой заре (4:02)
-4. Танец цветения (5:28)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
 ```
 
 

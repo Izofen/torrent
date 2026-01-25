@@ -1,3 +1,84 @@
+###  Публикация: 1212441   (776119) от 11.03.2018
+
+VA - Sotto Voce Vol.2 (Compiled by Seven24) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pensees  -  Callovs (Original Mix)  5:53
+02.  Sad Radio On Cassini  -  Going To The River (Original Mix)  3:33
+03.  Soty  -  Butterflies (Original Mix)  4:16
+04.  Diamans  -  Another Day (Original Mix)  3:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5656E6C8DFF98859CA15CAC36C9D526A624B200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212356   (776125) от 11.03.2018
+
+VA - Sensual Lounge Musique Vol.2 (Selected by Simon Le Grec) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Simon Le Grec  -  Forbidden Love 3 (Radio Mix)  4:25
+02.  Michael E  -  If It Takes Forever (Original Mix)  4:49
+03.  But & Memo  -  Black Betty (Alexander Metzger Chillout Mix)  6:31
+04.  Ingo Herrmann  -  Phase One (Original Mix)  2:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F268004EDF894D169043F97F0307EF5F05243E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212316   (776127) от 11.03.2018
+
+VA - The Ultimate Lounge Collection Vol.3 (2018) [MP3|320 Kbps] <Lounge, Electro, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sphere - Spring (original mix) 03:57
+2. Karen Gibson Roc - Slow Down (feat Merge Of Equals - original mix) 04:24
+3. Scarlet Blue - Cool Cool Girl (Sunday Morning mix) 04:17
+4. Jose Delgado - Sal Rossa (original mix) 05:33(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 02:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2DEDA82338D56D2634236B40DEA29B48D49701
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212386   (776132) от 11.03.2018
 
 VA - Chillout For Dinner (Exclusive Selection For Cool People) (2018) [MP3|320 Kbps] <Ambient, Drone, Chillout>
@@ -614,87 +695,6 @@ VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C4D6EA6E315DDB5DDD1B194A9ABE4374588CA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211496   (777246) от 08.03.2018
-
-VA - Russian Electronica Vol.3 (2018) [MP3|320 Kbps] <House, Electronica>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moveton  -  Micro Lord (Original Mix)  4:45
-02.  Oblomov  -  Love Knocking Down (Moveton Edit)  4:32
-03.  Eraserlad  -  All That Was Will Not Return (Original Mix)  7:11
-04.  DJ Antip  -  Thor (Original Mix)  5:45(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E680A258929A0C32D15167BEB41F4B2FA997A7F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211362   (777247) от 08.03.2018
-
-VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
-03.  Adip Kiyoi feat. Vika  -  Soul In The Dark (Extended Mix)  5:25
-04.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3286C7B1435E2BE1BEFC7A0FEFDD5E08CC1BD2C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211390   (777271) от 08.03.2018
-
-VA - Relax Vibration Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  M.D.  -  See The Light (Original Mix)  7:50
-02.  N.Juravel  -  Memory Area (Original Mix)  5:24
-03.  Soty  -  Never Let Go (Original Mix)  3:52
-04.  Seven24 & Soty feat. Angel Falls  -  Vision (Vocal Mix)  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECD0D4831EE7FB7659F649E71ADBF5CD53BED96
 ```
 
 

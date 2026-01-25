@@ -1,3 +1,57 @@
+###  Публикация: 1297916   (602677) от 25.04.2019
+
+The Durutti Column - Tempus Fugit (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting... (00:12)
+02. Shooting (04:51)
+03. Lullaby 4 Nina (04:45)
+04. Mystery (05:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B342EF984AC9728DFF9946523D016516A858DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232095   (602719) от 22.06.2018
+
+Звери - Звери в зоопарке (Музыка из фильма "Лето") (2018) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лето
+2. 6 утра
+3. Звезда рок-н-ролла
+4. ДряньЖанр: RockПродолжительность: 00:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40E73322C2906853231B81DA50CB568C48005F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232098   (602721) от 22.06.2018
 
 Panic! At The Disco - Pray For The Wicked (2018) [MP3|320 Kbps] <Alternative Rock, Pop Rock>
@@ -634,60 +688,6 @@ Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9818F4B66AB39F7D33F810717438D8C9E0A221A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547201   (603462) от 27.04.2022
-
-Эйфори.Я - Кофе (2022) [MP3|320 Kbps] <Alt. Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ХБПВР [00:03:37]
-02 - Стая (feat. Round Hills) [00:03:18]
-03 - Свинец [00:04:13]
-04 - Трудно дышать [00:03:42](   Читать дальше...   )Жанр: Alt. Rock, Post GrungeПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9710E6EBC26963938A2D06C5E37268F975A311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547215   (603464) от 27.04.2022
-
-Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алтарь блудниц (8:54)
-02. Сквозь ночь Фобетора (6:46)
-03. Эшафот (8:29)
-04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
 ```
 
 

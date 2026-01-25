@@ -1,3 +1,57 @@
+###  Публикация: 1467604   (1017764) от 04.05.2021
+
+Heart - Bebe Le Strange (1980) [FLAC|Lossless|image + .cue] <Classic Rock, Psychedelic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebe Le Strange
+02. Down On Me
+03. Silver Wheels
+04. Break(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Hard RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBF87A9808B9089E02DB850AD8BA42B940E9612
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467587   (1017768) от 04.05.2021
+
+Heart - Passionworks (1983) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Can I Refuse
+02. Blue Guitar
+03. Johnny Moon
+04. Sleep Alone(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00381F71B0A536D0778B018BC6B67EB0E3F0ED23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467635   (1017771) от 04.05.2021
 
 Force 10 - Force 10 (1981) LP [MP3|320 Kbps] <Hard Rock, Pop Rock>
@@ -638,60 +692,6 @@ Phil Ochs - Greatest Hits (1970) 1986,  Edsel Records [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63C0A910B41DBED36207E8455E49C6F99351B53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466864   (1018118) от 02.05.2021
-
-Kreek - Kreek (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Bottom Of Hell
-02. Missiles
-03. Meet Your Maker
-04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E53B17C1074F8709A8A05F5D1ADC45378E7080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466836   (1018120) от 02.05.2021
-
-Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Alive
-02. Unbreakable
-03. Best Of Me
-04. Living On The Wrongside(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
 ```
 
 

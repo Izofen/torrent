@@ -1,3 +1,57 @@
+###  Публикация: 1288719   (694301) от 12.03.2019
+
+Husbandry - Bad Weeds Never Die (2017) EP [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Punk, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elder Spencer Deery (4:08)
+ 02. Hierba Mala Nunca Muere (3:47)
+ 03. Never Trust a Cuckold (3:47)
+ 04. Misery is a Butterfly (5:35)(   Читать дальше...   )Жанр: Hard Rock, Post-Punk, Post-HardcoreПродолжительность: 00:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6304E28C9093BB17305B01DF06104F6F9C70508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288501   (694302) от 12.03.2019
+
+The Japanese House - Good At Falling (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Went to meet her (intro) (02:31)
+02. Maybe You're the Reason (03:38)
+03. We Talk All the Time (03:15)
+04. Wild (03:43)(   Читать дальше...   )Жанр: Indie Pop, Synth-popПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2E9B56A0D5DC654D4AAFAD95935B63C5A01A47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288551   (694304) от 12.03.2019
 
 Ex Hex - It's Real (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
@@ -639,60 +693,6 @@ James Murphy - Feeding the Machine (1999) [FLAC|Lossless|image + .cue] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA25D0021AE1566B291C833005EE875985FC36E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133298   (695192) от 12.05.2017
-
-Thyrant - What We Left Behind... (2017) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695192.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:27] 01. Bury Me
-[04:51] 02. Endless Hunt
-[07:29] 03. Delusion
-[04:02] 04. Damned At Midnight(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A117090FBB58B0029C0EF9DF48980136E096D316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156422   (695558) от 17.08.2020
-
-Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датское трио , сформированный 2002 в Thisted, Дания. Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Jesper и барабанщика Бенджамина Хова. Они выпустили дебютный альбом группы, «Манифест», в апреле 2003. Хов был заменен Андерсом Хвидтфелдтом в августе 2003. С тех пор группа выпустила в общей сложности 9 альбомов (включая переиздание «Манифеста» и зальный (   Читать дальше...   )--------------------------
-
-01. World Of Trouble (4:27)
-02. Stick To Your Guns (3:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy Blues Rock |Продолжительность: 10:03:20 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDD8BA3B01DFE5840343F12B8334CCFE8753166
 ```
 
 

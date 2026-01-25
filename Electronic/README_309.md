@@ -1,3 +1,84 @@
+###  Публикация: 1038450   (606825) от 28.07.2016
+
+VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lеmоngrаss - Bоnjоur 03:54
+02. Trіо Еlеtrісо - Wаndаnсе Раrіs 04:56
+03. Sесоnd Brеаth - Еn Рrіvе 05:11
+04. Саthаrіnа Jоsу - Аutumn Іn Раrіs 03:34(   Читать дальше...   )Жанр: Еаsу-LіstеnіngПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FF5AF2E7CE3A6C441A259296FB3CC6D7FAFCCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297126   (606926) от 20.04.2019
+
+Ian Hawgood - Impermanence (2019) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire (03:57)
+ 02. Loneliness (04:16)
+ 03. Whispers (03:45)
+ 04. Never Gone (05:53)(   Читать дальше...   )Жанр: Ambient, Experimental, MinimalПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494EC72908099288BC7F8CD399492B5EB59B5E2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231347   (606960) от 17.06.2018
+
+VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Concept, Charlotte Haining - Silhouette (5am Mix)
+ 02. L-Plus - Hypnotize
+ 03. Smooth - All Over the World (Club Mix)
+ 04. Tantrum Desire - Lost in the Night(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F30A0056BDF549A3877142A8D52CA52F38A4E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231401   (607053) от 17.06.2018
 
 VA - Suanda Music - World Cup Of Trance (2018) [MP3|320 Kbps] <Trance>
@@ -616,84 +697,6 @@ IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF765348653BB3572BB5C22F421361E0BBD2EA81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545596   (609511) от 22.04.2022
-
-Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In the Night Comes Evil (00:02:44)
-02 - When I Was Dead (00:04:34)
-03 - Whore (00:05:20)
-04 - Hate Me (00:04:35)(   Читать дальше...   )Жанр: Darkwave, Gothic, IndustrialПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA8D04D09BBB678277EEEA1AE9A3D6BC6360AF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147117   (609605) от 02.07.2017
-
-VA - Armada Ibiza (2017) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thomas Gold - Magic (Alex Preston Remix)  3:15
-02.  Tommy Trash - Dreamer  3:07
-03.  ATB - Connected  3:36
-04.  DeaDmau5 - Polaris (Original Mix)  9:45(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE7070C427A455814F86D04FBF792F1F4B22D6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147273   (609720) от 02.07.2017
-
-VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
 ```
 
 

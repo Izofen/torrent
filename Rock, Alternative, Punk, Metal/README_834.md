@@ -1,3 +1,57 @@
+###  Публикация: 1553902   (580091) от 28.05.2022
+
+Dewok - Armonía Gris (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Armonia Gris (00:06:22)
+02 - No Esperes Mas (00:04:30)
+03 - La Llegada (00:02:15)
+04 - Por Perderme (00:04:32)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52E1CAE324D582A526E89A8E1378BA08E61C893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919952   (580120) от 22.07.2015
+
+The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Again
+02. Now or Never
+03. Rollcoaster
+04. L.O.V.E(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75CB311738E36F5DBB1E0775105AB6AD89F8365
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920260   (580126) от 22.07.2015
 
 Deform - Dominanta (2015) [MP3|320 кб/с]<Alternative, Gothic, Industrial>
@@ -650,60 +704,6 @@ The Souldiers - These Times (2011) [MP3|320 kbps]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5A114702E0A7A643753FECE586A27A163F9503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302310   (581200) от 15.05.2019
-
-Rob Thomas - Chip Tooth Smile (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Less Day (Dying Young) (03:04)
-02. Timeless (03:56)
-03. Can’t Help Me Now (03:23)
-04. Funny (03:07)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FD71279D90D0B0EA34125D101DAAA0DD083EB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302443   (581207) от 15.05.2019
-
-John Illsley (Ex. Dire Straits) - Coming Up For Air (2019) [FLAC|Lossless|image + .cue] <Rock, Blues-Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581207.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Illsley - бас-гитарист Dire Straits. Он был одним из основателей группы и оказал значительное влияние на формирование их музыкального стиля. К моменту распада группы остался единственным участником оригинального состава помимо бессменного лидера группы Марка Нопфлера.01. Old Amsterdam
-02. Double Time
-03. Coming Up For Air
-04. So It Goes(   Читать дальше...   )Жанр: Rock, Blues-Rock, Folk-RockПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9563D9C0F51384C618CE652AA443C51D8158D9
 ```
 
 

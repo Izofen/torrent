@@ -1,3 +1,84 @@
+###  Публикация: 1094951   (927852) от 19.01.2017
+
+VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untidy Dub - Use It Or Lose It (Original Mix) [06:25]
+02. Baseware - Boom (Ross Homson Remix) [08:10]
+03. Groove Complex - Rendevouz (Original Mix) [06:36]
+04. The Creators - Get On Up (Original Mix) [07:50](   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094803   (927859) от 19.01.2017
+
+VA - This Is My Church Vol.4 (The Lounge Edition) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sofa Grooves - The Chef Music (Original Mix)  4:29
+02.  James Wilson - Reggae Morning (Original Mix)  3:07
+03.  Seven Heaven - I'm Here (Original Mix)  3:33
+04.  Peter Stone - In the Shuffle (Original Mix)  2:46(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2001A0E53643FFCBB82570466D6BC8FE1B6B40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094807   (927890) от 19.01.2017
+
+VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ava Blaxland - Oxana (Original Mix)  3:26
+02.  Tribal Kong - A Beast (Black Jam Mix)  5:35
+03.  Van Mark - Tree Cherry Pits (Original Mix)  5:49
+04.  Jay Indo - One Two (Original Mix)  6:14(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987061   (927897) от 16.02.2016
 
 VA - Disco De Bolsillo 2 - Dance Compilation (2004) [FLAC|Lossless|tracks + .cue] <Euro House, Deep House, Tech House>
@@ -614,87 +695,6 @@ VA - Trip to Munich Lounge: Chillout Your Mind (2020) [MP3|320 Kbps] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12151449320051772AD7F221707475A32BDAB25A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365306   (932234) от 06.03.2020
-
-VA - Let It Lounge, Vol. 1 (2020) [MP3|320 Kbps] <Downtempo, Chillout, Relax, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrado Saija feat. Florent Campana - Amanda (Original Mix) [04:11]
-02. Francesco Diaz feat. Karl Frierson - Say a Little Prayer (Unplugged Edit) [02:59]
-03. The Diventa Project - Dreamer (Lazy Hammock Instrumental Mix) [06:24]
-04. Bar Lounge - Interioir Showroom Spacer (Original Mix) [07:28](   Читать дальше...   )Жанр: Downtempo, Chillout, Relax, LoungeПродолжительность: 01:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056E5AD787953C4547BDBD5BD609CED499C50164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365300   (932236) от 06.03.2020
-
-Lemna - Storytelling #1 - Reminiscences Of Inner Scenery (2020) Horo [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, Experimental, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creeping On Mud (05:19)
- 02. The World That Is Made Of Fluid Particles (04:47)
- 03. A Rabbit With A Marbled Black And White Coat (06:20)
- 04. Spring Night With A Hazy Crescent Moon (04:38)(   Читать дальше...   )Жанр: Dark Ambient, Experimental, TechnoПродолжительность: 01:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBED2E02E8EB3B24908D54A7B9F57FE6DDA0FC28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365125   (932240) от 06.03.2020
-
-VA - Trance Inside, Vol. 4 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Groove feat. Sam Vince - The Knot (Omniks Edit) [03:44]
-02. Fischer and Miethig - We Only Live Once (Mindsoundscapes Radio Edit) [03:18]
-03. Manida - Always Alone (Radio Cut) [03:33]
-04. Philip Mayer - Okobogee (Radio Edit) [03:12](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB771BE2032C602B4037EBD2297D4E4DE8045AE
 ```
 
 

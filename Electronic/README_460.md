@@ -1,3 +1,84 @@
+###  Публикация: 1371486   (889972) от 31.03.2020
+
+VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shauny Walker - Hireath (Original Mix) [04:40]
+02. Ghosty - Subject Matter (Original Mix) [04:34]
+03. Rounder - Hedera (Kinaes Remix) [05:22]
+04. Dirty Terrain - Freak Out (Metachemical Remix) [06:08](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2543939A268909DB1C6AD044149D301F84354105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371483   (889995) от 31.03.2020
+
+VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eschaton - Holotropica (Original Mix) (Feat Parallel) [05:26]
+02. K3Bee - Cell Weight (Original Mix) [05:21]
+03. Eschaton - Star Patterns Become Me (Original Mix) [09:10]
+04. Eschaton - Entheogen (Original Mix) (Feat Parallel) [07:51](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286ADD7CF17D30FADE81A8FA0127EBCF7C7E9625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371482   (889996) от 31.03.2020
+
+VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cavernous Space - Horizon (Original Mix) [06:01]
+02. Cavernous Space - Pulsatronic (Original Mix) [06:06]
+03. Cavernous Space - Absolute Magnitude (Original Mix) [07:36]
+04. Kasious - Prometheus (Original Mix) [06:08](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAE17C707BF32DD46EDE860A415DD46F93D75BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371688   (890000) от 31.03.2020
 
 Culprate - Others Remixed (2020) Inspected [FLAC|Lossless|WEB-DL|tracks] <Dubstep, Drum & Bass, Half-time>
@@ -617,87 +698,6 @@ VA - Tropical Dream Born to Relax (2017) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B5EEAE1F47A5769397E502FD63365C8FEA13592
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994310   (891542) от 07.03.2016
-
-VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haddaway - What Is Love (4:28)
-02. Londonbeat - I've Been Thinking About You (3:48)
-03. Crystal Waters - Gypsy Woman (La da Dee la da Da) (3:42)
-04. Robin S. - Show Me Love (4:25)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5732EB870F467ADCD53904E567AA295D7DC072EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994364   (891614) от 07.03.2016
-
-Night Sky (aka Afternova) - Visions (2016) [MP3|320 кб/с] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Wind (Original Mix) (2:27)
-02. Visions (Original Mix) (2:43)
-03. Reminiscence (Original Mix) (2:02)
-04. A New Way (Original Mix) (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEDE09D3DE02FDAE9A3D32D0E43103D79976388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371403   (892020) от 30.03.2020
-
-Derek Carr - Pursuit (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <EDM, Deep House, Tech House, Techno, Minimal>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Tonight_Dawn (7:15)
- 02. Not Tonight_Dusk (8:44)
- 03. Acid Bath_Pursuit Mix (7:01)
- 04. Up And Atom (7:32)(   Читать дальше...   )Жанр: EDM, Deep House, Tech House, Techno, MinimalПродолжительность: 01:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B9E4F248F9FA7AFEBAF5422421A609C4B412D3
 ```
 
 

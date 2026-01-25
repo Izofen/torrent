@@ -1,3 +1,57 @@
+###  Публикация: 1546888   (603956) от 26.04.2022
+
+Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC|Lossless|WEB-DL|tracks] <Glam, Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Never Been In Love (2017 Remaster) (3:03)
+02. Mind Demons (2017 Remaster) (2:28)
+03. She's in Love with You (2017 Remaster) (3:33)
+04. Hollywood (2017 Remaster) (3:00)(   Читать дальше...   )Жанр: Glam, Pop Rock, Soft RockПродолжительность: 7CD, 07:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56EFA334D01D2694A32E68E96E7DA23766153C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546995   (603965) от 26.04.2022
+
+Catharsis - Книга Времен. Будущее Прошлого (Часть 1-2) (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто ты?
+02. Гонки за мечтой
+03. Сердце мира
+04. Дальше - тишина...(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC8BDA7C6618D24F98C3E5BAA2525471E5E64A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546875   (603979) от 26.04.2022
 
 Imminent Sonic Destruction - The Sun Will Always Set (2022) [MP3|320 Kbps] <Progressive Metal>
@@ -640,60 +694,6 @@ Ocean Grove - Up In The Air Forever (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA30DECB2EF68B6F155E1248AA07088D7C7B912D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038493   (604837) от 29.07.2016
-
-The Human Instinct - The Hustler (1974) Remastered, 2010, Zodiac Records L.t.d.[MP3|320 Kbps] <Hard Rock, Psych-Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Hustler
-2. Mae West & My Gangster
-3. Funky Monkey
-4. Johnny Blade(   Читать дальше...   )Жанр: Hard Rock, Psych-Prog RockПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E4C350863F4323F0B796B1FAC8E3A30DA665B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297090   (604879) от 21.04.2019
-
-Ripping Corpse - Dreaming With The Dead (1991) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweetness
-02.Dreaming With The Dead
-03.Anti God
-04.Glorious Depravity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1108EEBD947D5DD1DFECC508EBF6D1D9ED74B6B
 ```
 
 

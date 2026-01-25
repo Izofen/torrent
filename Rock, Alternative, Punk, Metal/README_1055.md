@@ -1,3 +1,57 @@
+###  Публикация: 1198265   (802716) от 14.01.2018
+
+Sweet - The Lost Singles (2017) [FLAC|Lossless|image + .cue] <Rock, Glam-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stairway To The Stars (3:04)
+02. Why Don't You Do It To Me (3:12)
+03. Funk It Up (Disco Mix) (5:28)
+04. A Distinct Lack Of Ancient (4:06)(   Читать дальше...   )Жанр: Rock, Glam-RockПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3A090B22833D2C6ACC6AC26AB7A730DEE38ED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384379   (802747) от 20.05.2020
+
+Anubis - Homeless (2020) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflective (07:10)
+02. Entitled (04:15)
+03. White Ashes (03:23)
+04. Home (05:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEA6027EB9E6A3503A263BDD176A9EC1DB3A156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384566   (802751) от 20.05.2020
 
 Wolfheart - Wolves of Karelia (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Death Metal, Melodic Black Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2576ABFE4BF3173755B1B353B31F32A18731043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120406   (803280) от 30.03.2017
-
-Body Count - Bloodlust (2017) [MP3|320 Kbps] <Rapcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Civil War (feat. Dave Mustaine of Megadeth) (4:23)
-02. The Ski Mask Way (3:36)
-03. This is Why We Ride (5:26)
-04. All Love is Lost (feat. Max Cavalera of Soulfly) (3:36)(   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF05944FA498026613A38A2A7B5F8BBE47CEF7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120284   (803369) от 30.03.2017
-
-VA - Glamkings Of Rock: The True Story Of Glam Rock (1994) 2CD [FLAC|Lossless|image + .cue] <Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro - Can The Can
-02. Mud - Tiger Feet
-03. The Sweet - Teenage Rampage
-04. T-Rex - Get It On(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C061D04930B20D922A387D695C38C0931FD0857
 ```
 
 

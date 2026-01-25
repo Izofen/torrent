@@ -1,3 +1,30 @@
+###  Публикация: 933841   (504602) от 03.09.2015
+
+VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave & Get Closer - The Time Before (Original Mix)
+02. Mary J. Blige - Real Love (Christofi Glenn Michaels Remix)
+03. Denis Kenzo & Kimberly Hale - Find The Light (Original Mix)
+04. Matvey Emerson - Run Away (Original Mix)(   Читать дальше...   )Жанр: Trance, Dance, House, Synthpop, ClubПродолжительность: 09:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933982   (504606) от 03.09.2015
 
 VA - Chill Rock (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -698,39 +725,6 @@ VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539338   (506729) от 26.08.2012
-
-VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fonarev & Melodica - ZFM (Cosmonaut Breaks Mix) [05:32]
-02. Abdomen Burst - Sakkura (Dmitry Bessonov Remix) [07:05]
-03. Buried Boy - Nirvana (Original Mix) [06:06]
-04. Axcess - Massacre (Trukers Remix) [08:47]
-05. Вадим Жуков - Evolution [06:15]
-06. Вадим Жуков - Moscow Morning [05:18]
-07. Ilya Mosolov - Kassiopea (Original Mix) [07:38]
-08. Jacob Henry - Hopeful Romantic (Schodt Remix) [05:41]
-09. Miika Kuisma - Returning Home [06:02]
-10. NewTone - Sad Song (Abdomen Burst 6 a.m. in the morning mix) [09:03](   Читать дальше...   )Жанр: Atmospheric, Progressive BreaksПродолжительность: 03:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB67F8A459842126ABD6E70C54DD541AD939E079
 ```
 
 

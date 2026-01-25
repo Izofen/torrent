@@ -1,3 +1,84 @@
+###  Публикация: 1096947   (917790) от 25.01.2017
+
+VA - 10 Years Of Trimurti Festival (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ocelot - Rise Above It  6:44
+02.  Squarkin Jazz - Green Lemon  4:46
+03.  Dreamstalker - Sensation  6:40
+04.  Spectrum Vision - Scwott  7:45(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA46A5A4C57E15F0AEE006BEE87339675CF37A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304244   (918643) от 20.08.2021
+
+Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Tech House, Progressive House, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. US1873 (06:46)
+ 02. LH479 (07:07)
+ 03. SK1550 (05:53)
+ 04. EZY865 (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Tech House, Progressive House, Leftfield •Продолжительность: 14:33:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C02331D7CEF5792E483794500F2164FBEB4B89A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367002   (918967) от 14.03.2020
+
+VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ded Sheppard - Run Baby Run (Red Army Remix) [05:38]
+02. dreadmaul - Inka (Fuj Remix) [06:53]
+03. lums - TRIBLSM85 (Owl Remix) [05:16]
+04. Ded Sheppard - The Youth (Out Of Fuel Remix) [07:49](   Читать дальше...   )Жанр: Drum & Bass, Leftfield BassПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2B74F96BA7BC6D62A2D8D87E7F994D05DE3691
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490289   (919025) от 20.08.2021
 
 VA - Cafe Italiano: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -613,87 +694,6 @@ VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096268   (920980) от 23.01.2017
-
-VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Dreamscape  6:11
-02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
-03.  DJ Riquo - Deep Winds  5:08
-04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096351   (920986) от 23.01.2017
-
-VA - Cool Chillout Music: Nice Chill Out Bestsellers (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46
-02.  Seven24 - Behind the Sky (Chillout Mix)  5:11
-03.  DJ Rostej - Long Way (Chillout Mix)  4:46
-04.  MAA - Light of Soul (Chillout Mix)  2:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61B0638C9474E1D65A6CF0745E2FD7DBEE093665
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096138   (920991) от 23.01.2017
-
-VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sufi's Life - Blessings To All [08:49]
-02. Tor.Ma In Dub - The Secret Message [04:00]
-03. Ishdub - Tatanka (Melodica Version) [06:17]
-04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
 ```
 
 

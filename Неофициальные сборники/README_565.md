@@ -1,3 +1,30 @@
+###  Публикация: 1001893   (850573) от 30.03.2016
+
+VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ben Gold Ft. Christina Novelli-All Or Nothing (Allen Watts Ex 05:31
+02 Martin Roth & Alex Bartlett-Off The World (Eddie Bitar Remix) 07:08
+03 Gareth Emery feat. Wayward Daughter-Reckless (Standerwick Extended Remix) 06:33
+04 RAM Feat. Kim Kiona-Miss You (Original Mix) 07:40(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5286D2000E0066FE73208F57B9AE8EF8560843D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002056   (850655) от 30.03.2016
 
 VA - Sunset Lounge, Vol. 1  (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
@@ -665,33 +692,6 @@ VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3622A340FA909B4533CD98EFF33B811E515B71B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001677   (852284) от 29.03.2016
-
-Борис Рахлин - Для друга Миши (1970) [MP3|320 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро+Пусть догорает вечер
-02. Назревал глухой скандал
-03. Чудный лес
-04. Костюмчик серенький(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D9EA90D9A7A4D95D9CA81E7F9B987BC34BA3C6
 ```
 
 

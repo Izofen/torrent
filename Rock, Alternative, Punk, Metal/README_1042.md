@@ -1,3 +1,57 @@
+###  Публикация: 1386019   (795884) от 27.05.2020
+
+Die Kreatur - Panoptikum (2020) [MP3|320 kbps] <Gothic Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гиганты немецкой тяжелой сцены Деро Гои (Oomph!) и Крис Хармс (Lord Of The Lost) выпустили дебютный альбом со своим новым совместным проектом Die Kreatur. Первая в дискографии полноформатная пластинка получила название "Panoptikum" и появилась 22 мая 2020 года на лейбле Napalm Records.01. Die Kreatur (04:12)
+02. Kälter Als Der Tod (04:20)
+03. Unzertrennlich (04:07)
+04. Durch Die Nacht (04:37)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB23A1B4E8D26C6BE5149477F5A477F3E47A762
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386014   (795885) от 27.05.2020
+
+One Desire - Midnight Empire (2020) [MP3|320 kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowman (06:33)
+02. After You're Gone (05:25)
+03. Down And Dirty (04:33)
+04. Godsent Exstasy (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D9D81F8643763CDC4B2DFDD205A4565939EA769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011402   (796121) от 28.04.2016
 
 The Animals - The Best Of (2000) compilation [FLAC|Lossless|image + .cue] <Rock>
@@ -641,60 +695,6 @@ October Tide - Winged Waltz (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0280963A74A3E328CAFCF818EB86B3E8B7528936
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011795   (796398) от 28.04.2016
-
-Devil’s Gun - Dirty ‘n’ Damned (2016) [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Rock City
- 02. Spitfire
- 03. Let em Ride
- 04. Run Through the Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70EABAE4296480471572CBF3014AB3903825EEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011353   (796399) от 28.04.2016
-
-Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Coast    03:09
-02. Kisser    03:51
-03. Love Is Just A Chemical    04:00
-04. Turning Tides (By Your Side)    03:13(   Читать дальше...   )Жанр: Pop, Alternative, Indie RockПродолжительность: 00:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1289418   (686346) от 16.03.2019
+
+Beast in Black - From Hell with Love (2019) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Out for a Hero
+02. From Hell with Love
+03. Sweet True Lies
+04. Repentless(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650FBA1A0DFC72C22AA3FAC340FB8BAD0FE78D60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332427   (686352) от 16.03.2019
+
+Malsain - The Disease (2007) [MP3|320 kbps]<Horror Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Old Asylum (4:43)
+ 02. Cement Forest (4:12)
+ 03. The Disease (5:52)
+ 04. Memories from the Past (3:05)(   Читать дальше...   )Жанр: Horror Black MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23BDC78D61289C43EF53857425556FFAF1B712C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028788   (686396) от 24.06.2016
 
 VA - Greatest Ever! Rock Ballads (2014) 3CD [MP3|320 кб/с] <Rock, Pop>
@@ -647,60 +701,6 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C104061AF05B5810F7EBF53E08C28DB3ADCE069C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289324   (686749) от 16.03.2019
-
-Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Year of the Tiger (3:41)
-02. The Great Beyond (4:50)
-03. Blind Faith (4:29)
-04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD9211D31FED457534B77350323C50844D045EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289664   (686751) от 16.03.2019
-
-Serdce - Timelessness (2014) [MP3|320 Kbps] <Technical Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Shambhala (3:33)
- 02. Samadhi (6:43)
- 03. Omens (9:07)
- 04. Last Faith (9:39)(   Читать дальше...   )Жанр: Technical Progressive Death MetalПродолжительность: 01:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2C61D75585232A8C3C2B3EFC4C0F99032C1329
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 544306   (491837) от 07.09.2012
+
+VA - Ночной клуб сентября (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Курильщики - не получил не Time (Original Extended Mix)
+02. WTF! - Da Bop (Extended Mix)
+03. Adrian Sina feat. Диана Hetea - Back To Me (Seepryan Remix)
+04. Tiesto & Showtek - Hell Yeah! (Original Mix)
+05. Bob Sinclar feat. Snoop Dogg - Wild Thing (Michael Calfan Remix)
+06. Adrian Lux feat. Данте - Burning (Extended Mix)
+07. Тело и душа - Fly With You (Extended Mix)
+08. Armin Van Buuren - Full Focus (Alexxx-DAR Remix)
+09. Dave Silcox - Bang Your Head (Original Mix)
+10. DJ Re-Lay feat. Kathleen Moore - Kuss Mich Auf Französisch (Club Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5088B597E7EA07E67301D4839E4506D6CAE5E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543875   (491858) от 07.09.2012
 
 VA - Жаркая вечеринка NOSSA, NOSSA!!! (2012) [MP3|256 кб/с]<Dance, Pop>
@@ -686,33 +719,6 @@ VA - Лучшие Trance треки Ver.9 (2019) [MP3|320 Kbps] <Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEF622A61AEEBE82C38E824AFF6096951BFCD79F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318467   (494692) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.7 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.R.D.I. - Lost In The Dark (Extended Mix) 7:15
-02. Jody 6 - Coming Down (Extended Mix) 5:39
-03. Jak Aggas - The New World (Extended Mix) 6:39
-04. Aly & Fila - It's All About The Melody (Extended Mix) 8:59(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 04:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E195DD6533ECD1603F86BF65E0559A18E67A8FB
 ```
 
 

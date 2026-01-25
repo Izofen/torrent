@@ -1,3 +1,30 @@
+###  Публикация: 910776   (620360) от 21.06.2015
+
+VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby ft. Damien Jurado - Almost Home  (Sebastien 2015 Radio Edit) (03:35)
+02. Exoplanet - Crystal Garden (Mindaugas Jak Remix) (08:39)
+03. Frosun - Endless Road (Original Mix) (07:22)
+04. Julian Dep - Facing The Abyss (Rick Pier O'Neil Remix) (07:07)(   Читать дальше...   )Жанр: House, Club House, Deep House, DanceПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910884   (620362) от 21.06.2015
 
 VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
@@ -725,33 +752,6 @@ VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B613CE0DD118E5AAB25EBAA833F2B4E921C57B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145441   (621529) от 25.06.2017
-
-VA - Vocal Trance Collection (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adagio Sensus - Easy For You (Frainbreeze Radio Edit)
-02. Joel Hirsch & Jennifer Rene - Won Me Over
-03. Ellie Lawson - Feeling It All (Radio Edit)
-04. Luke Bond Ft. Georgia Mason - Alone (Luke Bond Uplifting Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 07:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B0B8B0158A96F2035CD2D2890F63851B4F7FC0
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1198512   (808299) от 11.01.2018
+
+Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DFF
+02. Spook
+03. King of Bones
+04. Haunt(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52067C0DE671A6A12C0614907883FA05D920791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504785   (808334) от 25.10.2021
+
+Golden Earring - Moontan (1973) Deluxe Edition, Reissue, Remastered, 2021, Red Bullet [FLAC|Lossless|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vanilla Queen (Early Version) [00:10:06]
+02. Radar Love (Basic Track) [00:06:30]
+03. The Song Is Over (Basis Track) [00:05:17]
+04. Are You Receiving Me (Basic Track) [00:09:33](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 2 CD, 02:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E3992A0E55732C57963CC63360177DD2710020
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198517   (808393) от 11.01.2018
 
 Heidevolk - Vuur van Verzet (2018) [MP3|320 Kbps] <Folk Metal, Viking Metal>
@@ -644,60 +698,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85592DF40C71A7B8EA47B1BE91E07E2ABF16467E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504458   (810060) от 24.10.2021
-
-Pink Floyd - Pulse (1995) Live, Reissue 2021 [FLAC 2.0|192/24|tracks|WEB-DL] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1:
-01. Shine On You Crazy Diamond (Pts. 1-5, 7) (13:36)
-02. Astronomy Domine (4:21)
-03. What Do You Want from Me (4:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B436BD08F22565C38047B0C2C8E7A5E0F18AD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504656   (810072) от 24.10.2021
-
-Electric Light Orchestra - Vocoder (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art.Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky (2012 Version) [00:03:42]
-02. Steppin' Out [00:04:40]
-03. Sweet Talkin' Woman [00:03:49]
-04. Confusion [00:03:41](   Читать дальше...   )Жанр: Progressive Rock, Art.Pop RockПродолжительность: 00:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D4BD635EEFB6A26AE26E27B4A915051D84143C
 ```
 
 

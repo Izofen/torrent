@@ -1,3 +1,57 @@
+###  Публикация: 1546537   (606120) от 24.04.2022
+
+Dunes - Gargoyle (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Hands
+02. Behind the Clouds
+03. Lost Her Shadow
+04. Walk into the Waves(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48DAC855A25636A5493DB154F6EBE77F9AD0D74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546479   (606274) от 24.04.2022
+
+First Signal - Closer To The Edge (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let It End (4:19)
+02. I Don't Wanna Feel The Night Is Over (4:27)
+03. Show Me The Way (4:40)
+04. Don't Look Away (4:30)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3045104711ABC1D96F1BCCBB417D7D92D6CBEA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297141   (606451) от 20.04.2019
 
 The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
@@ -658,60 +712,6 @@ magnet:?xt=urn:btih:21370A62FF032F1CFC968B86026FC3ECAC8F8737
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F624C3B4A0CD60E96E61571FFD0AC3C2CE168AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546199   (608131) от 23.04.2022
-
-RVH Project - Enter the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught in the Middle
-02. Enter the Machine
-03. Point of No Return
-04. Blame(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF77477A1D07ED4947FE1FCAFD329B34161CBC3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546174   (608132) от 23.04.2022
-
-День Гнева - Храм Из Песка (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Храм Из Песка [00:03:56]
-02 - Джинн [00:05:31]
-03 - Аллея МиГов [00:06:15]
-04 - Неоновый Город [00:05:05](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541D809C675CC8B934826272E9FDC4634E976015
 ```
 
 

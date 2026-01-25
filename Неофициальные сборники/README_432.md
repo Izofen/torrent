@@ -1,3 +1,30 @@
+###  Публикация: 1221893   (689310) от 27.04.2018
+
+VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Price Of Love (3:58)
+02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
+03. Afric Simone - Todo Pasara Maria (3:16)
+04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134302   (689371) от 15.05.2017
 
 VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
@@ -677,33 +704,6 @@ VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133621   (691308) от 14.05.2017
-
-VA - Весенний хит русского шансона. Сборник № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Борисов - За Друзей 2:54
-002. Игорь Тузов - Ты Пацан По Жизни Не Грусти 4:03
-003. Эдуард Колбасин - Виза В Страну Любви 3:14
-004. Сергей Вольный - Поздняя Любовь 4:05(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EDC421677514FFF371DE9A7348B12933FEFD00
 ```
 
 

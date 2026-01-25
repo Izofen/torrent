@@ -1,3 +1,57 @@
+###  Публикация: 1391155   (781421) от 19.06.2020
+
+Bob Dylan - Rough and Rowdy Ways (2020) [FLAC|Lossless|tracks] <Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Contain Multitudes (04:36)
+02. False Prophet (06:00)
+03. My Own Version of You (06:41)
+04. I've Made Up My Mind to Give Myself to You (06:32)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84264F10511C282B85D116F0501E012DA20E172B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391116   (781436) от 19.06.2020
+
+Neil Young - Homegrown (2020) [MP3|320 Kbps] <Folk Rock, Singer-Songwriter>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (03:33)
+ 02. Try (02:49)
+ 03. Mexico (01:41)
+ 04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: Folk Rock, Singer-SongwriterПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A9220DFFF72C387569270C4F9C01E2CD341F0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391152   (781441) от 19.06.2020
 
 Neil Young - Homegrown (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Singer-Songwriter>
@@ -653,66 +707,6 @@ Crosby, Stills & Nash - Crosby, Stills & Nash (1969) Limited Edition 2011 [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28C2B8850AF879664766B18C254C2304EBB5F087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390687   (782728) от 16.06.2020
-
-Captain Beefheart & His Magic Band - Trout Mask Replica (1969) [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frownland (1:41)
-02. The Dust Blows Forward 'N The Dust Blows Back (1:53)
-03. Dachau Blues (2:22)
-04. Ella Guru (2:27)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, ExperimentalПродолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC710A2E44F0FBB66F5EBABAB6AFD1EACE37E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199463   (782761) от 10.05.2010
-
-Карнавал - Легенды Русского Рока (1997) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Внезапный тупик (Магнитоальбом "Карнавал")
-02. Остров ("Карнавал")
-03. Пустое слово (Магнитоальбом "Карнавал")
-04. Я знаю теперь (Магнитоальбом "Карнавал")
-05. Мона Лиза (Магнитоальбом "Карнавал")
-06. Тень печали ("Карнавал")
-07. Карусель ("Карнавал")
-08. Взгляды ("Карнавал")
-09. Мир надежд моих (Магнитоальбом "Карнавал")
-10. Рок'n'рольный марафон ("Карнавал")(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-нет
 ```
 
 

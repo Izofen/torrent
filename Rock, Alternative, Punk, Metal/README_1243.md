@@ -1,3 +1,57 @@
+###  Публикация: 1458277   (1023880) от 29.03.2021
+
+Terronaut - 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Post Rock, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Gain [00:02:26]
+02. Nebulosa [00:05:53]
+03. Star Mother [00:05:56]
+04. Alone [00:08:43](   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68B112A0FB01616BD1515E8C201F369006F3799
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458516   (1023882) от 29.03.2021
+
+Septagon - Apocalyptic Rhymes (2018) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End
+02. The Weight Of The World
+03. Home, Sweet Hell
+04. Apocalyptic Rhymes(   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF6B36E7044ECABE58E02952D5AF7685B57AB3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 811571   (1023938) от 28.03.2021
 
 Wolfmother - 4 Albums (2005 - 2016) 8 CD [FLAC|Lossless|tracks + .cue|image+.cue]<Hard Rock, Psychedelic, Stoner>
@@ -639,60 +693,6 @@ Inception Of Eternity - Last Exit to the Past (2021) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:827845645CF5FE5B0FB4A51B8220648491208EDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457548   (1024416) от 26.03.2021
-
-Mother Road - II (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Gold
-02. Sticks And Stones
-03. Spread It All Around
-04. Matter Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7155DE43DC625017BDA8BDFF38349B4F09B36DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457380   (1024420) от 26.03.2021
-
-Adrian Smith, Ritchie Kotzen - Smith-Kotzen (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking My Chances
-02. Running
-03. Scars
-04. Some People(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498CEDC9A4A26D8F089C919B84D4304E6C58D2DA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1314949   (515023) от 18.07.2019
+
+VA - Roots Reggae (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Buck-O-Nine - Don't Be Afraid
+002. Kafra, Metod Mc - Cette Plante Est Bonne
+003. Gary Dread - Stay With Me
+004. Samini - Craving(   Читать дальше...   )Жанр: Reggae, Dub, SKAПродолжительность: 08:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C62EFAB17440E7272C137B9A09685A81C719C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242172   (515057) от 22.08.2018
 
 VA - Summer Beach Party Vol. 01 (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
@@ -675,33 +702,6 @@ VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561176   (516501) от 03.07.2022
-
-VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop, Dance, Shanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Иванушки International - Тополиный пух
-002 Никита - Улетели навсегда
-003 Полина Ростова - По краю дождя
-004 Краски - Сегодня к маме я приехала домой(   Читать дальше...   )Жанр: Pop, Dance, ShansonПродолжительность: 28:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 904866   (653434) от 04.06.2015
+
+No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nascency 04:09
+02. All As One 04:44
+03. Behold The Screen 06:03
+04. The Spiral 05:05(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3DECF93261F1FDB910862FD85507B85F7B74596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904569   (653446) от 04.06.2015
+
+Super Bob - Killer (2015) [FLAC|Lossless]<Alternative Rock | Rapcore | Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capitan Crunch
+02. Killer
+03. Savior
+04. Preacher(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock | Rapcore | CrossoverПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B104D71BCE54BFE017A4CA61DB3AF6A4D8D188FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904874   (653454) от 04.06.2015
 
 In Virgo - In Virgo (2015) [FLAC|Lossless|WEB-DL]<Alt. Metal | Electronic>
@@ -672,60 +726,6 @@ magnet:?xt=urn:btih:34CF03077B89A411ABD42E7C263248DFC78684F7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A24E02BA5300422DDFAE573A2C0DC97648FE0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904418   (654389) от 03.06.2015
-
-Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elizabeth (3:36)
-02. Happy In The Sorrow Key (2:56)
-03. Southern California Is Your Girlfriend (4:19)
-04. Texas Was Clean (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904301   (654391) от 03.06.2015
-
-Пони - Сами по себе (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рокобоги
- 02. Финсбери-парк
- 03. Сами по себе
- 04. Где-то рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E6A8025247D8061D622B99055317051EA103F9
 ```
 
 

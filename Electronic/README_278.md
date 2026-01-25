@@ -1,3 +1,81 @@
+###  Публикация: 1238405   (547028) от 29.07.2018
+
+Super8 & Tab - Reformation (2018) Armada Music [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seconds Away (feat. Sarah Decourcy) (5:55)
+ 02. Cosmo (4:17)
+ 03. True Love (feat. Envy Monroe) (4:22)
+ 04. Falling Into You (feat. Jonny Rose) (2:59)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0007657DF334F23CBA676DCC64FC2EE0175A7C09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238313   (547112) от 29.07.2018
+
+Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [FLAC|Lossless|tracks+.cue] <Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow, Silence, Partially Sunny (37:30)Жанр: ExperimentalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0111DF531AB67F76F9082FF86718EA282A4E8070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238271   (547117) от 29.07.2018
+
+Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowy Night Tale (05:34)
+ 02. Fog (04:25)
+ 03. It's Magical (04:24)
+ 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238317   (547121) от 29.07.2018
 
 Ryuichi Sakamoto - Henkaku No Seiki — Century Of Reform (2002) WEA Japan [FLAC|Lossless|tracks] <Neo-Classical, Contemporary, Ambient>
@@ -613,87 +691,6 @@ VA - Heaven and Paradise Vol. 1 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D3842C08D119EAED6BB0EC408FCD599CFA735D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048046   (548432) от 31.08.2016
-
-VA - The Sweet Lounge Vol.1 (Sea Lounge) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luigi Seviroli - Quiet Soliloquy (Full Mix) (03:41)
-02. The Mord - 2 Years (03:13)
-03. Giacomo Bondi - Katmandu (Full Mix) (03:14)
-04. Giacomo Bondi - Sioux (Full Mix) (03:21)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A4BB5913B5C9A6CBADD0A89C1EC75BBB6121B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047766   (548433) от 31.08.2016
-
-VA - Heaven and Paradise Vol. 2 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Life - White Hat (Original Mix) (03:12)
-02. Tom Lojo - Red Shoes (Original Mix) (03:12)
-03. Titus Koibra - Music Is All You Need (Original Mix) (03:01)
-04. Seventy Moods - Parisian Blonde (Original Mix) (03:12)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B270267496D42250DDB0ECFE9E88C7A562366857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047768   (548434) от 31.08.2016
-
-VA - Heaven and Paradise Vol. 4 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Montecarlo Hotel Project - One Night on the Moon (Original Mix) (3:13)
-02. Art Martin - Please Love Me (Original Mix) (3:02)
-03. 5th Groove - Riding the Waves (Next Project's Grand Voyage Mix) (3:15)
-04. Mysterious - Still Dancing in My Head (Original Mix) (3:13)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E82BABBBC18FC05F6397EE2966002FB9D368369
 ```
 
 

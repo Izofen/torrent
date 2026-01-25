@@ -1,3 +1,30 @@
+###  Публикация: 1385963   (795879) от 27.05.2020
+
+Gary Glitter - 100% Gary Glitter (2020) [MP3|320 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock And Roll Part II
+02. Rock & Roll Part 2
+03. Rock On
+04. I'm the Leader of the Gang (I Am)(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 04:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923C1DE04CAC938B990195A9DDFCF54B13F90064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386113   (795880) от 27.05.2020
 
 VA - Beatport Club House: Electro Sound Pack #93 (2020) [MP3|320 Kbps] <Club, Dance, House>
@@ -668,33 +695,6 @@ VA - Попсовый армагедон от Русского радио (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174B046C593B559D63A044B03D10A2DEE09AD894
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011691   (796355) от 28.04.2016
-
-VA - Весенняя Молодежная Хитовая 100-ка (2016) [MP3|256 кб/с] <pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796355.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jarina De Marco - Paranavigar
-002. John Newman Feat. Charlie Wilson - Tiring Game
-003. Rita Ora - Poison
-004. Юрий Федотов & A-Net - Птица(   Читать дальше...   )Жанр: popПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABE260251A2804E1F333D4E37A1C0D3B5440CA5
 ```
 
 

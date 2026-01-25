@@ -1,3 +1,84 @@
+###  Публикация: 913742   (599974) от 01.07.2015
+
+Dance With the Dead - Into the Abyss (2014) [MP3|320 кб/с]<Electronic, Dreamwave>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The descent (Intro) 01:04
+02. Battle 04:15
+03. Moon runner 03:40
+04. Mask 04:15(   Читать дальше...   )Жанр: Electronic, Dreamwave,New Retro Wave.Продолжительность: 00:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658BD06A4B07493FEDD6AF4714CB5865071EBB8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299422   (600025) от 01.05.2019
+
+Monolith - Falling Dreams (2018) Sleepless Records / Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Rhythmic Noise>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Travel (01:10)
+ 02. Sleeping Sun (04:59)
+ 03. Corpus (04:29)
+ 04. Outer Space (01:37)(   Читать дальше...   )Жанр: Industrial, Techno, Rhythmic NoiseПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061984BBD3DAFD2EE5BF7B04743D23FF2E9148F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299005   (600028) от 01.05.2019
+
+Aly & Fila - Future Sound Of Egypt 595 (2019-04-24) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1st hour with John 00 Fleming b2b Paul Thomas
+01. Darin Epsilon – Golden Triangle (Jerome Isma-Ae & Alastor Remix)
+02. Paul Thomas – Allegro
+03. Stereo Underground – Mind Hunter(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF0DF22F14807AB031E6C588975408B90F8B482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299438   (600035) от 01.05.2019
 
 VA - Music for Brainwaves (2019) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
@@ -608,84 +689,6 @@ VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24D0070727D9E1D75290571D1BC8D973631A3D13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548010   (600887) от 01.05.2022
-
-Royksopp (Röyksopp) - Profound Mysteries (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electroclash, Electro Punk>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Nothing But) Ashes… (1:53)
-02. The Ladder (5:34)
-03. Impossible (6:28)
-04. This Time, This Place… (7:44)(   Читать дальше...   )Жанр: Electroclash, Electro PunkПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D74A093578A91A0C79B07E6549E61AA5DF1B567
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548110   (600892) от 01.05.2022
-
-Parov Stelar - Moonlight Love Affair (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <House, Swing House, Electro Swing>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parov Stelar, Vallemarie - Candy Girl (02:42)
-02. Parov Stelar, Russian Gentlemen Club - AKH Odessa (04:01)
-03. Parov Stelar - Toxic Lover (02:56)
-04. Parov Stelar - FIRE (02:34)(   Читать дальше...   )Жанр: House, Swing House, Electro SwingПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FE04293B08E2A7404A40896E7158BEEF9AB100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149220   (601101) от 10.07.2017
-
-José Luis Colque (Structural Fault, Traces Of Ghosts, †Я▲СΣS ❍F GΗ❍5†5, †ЯСΣS ΘF GНО5†5) - Discography 16 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tra ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ґлђαζіήφ Ỳбџ (04:06)Тип издания: WebЖанр: IDM, Ambient, Industrial, Witch House, Experimental, Dark Ambient •Продолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F220B786554351C665FAA07AEFED0A114D477318
 ```
 
 

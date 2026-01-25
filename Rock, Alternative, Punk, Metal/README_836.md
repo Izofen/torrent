@@ -1,3 +1,68 @@
+###  Публикация: 358311   (582027) от 06.07.2011
+
+Asgard - The Seal Of Madness (2011) [MP3|320 kbps]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582027.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disciples [3'28"]
+2. I Spit on your Hands [3'14"]
+3. The Seal of Madness [4'20"]
+4. With Your Shield or On It [4'12"]
+5. Army of Darkness [5'35"]
+6. Fury of the Night [2'23"]
+7. The Age of Steel [2'30"]
+8. Hellbreaker [4'48"]
+9. Asgard Invasion [3'56"]Жанр: Power MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95C7A396A05F744AA43D2750B4DBB5064B91C1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359736   (582035) от 06.07.2011
+
+Panzer Princess - Get Off My Back (2011) [MP3|320 kbps]<Sleaze Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panzer Princess - 5:20
+02. Bumville Judge - 4:04
+03. Get Off My Back - 3:08
+04. I’ll Be In Your Way - 5:12
+05. Asshole, Bastard (Son Of A Bitch) - 2:56
+06. A Mess - 3:18
+07. No Good - 4:16
+08. Sadat Bloody Sadat - 3:39
+09. Gag Me, Cuff Me - 3:52
+10. Please Cum Down - 3:43(   Читать дальше...)Жанр: Sleaze GlamПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25E4AC4B619292A9CF88176B0FBFE711F1B4541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359136   (582067) от 06.07.2011
 
 StoneLake - Marching On Timeless Tales (2011) [MP3|320 kbps]<Heavy metal>
@@ -660,60 +725,6 @@ New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59EF10024811DC83B8381B0F6D3336173C504584
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919515   (583019) от 19.07.2015
-
-Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hardcore / Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer Of Pardon
-02. Dominate
-03. Closing Statement
-04. Rumors(   Читать дальше...   )Жанр: Metalcore / Post-Hardcore / ElectronicПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33484D6F8D8E460C9D2205B27B1FB3B5DE35587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919450   (583022) от 19.07.2015
-
-Himinbjorg - Wyrd (2015) [MP3|320 кб/с]<Pagan/Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583022.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro - Call To The Being
-2. The Sword Of Dignity
-3. The World Of Men Without Virtue - The Circle Of Disillusion
-4. The Circle Of Warriors(   Читать дальше...   )Жанр: Pagan/Black MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF332A36DC17057240875C7045A2A88163AC4294
 ```
 
 

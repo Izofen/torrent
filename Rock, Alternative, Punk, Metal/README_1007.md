@@ -1,3 +1,57 @@
+###  Публикация: 1016381   (770144) от 14.05.2016
+
+Александр Ф. Скляр и Ва-Банкъ - Ястреб (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Анзер
+03. Калечинка
+04. Ястреб(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D2A6B8BDD3DB1F15DDC90249C305CFE855C64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016448   (770274) от 14.05.2016
+
+Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borders & Fences
+02. Times Of Our Lives
+03. A Million Good Reasons
+04. Here I Am(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB75DF0E0B2E288BEC2504AC7563E1B98F6FF7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016228   (770276) от 14.05.2016
 
 Тропы не врут - Точка сборки (2016) [MP3|320 кб/с] <Rock, Punk, Hard-bard>
@@ -638,60 +692,6 @@ Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADEE7F7C3347574EB90610399103715437A14374
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278426   (771990) от 25.01.2019
-
-Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Didn't Know What I Was in For (04:03)
-02. Sleepwalkin' (03:12)
-03. Dylan Thomas (03:36)
-04. Service Road (03:44)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278527   (771992) от 25.01.2019
-
-Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Fantasy (6:45)
- 02. Little Kingdom (6:40)
- 03. A Riot of Color (5:27)
- 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 907784   (630221) от 16.06.2015
+
+Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Silent Desire
+03. Emptiness Of Night
+04. Elegy Of Doom(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904C55D49A360E454D56F88C33286FBD3CC0F40D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035104   (630309) от 15.07.2016
+
+Kiss - Best Of (2002) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Made For Loving You
+02. Detroit Rock City
+03. Heaven's On Fire
+04. Crazy, Crazy Nights(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421A972FFE49EAD5F482B7EF66C7CCFE05BE7D5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907838   (630315) от 16.06.2015
 
 The Meads Of Asphodel - Sonderkommando (2013) [FLAC|image+.cue]<Avant-Garde Black Metal>
@@ -668,60 +722,6 @@ Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294229   (631702) от 06.04.2019
-
-Tommy James & The Shondells - Hanky Panky & It's Only Love (1994) [WavPack|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hanky Panky 1966 1 album
-01. Hanky Panky [0:02:55.65]
-02. I'll Go Crazy [0:02:17.42]
-03. I'm So Proud [0:03:23.65](   Читать дальше...   )Жанр: RockПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E370ED593DEEF9B9920CC2CFE15B1B6A3FC83EC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144049   (631793) от 20.06.2017
-
-Richard Hell & The Voidoids - Blank Generation (1977) Reissue, 1990, Sire, Warner Bros. Records [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Comes In Spurts
-02. Liars Beware
-03. New Pleasure
-04. Betrayal Takes Two(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E948A4B85FF514411D5693181FC951A257F7BB9E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1614935   (1038098) от 24.02.2023
+
+Godsmack - Lighting Up The Sky (2023) [FLAC|24/48|tracks|WEB-DL] <Alternative-Metal, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And I (5:17)
+02. Red White & Blue (4:05)
+03. Surrender (3:41)
+04. What About Me (3:55)(   Читать дальше...   )Жанр: Alternative-Metal, Hard-RockПродолжительность: 00:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0F97F34BD30E82D746E0C6BB6ECB443CF23195
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614920   (1038106) от 24.02.2023
+
+Host - IX (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Gothic-Rock, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wretched Soul (4:22)
+02. Tomorrow's Sky (4:30)
+03. Divine Emotion (4:18)
+04. Hiding From Tomorrow (3:45)(   Читать дальше...   )Жанр: Gothic-Rock, DarkwaveПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7B9159BB39169E745A51B5E5F79C1F21FE8A95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614909   (1038109) от 24.02.2023
 
 Insomnium - Anno 1696 (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Melodic-Death-Metal>
@@ -641,60 +695,6 @@ Dope - Blood Money Part Zer0 (2023) [MP3|320 Kbps] <Nu-Metal, Industrual Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24EAD7567B991A2F76652C861615E9FFA4095297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614726   (1038365) от 23.02.2023
-
-билборды - Меланхолия (2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здесь нет меня [00:02:48]
-02 - Пасмурный вечер [00:02:33]
-03 - Мне так лень [00:02:32]
-04 - Бессонница [00:02:49](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908FADCA289329847557EBEFFFA02983FF02A25E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614904   (1038371) от 23.02.2023
-
-Venomous Concept - The Good Ship Lollipop (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good Ship Lollipop
-02. Time Line
-03. Slack Jaw
-04. Pig(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D4D1559EA206F01104601D6F612A4FCCB94F77
 ```
 
 

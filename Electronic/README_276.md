@@ -1,3 +1,84 @@
+###  Публикация: 1239112   (542436) от 03.08.2018
+
+VA - Kontor Top Of The Clubs 2018.03 (2018) [MP3|320 Kbps] <House, Tech House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Profesor - Bella Ciao (HUGEL Remix) 2:45
+02. Loud Luxury feat. Brando - Body (PBH & Jack Shizzle Extended Remix) 4:57
+03. VIZE - Glad You Came 3:18
+04. Lost Frequencies feat. James Blunt - Melody (Ofenbach Extended Remix) 3:36(   Читать дальше...   )Жанр: House, Tech House, Club House, ProgressiveПродолжительность: 08:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63F1CCD10C7569073DA02231E1FF6153BB33BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238923   (542437) от 03.08.2018
+
+Nickolay Fedorenko - Magic Universe (2015) [FLAC|Lossless|image + .cue] <Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlit Skies
+02. Liftoff
+03. Magic Universe
+04. Space Falcon(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7E69388DD46101D096997DD1A6947BDBF8C598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239034   (542515) от 03.08.2018
+
+Ryuichi Sakamoto - Async (2017) Milan [FLAC|Lossless|tracks+.cue] <Abstract, Ambient, Experimental, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andata (04:39)
+ 02. Disintegration (05:46)
+ 03. Solari (03:52)
+ 04. Zure (05:12)(   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Modern ClassicalПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B53D42632BFB3620FF62B1B4A7DA68423889598F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239080   (542523) от 03.08.2018
 
 VA - Ultimate Workout & Fitness Selections Vol 02 (2018) [MP3|320 Kbps] <Progressive House>
@@ -608,87 +689,6 @@ Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D902AD14CFCAAAE420D77AC092C030F9574399F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049324   (544856) от 04.09.2016
-
-VA - Smooth Jazz With Sex (2014) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Groove Squad - I Don't (Lounge Mix) (4:42)
-02. Klaus Appel, Boris Friedel & Peter Weiner - Take 5 (7:02)
-03. Digilogue - Farhad (4:54)
-04. Mattias Roos - Pressure (feat. Magdalena Chovancova) (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8842F79E3F69867E3A1627039FF096DDF3627B6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049175   (544911) от 04.09.2016
-
-VA - Lets Lounge Together (2016) [MP3|320 Kbps] <Jazz, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phillip Ashmore - Luxury Living 5:10
-02. Sarah Jane Morris - Me and Mr. Jons (Bossa Version) 3:31
-03. Gak Sato - Green City 5:46
-04. Leo Cesari - Alla luce del giorno 4:46(   Читать дальше...   )Жанр: Jazz, Lounge, ChilloutПродолжительность: 02:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C00C7FBBF0B6D268A1E0C0654024CF523C8B54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049209   (544916) от 04.09.2016
-
-VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Fibreglasses (3:12)
-02. Breathe Carolina - Giants (3:24)
-03. Codeko - Halo (3:36)
-04. David Gravell - The Riddle (3:31)(   Читать дальше...   )Производство: Armada CaptivatingЖанр: TranceПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1462875   (1020873) от 16.04.2021
+
+Robbie LaBlanc - Double Trouble (2021) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Human
+02. Start The Motor Running
+03. Good Time
+04. Voodoo Woman(   Читать дальше...   )Жанр: AORПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD5A53F04111C9AF6BAB876C6F139BDCEBED696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462632   (1020877) от 16.04.2021
+
+Alias - Never Say Never (2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman Enough
+02. XTCOI
+03. How Much Longer Is Forever
+04. Give Me A Reason To Stay(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E69CCAF47798AE1336FF580ED354F4A5C43784D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462468   (1020956) от 15.04.2021
 
 Marc Reece - Dreamer (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
@@ -640,60 +694,6 @@ magnet:?xt=urn:btih:5143347CC08BA5B305F598A298C0B79C5F97E7BD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0EBFA2242F44F1A77A25CCC461CF3AD515C822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462077   (1021446) от 12.04.2021
-
-Браво & Евгений Осин - Скажем мы друг другу "Браво!" (1989) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021446.jpg" />
-</div>
-
-
-###  Подробнее
-
-По случаю 60-летнего юбилея первого полета человека в космос, мы решили приурочить к этой дате релиз нашего альбома "Скажем мы друг другу "Браво!", который был записан в далеком 1989 году, но до сих пор не был представлен официально в нашей дискографии. Одна из заглавных песен с этого альбома как раз посвящена выдающемуся человеку - Юрию Гагарину! (   Читать дальше...   )1. На танцплощадке
-2. Юрий Гагарин
-3. Звёздный Шейк
-4. Мне грустно и легко(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F4840C195B4EC4263EAB76E278027B0A1B0224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462040   (1021455) от 12.04.2021
-
-Sellout - Микрорайоны потухших глаз (2021) [MP3|320 Kbps] <Punk Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021455.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Русская боль
-2. Андеграунд на Руси
-3. Мама, я Панк (feat. Смех)
-4. В плену панических атак (feat. Операция Пластилин)(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0506DDD3B988A3E76CBA5EAE4E8339FAC39566CE
 ```
 
 

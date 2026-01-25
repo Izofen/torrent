@@ -1,3 +1,57 @@
+###  Публикация: 1110319   (852266) от 03.03.2017
+
+Ember Falls - Welcome To Ember Falls (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Modern Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cost Of Doing Business (3:41)
+02. Falling Rain (3:07)
+03. Of Letting Go (4:04)
+04. The Enemy You Need (3:35)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3043AD0BB220A9B7FF0FD1F75147FC771DE1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110506   (852268) от 03.03.2017
+
+Vitja - Digital Love (2017) [MP3|320 Kbps] <Metalcore, Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scum (02:47)
+02. D(E)ad (03:57)
+03. No One as Master No One as Slave (04:25)
+04. Roses (03:10)(   Читать дальше...   )Жанр: Metalcore, ProgressiveПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EFE1181E495BF08A33E7E2EC25DED85AB616D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110499   (852280) от 03.03.2017
 
 Bungler - The Nature Of Being New (2017) [MP3|320 Kbps] <Metalcore, Hardcore>
@@ -640,60 +694,6 @@ Van Rockman - The Lost Tapes (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2F76CB4406AEEA607842ECF87EE9BD22E779165
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001338   (853788) от 28.03.2016
-
-VA - The All Time Greatest Rock Songs Vol.1 (1998) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns n' Roses - Sweet Child O'Mine (5:54)
- 02. Meatloaf - Bat Out Of Hell (4:44)
- 03. Midnight Oil - Beds Are Burning (4:15)
- 04. INXS - Need You Tonight (3:01)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F0F863508E0B70F348D1904D31F7BF3548AE2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110243   (853804) от 02.03.2017
-
-Immolation - Atonement (2017) [FLAC|lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Distorting Light (03:14)
-02. When the Jackals Come (03:54)
-03. Fostering the Divide (03:27)
-04. Rise the Heretics (03:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385981694B2BC85B983A57FE9778622C6B5F2314
 ```
 
 

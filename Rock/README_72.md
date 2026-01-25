@@ -1,3 +1,57 @@
+###  Публикация: 1286218   (714921) от 01.03.2019
+
+Mike Tramp - Stray From The Flock (2019) [MP3|320 Kbps] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714921.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - No End to War 8:37
+ 2 - Dead End Ride 4:07
+ 3 - Homesick 5:01
+ 4 - You Ain't Free Anymore 4:32(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF6E07F365DEA1CAF6EFA176E11590F89F8ECBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286012   (716681) от 28.02.2019
+
+Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light
+02. That’s How Strong Our Love Is
+03. Part Friday Night, Part Sunday Morning
+04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207691   (717193) от 08.06.2010
 
 Emerson, Lake & Palmer - From the Beginning [5 CD Boxset] (2007) [MP3|320 kbps]<Progressive rock, Symphonic rock>
@@ -641,60 +695,6 @@ Gerard Manset (также известный как Manset; родился 21 а
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB7E9C49C155BDC41F41D59D41A8D41F257F7315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526959   (737784) от 26.01.2022
-
-Heymoonshaker - Live in France (2017) [MP3|320 Kbps] <Alternative, Beatbox Blues, Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Find Myself a Home (Live in France, 2017) (03:56)
-02. Feel Love (Live in France, 2017) (03:21)
-03. Heavy Grip (Live in France, 2017) (03:43)
-04. Wheels in Motion (Live in France, 2017) (03:39)(   Читать дальше...   )Жанр: Alternative, Beatbox Blues, Acoustic RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C594449048034D0DB95F58B76838608CC6A0B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526623   (738121) от 25.01.2022
-
-Deep Purple - Turning To Crime (2021) Bonus Track Edition [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз полностью состоит из каверов на классику рока и не только. В частности - на песни Боба Дилана, Fleetwood Mac, Боба Сигера, Cream и The Yardbirds, которые тщательно отбирали все участники группы. Продюсером пластинки вновь стал Боб Эзрин, работавший с группой на предыдущих альбомах.01. 7 And 7 Is (Love cover) (02:28)
-02. Rockin' Pneumonia And The Boogie Woogie Flu (Huey Smith and The Clowns cover) (03:15)
-03. Oh Well (Fleetwood Mac cover) (04:31)
-04. Jenny Take A Ride! (Mitch Ryder and The Detroit Wheels cover) (04:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3B20AF3290A4FFFFB23A48D9C0D4E44A9C3E29
 ```
 
 

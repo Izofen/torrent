@@ -1,3 +1,57 @@
+###  Публикация: 1617927   (1034567) от 09.03.2023
+
+Milking the Goatmachine - From Slum to Slam - The Udder Story (2019) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Now We Are Old School
+2.	Milking Me Softly
+3.	Like an Everflowing Cream
+4.	Wolverized(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFCD378D397D25D220BD2089E4B32D0071FCB80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618010   (1034568) от 09.03.2023
+
+Долгая История - Отголоски Прошлого (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На Взлёт!
+02. Точка Невозврата
+03. Удар Током
+04. Ночь Коротка(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE1C0C7EFCF427039A77231FE195DD7ED83927F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617969   (1034573) от 09.03.2023
 
 Hyperdontia - Hideous Entity (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -640,57 +694,6 @@ The Inspector Cluzo - Horizon (2023) Scene [FLAC|Lossless|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19C01444C19385FEFFC0627A13A2469564805FEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617476   (1035048) от 07.03.2023
-
-Milking the Goatmachine - Greatest Hits - Covered in Milk (2014) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ma Baker (Жанр: Death Metal, GrindcoreПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19764BC36073915EA4C67AC4A7659E13A06F52F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617537   (1035049) от 07.03.2023
-
-Ожог - Электростанция Z (2004) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Висяк [00:05:48]
-02. Машина [00:04:31]
-03. Песня рабочего-литейщика [00:04:28]
-04. Смерть в кредит, Ч. 5 [00:04:16](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67899B546831608F1604B277DDDD98CC24998EAA
 ```
 
 

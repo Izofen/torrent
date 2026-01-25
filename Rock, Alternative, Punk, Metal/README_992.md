@@ -1,3 +1,64 @@
+###  Публикация: 518852   (750365) от 01.05.2014
+
+Воскресение (Алексей Романов, СВ) - 25 альбомов (1979-2007) [MP3|128-320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 1979-2007Жанр: RockПродолжительность: 01:02:14
+
+01 | Мчится поезд | 03:32
+02 | Случилось что-то в городе моем | 04:22
+03 | Я тоже был | 02:23
+04 | Клгда ты уходишь | 03:19
+05 | Дело Дрянь | 04:07
+06 | Научи меня жить | 03:46
+07 | Последняя любовь | 03:15
+08 | Я ни разу за морем не был | 02:36(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A70FC7AB1FF0C4DFB23F224D13064BC7CFA8FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782551   (750406) от 01.05.2014
+
+VA - Billboard Top Rock'n'Roll Hits (1970-1972, 1974) 4CD /1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
+А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1970
+Продoлжитeльность: 00:32:06
+Трeклиcт:
+01. Shocking Blue - Venus  (3:05)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF58D61E8F9A7CB7D5B615DB79E77E46FD0197EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 781989   (750421) от 01.05.2014
 
 VA - Billboard Top Rock'n'Roll Hits (1960-1964) 5CD  /1993 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
@@ -642,60 +703,6 @@ Edge Of Paradise - Immortal Waltz (2015) [FLAC|Lossless|image + .cue] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B5BE77837AE55DDE24F1C4323FDBBD23C3E138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395877   (752280) от 12.07.2020
-
-Форт Росъ - Корни в огне (2020) [MP3|320 Kbps] <Pagan Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В тени креста (04:50)
- 02. Конец легенды (03:55)
- 03. Сын своего отца (03:58)
- 04. Рожденный в крови (03:53)(   Читать дальше...   )Жанр: Pagan Metal, Folk MetalПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1353808C2F54D38D498FE950AADC752367AF374C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395809   (752284) от 12.07.2020
-
-Michael Grant & The Assassins - Always the Villain (2020) [MP3|320 Kbps] <Hard Rock , Glam Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barrel of a Gun (03:36)
- 02. Always the Villian (04:51)
- 03. Killing Me Slowly (04:55)
- 04. Nightmares (05:26)(   Читать дальше...   )Жанр: Hard Rock , Glam MetalПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E9C939EB47B27F4E53F76C3C82DEA31646FB07
 ```
 
 

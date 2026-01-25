@@ -1,3 +1,57 @@
+###  Публикация: 1466864   (1018118) от 02.05.2021
+
+Kreek - Kreek (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Bottom Of Hell
+02. Missiles
+03. Meet Your Maker
+04. Million Dollar Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23E53B17C1074F8709A8A05F5D1ADC45378E7080
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466836   (1018120) от 02.05.2021
+
+Escape - Unbreakable (2012) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Still Alive
+02. Unbreakable
+03. Best Of Me
+04. Living On The Wrongside(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D5B7BD8F637B5CBA1BB052FCCEAEB7EEC1C33B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466834   (1018122) от 02.05.2021
 
 Escape - Borderline (2013) [FLAC|Lossless|image + .cue] <Melodic Rock>
@@ -641,60 +695,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4085AC8D2C1BA0FBC896897A16487B202E92200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466343   (1018405) от 30.04.2021
-
-Gojira - Fortitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Born For One Thing [00:04:20]
-02 - Amazonia [00:05:00]
-03 - Another World [00:04:24]
-04 - Hold On [00:05:30](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B1C8121C0B5E97577B2B98A84753A6DBFCDF6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466522   (1018406) от 30.04.2021
-
-Touch - Tomorrow Never Comes (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow Never Comes
-02. Let It Come
-03. Swan Song
-04. Try To Let Go(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FBED86733625B3C47E6F23DE5897E115B8ED78
 ```
 
 

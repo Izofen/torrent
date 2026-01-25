@@ -1,3 +1,30 @@
+###  Публикация: 999631   (862670) от 23.03.2016
+
+VA - 200 Tracks for Running & Jogging (2016) [MP3|320 кб/с] <Fitness & Workout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862670.jpg" />
+</div>
+
+
+###  Подробнее
+
+0001.  Discojack  Lucas Reyes - Hold My Hand
+0002.  Phil Fuldner - Tuesday Pm (Peter Kharma Remix) (Feat Desmond)
+0003.  Luna Moor  Diaz - Hey People Look Me (Absolut Groovers Remix)
+0004.  American Groove Junkies - Reach You (Radio Version)(   Читать дальше...   )Жанр: Fitness & WorkoutПродолжительность: 19:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06834EC5689827999777581C653BE426BA3B0B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999840   (862672) от 23.03.2016
 
 VA - Музыка хорошего настроения 5 (2016) [MP3|256-320 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999526   (864213) от 22.03.2016
-
-Линда - Шаманка (The Best of) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Шаманка
-02 - Мало огня
-03 - Ворона
-04 - Марихуана(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC73225FD87E9A8C18C251F790AA84C8C90804A8
 ```
 
 

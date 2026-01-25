@@ -1,3 +1,57 @@
+###  Публикация: 1146634   (612862) от 30.06.2017
+
+The Corrs - White Light (2015) [FLAC|Lossless|image + .cue] <Pop-Rock, Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Do What I Like 03:37
+02. Bring On The Night (Andrea Corr, Caroline Corr, Sharon Corr, Jim Corr) 04:16
+03. White Light 03:15
+04. Kiss Of Life 03:59(   Читать дальше...   )Жанр: Pop-Rock, Folk-RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284EADC7CD2AC2E438762244E6CC74F09B7F213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545372   (612887) от 20.04.2022
+
+Ribbons of Euphoria - You Don't Care (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3/4" Bullet (Running Through My Mind)
+02. You Don't Care
+03. Foundation of Control
+04. Hold on to My Gun(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243A2A55C621D0E9AF54A41FC07DCAA4C904D007
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911384   (612898) от 25.06.2015
 
 Lloyd Project - Shelter (2015) [MP3|320 кб/с]<Progressive / Art Rock>
@@ -641,60 +695,6 @@ ORRA (ΩЯRΑ) - Unbounded (2022) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7841B33BF43A6E6F439D823485F9F83F6EA26070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296197   (613305) от 16.04.2019
-
-Nirvana - Live At The Paramount 1991 (2019) [MP3|320 Kbps] <Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Doesn’t Want Me For A Sunbeam 03:29
-02. Aneurysm 04:49
-03. Drain You 03:46
-04. School 02:51(   Читать дальше...   )Жанр: Rock, GrungeПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67A9E3C8857AE8446FCC9672669976D3D36B134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296305   (613308) от 16.04.2019
-
-Pink Floyd - The Division Bell (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cluster One (5:57)
-02. What Do You Want From Me (4:24)
-03. Poles Apart (7:02)
-04. Marooned (5:31)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05225DF79EE422DB793F460A5396F85D2F99BC77
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1120723   (801279) от 01.04.2017
+
+Hitten - State Of Shock (2016) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Side of Heaven
+02. Don't Be Late
+03. Can't Bring Me Down
+04. Victim of the Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C527E45B6C11D133AD6176A09E2489E8FCCD575A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120708   (801283) от 01.04.2017
+
+Elektradrive - Elektradrive (1995) [APE|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Back On The Road
+02. A Man That Got No Heart
+03. Due
+04. The Magic Lamp(   Читать дальше...   )Жанр: AORПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133AAE5C10E93A073A7C6B2F48253C418A1CAD0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120750   (801286) от 01.04.2017
 
 Muro - Pacto De Sangre (1992) [APE|Lossless|image + .cue] <Heavy Metal>
@@ -644,60 +698,6 @@ David Reece - Blacklist Utopia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B676F6C09BAF62D86282AF8E506D4AD9B9510CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505946   (801734) от 29.10.2021
-
-The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801734.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Motors - британская группа новой волны, образованная в 1977 году в Лондоне, Англия, бывшими участниками Ducks Deluxe Ником Гарвеем и Энди Макмастером (с гитаристом Брэмом Чайковски и ударником Рики Слотером). The Motors, исполнявшие отмеченный технически точными, размашистыми аранжировками поп-рок с элементами паб- и панк-рока, получили известность благодаря (   Читать дальше...   )Список альбомов:
-1977 - 1
-1978 - Approved By The Motors
-1980 - Tenement Steps(   Читать дальше...   )Жанр: Pub Rock, Power Pop, New WaveПродолжительность: 02:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505979   (801735) от 29.10.2021
-
-This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Le Jour D'avant (00:01:40)
-02 - The Storm (Part I) (00:05:37)
-03 - The Storm (Part II) (00:04:36)
-04 - Limited (00:02:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BE9AA2CD10333D704E5BC5118D67A20A7DF802
 ```
 
 

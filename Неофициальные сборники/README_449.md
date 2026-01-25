@@ -1,3 +1,30 @@
+###  Публикация: 1401019   (713323) от 08.08.2020
+
+VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713323.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sirius Delta - Stray
+002. Moam - Run With It
+003. Dorian Lay - Level Down
+004. Hdsn - Shake The Ground(   Читать дальше...   )Жанр: House, Electro, ClubПродолжительность: 10:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219359   (713329) от 14.04.2018
 
 VA - Ultimate Chillout Dreams (2018) [MP3|256-320 Kbps] <Ambient, Chillout, New Age>
@@ -668,33 +695,6 @@ VA - Блатной музобоз (2016) [MP3|256 кб/с] <Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE41BB4E7855CBCA4543F3B37069842369F9CFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130672   (714225) от 02.05.2017
-
-VA - Romantic Erotic Piano: Sensual Erotic Jazz (2017) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Music Lovers Club - Romantic Erotic Piano
-02. Lovely Heart Zone - Intimate Evening
-03. Romantic Piano Background Music Academy - All Night
-04. Sexy Lovers Music Collection - Pure Romance(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998504CD82446C00941E16B924B722D3B31C8B05
 ```
 
 

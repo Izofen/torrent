@@ -1,3 +1,84 @@
+###  Публикация: 1200173   (796319) от 20.01.2018
+
+VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Duke Dumont & Gorgon City - Real Life (feat Naations) (3:21)
+02.Tieks - Say A Prayer (feat Chaka Khan & Popcaan) (3:35)
+03.Zedd & Liam Payne - Get Low (3:23)
+04.Jax Jones - Instruction (feat Demi Lovato & Stefflon Don) (2:43)(   Читать дальше...   )Жанр: Electro House, Euro House, HouseПродолжительность: 02:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFC00FBC65128A2FA5DEA640C6EC7B1B9FF5B5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011822   (796357) от 28.04.2016
+
+Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Code 10-66 (02:41)
+02. Markus Schulz feat. Brooke Tomlinson - In The Night (03:53)
+03. Markus Schulz feat. Ethan Thompson - Love Me Like You Never Did (04:23)
+04. Markus Schulz feat. Delacey - Destiny (03:48)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Progressive HouseПродолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200470   (796387) от 20.01.2018
+
+Exist Strategy - Cold Dawn (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mend (02:19)
+ 02. Closer (03:26)
+ 03. Diamonds (01:25)
+ 04. Mirror of Kalandra, Pt. 2 (03:47)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B8C95885927314D8F9F095EA9E8CEF66D98600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200249   (796410) от 20.01.2018
 
 VA - Your Running Music 11 (2018) [MP3|320 Kbps] <Trance>
@@ -611,87 +692,6 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200047   (796998) от 19.01.2018
-
-VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Psycho Motion  -  Supernova (Original Mix)  8:06
-02.  Naoufal Lamrani & First Sight  -  Misery (Radio Edit)  3:14
-03.  Emme  -  Hydra (Original Mix)  4:08
-04.  BarTar  -  East Direction (Original Mix)  6:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E975FE7A873E12DCEE4EA5804B65AF036076673
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200097   (797003) от 19.01.2018
-
-VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Force of Nature (Original Mix)
-02. DJ T.H. - Haunting (Darren Porter Remix)
-03. Paul Webster - Hold On (Quest 4 Trance Beach Anthem 2014)
-04. Paul Denton - The Middle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0517EA8B1EEEB6A4678212B290CF0B839FAA03A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200066   (797007) от 19.01.2018
-
-VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor, Somna & Diana Leah - There Is Light
-02. Holbrook & SkyKeeper - Time Of The Long Shadows (extended mix)
-03. Somna & Melissa Loretta - Brave
-04. Fahjah & Michele C - I Choose You(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
 ```
 
 

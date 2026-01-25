@@ -1,3 +1,57 @@
+###  Публикация: 1216298   (749313) от 31.03.2018
+
+Ken Hensley - Rare and Timeless (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Me
+02. Send Me an Angel
+03. If I Had the Time
+04. Guilty(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072DA2CB50C37AC4C7C5BA09E8FA614F3FA2138A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216508   (749318) от 31.03.2018
+
+VA - Rock Covers (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749318.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:00] 01. Nickelback - We Will Rock You
+[1:58] 02. Everlone - Breakfast In America
+[3:50] 03. Black–ingvars - Livin' La Vida Loca
+[4:31] 04. Nonpoint - In The Air Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00DD1FB80BB1D3E7FD4D5925743CFF76E5A9872E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 889217   (750121) от 17.04.2015
 
 Stone Diamond - Phoenix (2015) [MP3|320 кб/с]<Retro-Rock, Pop Rock>
@@ -641,60 +695,6 @@ Cloud Nothings - The Black Hole Understands (2020) [MP3|320 Kbps] <Indie Rock, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17B0C286AC3C3322C6141D5951EAD63D4916951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394483   (763743) от 05.07.2020
-
-Republica - Republica (2020) 3 x CD [MP3|320 Kbps] <Alt.Rock, Techno>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763743.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 :
- 01. Ready To Go (05:01)
- 02. Bloke (04:51)
- 03. Bitch (05:16)(   Читать дальше...   )Жанр: Alt.Rock, TechnoПродолжительность: 03:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29F7A5100F44BF3E21A8303C6284A69E9818BD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394418   (763747) от 05.07.2020
-
-Cevilain - On Death & Dying (2020) [MP3|320 Kbps] <Hard Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It Ends (03:54)
- 02. Crisis (04:00)
- 03. (Penance) (01:20)
- 04. Take Shelter (03:49)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6402C3BED5C9D47DE067F7C56ED3E23D4365DDA7
 ```
 
 

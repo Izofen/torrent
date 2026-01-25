@@ -1,3 +1,57 @@
+###  Публикация: 1543226   (517599) от 02.07.2022
+
+Ангел-Хранитель - 6 Albums, 9 Singles (2015-2022) [MP3|320 Kbps] <Heavy Metal, Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:52]
+02. Раньше было... [00:05:03]
+03. Везучий [00:03:41]
+04. Волчья ягода [00:04:28](   Читать дальше...   )Жанр: Heavy Metal, Horror PunkПродолжительность: 15 CD, 06:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6A8332CE39F1A47F0668E15BB7E4A35596774F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560931   (517647) от 02.07.2022
+
+Shining Black - Postcards From The End Of The World (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Postcards From The End Of The World (3:48)
+02. Higher Than The World (5:45)
+03. We Are Death Angels (4:52)
+04. Summer Solstice Under Delphi's Sky (4:29)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:185E6AE25730CF5200E84C008589E9859C767CF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560549   (517715) от 02.07.2022
 
 Porcupine Tree - Closure / Continuation (2022) 2CD, Limited Edition [MP3|320 Kbps] <Progressive Rock, Experimental, Ambient>
@@ -640,60 +694,6 @@ Hartmann - Hands On The Wheel (2018) [MP3|320 Kbps] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D97A1593289EC0C3A96F17AC637422BC3D3F7DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241754   (518350) от 19.08.2018
-
-Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daylight
-02. Your Love Is Like A Car Crash
-03. I Want To Come Back Home
-04. I’ll Do Me, You Do You(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241815   (518359) от 19.08.2018
-
-The Guess Who - The Future Is What It Used To Be (2018) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Young
-02. Runnin' Blind
-03. Talks All The Time
-04. Baby's Come Around(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0613F60585E55E92690E15BF50819F04A80F7EE3
 ```
 
 

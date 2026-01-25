@@ -1,3 +1,57 @@
+###  Публикация: 1601792   (1046347) от 02.01.2023
+
+Jaime Kyle - Wild One (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild One (3:34)
+02. Driving With The Brakes On (3:39)
+03. Change (3:56)
+04. Blue Night (6:16)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E70CA6BD7229EAA774210C4C1E95346E219A71F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601729   (1046349) от 02.01.2023
+
+Transcend All Negative Energy - Trust the Penguin (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust the Penguin (Intro) [00:02:24]
+02. Blue Mullet Society [00:03:46]
+03. I Wanna Get Away [00:04:26]
+04. Grenades, Pt. 3 [00:04:13](   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3070FA81313BCFACFC496957687FC0F01BD729B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601717   (1046350) от 02.01.2023
 
 Nova Epica - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -641,60 +695,6 @@ Darko US - Dethmask, Pt. 1-2 (2020-2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE0C42D19992E9046681D14C11B672D8ACEC4C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601403   (1046461) от 01.01.2023
-
-Doomster Reich - Blessed Beyond Morality (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Discover Self-Love (13:39)
-02 - Spleen LXXIX (11:42)
-03 - Wish You Weren't Here (10:08)
-04 - Rape! (11:29)(   Читать дальше...   )Жанр: Psychedelic Doom MetalПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5EC797DD7CCE7182B004FA63A88274702F64A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839255   (1046508) от 28.11.2025
-
-Marytale - Тёмное царство (2025) [MP3|320 Kbps] <Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046508.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Лес [00:01:48]
-2. Тёмное царство [00:02:48]
-3. Дракон [00:03:33]
-4. На твоей стороне [00:02:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE08AD173135FF761CF7BE8FE06D132E0C2A1B8C
 ```
 
 

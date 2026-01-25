@@ -1,3 +1,84 @@
+###  Публикация: 1096268   (920980) от 23.01.2017
+
+VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Dreamscape  6:11
+02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
+03.  DJ Riquo - Deep Winds  5:08
+04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096351   (920986) от 23.01.2017
+
+VA - Cool Chillout Music: Nice Chill Out Bestsellers (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Rostej - Minutes of Stories (Chillout Mix)  2:46
+02.  Seven24 - Behind the Sky (Chillout Mix)  5:11
+03.  DJ Rostej - Long Way (Chillout Mix)  4:46
+04.  MAA - Light of Soul (Chillout Mix)  2:24(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B0638C9474E1D65A6CF0745E2FD7DBEE093665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096138   (920991) от 23.01.2017
+
+VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sufi's Life - Blessings To All [08:49]
+02. Tor.Ma In Dub - The Secret Message [04:00]
+03. Ishdub - Tatanka (Melodica Version) [06:17]
+04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096368   (921090) от 23.01.2017
 
 VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -619,86 +700,6 @@ VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095591   (922879) от 22.01.2017
-
-VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  UDM - Omega (Extended Mix)  6:10
-02.  TrancEye - Yearning (Original Mix)  7:10
-03.  Symon & Jay - Aerify (Extended Mix)  6:57
-04.  Asteroid - Gravitation (Extended Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA3E0C93CF32B1FFB82ABC2F136541127ECC630F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197642   (923476) от 11.03.2020
-
-Bionika Records | Deepfono Ground - Label-Pack 18 Releases (2017-2020) Parent: Tehnofonika Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Acid, Deep House>
-
->>Electronic
->>Label-Packs
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trash (05:52)
- 02. Puzzler (07:25)
- 03. Carrier (06:28)Тип издания: WEBЖанр: Dub TechnoПродолжительность: 07:44:42 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC6E535FF37CCF3D1742B3C0B3430CEAE418F307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365579   (923578) от 17.08.2021
-
-pl8 - Discography 7 Releases (2019-2021) opn g8s [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Once (08:59)
- 02. Wet White Lumps (04:53)
- 03. Missed Opportunities (04:19)
- 04. Causing Sensual Revelations (05:38)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Abstract, Downtempo, Ambient •Продолжительность: 07:47:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D6156BD954CB1082DD968CE658719EEB0C26660
 ```
 
 

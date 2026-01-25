@@ -1,3 +1,57 @@
+###  Публикация: 1018792   (754011) от 21.05.2016
+
+Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up (4:31)
+02. Momma's Boy (4:35)
+03. House Of Cards (4:41)
+04. Begging For Mercy (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EF0B8E255EAF6BDF24C4E0C8B58D102967B551
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018900   (754085) от 21.05.2016
+
+Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovin' Every Minute of it (Robert John "Mutt" Lange)
+02. Steal the Thunder (Paul Dean, Mike Reno, Davitt Sigerson, Bill Wray)
+03. Friday Night (Patrick Mahassen, Wray, Dean, Sigerson)
+04. This Could Be the Night (Jonathan Cain, Dean, Reno, Wray)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BBBA51726817E60743CC07C8815D13FFBAA86F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018921   (754086) от 21.05.2016
 
 Voodoo X - Vol. 1 The Awakening (1989) [APE|Lossless|image + .cue] <Melodic Hard Rock>
@@ -642,60 +696,6 @@ Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395283   (755662) от 10.07.2020
-
-Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift of Fire (07:59)
- 02. Sediment (05:15)
- 03. Drone (09:27)
- 04. ~Hypnocurrents~ (00:50)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018515   (755735) от 20.05.2016
-
-Destruction - Under Attack (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Attack
-02. Generation Nevermore
-03. Dethroned
-04. Getting Used to the Evil(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39187B9C3BF58B1439E174A45AB5F6C8B21D028
 ```
 
 

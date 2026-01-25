@@ -1,3 +1,84 @@
+###  Публикация: 1030500   (674991) от 30.06.2016
+
+VA - So Cool - Miami Deep (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kay Burst - Let Loose the Fire
+02. H3O - Organic Phase - Alternative Remix
+03. Rawbeats - Speed Up - Tom's Rework
+04. William Lacroix - Bizznizz - Cash Plus Version(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71A50691B154CAE4910DE0FA7330137E3F76D899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030615   (674994) от 30.06.2016
+
+VA - Sophisticated Deep House Grooves Vol.2 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invert Of Playground - Office Rigor (Deeprama Mix)
+02. Festival Of Marine - Freedom Life (Sexy Sax Mix)
+03. Oblivious Smudge - Be Free on the Street (Original Mix)
+04. Lunatic Youth - Suspance (Mandragora's Vocal Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1489F00C874F50C547E01DD168FD1092EB4ABE9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536467   (675006) от 12.03.2022
+
+VA - Female Vocal Trance (2022) [MP3|320 Kbps] <Trance, VocalTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 S.trings & Sarah Russell - Change The World (3:09)
+02. Myde & Hanna Finsen - My Heart Stood Still (3:19)
+03. Ronski Speed & Elara - I'll Be There (3:35)
+04. Temple One & Katty Heath - In Everything I See (3:15)(   Читать дальше...   )Жанр: Trance, VocalTranceПродолжительность: 04:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417FCA7F0614EB4275ACC2F147B258116940A9AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136280   (675065) от 22.05.2017
 
 VA - Chillout Music Mix. Wonderful Journey 2017 Vol.02: Mixed By Deep Dreamer  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -617,87 +698,6 @@ VA - Black Hole House Music 05-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5B3AC885A0AE2E4C2F337346641FF262EF2273F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135935   (677386) от 21.05.2017
-
-Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Disillusioned  3:51
-2. Afterglow  8:05
-3. Fall Embrace  6:25
-4. West Winds  6:43(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90141B690DAA36901B7AE8C60F1BFE44BF7849DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136202   (677390) от 21.05.2017
-
-M-Tronic - Frontiers (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677390.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 10 Seconds After Sunrise (08:05)
-2. Stratosphere (04:40)
-3. Nightfall (06:29)
-4. Centaur Star (04:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B6A22E330E8AE61185C111375A8DA68C6765F82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223286   (677395) от 03.05.2018
-
-VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kacper Kirtz - Funkmaster 03:12
-02. Joscha Rickert - Whitesea 03:09
-03. Gilbert Nouls - Honored 03:09
-04. Georg Miller - Formance 03:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1104775   (880057) от 15.02.2017
+
+The Bhaktas - Darshan Atmosphere (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ananda Purnima VII (Darshan Atmosphere Remix) [00:12:48]
+02. Samgachadvam (Darshan Atmophere Remix) [00:07:52]
+03. New Dawn (Darshan Atmosphere Remix) [00:08:24]
+04. Cosmic Mantra (Darshan Atmophere Remix) [00:12:11](   Читать дальше...   )Жанр: Psychill, AmbientПродолжительность: 01:08:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077BF836D30F900B3D9E26B6E87D014DB5525804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104676   (880072) от 15.02.2017
+
+VA - Future House 2017-01 - Armada Music (2017) [MP3|320 Kbps] <Progressive House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Norman Doray - All In (Olin Batista Remix) [03:05]
+02 Boehm feat. Brandyn Burnette - Let's Give It A Shot [03:07]
+03 CAZZETTE feat. Laleh - Blue Sky (SAINT WKND Remix) [02:49]
+04 Galavant - Falling [02:55](   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E42FC592C5B51E5C721EF2EF425FDC544FF0E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373269   (880146) от 06.04.2020
+
+VA - Stay At Home (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Underbeat; Dottex - Diligence (6:45)
+2. Solarix; Planet 6 - Solar 6 (Domateck Edit) (6:32)
+3. Phanatic - SkyFall (7:35)
+4. Solaris; harmonika - Samadhi (7:25)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD124B47B3B749051AE9FD719DBB23A5C6BCBC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373361   (880338) от 06.04.2020
 
 The Now - Bobby Orlando Presents Now (2013) [FLAC|Lossless|image + .cue] <New Wave, Power Pop>
@@ -610,87 +691,6 @@ VA - Love & Chill Out Valentines Day (2017) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7976A84042101E3F379D4A5AFD79139EAD4FCF39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104173   (881978) от 14.02.2017
-
-VA - All The Way Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda - Festa Do Sol  5:05
-02.  Enrico Donner - Everybody Knows  6:30
-03.  Cane Garden Quartet - I'll Be Loved  6:37
-04.  Zero Feedback - Rien Ne Va Plus (Don Gorda Project Remix)  7:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB27E9BF5BE45CE352A3723148E54AF3CA84F6D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373132   (881992) от 05.04.2020
-
-VA - Drizzly Music presents: Dubai Loungers Series (Only For The Riches) - 5 Releases (2009-2016) [MP3|320 Kbps] <Lounge, Easy Listening, Lo-Fi>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881992.jpg" />
-</div>
-
-
-###  Подробнее
-
-2009 - Dubai Loungers • Only For The Riches
-2010 - Dubai Loungers • Only For The Riches, Vol.2
-2015 - Dubai Loungers • Only For The Riches, Vol.3 (Cafe Chill Out Edition)
-2015 - Dubai Loungers • Only For The Riches, Vol.4 (Cafe Chill Out Edition)(   Читать дальше...   )Жанр: Lounge, Easy Listening, Lo-Fi, Chillout, DowntempoПродолжительность: 09:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAAC345DCA81542348A7CD40C4EB6889D74BD5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373066   (882002) от 05.04.2020
-
-VA - Arecibo Calling (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882002.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ORII - Steps (6:41)
-2. Samra - Inside Your Head (7:26)
-3. Effective - Free Flow (6:00)
-4. Sawlead - Ram Like Floyd (7:23)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F97FF9EC2ABA5D56BFCAA81E035C8EEA4E7643D
 ```
 
 

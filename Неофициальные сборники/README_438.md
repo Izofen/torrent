@@ -1,3 +1,30 @@
+###  Публикация: 1132630   (698689) от 10.05.2017
+
+VA - Fleeting Moment: Dream Blues Compilation (2017) [MP3|320 Kbps] <Rock Blues, Country>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698689.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 'sir' Oliver Mally's Blues Distillery - Fleeting Moments 6:46
+002. Aj & The Badcats - Acadiana's Song 4:06
+003. Al Jones & His Band - People 4:16
+004. Al Jones & His Band - You Don't Have To 4:55(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 08:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A285FBBBCAA9E6F22E8D39D5241C107102D6BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132652   (698692) от 10.05.2017
 
 VA - Вальяжный Май: Сборник Шансона (2017) [MP3|256 Kbps] <Шансон>
@@ -665,33 +692,6 @@ VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287964   (699770) от 09.03.2019
-
-VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699770.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Volkan Erman - Hope (Original Mix)
-002. Jamie Roy - Movin'
-003. Caravaca - Gotcha
-004. Sante Sansone - Keep Movin'(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 09:24:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE52AE8F266B08F23C9239EB3D73C79D64F001B2
 ```
 
 

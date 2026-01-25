@@ -1,3 +1,36 @@
+###  Публикация: 532760   (530383) от 11.08.2012
+
+VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Good For Me (05:39)
+02. Above & Beyond Pres. Oceanlab - Miracle (06:37)
+03. Above & Beyond Pres. Oceanlab - On The Beach (04:38)
+04. Accadia - Into the Dawn (Accadia Ambient mix) (09:15)
+05. Acoustic Alchemy - Only In My Dreams (05:48)
+06. Activa - This World (07:18)
+07. Adam Novy - Soothing Sunrise (Chill) (02:48)
+08. Adyjay - The only chance (05:37)
+09. Adyjay - Time (05:59)
+10. Aerosoul - Isla Blanca (Aftersun Chill Version) (04:48)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051767   (530578) от 12.09.2016
 
 VA - Музыкальные Новинки Интернета Осенний Выпуск (2016) [MP3|177~320 Kbps] <Pop, Dance>
@@ -673,39 +706,6 @@ VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533484   (532745) от 10.08.2012
-
-VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532745.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bruce Springsteen - Straight Time (3:26)
- 2. Bob Dylan - You're a Big Girl Now (4:22)
- 3. James Taylor - Walking Man (4:08)
- 4. Simon & Garfunkel - The Boxer (5:08)
- 5. John Mayer - Your Body is a Wonderland (4:08)
- 6. Lou Reed - Walk on the Wild Side (4:12)
- 7. Shawn Colvin - Sunny Came Home (4:24)
- 8. Jakob Dylan - All Day and All Night (3:28)
- 9. Jeff Buckley - Lover, You Should've Come Over (6:43)
- 10. Tim Hardin - Simple Song of Freedom (3:52)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13A0A33AC8D4B02A937ABD01A72F240F6F0A6A8
 ```
 
 

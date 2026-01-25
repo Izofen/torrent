@@ -1,3 +1,57 @@
+###  Публикация: 1464072   (1020020) от 21.04.2021
+
+Armaggedon - Trumpets of Christian Holocaust (2021) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Freezing Moon (Mayhem cover)
+02. Sous la Banniére au Pentacle Gammé
+03. Trumpets of Christian Holocaust
+04. The Beheading of Mohammed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911A79B5978D96D010953DB354F3D38846554B67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464135   (1020022) от 21.04.2021
+
+Rage - XIII (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. From The Craddle To The Grave
+03. Days Of December
+04. Changes: I. Sign Of Heaven(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1A7A59D2343571DCB0F34AD3327E4345EC7C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243094   (1020089) от 20.04.2021
 
 4 Non Blondes & Linda Perry - 5 Album, 4 Singles (1992 - 2015) [FLAC|Lossless|tracks + .cue|image+.cue] <Hard Rock, Alternative>
@@ -642,60 +696,6 @@ Yes - From A Page (2021) [FLAC 2.0|44.1/16, 24|tracks|WEB-DL] <Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA2984E682F1841F1E9AFAF4E16E4B18173E64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463145   (1020598) от 17.04.2021
-
-The Offspring - Let the Bad Times Roll (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Not Utopia (2:38)
-02. Let The Bad Times Roll (3:19)
-03. Behind Your Walls (3:21)
-04. Army Of One (3:11)(   Читать дальше...   )Жанр: Pop Punk RockПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A04A29B46E3F84918200EB95888C6FD146AB9D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463272   (1020617) от 17.04.2021
-
-Альфа - Звездная Серия: Звезды Российской Эстрады (2000) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гуляка (3:18)
-02. Бега (3:00)
-03. Театр (5:24)
-04. Теплый ветер (4:40)(   Читать дальше...   )Жанр: Pop-Rock, RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D896A4EEAF0EF5B6DAF9D39985F92E172C21DD
 ```
 
 

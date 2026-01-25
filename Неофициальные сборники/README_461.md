@@ -1,3 +1,30 @@
+###  Публикация: 1284827   (726545) от 23.02.2019
+
+VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Isabelle - Lemon Juice
+002. Metodi Hristov - Sci-Fi
+003. Indian Kasta - Country Tour
+004. Eduard Guchetl - Return Last Night(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDD25DDD15AB47D277D319E186127348E3D7B4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284842   (726549) от 23.02.2019
 
 VA - The Official UK Top 40 Singles Chart 22.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Pregnancy Music: 2 hours relaxing music (2016) [MP3|320 кб/с] <Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88306B8F081A99AABECCF33287CE2AE9AEB65007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022871   (727779) от 03.06.2016
-
-VA - Ibiza 2016 (Deluxe Version) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nando Rodriguez - Day of the Days (Original Mix)
-02. Nebogitel - Riders (Original Mix)
-03. GRiSHA - Lonely Night (Original Mix)
-04. Corporate Fony - South Station (Corporate Fony Remix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0544A330A695C7ACDC37B5E85E40AE14C583172A
 ```
 
 

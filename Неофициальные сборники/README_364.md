@@ -1,3 +1,30 @@
+###  Публикация: 1149215   (601100) от 10.07.2017
+
+VA - Deep In My Soul: Deep House Mix July (2017) [MP3|320 Kbps] <Deep House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601100.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stube - Spinning Around 06:20
+002. al l bo - Deep In My Soul (DJ Magnum Remix) 04:43
+003. Performative Mode - Egged On 06:16
+004. Alex Kenji & Luca Guerrieri Ft. Tito - You & I (Original Mix) 06:00(   Читать дальше...   )Жанр: Deep House, Dance, ElectroПродолжительность: 10:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D431CBE4FE6185B131FCF73BF714CB1EFBFA27E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913944   (601221) от 30.06.2015
 
 VA - TOP June (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
@@ -668,33 +695,6 @@ VA - Classical Music (2017) [MP3|320 Kbps] <Classical, Classical Crossover, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:781A4292CA4DDADD1F2674344D669F928D7FDECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148869   (602411) от 09.07.2017
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michel Telo - Ai Se Eu Te Pego
-002. Taio Cruz feat FloRida - Hangover
-003. Ёлка - Около тебя
-004. Serge Devant and Coyle Girelli - On your Own(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE9811BE1ED72B6EDD5B7E4258D2F40616488AC
 ```
 
 

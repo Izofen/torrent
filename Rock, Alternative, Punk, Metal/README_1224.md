@@ -1,3 +1,57 @@
+###  Публикация: 1471182   (1015149) от 20.05.2021
+
+Jakob Samuel - CoExist (2021) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Minute Every Hour (03:13)
+ 02. Stand By You (03:16)
+ 03. One Last Time (03:42)
+ 04. Hey Brother (02:45)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2431D6984872F6A9FAE9A4136C094B9ADD9E780C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471162   (1015150) от 20.05.2021
+
+Amorphis - Live at Helsinki Ice Hall (2021) [MP3|320 Kbps] <Melancholic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-The Bee [00:07:06]
+02-Heart Of The Giant [00:06:17]
+03-Bad Blood [00:05:23]
+04-The Four Wise Ones [00:05:32](   Читать дальше...   )Жанр: Melancholic Progressive MetalПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1E5784AB423CC7769B2D91C17C7FE1E0EAC14E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471460   (1015154) от 20.05.2021
 
 Xapa - Мандрагора (2021) [MP3|320 Kbps] <Folk Rock>
@@ -641,60 +695,6 @@ Antioch - Antioch IV: Land Of No Kings (2019) [FLAC|Lossless|WEB-DL|tracks] <Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:394B4CF80CE7EA44CA815D9BA03F0606D87E7D64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470369   (1015764) от 16.05.2021
-
-Колибри - Счастья нет (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015764.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Очумелые глаза
-2. Народная
-3. Физика
-4. Миленький(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35146DC2F32D504667B087D390CCE8443A17D31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470399   (1015765) от 16.05.2021
-
-Х*й Забей - Переспели (2014) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настя (2:08)
-02. Фотокарточка (2:10)
-03. Говно (1:54)
-04. Верный способ (1:11)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54CE6C6903487E8B083F63AD1533DD717C3EBCA4
 ```
 
 

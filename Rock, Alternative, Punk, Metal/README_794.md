@@ -1,3 +1,54 @@
+###  Публикация: 1050838   (534662) от 10.09.2016
+
+Rev Theory - The Revelation (2016) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guns
+02. We Own The Night
+03. Red Light Queen
+04. Piece Of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B016F76EBA9989276EE1564123A9E0760E404D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532885   (534781) от 09.08.2012
+
+745 - 745 (2009) [MP3|256кб/с] <Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RapcoreПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB656EFC891AA010E58D6674AE9DC34A89CFD810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926224   (534957) от 09.08.2015
 
 VA - The Many Faces Of Pink Floyd - A Journey Through The Inner World Of Pink Floyd (2013) 3CD Set [FLAC|image + .cue]<Psychedelic Rock, Art Rock, Pop Rock>
@@ -635,60 +686,6 @@ Jorn - Over the Horizon Radar (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B424FC1BBFF0785FF4E80E7331C81CA75600D834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557790   (535708) от 18.06.2022
-
-Grey Daze - The Phoenix (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturation (Strange Love) (3:55)
-02. Starting To Fly (3:28)
-03. Be Your Man (3:40)
-04. Holding You (4:15)(   Читать дальше...   )Жанр: Alt.RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C920946C04331559407C035F03D76DF0FEE6A9F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557795   (535826) от 18.06.2022
-
-The Waterboys - An Appointment with Mr Yeats (2011) Remaster, 2022, Cooking Vinyl Limited [FLAC 2.0|44/24|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hosting of the Shee (2022 Remaster) (4:42)
-02. Song of Wandering Aengus (2022 Remaster) (6:00)
-03. News for the Delphic Oracle (2022 Remaster) (4:32)
-04. A Full Moon in March (2022 Remaster) (2:09)(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B17C454A15710A45E981F3D106AA903516D1C2E
 ```
 
 

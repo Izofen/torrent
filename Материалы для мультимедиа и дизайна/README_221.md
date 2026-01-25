@@ -1,3 +1,27 @@
+###  Публикация: 941534   (461906) от 27.09.2015
+
+Шаблоны - GraphicRiver - Red & White Theme Wedding DVD & Disc Label [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая свадебная DVD обложка и задувка на диск. Стандартный Размер бокса.Формат: PSDРазрешение файлов: 3300 x 2250 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA3F4B1343B8684C0B964ED3DA333609E95EE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549691   (462222) от 20.09.2012
 
 Digital Juice - Motion Design Elements Standart 05: Motion Grab Bag 1 (Full ISO)
@@ -598,30 +622,6 @@ Shutterstock это самый известный магазин с фотогр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:662D11BBF5C0A000EC7B3AC58CF0960D595D08F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824971   (463967) от 25.09.2014
-
-Экшены - GraphicRiver - 55+ Vintage / Retro Effects - Photoshop Actions [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор экшенов для Фотошопа , имитирующих винтажный / ретро эффект.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDFF468B4EE79A0D3CED3F9821DCBD843D506B9
 ```
 
 

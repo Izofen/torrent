@@ -1,3 +1,84 @@
+###  Публикация: 1048046   (548432) от 31.08.2016
+
+VA - The Sweet Lounge Vol.1 (Sea Lounge) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luigi Seviroli - Quiet Soliloquy (Full Mix) (03:41)
+02. The Mord - 2 Years (03:13)
+03. Giacomo Bondi - Katmandu (Full Mix) (03:14)
+04. Giacomo Bondi - Sioux (Full Mix) (03:21)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A4BB5913B5C9A6CBADD0A89C1EC75BBB6121B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047766   (548433) от 31.08.2016
+
+VA - Heaven and Paradise Vol. 2 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Life - White Hat (Original Mix) (03:12)
+02. Tom Lojo - Red Shoes (Original Mix) (03:12)
+03. Titus Koibra - Music Is All You Need (Original Mix) (03:01)
+04. Seventy Moods - Parisian Blonde (Original Mix) (03:12)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B270267496D42250DDB0ECFE9E88C7A562366857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047768   (548434) от 31.08.2016
+
+VA - Heaven and Paradise Vol. 4 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montecarlo Hotel Project - One Night on the Moon (Original Mix) (3:13)
+02. Art Martin - Please Love Me (Original Mix) (3:02)
+03. 5th Groove - Riding the Waves (Next Project's Grand Voyage Mix) (3:15)
+04. Mysterious - Still Dancing in My Head (Original Mix) (3:13)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E82BABBBC18FC05F6397EE2966002FB9D368369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048037   (548495) от 31.08.2016
 
 VA - Paris Lounge (2016) [MP3|320 Kbps] <Chillout,Deep House>
@@ -614,87 +695,6 @@ VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237824   (549642) от 26.07.2018
-
-VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Soulstar - My Love Is Everlasting (Radio Edit) 3:40
-02. Ariane Blank - Becarec (Deep Spelle Remix) 7:02
-03. Dee C'rell - Whodoo (Berlin Beach Mix) 5:22
-04. Florito & Roberto Sol - Loveflow (Florito Mix) 4:52(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 05:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237793   (549739) от 26.07.2018
-
-Spin Artes - Elementis (2018) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Restless (07:26)
- 02. Silhouettes (10:40)
- 03. Nocturnal (07:43)
- 04. Introspection (09:19)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4701D60D10B3CF47CEF6A86EE041298F2FEF9CFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237795   (549766) от 26.07.2018
-
-The Weathermonger - The Ephemeral City (2018) Twoism Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Swimmer (03:16)
- 02. An Equal Reaction (05:19)
- 03. Fourier (04:10)
- 04. Through The Honeycomb Window (02:26)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EEA53E93F39FB55CCF5C03ED8CB0BF73376585
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1041431   (583378) от 08.08.2016
+
+Mark Wood - Turbow (2016) [MP3|320 Kbps] <Symphonic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583378.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire 'n Ice (5:38)
+ 2. Attitude Adjustment (7:04)
+ 3. Inferno (5:04)
+ 4. Wood's Bolero (4:16)(   Читать дальше...   )Жанр: Symphonic Rock, Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0122BC18446D752FE63EDA00EB8848C0C3B204E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041349   (583450) от 08.08.2016
+
+Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall (part 1)
+04. The Happiest Days Of Our Lives(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D5EA28FEF014E9A32E656C585EE45C6A167B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040880   (584474) от 07.08.2016
 
 Uncle Dog - Old Hat (1972) Remastered, 2005, Air Mail Archive [MP3|320 Kbps] <Rock, Blues Rock>
@@ -633,60 +687,6 @@ Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150205   (595151) от 14.07.2017
-
-Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Caroline  5:28
-02.  The Wanderer  2:46
-03.  Something 'Bout You Baby I Like  2:17
-04.  Rain  4:36(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E015DB5D75C98CB2ED78624EF9B3A5FFB07299
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915188   (595192) от 04.07.2015
-
-Glowsun - Beyond The Wall Of Time (2015) [MP3|320 кб/с]<Stoner Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrow of Time
-02. Last Watchmaker's Grave
-03. Behind the Moon
-04. Flower of Mist(   Читать дальше...   )Жанр: Stoner Psychedelic RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E6AA5AF047AA1DDA54AEFA77BA7CEEF0A5D9E0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1152694   (565396) от 23.07.2017
+
+VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3LAU & Neonheart - Fire (Price & Takis Remix) (3:06)
+02. Acidbro - Connected (Original Mix) (6:17)
+03. Acidbro - Hold You (Original Mix) (5:22)
+04. Agent Greg - Body Move (The Cube Guys Mix) (6:26)(   Читать дальше...   )Жанр: House, Trap, Chillout, DubstepПродолжительность: 11:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0019E4699BBDA190E3956F94DFB3D1BED303857B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152639   (565400) от 23.07.2017
 
 VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -683,33 +710,6 @@ VA - Summery Jazz (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873E43DF6FFC71F6A3AC315212A92A3CF3853E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152211   (566974) от 22.07.2017
-
-VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Arrojas - Didascalias (Original Mix)  5:15
-002.  Sunset Session Group - Soulsalicious (Original Mix)  6:13
-003.  Lamar Ensemble - Inspirational Shortcut  5:47
-004.  Chillelektro - Koos  6:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A0767B9B1E84D7E5941615A22EAE7BAF038BB
 ```
 
 

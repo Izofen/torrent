@@ -1,3 +1,63 @@
+###  Публикация: 1099463   (904953) от 01.02.2017
+
+Firewind - Immortals (2017) Japanese Edition [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Of Time
+02. We Defy
+03. Ode To Leonidas
+04. Back On The Throne(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162B392E1E48049756ED021D85B35E15C3B1504A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181257   (904957) от 10.03.2010
+
+Восьмая Марта - С Праздником! (2001) [MP3|256 kbps]<Панк, Гранж, Рок-н-ролл>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Билли-Винки [03:11]
+02. Пароход [03:00]
+03. Нева [03:32]
+04. Ускользай [02:06]
+05. Б.Г. [02:46]
+06. Девичья Честь [02:15]
+07. Лужи [02:47]
+08. Голая [02:39]
+09. Рэп [03:22]
+10. Лётчик [03:09](   Читать дальше...   )Жанр: Панк, Гранж, Рок-н-роллПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099209   (905017) от 01.02.2017
 
 Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, Soft Rock>
@@ -641,63 +701,6 @@ magnet:?xt=urn:btih:2E27F30A29DEAF9138B3F5E20C83BFEE3491682C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99B6F148256D44734E3BE6B1EB36E6949EAD0DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866916   (906320) от 06.02.2015
-
-U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speeder
-02. Decadent
-03. House Of Fake
-04. Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 181683   (906385) от 09.03.2010
-
-Earth - Discography (20 albums) (1990-2008) [MP3|320 kbps] <Drone Doom, Doom Metal, Stoner Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Omens and Portents I: The Driver (9:07)
-2. Rise To Glory (5:47)
-3. Miami Morning Coming Down II (Shine) (8:01)
-4. Engine Of Ruin (6:28)
-5. Omens and Portents II: The Carrion Crow (8:04)
-6. Hung From The Moon (7:43)
-7. The Bees Made Honey In The Lions' Skull (8:11)Жанр: Drone Doom, Doom Metal, Stoner Rock, ExperimentalПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 

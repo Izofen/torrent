@@ -1,3 +1,78 @@
+###  Публикация: 1442132   (1036947) от 24.01.2021
+
+VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442079   (1036955) от 24.01.2021
+
+Various Artists - Med School: Graduation (2020) Hospital Records [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BOP - Magic.gif (04:34)
+02. S.P.Y - Black Flag (VIP) (06:03)
+03. Villem - Stereogram (05:44)
+04. Keeno - Lost For Words (05:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AD9D5934D30242627B9694208016AEC50E2BFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442130   (1036960) от 24.01.2021
+
+DC Breaks - DCXV (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum 'n' Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Drum 'n' BassПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6863B094F7ED54854DFF6BA030F82B2C91B8586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616002   (1036980) от 28.02.2023
 
 Maxthor - Nothing (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth, Synth Rock, New Wave>
@@ -612,85 +687,6 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96E84C8D501E6EB231E23C40B93FB2A244BF39AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441239   (1037994) от 20.01.2021
-
-VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Keeley – A Sort of Homecoming (Michael Cassette Extended Mix) (07:24)
-02. ALPHA 9 – Before the Dawn (feat. Kameron Alexander)Жанр: Progressive House, TranceПродолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615140   (1038095) от 24.02.2023
-
-Diary of Dreams - Melancholin (2023) [MP3|320 Kbps] <Darkwave, Goth Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mein Werk aus Zement [00:06:37]
-02 - The Secret [00:04:56]
-03 - Viva la Bestia [00:05:07]
-04 - Gedeih & Verderb [00:04:37](   Читать дальше...   )Жанр: Darkwave, Goth IndustrialПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0958E63E8CE4398E4B7916A8695366723C372CF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440934   (1038258) от 19.01.2021
-
-VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spacesynth.ru - Introduction (1:03)
-02. Amandi - Forgotten Spaceship (5:15)
-03. Kresikov & TDHDriver - Take Off! (4:48)
-04. Syst3m Failure - Fly Sputnik (7:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC2EED720FDEE05BBC228CD013004B3E74B7C64
 ```
 
 

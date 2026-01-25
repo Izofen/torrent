@@ -1,3 +1,57 @@
+###  Публикация: 1238299   (547131) от 29.07.2018
+
+Kataklysm - Meditations (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guillotine
+02. Outsider
+03. The Last Breath I'll Take Is Yours
+04. Narcissist(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BCD883C5FB97684857B95808025C4CDF8895C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047923   (547134) от 01.09.2016
+
+LP (Laura Pergolizzi) - Death Valley (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative/Indie Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Waters (3:49)
+02. Lost On You (4:28)
+03. Strange (3:55)
+04. Death Valley (2:52)(   Читать дальше...   )Жанр: Alternative/Indie Rock, Pop Rock, Folk RockПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0650F568CAC384877532C6BA316D24DBBA3F7B1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238264   (547137) от 29.07.2018
 
 Rosicrucian - Silence (1992) [FLAC|Lossless|image + .cue] <Thrash-Death Metal>
@@ -641,60 +695,6 @@ Sick Puppies - Fury (2016) Best Buy Edition [FLAC|Lossless|tracks] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4233240DD13A4A6DA5480687B1A286C25A1FB25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044363   (548255) от 31.08.2016
-
-Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Need My Ride
-02 Southern Native
-03 Everyman
-04 Call Of A Hero(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047725   (548267) от 31.08.2016
-
-Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Is A Lie
-02. Remember My Words
-03. Elements
-04. It´s Not Over Yet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
 ```
 
 

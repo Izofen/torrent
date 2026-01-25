@@ -1,3 +1,57 @@
+###  Публикация: 1493457   (895567) от 03.09.2021
+
+BlackOwl - Fly Away (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoking Rock'n'Roll
+02. Napoli Street
+03. Easy Job
+04. Deep Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9584BDF0E7A46E146FC1D75A950BDDDD1EF28F62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493444   (895583) от 03.09.2021
+
+Crowned In Sorrow - In Memoriam (2021) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Beyond Death
+02. Ending It All
+03. Slipping Away
+04. Ashes(   Читать дальше...   )Жанр: Melodic Doom Metal, Melodic Death MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBC4EBB12DA8A6626C8E5898E7EBF64A159C3CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493522   (895708) от 03.09.2021
 
 Alessandro Corvaglia - Out Of The Gate (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
@@ -642,60 +696,6 @@ Nine Inch Nails - Ghosts VI: Locusts (2020) [MP3|320 Kbps] <Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97AC13274E2A347DBB3859129EE91F84644E63F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370243   (896920) от 27.03.2020
-
-Almanac (Victor Smolski's) - Rush Of Death (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Predator (4:48)
-02. Rush Of Death (6:31)
-03. Let The Show Begin (1:19)
-04. Soiled Existence (5:19)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D4C366835C612EFCF85AF950217D4CAFF6780B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370588   (896923) от 27.03.2020
-
-Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Воля (Пролог) [00:01:57]
-02 Сопротивление [00:04:20]
-03 Где Не Место Рабу [00:03:49]
-04 Русь И Кавказ [00:05:00](   Читать дальше...   )Жанр: Folk Acoustic BalladsПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E4A0BBBA3D31BB075F004F1FE90D2CAEC58B7B
 ```
 
 

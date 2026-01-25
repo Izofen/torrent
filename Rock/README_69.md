@@ -1,3 +1,58 @@
+###  Публикация: 1414154   (674775) от 12.03.2022
+
+Шмели (Shulov'e, Antivirus, Клочья) - 31 Альбом / 6 Сборников / 7 Проектов & etc. (1998-2022) [MP3|256-320 Kbps] <Folk Rock, Industrial Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674775.jpg" />
+</div>
+
+
+###  Подробнее
+
+История группы началась в 1993 году в Украине, в городе Ровно. Когда к Александру Шмелёву (гитара, вокал), писавшему панковские песни присоединилась Лёля (вокал, гитара), учившаяся в педагогическом институте.
+Первоначальное группа называлась «Rubbish Chute Road». Ранее, с 1989, Александр Шмелёв играл в молодёжной группе, существовавшей в среде учеников ровенской (   Читать дальше...   )1998 - Тротиловые сказки
+1998 - Дурацкие книжки
+1998 - Пурга
+1999 - Злорадостная опухоль (Переиздание, 2016)(   Читать дальше...   )Жанр: Folk Rock, Industrial Metal, MetalПродолжительность: 41:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71108C904370F66FA7B723D095816E93A305D1B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 214693   (674939) от 30.06.2010
+
+The Rolling Stones - Discography (1964-2008) [MP3|320 kbps] <Classic Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674939.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Brown Sugar (3:50)
+02. Street Fighting Man (3:43)
+03. Paint It, Black (3:45)(   Читать дальше...   )Жанр: Classic Rock |Продолжительность: Треклист:
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136461   (675058) от 22.05.2017
 
 HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
@@ -665,60 +720,6 @@ Steve Vai - Modern Primitive (2016) 2CD [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7FF3362BEA3DF6507C9F5156A19AC3139B9152A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222252   (686994) от 28.04.2018
-
-Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Little Schoolgirl
-02. I’m Gonna Move To The Outskirts Of Town
-03. Street Fighting Man
-04. An Old Raincoat Won’t Ever Let You Down(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 03:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FC6D475AF6F145B66BB9A6A91672381DC5D959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134636   (687453) от 16.05.2017
-
-Blackfoot Gypsies - To The Top (2017) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm so Blue (02:54)
-02. Everybody's Watching (03:36)
-03. Promise to Keep (04:02)
-04. Potatoes and Whiskey (03:38)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC889A18408A12405B126502DE574DB6283F5F08
 ```
 
 

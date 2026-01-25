@@ -1,3 +1,58 @@
+###  Публикация: 1606368   (1044554) от 21.01.2023
+
+Гнилой Район - Ночь мертвецов (2015) Reissue, 2023 [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лепрекон в Лас - Вегасе [00:05:39]
+02 - Путеводный камень [00:04:57]
+03 - Повелитель сна [00:04:56]
+04 - Ночь мертвецов [00:04:44](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2597190DE5167F3B2FAB49006BCB43F3DB1207C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606105   (1044556) от 21.01.2023
+
+Silver Bullet - Shadowfall (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic power metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture To Armageddon (1:56)
+02. Shadow Of A Curse (4:14)
+03. The Ones To Fall (4:27)
+04. Creatures Of The Night (4:39)(   Читать дальше...   )Жанр: Symphonic power metalПродолжительность: 00:45:14
+bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8C80CC149222391A1FECDFFC4A10A3C85085B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606158   (1044557) от 21.01.2023
 
 Aella (Аэлла) - Жизнь Происходит Сейчас (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -641,60 +696,6 @@ Eric Clapton - Journeyman (1989) Reissue, Remastered, 2014, Audio Fidelity [OGG 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6BB07881C18F6E4AEFD89279C181B8C689E506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605643   (1044875) от 18.01.2023
-
-First Night - Deep Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Hearts
-02. Little Love
-03. Beginning of the End
-04. Savage Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB709EFC3E33BFD4EE570A8E6D27AA6FD1C69D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605438   (1044876) от 18.01.2023
-
-Eric Clapton - Pilgrim (1998) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Father's Eyes
-02. River of Tears
-03. Pilgrim
-04. Broken Hearted(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F31FF7D52275E4909EBE3022213F553CE20D406
 ```
 
 

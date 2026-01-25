@@ -1,3 +1,84 @@
+###  Публикация: 1561034   (508059) от 10.07.2022
+
+Fancy Inc & KVSH & Bhaskar - So Track Boa Festival Belo Horizonte, Brazil (2022) [MP3|320 Kbps] <Electro House, House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Back & Fancy Inc & Roland Clark - Alive
+02. Vintage Culture & Fancy Inc ft. Tristan Henry - Circles
+03. Biscits - Wait A Minute
+04. Piero Pirupa - We Don't Need w/Leftwing : Kody - Mallet(   Читать дальше...   )Жанр: Electro House, House, Tech HouseПродолжительность: 03:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3022B6AA37C4DE5960E934D133F62831FF7DA88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562532   (508072) от 10.07.2022
+
+MORTEN - 4U Sunset Festival, Brazil (2022-04-29) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
+02. Justus & Achilles - Touch Me (MORTEN Edit)
+03. David Guetta & MORTEN - ID w/Calvin Harris & Disciples ft. Ina Wroldsen - How Deep Is Your Love (Acappella)
+04. David Guetta & MORTEN - Nothing(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B6990559EE444FDE6886060598D0C1BF9661C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932834   (508245) от 30.08.2015
+
+VA - Progressive Essentials 02 (2015) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A.SWIFT - Weekend Day (Bee Hunter Remix) (05:36)
+02. Wayward Brothers feat. Ange - Space (Markus Hakala Remix) (05:52)
+03. Jagin - October (Original Mix) (06:37)
+04. In5um - Window (Denis Neve Remix) (07:16)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921D9D42811714E4933CD449F3D1CCC1B70D2BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315816   (508786) от 23.07.2019
 
 Held - 8.20 (2019) [FLAC|Lossless|WEB-DL|24/44.1|tracks] <Ambient, Drone, Experimental>
@@ -631,87 +712,6 @@ VA - Chillout Summer Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:989A5BC1F7ACF2C16CF751C1A9EA23C9D5F3025D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315443   (512853) от 20.07.2019
-
-VA - Melicia (2003,2006) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grip (Remix)
- 02. Suenos
- 03. Image Of My Soul
- 04. Discoteque (Remix)(   Читать дальше...   )Жанр: Goa-Trance, Psy-TranceПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1996B3784385FAB8A9908285B25A3EFA4032CC79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930684   (512921) от 25.08.2015
-
-Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rose (03:05)
-02 Silence (04:04)
-03 Depend On You (04:22)
-04 Opposite of Me (05:42)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242961   (512975) от 24.08.2018
-
-V.A. - Vintage Cafe: Lounge & Jazz Blend Vol. 11 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Lovin' You [04:08]
-02. Flora Martinez - Take My Breath Away [03:31]
-03. Jamie Lancaster - 24k Magic [03:51]
-04. Shelly Sony - New Rules [04:06](   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0693048D0D98FDB420E30DA3E6D2B4EC4947E2E
 ```
 
 

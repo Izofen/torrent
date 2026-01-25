@@ -1,3 +1,84 @@
+###  Публикация: 1210934   (778232) от 05.03.2018
+
+VA - Best Of Progressive House 2018 Vol.02 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sound Quelle  -  Djerba (Original Mix)  5:43
+02.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
+03.  Andromedha  -  Rise (Original Mix)  6:00
+04.  Talamanca  -  Meditation (Deep Mix)  7:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4057623349B56A0935C016311107CC42B5C2FECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210694   (778234) от 05.03.2018
+
+VA - Soul Contact Vol.1 (Mixed by Sam Laxton) (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dan Thompson feat. Natalie Gioia  -  Be In Love (Sam Laxton's Soul Contact Remix)  3:54
+02.  Andy Moor feat. Michele C  -  We Can Be Free (Evan Pearce Remix)  6:33
+03.  Temple One  -  The 42nd Parallel (Extended Mix)  7:48
+04.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC3EDE494EE27CC3E85E5EC1E37768A64DC102D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210880   (778236) от 05.03.2018
+
+VA - Total Trance Selections Vol.09 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moonsouls & Marjan  -  Until The End (Extended Mix)  6:36
+02.  Cyril Ryaz  -  Fall & Rise (Original Mix)  6:39
+03.  All Sandu  -  Joy (Original Mix)  5:32
+04.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9FA2FF831F8870C494114C1BD5F0CCCDE841A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210866   (778242) от 05.03.2018
 
 VA - Redux Presents: The Uplifting Selection Vol.1 (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -611,87 +692,6 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [MP3|320 Kbps] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C23983080B733DD163F81776E49AA394C6247A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210392   (778869) от 02.03.2018
-
-VA - Armada Miami (2018) [MP3|320 Kbps] <House, Progressive, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren feat. Conrad Sewell  -  Sex, Love & Water (Extended Mix)  5:54
-02.  Lost Frequencies & Zonderling  -  Crazy (Mr. Belt & Wezol Extended Remix)  4:51
-03.  Showtek & Moby  -  Natural Blues (Extended Mix)  4:30
-04.  DubVision & Afrojack  -  New Memories (Extended Mix)  5:01(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9FBB7F773A7B608CE5B85EAFC05CC68C648BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210231   (778873) от 02.03.2018
-
-VA - The Blossoming Flower (Soulful Music For Positivity, Good Energy & Stress Relief) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singing Nomad - Lily (01:09)
-02. The Real Babylon - Frail (03:03)
-03. The Real Babylon - The Controals (02:40)
-04. Ultimate Maestro - Flags (04:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD808C5D2AF9CF6DF96AE67C17F33E9A9D20FFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210274   (778874) от 02.03.2018
-
-Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Strong
-02. Come Undone
-03. Forget You
-04. Don't Dream It's Over(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF3460584B289BF82FFE9184D0C9E5619A3F058
 ```
 
 

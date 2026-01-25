@@ -1,3 +1,84 @@
+###  Публикация: 1049324   (544856) от 04.09.2016
+
+VA - Smooth Jazz With Sex (2014) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Groove Squad - I Don't (Lounge Mix) (4:42)
+02. Klaus Appel, Boris Friedel & Peter Weiner - Take 5 (7:02)
+03. Digilogue - Farhad (4:54)
+04. Mattias Roos - Pressure (feat. Magdalena Chovancova) (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8842F79E3F69867E3A1627039FF096DDF3627B6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049175   (544911) от 04.09.2016
+
+VA - Lets Lounge Together (2016) [MP3|320 Kbps] <Jazz, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phillip Ashmore - Luxury Living 5:10
+02. Sarah Jane Morris - Me and Mr. Jons (Bossa Version) 3:31
+03. Gak Sato - Green City 5:46
+04. Leo Cesari - Alla luce del giorno 4:46(   Читать дальше...   )Жанр: Jazz, Lounge, ChilloutПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C00C7FBBF0B6D268A1E0C0654024CF523C8B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049209   (544916) от 04.09.2016
+
+VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Fibreglasses (3:12)
+02. Breathe Carolina - Giants (3:24)
+03. Codeko - Halo (3:36)
+04. David Gravell - The Riddle (3:31)(   Читать дальше...   )Производство: Armada CaptivatingЖанр: TranceПродолжительность: 01:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049297   (544973) от 04.09.2016
 
 VA - Whos Afraid Of 138 Top 15 (2016-09) (2016) [MP3|320 Kbps] <Trance, Progressive>
@@ -614,84 +695,6 @@ Steve Allen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDEC75739D770159F35C19AF1E851A38D4166B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238405   (547028) от 29.07.2018
-
-Super8 & Tab - Reformation (2018) Armada Music [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seconds Away (feat. Sarah Decourcy) (5:55)
- 02. Cosmo (4:17)
- 03. True Love (feat. Envy Monroe) (4:22)
- 04. Falling Into You (feat. Jonny Rose) (2:59)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0007657DF334F23CBA676DCC64FC2EE0175A7C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238313   (547112) от 29.07.2018
-
-Sachiko M + Ryuichi Sakamoto - Snow, Silence, Partially Sunny (2012) Commmons [FLAC|Lossless|tracks+.cue] <Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow, Silence, Partially Sunny (37:30)Жанр: ExperimentalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0111DF531AB67F76F9082FF86718EA282A4E8070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238271   (547117) от 29.07.2018
-
-Masayoshi Fujita - Book Of Life (2018) Erased Tapes Records [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowy Night Tale (05:34)
- 02. Fog (04:25)
- 03. It's Magical (04:24)
- 04. Old Automation (05:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDFA57DCB6293DD53725B956761AC1BE9F755D5D
 ```
 
 

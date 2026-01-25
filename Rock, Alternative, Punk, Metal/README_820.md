@@ -1,3 +1,63 @@
+###  Публикация: 529883   (564523) от 01.08.2012
+
+KISS - Destroyer (Resurrected) (2012) [MP3|320 kbps] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detroit Rock City (2012 Remix) (05:15)
+02. King of the Night Time World (2012 Remix) (03:21)
+03. God of Thunder (2012 Remix) (04:17)
+04. Great Expectations (2012 Remix) (04:24)
+05. Flaming Youth (2012 Remix) (02:59)
+06. Sweet Pain (2012 Remix) (03:21)
+07. Shout It Out Loud (2012 Remix) (02:51)
+08. Beth (2012 Remix) (02:49)
+09. Do You Love Me (2012 Remix) (03:40)
+10. Rock and Roll Party (2012 Remix) (01:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D91B586978CE43B1E71E887D9D5D362A089B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923371   (564531) от 31.07.2015
+
+Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dein Retter (2:54)
+02. Alles Aus Liebe (3:38)
+03. Jetzt Oder Nie (3:44)
+04. Als Wärs Das Letzte Mal (3:31)(   Читать дальше...   )Жанр: Neue Deutsche Harte / Industrial MetalПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923324   (564549) от 31.07.2015
 
 Rush - Presto (1989) Hybrid SACD, Limited Edition /2014, Audio Fidelity[FLAC|image + .cue]<Rock, Prog Rock>
@@ -669,60 +729,6 @@ Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B55BF572145EE6B64E6AF37F758BB951141769D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555823   (565358) от 06.06.2022
-
-Elephant Riders - Impure (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impure
-02. Happy in This Shithole
-03. Quicksands
-04. Tough Lesson(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A3D3E72C98192298B50B254AC1CE7B23C85DB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555781   (565364) от 06.06.2022
-
-Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.This Glorious Nightmare 04:20
-02.Giles 03:56
-03.March of the Mutes 03:58
-04.Sanctity of Brothers 03:26(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
 ```
 
 

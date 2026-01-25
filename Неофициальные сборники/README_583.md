@@ -1,3 +1,30 @@
+###  Публикация: 1104001   (879377) от 15.02.2017
+
+VA - The Best Of Trance 52 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Emotional, Energy, Euphoric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Allen Watts & Jak Aggas - Spitfire (Original Mix)  6:37
+02.  Estigma - Artemis (Allen & Envy Remix)  7:17
+03.  Allen Watts & Amir Hussain - Parallax (Original Mix)  6:58
+04.  Fresh Code - Supernova (Original Mix)  6:20(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Harmonic, Emotional, Energy, EuphoricПродолжительность: 02:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9063B0203ED7AF4FF8C5005D5953A8BF6B4D57A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996310   (879400) от 14.03.2016
 
 VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Music News vol.131 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0AF13235A3AD34CD3521E59643F362E4EDE70F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495332   (880610) от 12.09.2021
-
-VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Koulz & More - Feeling Blue
-002. Tina B - Jazzy Sensation
-003. Martello - All The Things
-004. Softmal & Llшlita - So Glad(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 11:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
 ```
 
 

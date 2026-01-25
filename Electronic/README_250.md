@@ -1,3 +1,96 @@
+###  Публикация: 1407826   (462766) от 09.09.2020
+
+VA - Out To City 3 / Выход В Город 3 (2004) ChebuRec [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EU - White Heat Pt.1 (05:25)
+ 02. Fizzarum / Tenzor - Geliogratica (05:28)
+ 03. Sensiva - Untitled 3 (05:29)
+ 04. Alexandroid vs Lazyfish - Joroh (05:12)(   Читать дальше...   )Жанр: IDM, Leftfield, Glitch, ExperimentalПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F778484EEC69D77BBF51FF95A35B6468A13DC22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549170   (463190) от 20.09.2012
+
+VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Antoine - Stop! (Swiss Radio Mix)
+ 02. DJ Antoine - Hello Again (Original Mix)
+ 03. DJ Disciple feat. Dawn Tallman - Work It Out (Klaas Mix)
+ 04. DJ Antoine - Apologize (Original Mix)
+ 05. DJ Antoine vs Mad Mark feat. Jay Underground - These Games (Original Mix)
+ 06. Alex Romano - Save A Prayer (DJ Antoine vs Yoko English Remix)
+ 07. DJ Antoine vs Mad Mark - Set Me Free (Original Mix)
+ 08. DJ Antoine - Funky Kitchen Club (I'll Remain) (Extended Mix)
+ 09. Unconditional - Sole (Nari & Milani Mix)
+ 10. DJ Antoine - Stop! (DJ Antoine vs Yoko English Big Room Remix)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:15:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE35F1F095F73CC9A8484F1488AE93445E9FA2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388171   (463248) от 15.09.2011
+
+DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поздно (feat. Александр Маршал)
+ 02. Я верю (feat. Иракли & Гарик DMC B)
+ 03. Неминуема (feat. Loc Dog & Phil Shabin)
+ 04. Все вместе (feat. Корни)
+ 05. Так и знай! (feat. Audio Girls)
+ 06. I Can' Take
+ 07. Мир без любви 2010 (feat. DJ Sandra)
+ 08. My love (feat. Audio Girls)
+ 09. Rain
+ 10. Sasha WTF?(   Читать дальше...   )2011Жанр: Progressive House, Electro HouseПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB32FEE49481390CC12CED9A290512E575938180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548464   (463331) от 20.09.2012
 
 VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House / House / Progressive House>
@@ -628,87 +721,6 @@ VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B40E35314997683094AB6CBD296F035754156C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246109   (465671) от 09.09.2018
-
-Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, House, Minimal, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Good, So Right (12:18)
- 02. Heat 2 (08:02)
- 03. Heat 4 (08:18)
- 04. Heat 1 (09:58)(   Читать дальше...   )Тип издания: WEB, VinylЖанр: Techno, Ambient, House, Minimal, Dub Techno •Продолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B75C57562853FFB58D747C5F58F0236046E380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246203   (465676) от 09.09.2018
-
-VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Self Egg - Cold (5:08)
-02. Pezzner - Heartline (Club Version) (4:03)
-03. STL - Silent State (11:45)
-04. Kiani, His Legion - Eindelozer (18:03)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AF1EFFEAA93FE3565A6F6413D6E3048E61D433
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246099   (465680) от 09.09.2018
-
-Zych - Lebensgefahr (2018) Urban Poetry [FLAC|Lossless|WEB-DL|tracks] <Experimental, Spoken Word, Bass, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lebensgefahr (03:17)
- 02. Skit 1 (01:30)
- 03. Adler (04:18)
- 04. Skit 2 (01:38)(   Читать дальше...   )Жанр: Experimental, Spoken Word, Bass, AmbientПродолжительность: 00:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C7175CB6F41249A4D0D0580C85DCC5879DA728
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1308457   (553910) от 14.06.2019
+
+ZZ Top - Goin' 50 (2019) Compilation, RM. [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Grange (2019 Remaster) (3:53)
+ 02. Sharp Dressed Man (2019 Remaster) (4:13)
+ 03. Gimme All Your Lovin' (2019 Remaster) (4:00)
+ 04. Tush (2019 Remaster) (2:17)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Southern RockПродолжительность: 03:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF40346A6C4FAFAF5DF5D16FD8A28192DF8F3469
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308397   (553926) от 14.06.2019
+
+Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hitch Hikin' (03:37)
+02. The Wayfarer (04:18)
+03. Tucson Train (03:31)
+04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B777E99099BE1365CBC01227A9425F399CCE009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308546   (553950) от 14.06.2019
 
 The Dangerous Summer - Mother Nature (2019) Hopeless Records [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Pop Rock, Post Punk>
@@ -640,60 +694,6 @@ Gloryhammer - Legends from Beyond the Galactic Terrorvortex (2019) 2CD, Deluxe E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FF7B6E43514F06138ABA8F3CA28784A5E1E5A4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307083   (554882) от 10.06.2019
-
-Santana - Africa Speaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Latin Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554882.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Africa Speaks (feat. Buika)[4:48]
- 2 - Batonga (feat. Buika)[5:43]
- 3 - Oye Este Mi Canto (feat. Buika)[5:59]
- 4 - Yo Me Lo Merezco (feat. Buika)[6:13](   Читать дальше...   )Жанр: Classic Rock, Latin RockПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6552C4B22B22C7BEC77563492ADAB3B68101B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306937   (554907) от 10.06.2019
-
-Jordan Rudess - Wired for Madness (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wired for Madness - Part 1 (11:48)
-2. Wired for Madness - Part 2 (22:40)
-3. Off the Ground (4:51)
-4. Drop Twist (4:10)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 01:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315B32C42B39D79C8116370199748E2492D5C0B9
 ```
 
 

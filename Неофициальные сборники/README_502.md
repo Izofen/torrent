@@ -1,3 +1,30 @@
+###  Публикация: 1210519   (778575) от 03.03.2018
+
+VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Анастасия Спиридонова  -  Прыжок в облака  3:17
+02.  Роман Рябцев  -  Вернуться домой (Radio Version)  4:56
+03.  Дана Соколова и L'One  -  Голос  3:36
+04.  Moby  -  This Wild Darkness  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209826   (778688) от 03.03.2018
 
 VA - Indie Rock Playlist Best of 2016 - 2017 (2017) [MP3| ~203-289 Kbps] <Indie/Rock>
@@ -668,33 +695,6 @@ VA - Love Is A Catastrophe: Synthpop Neuroactive Mix (2018) [MP3|200-320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEAE3AD4B61065728846DC33E3CA11F799D0B0F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209348   (779393) от 26.02.2018
-
-VA - Night Noir Deep House Portrait (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kygo & Selena Gomez - It Ain't Me (DJ VoJo Remix)
-002. Nic Fanciulli - The Light (feat. Constance)
-003. Abel - NYE 2014
-004. Oblomov - Gray-Haired Roses (DJ VoJo Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EBE4F9201B516460FBC22F824C2D1A7E7C5C9F
 ```
 
 

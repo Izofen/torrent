@@ -1,3 +1,57 @@
+###  Публикация: 1557474   (541136) от 15.06.2022
+
+Four Minute Man - Devil Inspired (2020) [MP3|320 Kbps] <Heavy Psych Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reason For The Evil
+02. Lord Of The Lost
+03. All The Mountains
+04. Seed(   Читать дальше...   )Жанр: Heavy Psych Stoner RockПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF52757F91140969D7C545FAC87222356201E434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557424   (541137) от 15.06.2022
+
+Sideburn - Fired Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel The Heat
+02. Free Ride
+03. Sweet Obsession (Ride On)
+04. Bad Side Of Town(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B79662ADB8309CE57B3C8B46BD662740DC0E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557348   (541139) от 15.06.2022
 
 Abbath - Dread Reaver (2022) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -643,60 +697,6 @@ Mick Jagger - Gotta Get A Grip / England Lost (2017) 2 Single's [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56D8D34FBC914765EE6B8E74871899C8D7BBD54B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557299   (542582) от 14.06.2022
-
-Mac Walker - Picture (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again & Again
-02. Sweet Angeline
-03. When I Get That Feelin'
-04. Somethin' 'bout You Girl(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D35FD116C125BDF1AE14A04AD512C696B975FEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556957   (542585) от 14.06.2022
-
-Underoath (UnderØath) - 9 Albums (The Best of Oll) (2002-2022) [FLAC|Lossless|tracks + .cue|tracks] <Alternative Rock, Post-Hardcore, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Excuses [00:02:37]
-02. Hallelujah [00:03:01]
-03. I’m Pretty Sure I’m Out of Luck and Have No Friends [00:03:45]
-04. Cycle (feat. Ghostemane) [00:04:13](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Christian RockПродолжительность: 9 CD, 06:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1363C4FFA1365419BBE62597B2DDF5B656D2A66F
 ```
 
 

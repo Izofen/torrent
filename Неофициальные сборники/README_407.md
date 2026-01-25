@@ -1,3 +1,30 @@
+###  Публикация: 1140289   (656682) от 05.06.2017
+
+VA - Воодушевляющий Мелодичный Транс [Sound Clinic - Special Edition] (2017)  [MP3|320 Kbps] <Uplifting Trance, Melodic Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656682.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 4 Strinqs - Take Me Away (Original Vocal Mix)
+2. 7 Skies - Caffeine (Genix Remix)
+3. 8 Wonders - Sex On The Beach (6 Inch Stiletto Mix)
+4. 8 Wonders - Sex On The Beach (Depths Of My thoughts Sunset Dub)(   Читать дальше...   )Жанр: Uplifting Trance, Melodic Trance, Vocal TranceПродолжительность: 53:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140111   (656683) от 05.06.2017
 
 VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
@@ -707,33 +734,6 @@ VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139579   (657609) от 04.06.2017
-
-VA - The best hits 80-90 (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-hop, House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriano Celentano - L'ora Del Rock (02:22)
-02. Haddaway - Let`s Do It Now (02:31)
-03. Yello - The Race (Elena Usman & PRADY Remix) (02:32)
-04. UB 40 & Chrissie Hynde - I Got You Babe (02:52)(   Читать дальше...   )Жанр: Eurodance, Pop, Dance, Rap, Hip-hop, House, ClubПродолжительность: 14:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09E037064435D8955E0A9B15FB0CC636E7DB38E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1619954   (1032523) от 18.03.2023
+
+Narnia - Ghost Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebel
+02. Thief
+03. Hold On
+04. Glory Daze(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42D273F7E6CC030377A51779BA384894155EA57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619820   (1032529) от 18.03.2023
+
+Молот Родины - Ретроспекция, том 1-2 (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Как Революция [00:06:07]
+02. С Нами Бог [00:03:38]
+03. Нация,Кровь и Раса [00:03:12]
+04. На Войну [00:02:43](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4901B5DEACD2E609D14CF6AFA4EA8A4053267193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446783   (1032558) от 10.02.2021
 
 Storm Seeker - Beneath in the Cold (2019) [FLAC|Lossless|image + .cue] <Folk Metal, Pirate Metal>
@@ -641,60 +695,6 @@ Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176990   (1033191) от 07.02.2021
-
-Spooky Tooth - 12 Albums, 1 Box-set, 24 CD (1967-2015) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Roots Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spooky Tooth — британская рок-группа, образованная в 1967 году в Лондоне, Англия, участниками The VIPs, The Ramrods и Art. Spooky Tooth, исполнявшие хард-рок с элементами прогрессив, одними из первых (наряду с The Band и Procol Harum) использовали клавишный дуэт в составе. Группа, в ранние годы нередко сравнивавшаяся с Traffic (делами обеих групп управлял один менеджер, (   Читать дальше...   )--------------------------
-
-01. I Think I'm Going Weird (3:21)
-02. What's That Sound (For What It's Worth) (2:50)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Roots Rock |Продолжительность: 20:56:35 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE14EA7966D3C0EC4CEE5E446744476D2F2ADA86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619330   (1033199) от 15.03.2023
-
-Acid King - Beyond Vision (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 One Light Second Away [00:06:11]
-02 Mind's Eye [00:07:11]
-03 90 Seconds [00:04:48]
-04 Electro Magnetic [00:08:16](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D547AD11349D6B09D2707AA907FD8E2E06F465
 ```
 
 

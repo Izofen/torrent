@@ -1,3 +1,63 @@
+###  Публикация: 931946   (510336) от 28.08.2015
+
+Tad Morose - St. Demonius (2015) [MP3|320 кб/с]<Power/Heavy, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bow To The Reapers Blade
+02. Forlorn
+03. Where Ignorance Reigns
+04. Remain(   Читать дальше...   )Жанр: Power/Heavy, Progressive MetalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1460DA9CE8C2747D267921DDD15EA23D4043A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536603   (510580) от 22.08.2012
+
+Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born a Bit Blue (3:10)
+02. Pause for Thought (0:45)
+03. Travels (5:12)
+04. Gathering Dreams (0:20)
+05. The Rally (11:44)
+06. Long Dark Night (0:39)
+07. The Final Dawn (2:53)
+08. The Noble Pauper (0:58)
+09. Outcry (10:54)
+10. Turmoil (0:44)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931877   (510706) от 27.08.2015
 
 Motorhead - Bad Magic (2015) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
@@ -638,59 +698,6 @@ The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E75C47F67CBF2DECB2666313D15A074990811B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562277   (511553) от 08.07.2022
-
-Vortesvin - What Remains of the World (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Visions of Extinction (00:01:19)
-02 - ...As We Watch Heaven Fall (00:04:58)
-03 - Mother (00:04:09)
-04 - To Be Happy Again (00:04:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6E7F9B7AD2EAB8B676D98C54B70372CF131A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561730   (511555) от 08.07.2022
-
-Profetus - Coronation Of The Black Sun & Saturnine (2006, 2009) 2xCD, Remastered, 2017, Weird Truth Productions [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Skull Of Silence (12:43)
-02. Winter Solstice (16:12)
-03. Blood Of Saturn (Live 2015) (19:40)Жанр: Funeral Doom MetalПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:902041136CD02448E6E4B5CE5A5E94F6F09F1B67
 ```
 
 

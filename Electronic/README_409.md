@@ -1,3 +1,84 @@
+###  Публикация: 1202947   (789110) от 31.01.2018
+
+VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick V - Taste Of Time (Original Mix)
+02. Nikolauss - Star 48 (Original Mix)
+03. Amber Traill - Ibiza Space (Exouler Remix)
+04. Attila Syah - Malang Rain (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 03:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18DF9F47933DBB81E27998B20E01BC02A419BE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202976   (789111) от 31.01.2018
+
+VA - Ice Pack 2018 House: Deep House (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Schwery  -  Schizophrenia (Original Mix)  7:22
+02.  Michael Lami  -  Machinarium (Original Mix)  4:07
+03.  O$O  -  Utbrudd (Original Mix)  5:03
+04.  Purecloud5  -  It's Not Too Late (Original Mix)  7:37(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415CC40E7B33F36553518E63552A9A49753ACD9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202879   (789115) от 31.01.2018
+
+Relmic Statute - Morning Tapes (2010) hibernate [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Abstract, Minimal>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 05:00 Hrs (06:52)
+02. A Test For Tapes And Memories (06:02)
+03. Enarso Lipathe (05:23)
+04. Green Fountain (03:32)(   Читать дальше...   )Жанр: Ambient, Field Recording, Abstract, MinimalПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9499270D3BF760D93DF27A8F2D8F60C1BD340F8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202755   (789120) от 31.01.2018
 
 VA - Melodic House Sessions, Vol. 04 (2017) [MP3|320 Kbps] <House>
@@ -614,87 +695,6 @@ magnet:?xt=urn:btih:AE2D1758A18CB665774A908266991FA9DE0BB2AC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BFEBB15265C2EC843E31B6F28E1EB7783492A7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202490   (789775) от 29.01.2018
-
-VA - Winter Collective 01 (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sunlight Project  -  Tierra Del Fuego (Original Mix)  5:43
-02.  ArchX  -  Cape Mulinu'u Sunrise (Original Mix)  5:45
-03.  Firas Tarhini  -  Hanker Sore (Original Mix)  5:32
-04.  Nistad  -  Memory Lane (Original Mix)  6:27(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55430AF3B6F3330DEB460CECD42D284FA08D25F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202393   (789885) от 29.01.2018
-
-VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lil' Louis - French Kiss (4:06)
-02.Daft Punk - Make Love (4:51)
-03.Giorgio Moroder - Oh L'amour (3:27)
-04.Jeanne Napoli - Let's Make Love (3:34)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 03:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6685F94938A296704A5B145CBFDAAE039D6F2951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275474   (789895) от 12.01.2019
-
-VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 Releases (2015-2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789895.jpg" />
-</div>
-
-
-###  Подробнее
-
-2015 - Cigar Lounge Vol. 1
-2015 - Cigar Lounge Vol. 2
-2015 - Cigar Lounge Vol. 3
-2015 - Cigar Lounge Vol. 4 (A Premium Collection Of Chill-Out & Lounge Sounds)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2583C3576AF0551B1C8682229DEE23180FBD852C
 ```
 
 

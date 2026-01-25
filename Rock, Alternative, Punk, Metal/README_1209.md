@@ -1,3 +1,57 @@
+###  Публикация: 1481320   (1008429) от 02.07.2021
+
+Atlanta Rhythm Section - Atlanta Rhythm Section (1972) Remaster, 1991,  MCA Records [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Me Just A Little (Sometime) - 6:05
+2. Baby No Lie - 3:52
+3. All In Your Mind - 3:18
+4. Earnestine - 2:34(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD1FA33CEAF7A4C554C9D5B1E7F8BF5851DE558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481183   (1008442) от 02.07.2021
+
+Ring Van Mobius - The 3rd Majesty (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seven Movements Of The Third Majesty (22:06)
+a) Universal
+b) Spectrum
+c) Reaction(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44353329AF8F176EA35F122AD60EBCE58D639A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481143   (1008443) от 02.07.2021
 
 Santana - Splendiferous Santana (2021) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ The Saturday Blues Project - 3 Albums (2014-2021) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9896724365C9E9ECC8414FC41248529F7B26F1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480119   (1009111) от 27.06.2021
-
-Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shed My Skin (4:30)
-02. The Purge (4:16)
-03. Entertain You (3:31)
-04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F99789038412F1FB4DE7311F470D068329370A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478298   (1009117) от 27.06.2021
-
-Muse - Origin of Symmetry (2021) XX Anniversary RemiXX [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative Rock, New Prog, Art Rock, Symphonic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Born (XX Anniversary RemiXX) [00:06:03]
-02. Bliss (XX Anniversary RemiXX) [00:04:14]
-03. Space Dementia (XX Anniversary RemiXX) [00:06:21]
-04. Hyper Music (XX Anniversary RemiXX) [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, New Prog, Art Rock, SymphonicПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44AA999F2C3EB43327015063947B3FC41C3D648
 ```
 
 

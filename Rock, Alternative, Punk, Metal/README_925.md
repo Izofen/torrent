@@ -1,3 +1,63 @@
+###  Публикация: 1031417   (668521) от 03.07.2016
+
+Sunburst - Нет Героев (2016) [MP3|320 Kbps] <Heavy Metal, Urban Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сами музыканты определяют стилистику этой работы как urban-metal, что лишь отчасти даёт представление о «формате» материала. На пластинке прослеживается борьба противоречий как музыкальных, так и смысловых. Контекст большинства песен действительно посвящён актуальным проблемам человека в «каменных джунглях», но яркая, подчас даже плакатная образность текстов, рисует (   Читать дальше...   )01. Заткнись и Слушай!
+02. Моя Война
+03. Гетто
+04. Армия Z(   Читать дальше...   )Жанр: Heavy Metal, Urban MetalПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772E3966A2F73BCE0E8D4D1D2BE5F260037274C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510703   (668552) от 15.06.2012
+
+Cult of Luna - 5 albums (2001-2008) [FLAC/APE|Lossless] <Post-Metal, Sludge, Progressive / Doom Metal, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_668552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owlwood (07:39)
+02. Eternal Kingdom (06:41)
+03. Ghost Trail (11:50)
+04. The Lure (Interlude) (02:33)
+05. Mire Deep (05:10)
+06. The Great Migration (06:32)
+07. Osterbotten (02:19)
+08. Curse (06:30)
+09. Ugin (02:44)
+10. Following Betulas (08:56)2001-2008Жанр: Post-Metal, Sludge, Progressive / Doom Metal, Post-RockПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291614   (668564) от 25.03.2019
 
 Аквариум - Greatest Hits - БГ65 (2018) [FLAC|Lossless|image + .cue] <Rock>
@@ -647,60 +707,6 @@ Muse - Muscle Museum (1999) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F59ED8DB9425CBFE0FF9593F3A7C183DB3F5B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136911   (669217) от 25.05.2017
-
-Dion - Kickin' Child: The Lost Album 1965 (2017) [FLAC|Lossless|image + .cue] <Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kickin' Child (Dion DiMucci/Buddy Lucas) 03:03
-02. Now (Dion DiMucci/Carlo Mastrangelo) 02:43
-03. My Love (Dion DiMucci) 02:11
-04. I Can't Help But Wonder Where I'm Bound (Tom Paxton) 02:54(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F51987B04CADE5A2DB5BE82212A6424556AC8AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537019   (669233) от 15.03.2022
-
-VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paramore - Misery Business (3:31)
-02. Skillet - Feel Invincible (3:49)
-03. Linkin Park - Numb (3:07)
-04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
 ```
 
 

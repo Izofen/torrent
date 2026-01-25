@@ -1,3 +1,57 @@
+###  Публикация: 1129190   (722615) от 28.04.2017
+
+Guilles - Harvest Of Grey Days (2017) [MP3|320 Kbps] <Death’n’Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latent 01:01
+02. Born In A Black Void 03:33
+03. Clock 00:24
+04. Bewildered Predator 04:57(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F1232833E7A7DE7FB383EF7DDE252005194070C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129178   (722623) от 28.04.2017
+
+Psykup - Ctl + Alt + F*ck (2017) [MP3|320 Kbps] <Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violent Brazilian Massage 04:09
+02. We Will Win This War 04:00
+03. Ssanta Clauss (Write Me a Letter) 05:12
+04. Shampoo the Planet 04:21(   Читать дальше...   )Жанр: Experimental MetalПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB24DCEDD6ACFBAE8D7647A685970C427D6F352
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129378   (722626) от 28.04.2017
 
 Pip Pyle - 7 Year Itch (1998) [WavPack|Lossless|image + .cue] <Canterbury Scene, Prog Rock, Jazz-Rock, Contemporary Jazz>
@@ -647,60 +701,6 @@ Keane - Greatest Hits (2007) [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DA928171AD8EA644DCD3739E11E13A059530DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023682   (724248) от 05.06.2016
-
-Рада и Терновник - Сёстры (2016) [MP3|320 кб/с] <Folk-rock, Progressive Dark Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сёстры — 11-й студийный альбом прогрессив-дарк-фолк группы «Рада и Терновник». На альбоме представлены как новые композиции, так и заново аранжированные старые. Также исполнена народная песня «Дороженька», сделанная по мотивам аранжировки Владимира Миклошича.01. Я расскажу тебе о том...
-02. Дороженька
-03. Когда будет тепло
-04. Ладная(   Читать дальше...   )Жанр: Folk-rock, Progressive Dark FolkПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927560D2D402DECB72606B81B4292389C2FA11FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023203   (724249) от 05.06.2016
-
-The Kelly Family - Over The Hump (1994) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Why Why
-02. Father's Nose
-03. First Time
-04. Baby Smile(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D948EFB477F9F0E4852530DDB8042F828EE971
 ```
 
 

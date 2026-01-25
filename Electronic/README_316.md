@@ -1,3 +1,81 @@
+###  Публикация: 1544191   (623798) от 14.04.2022
+
+VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - Lockdown Heart (Original Mix) (3:30)
+02. 4 Strings & Susana - Completely (Original Mix) (2:49)
+03. James Dymond & Stine Grove - Birds Of A Feather (Original Mix) (4:15)
+04. Alan Morris with La Antonia & Sue Mclaren - Nowhere Left To Hide (BiXX Remix) (3:53)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544047   (623804) от 14.04.2022
+
+Chris van Buren - Дискография (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthwave, Italodance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aim for the Moon (4:16)Жанр: Spacesynth, Synthwave, ItalodanceПродолжительность: 03:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8910519E33DAC75419E808ECB76A8A27923B705F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145042   (623896) от 24.06.2017
+
+VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Glitter Twins - Blue Paradise  6:42
+02.  Felix - Wind Bender  8:39
+03.  Terry Lewis - Behind You  6:45
+04.  Mr. Dexter 4U - Back To Back  6:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145155   (623897) от 24.06.2017
 
 2raumwohnung - Achtung Fertig (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop>
@@ -609,87 +687,6 @@ VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0F54CC785263415F56C79FE1A06114F16CEAC2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144376   (625930) от 23.06.2017
-
-VA - Sonar 2017/Take Your Way 01 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625930.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Daniel Meister - It's Possible (07:30)
-2. Da Rua - Step Two (06:31)
-3. David Zor - Field In Brooklyn (06:16)
-4. Eugeneos - Gender Wav (08:30)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 02:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1BACB773C296C4A1A3E02357CB01C6E57ADD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144761   (625933) от 23.06.2017
-
-VA - Italian Barista Vol.1 (30 Wonderful Lounge & Down Beat Tracks) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - Miss Saigon (Original Mix)  4:30
-02.  Christos Fourkis - Butterflies Everywhere (Original Mix)  6:46
-03.  Svendaq - Your Love (Original Mix)  5:21
-04.  Chris Le Blanc - Melville Sings The Blues (Extended Mix)  4:55(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CB4F21EE4C57BD317E33FA823D45B9B073D268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144632   (625934) от 23.06.2017
-
-Martins Garden & Friends - Horizon (2017) [MP3|320 Kbps] <Psydub, Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martins Garden, Spyfromcairo - Horizon (7:13)
-02. Martins Garden, Lo.Renzo, Ponder - Shangri-La (7:26)
-03. Martins Garden, Lo.Renzo, Spyfromcairo, Ponder - Mithraya (6:43)
-04. Martins Garden - Candali (6:36)(   Читать дальше...   )Жанр: Psydub, Ambient, ChilloutПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CBA4AF7541DC3CA00B7C6D1F2E215A037627D4
 ```
 
 

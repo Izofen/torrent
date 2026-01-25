@@ -1,3 +1,84 @@
+###  Публикация: 1097176   (915730) от 26.01.2017
+
+Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vicious Circle [4:55]
+ 02. Heaven Give Me Words [5:11]
+ 03. Your Wildlife [6:32]
+ 04. Only One Word [5:51](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:364840D17E9124535650FEBD04BD8D99D31D6B84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097319   (915737) от 26.01.2017
+
+David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age,Easy listening>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Santa Lucia [03:42]
+02. Arrivederci Roma [04:07]
+03. Speak Softly, Love [04:09]
+04. Mio Dolce Sogno [04:04](   Читать дальше...   )Жанр: New Age,Easy listeningПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CC20E9E51DD84E18FEDEA50AF4445BEF793CDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097159   (915849) от 26.01.2017
+
+VA - Sweet Vocal Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moonnight - I Need a New Love (feat. Neptune)  3:46
+02.  Alex Field - Wake Me (Bryan Milton Remix) (feat. Natune)  5:31
+03.  Seven24 - Frozen  5:01
+04.  Marga Sol - Beautiful Morning (Deep Mix)  3:54(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1CB073CCBF94619657165D8F57771970A897C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097193   (916036) от 26.01.2017
 
 VA - Best Of 2016 (2017) [MP3|320 Kbps] <Tech House>
@@ -611,87 +692,6 @@ VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096947   (917790) от 25.01.2017
-
-VA - 10 Years Of Trimurti Festival (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ocelot - Rise Above It  6:44
-02.  Squarkin Jazz - Green Lemon  4:46
-03.  Dreamstalker - Sensation  6:40
-04.  Spectrum Vision - Scwott  7:45(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA46A5A4C57E15F0AEE006BEE87339675CF37A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304244   (918643) от 20.08.2021
-
-Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tracks+.cue, tracks] <Techno, House, Tech House, Progressive House, Leftfield>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. US1873 (06:46)
- 02. LH479 (07:07)
- 03. SK1550 (05:53)
- 04. EZY865 (05:12)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, House, Tech House, Progressive House, Leftfield •Продолжительность: 14:33:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C02331D7CEF5792E483794500F2164FBEB4B89A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367002   (918967) от 14.03.2020
-
-VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ded Sheppard - Run Baby Run (Red Army Remix) [05:38]
-02. dreadmaul - Inka (Fuj Remix) [06:53]
-03. lums - TRIBLSM85 (Owl Remix) [05:16]
-04. Ded Sheppard - The Youth (Out Of Fuel Remix) [07:49](   Читать дальше...   )Жанр: Drum & Bass, Leftfield BassПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2B74F96BA7BC6D62A2D8D87E7F994D05DE3691
 ```
 
 

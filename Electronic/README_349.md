@@ -1,3 +1,84 @@
+###  Публикация: 1221711   (691532) от 26.04.2018
+
+Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klajoja (04:48)
+ 02. Perkunas (03:56)
+ 03. Gentis (03:56)
+ 04. Buk (07:12)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221792   (691533) от 26.04.2018
+
+Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcus Meinhardt - Endjoy (Original Mix) (6:55)
+02. Marcus Meinhardt - Trouble (Original Mix) (7:53)
+03. Uone - Connections (Marcus Meinhardt Remix) (6:50)
+04. Marcus Meinhardt - For Her & For Him (Original Mix) (6:48)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E066A459179CD100BF3B8188174D43CF65CF6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134133   (691543) от 14.05.2017
+
+VA - Mykonos Deep House Session (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andres Newman – It’s Always Summer Somewhere
+02. Merrick Lowell – Lady – Mojito Deep Remix
+03. Twang Chung – Running in Circles – Dreamland Edit
+04. Michael Ribeira – La Luna – Gypsetter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A25D6ECBDB97B2A4720528566015E6816FD9F8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134125   (691650) от 14.05.2017
 
 Stephanie Sante - In Your Eyes (2017) [MP3|320 Kbps] <Lounge, Nu Jazz, Smooth Jazz>
@@ -614,87 +695,6 @@ Jean-Pierre Decerf - Space Oddities 1975-1979 (2015) CD, Compilations [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756EE74F9219C6B7D9B4DF588A10E42EAC284333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221560   (693178) от 25.04.2018
-
-VA - Twilight Jazz - Chillout Vocal Tracks For Lounging & Good Time (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Fashion House - Something
-02. Randy Phillips - Tumbling Into Blue
-03. Mark Dorricott - All Alone Seattle Soul
-04. Sunburn In Cyprus - A Little Bit(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2227B9F79D11F879F4168AE3D940704548C4DDDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221547   (693184) от 25.04.2018
-
-VA - 0/10 Anniversary (2018) Baum Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Deep House, Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Resoe - Into The Trees (Intro) (03:12)
- 02. RCD - Actual (05:01)
- 03. YWF - Compute (06:36)
- 04. Leftover - Burnt Sienna (05:01)(   Читать дальше...   )Жанр: Dub Techno, Deep House, Techno, AmbientПродолжительность: 01:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C32D800F78C7E1382DCD891E61762E8E94D329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221543   (693188) от 25.04.2018
-
-Sturm - Sturmgesten (1999) Mille Plateaux [FLAC|Lossless|tracks+.cue] <Techno, Experimental, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (05:24)
- 02. Untitled (04:27)
- 03. Untitled (06:15)
- 04. Untitled (05:26)(   Читать дальше...   )Жанр: Techno, Experimental, Minimal, AmbientПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9EDC01E32CA310459BB64C71A7CE948B9C2C3E
 ```
 
 

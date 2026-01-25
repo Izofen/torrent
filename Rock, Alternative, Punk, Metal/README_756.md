@@ -1,3 +1,57 @@
+###  Публикация: 936270   (496391) от 11.09.2015
+
+Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock, Melodic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Did The Music Go
+02. You're Making Me Live Again
+03. The Storm
+04. In Dreams(   Читать дальше...   )Жанр: Symphonic rock, Alternative rock, Melodic rockПродолжительность: 00:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318281   (496593) от 05.08.2019
+
+Sihasin - 2 альбома (2012-2018) [MP3|192-320 Kbps] <Native american, Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Child of Fire
+02. Shine
+03. Strong Together
+04. Fight Like a Woman(   Читать дальше...   )Жанр: Native american, Rock, PunkПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A4BBE5BBE635A47AF56909A6BF59BA1BD461B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235801   (496614) от 13.09.2010
 
 Stratovarius - Дискография (26 альбомов) (1989-2009) [FLAC|Lossless]<Symphonic Metal, Power Metal, Neo-Classical Metal, Progressive Metal>
@@ -646,59 +700,6 @@ Lessmann/Voss - Rock Is Our Religion (2022) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2E67AA1CFAF3A1E8655B006E0B039B905D3B1B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564917   (497653) от 21.07.2022
-
-White Palms - Хейтспич (2022) [MP3|320 Kbps] <Post Punk, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Микрозайм [00:04:01]
-02 - Химиотрассы [00:04:46]
-03 - Могильник [00:03:13]
-04 - Сахар [00:03:14](   Читать дальше...   )Жанр: Post Punk, Gothic RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5A92EBF4A9620FC472BF652C722E3D6B926495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318084   (497669) от 04.08.2019
-
-V.A. - The Many Faces Of Queen: A Journey Throught The Inner World Of Queen (2018) 3CD [FLAC|Lossless|image + .cue] <Rock, Arena Rock, Modern Classical>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497669.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Many Faces Of Queen
-CD2 - The Songs
-CD3 - The Queen Symphony: A Night At The OrchestraЖанр: Rock, Arena Rock, Modern Classical |Продолжительность: 02:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0564789B9FEC03ACFA1A6EEF0D1B261FFC911391
 ```
 
 

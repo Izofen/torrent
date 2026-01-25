@@ -1,3 +1,57 @@
+###  Публикация: 1551237   (589391) от 17.05.2022
+
+Cancer Bats - 15 Albums (2005-2022) [FLAC|Lossless|WEB-DL|tracks + .cue|tracks] <Post-Hardcore, Southern Rock, Hardcore Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiate [00:03:04]
+02. The Hoof [00:03:00]
+03. Lonely Bong [00:03:07]
+04. Friday Night [00:02:54](   Читать дальше...   )Жанр: Post-Hardcore, Southern Rock, Hardcore PunkПродолжительность: 17 CD, 10:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188FD31EE6CE9A62B2FF4151B96457ABF63B66FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551321   (589424) от 17.05.2022
+
+Суперкульт - Клеймо (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Клеймо (00:01:06)
+02 - Змея (00:05:17)
+03 - Наркотики (00:03:37)
+04 - Ты не одна (00:04:41)(   Читать дальше...   )Жанр: Post Punk, Experimental RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551630   (589426) от 17.05.2022
 
 Anonymonkey - Human Suit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
@@ -637,60 +691,6 @@ Foreseen - Foreseen (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31629424EF6CCCB5C1131BF8E75F8C15E9A918F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916248   (589826) от 10.07.2015
-
-Within Temptation - 32 альбома, 21 сингл (1997-2014) [FLAC|APE|Lossless]<Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Restless (6:08)
-02. Enter (7:15)
-03. Pearls Of Light (5:15)
-04. Deep Within (4:30)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 25:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B923B27BD14E7CE015A45C46B8313D64AF588C5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781846   (589875) от 10.07.2015
-
-Devil You Know - The Beauty Of Destruction (2014) Japanese Edition [MP3|320 кб/с]<Metalcore / Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Beginning (4:08)
-02. My Own (3:43)
-03. Embracing The Torture (3:26)
-04. For The Dead And Broken (3:26)(   Читать дальше...   )Жанр: Metalcore / Groove MetalПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41D4EE16BA4F68B2D262F8B43CA627ECC690308
 ```
 
 

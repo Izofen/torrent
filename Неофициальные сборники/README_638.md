@@ -1,3 +1,30 @@
+###  Публикация: 976486   (969844) от 17.01.2016
+
+VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Diggs - Ojala
+02. Lemon Grass - It's Easy
+03. Groovecatcher - Shifting Skies
+04. Madison Park - Don't Let Go(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1ED29BD1479C7CE8E41135EC667E9F514F2002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975736   (970186) от 16.01.2016
 
 VA - Promo DJ Top 100 Remixes Winter 2015-2016 (2016) [MP3|320 кб/с] <Club House, Vocal House, Electro House, Club, Trance, House, Deep House, Progressive, Chillout>
@@ -672,33 +699,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20910AAC2558C521C9FC0815EEE7A12B5B709F5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975490   (971931) от 15.01.2016
-
-VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kuduro, Ringbang>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extra Latino - Balkan Bachata 03:16
-02. Disco Fever - Gangnam Style 03:38
-03. Katy Tindemark - Titanium 03:55
-04. Elie P., La Fama - Bailando Por El Mundo 03:15(   Читать дальше...   )Жанр: Latin Urban, Salsa, Bouyon Soca, Kuduro, RingbangПродолжительность: 06:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C5B86B58C7A3C3240D82D0FDA4B11871B53178
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1494799   (885930) от 09.09.2021
+
+VA - Music News vol.130 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885930.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far For - Давай Гуляй (02:21)
+ 002. AIDA - Ветром (02:58)
+ 003. Al Rakhim - Метеоры (03:26)
+ 004. Alesta - Слова (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F06364A13B7386CD12C5F34EC819BD7FC95CCC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103580   (885945) от 12.02.2017
 
 VA - Empire Records - Club Hit 9 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -674,33 +701,6 @@ VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B1C9CE16D7A3808D4E60DDE9FA3754A4974E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494638   (887735) от 08.09.2021
-
-VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Moy - Dirty Buzz
-002. Lisa Hill - I Am On The Real Side
-003. Mark Ashley - Brother Louie
-004. Lo Greco Bros - Why Can't We Live Together(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 09:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13DD2E0F6FBD5D3E80A9885287B54F38990C827
 ```
 
 

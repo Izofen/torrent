@@ -1,3 +1,82 @@
+###  Публикация: 1379680   (837701) от 30.04.2020
+
+Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pleochroism (14:22)
+ 02. Faint Light (10:54)
+ 03. Pleochroism 2 (20:50)
+ 04. Soarer (15:54)Тип издания: CD, WebЖанр: AmbientПродолжительность: 06:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F180D3EDC728550786B3A9F36228F80D81149B1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379723   (837709) от 30.04.2020
+
+Lemna - The Five Elements (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Tribal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part 1 (33:10)
+02. Part 2 (34:57)Жанр: Techno, Experimental, Tribal, AmbientПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C844152ECCF847843B189628374704A26C0C4A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501056   (838115) от 08.10.2021
+
+VA - Spacedance, Vol. 1-3 (2021) [MP3|320 Kbps] <Spacedance, Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on Bass - Magic World (Spacemix) (4:28)
+02. Daylight - Touring Space (5:21)
+03. Humphrey Robertson - Space Rhythm (Sd4 Version) (5:19)
+04. Daylight - Memories of Time (5:21)(   Читать дальше...   )Жанр: Spacedance, Synthwave, RetrowaveПродолжительность: 03:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D63DABC8EF1F718B9698511A624F8717EC2547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501031   (838124) от 08.10.2021
 
 Microsha 89 - Микшер русской кибернетики #206 (2021) [MP3|320 Kbps|WEB-DLRip|image + .cue|tracks + .cue] <Synthwave>
@@ -612,87 +691,6 @@ Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:851B91327BDE2204443FDC4845E373B2F1423A8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112807   (841233) от 09.03.2017
-
-Dreaming Cooper - Parallels (2017) AstroPilot Music  [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extraterrestrial Civilizations (07:56)
- 02. Liquid Flow (07:36)
- 03. Ashes (08:00)
- 04. Dreaming Cooper & Unusual Cosmic Process - The Colours Of Horizon (07:48)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6F99B8512AB74FF1B6F07961F97C606155388B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112666   (841237) от 09.03.2017
-
-ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Repulse [02:40]
-02. ATB feat. York - The Fields Of Love (Club Mix) [06:25]
-03. ATB - Tune [06:09]
-04. ATB - The Summer (Ibiza Version) [03:44](   Читать дальше...   )Жанр: House, Progressive House,TranceПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E7C44C396CAB8EF35CAF5DBF51D1E4CE930977
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500802   (841301) от 06.10.2021
-
-Eisfabrik - Discography (2015-2020) [FLAC 2.0|44.1/16,24|tracks|WEB-DL] <Synthpop, Futurepop, EBM>
-
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Crystal (3:53)
-02. Ice Crystal (Melting Point Mix) (6:12)
-03. New Signs (3:46)
-04. Ice Crystal (Bitter Cold Mix) (3:40)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBM •Продолжительность: 07:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE598C763C767BAA0843066C89CB2F23E63E7BDE
 ```
 
 

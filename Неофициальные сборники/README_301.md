@@ -1,3 +1,36 @@
+###  Публикация: 539338   (506729) от 26.08.2012
+
+VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonarev & Melodica - ZFM (Cosmonaut Breaks Mix) [05:32]
+02. Abdomen Burst - Sakkura (Dmitry Bessonov Remix) [07:05]
+03. Buried Boy - Nirvana (Original Mix) [06:06]
+04. Axcess - Massacre (Trukers Remix) [08:47]
+05. Вадим Жуков - Evolution [06:15]
+06. Вадим Жуков - Moscow Morning [05:18]
+07. Ilya Mosolov - Kassiopea (Original Mix) [07:38]
+08. Jacob Henry - Hopeful Romantic (Schodt Remix) [05:41]
+09. Miika Kuisma - Returning Home [06:02]
+10. NewTone - Sad Song (Abdomen Burst 6 a.m. in the morning mix) [09:03](   Читать дальше...   )Жанр: Atmospheric, Progressive BreaksПродолжительность: 03:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB67F8A459842126ABD6E70C54DD541AD939E079
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539538   (506731) от 26.08.2012
 
 VA - Клубная Дискотека Record vol. 7 Зарубежная (2012) [MP3|256 kbps]<Dance>
@@ -717,30 +750,6 @@ VA - Автоледи: Популярный автосборник (2015) [MP3|2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932679   (508161) от 30.08.2015
-
-Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип музыки сделан на основе оригинального диска DreamcastЖанр: ScoreПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
 ```
 
 

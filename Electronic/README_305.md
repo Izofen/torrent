@@ -1,3 +1,81 @@
+###  Публикация: 1548010   (600887) от 01.05.2022
+
+Royksopp (Röyksopp) - Profound Mysteries (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electroclash, Electro Punk>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Nothing But) Ashes… (1:53)
+02. The Ladder (5:34)
+03. Impossible (6:28)
+04. This Time, This Place… (7:44)(   Читать дальше...   )Жанр: Electroclash, Electro PunkПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D74A093578A91A0C79B07E6549E61AA5DF1B567
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548110   (600892) от 01.05.2022
+
+Parov Stelar - Moonlight Love Affair (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <House, Swing House, Electro Swing>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parov Stelar, Vallemarie - Candy Girl (02:42)
+02. Parov Stelar, Russian Gentlemen Club - AKH Odessa (04:01)
+03. Parov Stelar - Toxic Lover (02:56)
+04. Parov Stelar - FIRE (02:34)(   Читать дальше...   )Жанр: House, Swing House, Electro SwingПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FE04293B08E2A7404A40896E7158BEEF9AB100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149220   (601101) от 10.07.2017
+
+José Luis Colque (Structural Fault, Traces Of Ghosts, †Я▲СΣS ❍F GΗ❍5†5, †ЯСΣS ΘF GНО5†5) - Discography 16 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tra ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ґлђαζіήφ Ỳбџ (04:06)Тип издания: WebЖанр: IDM, Ambient, Industrial, Witch House, Experimental, Dark Ambient •Продолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F220B786554351C665FAA07AEFED0A114D477318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913349   (601144) от 30.06.2015
 
 Kid Loco - A Grand Love Story (1998) [FLAC|tracks +.cue]<Trip-Hop, Downtempo>
@@ -614,87 +692,6 @@ Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231897   (602334) от 23.06.2018
-
-Immersion - Sleepless (2018) [MP3|320 Kbps] <Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602334.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Microclimate
-2. Off Grid
-3. MS19
-4. Sleepless(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2B30AD1A69EB394DE9199786EC445EB2A399B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232185   (602337) от 23.06.2018
-
-VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Emma Hewitt - Safe from Harm (Giuseppe Ottaviani Remix) (World Premiere)
-02. Davey Asprey - Moments
-03. Anske & Victoriya - Love Won't End
-04. Activa - Remember 2018(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60466B9511D4276E8FFF48886F3E847199935A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547784   (602369) от 29.04.2022
-
-VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <EDM, House, Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Let You Down (Mixed) (4:15)
-02. Rub!k - Orbit 37 (Mixed) (2:14)
-03. C-Systems - Every Star (Mixed) (2:20)
-04. Ben Gold, Plumb - Same Sky Same Stars (Mixed) (4:17)(   Читать дальше...   )Жанр: EDM, House, Trance |Продолжительность: 01:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C8F9C259255703570574682196D9E43018071D
 ```
 
 

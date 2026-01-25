@@ -1,3 +1,57 @@
+###  Публикация: 925516   (539313) от 07.08.2015
+
+Ought - Sun Coming Down (2015) [MP3|320 кб/с]<Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Men For Miles
+02. Passionate Turn
+03. The Combo
+ 04. Sun's Coming Down(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF055D8144C13D25240FC96B8F7465CEC2C6584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050294   (540647) от 07.09.2016
+
+The Album Leaf - Between Waves (2016) Deluxe Version [MP3|320 Kbps] <Post Rock, Ambient, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Dawn
+02. Glimmering Lights
+03. New Soul
+04. Back to the Start(   Читать дальше...   )Жанр: Post Rock, Ambient, ElectronicПродолжительность: 01:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E4C6B2BDBCEB77A20483AEE1C6D06FB0598F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557116   (541135) от 15.06.2022
 
 Foot - You Are Weightless (2022) [MP3|320 kbps] <Heavy Stoner, Psych, Grunge Rock>
@@ -638,60 +692,6 @@ Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D147F5486ADD5A891F467C7EE262EC2730E3FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046417   (551937) от 27.08.2016
-
-King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One For The Road
-02. Shining
-03. In Wheels Of No Return
-04. Coming Back To Life(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615C403855DD8A452CBB657A0BA39F033FFB710E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237304   (552345) от 23.07.2018
-
-BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552345.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Контакты
-2. Nothing Lasts Forever
-3. Ogles
-4. Ogles (Edit)Жанр: Pop RockПродолжительность: 00:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9164A2C82004AC6B02906DA770D323B41CBAB95C
 ```
 
 

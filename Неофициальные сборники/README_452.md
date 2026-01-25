@@ -1,3 +1,30 @@
+###  Публикация: 1130108   (716533) от 01.05.2017
+
+VA - New Legend Italo Disco (2017) [MP3|320 Kbps] <Disco, Pop, Dane>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716533.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Brando - Love Is Always On My Mind (Short Version) 3:50
+002. Alberto Costa - Part Of Me 3:32
+003. Aldo Lesina - Illusion (Short Verona Mix) 4:44
+004. Angelico - Forever Love (Bcr Extended New Generation Mix) 7:43(   Читать дальше...   )Жанр: Disco, Pop, DaneПродолжительность: 12:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0AEF79F78DD686002FE859A69E035935395BCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285858   (716565) от 28.02.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 8) (2019) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Bruta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219048   (717515) от 12.04.2018
-
-VA - Душевный шансон в хорошей компании (2018) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717515.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marina (Марина Алексеева) - Горькое Вино Любви Моей
-002. Сергей Трофимов - Интернет
-003. Валерий Палаускас - Девочка-Умничка
-004. Дмитрий Романов & Вова Шмель - Я Не Буду(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E49ECE4D26AF1D7012B383693B6ECF2FF839F94
 ```
 
 

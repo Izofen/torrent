@@ -1,3 +1,30 @@
+###  Публикация: 1507510   (798471) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 7 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FM Attack - My Life (6:31)
+02. BMX Escape - A Date With Jody (5:16)
+03. GoodMarket - Sweet Harmony (Gertrudda Edit) (7:18)
+04. Пропаганда - Белое платье (Shreds Owl Remix) (4:56)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 03:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AC0C2DA716F75A90EE63AEF2345C70CB456D31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507507   (798474) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 6 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -668,33 +695,6 @@ VA - Blues Night: Coctail For The Soul (2019) [MP3|320 Kbps] <Blues, Rock, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FDF664390E8899E21A62D8D4A205615A105679E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273322   (799370) от 03.01.2019
-
-VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Young
-02. Pitbull, J Balvin, Camila Cabello - Hey Ma
-03. Diplo, Zhavia Ward, French Montana, Lil Pump - Welcome to the Party
-04. Drake - God's Plan(   Читать дальше...   )Жанр: Dance, Electronic, Pop, Hip-HopПродолжительность: 05:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
 ```
 
 

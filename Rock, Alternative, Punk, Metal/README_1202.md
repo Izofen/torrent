@@ -1,3 +1,57 @@
+###  Публикация: 1349684   (1004300) от 02.01.2020
+
+Type O Negative - October Rust (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Ground (0:38)
+02. Intro (0:21)
+03. Love You To Death (7:09)
+04. Be My Druidess (5:26)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634B7881B110E94A1FFD96F2CC5A3C2D2BDCF1D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349676   (1004301) от 02.01.2020
+
+Type O Negative - Bloody Kisses (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Screw (0:41)
+02. Christian Woman (8:58)
+03. Black No. 1 (11:15)
+04. Fay Wray Come Out and Play (1:04)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E5D1FA3C8E07FED943D4FC7CC3E060F2CE251F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349699   (1004304) от 02.01.2020
 
 Type O Negative - Dead Again (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Gothic Metal, Gothic Rock>
@@ -638,60 +692,6 @@ Geezer Butler - Manipulations of the Mind: The Complete Collection (2021) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A157CCA9179AE33E4A335FCF777AFF43755ABB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486133   (1004882) от 30.07.2021
-
-Heaven & Earth - V (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive
-02. Beautiful
-03. Never Dream Of Dying
-04. Ship Of Fools(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CFDD21388A4C4C3BDB9826D0C63233215A6E35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486281   (1004885) от 30.07.2021
-
-Dee Snider - Leave A Scar (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Rock (Again)
-02. All Or Nothing More
-03. Down But Never Out
-04. Before I Go(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6BBCD250B485077E4E284232291BC007F325BD
 ```
 
 

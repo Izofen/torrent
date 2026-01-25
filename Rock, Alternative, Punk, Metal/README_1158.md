@@ -1,3 +1,57 @@
+###  Публикация: 986872   (929342) от 15.02.2016
+
+Do Or Die - Crows (2015) [FLAC|tracks|WEB-DL]<Groove Metal, Hardcore, Thrash Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929342.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:08] 01. Crows
+[03:41] 02. Off With Their Heads
+[03:36] 03. Bella Famiglia Soldiers
+[03:52] 04. Bunker Hill Blues(   Читать дальше...   )Жанр: Groove Metal, Hardcore, Thrash Metal, DeathcoreПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768B8ABE4F13469AE70B7B0D3ACC0041878E5EAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094517   (929385) от 18.01.2017
+
+Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coolin'
+2. Best Woman, Best Friend
+3. Live Your Love A Lie
+4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 755041   (929782) от 09.02.2014
 
 Indica - Shine (2014) Limeted Digipack [FLAC|Lossless]<Symphonic Rock, Pop-Rock>
@@ -641,60 +695,6 @@ Tartaros - The Red Jewel (1999) [FLAC|Lossless|image + .cue] <Symphonic Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F43799E2D7B4D64E3289EC08E1D7CBCE88E156D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986223   (931053) от 14.02.2016
-
-Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iselhiem
-02. Koppen Yn ‘e Mist
-03. Wolvetiid
-04. Fredou(   Читать дальше...   )Жанр: Folk, Viking MetalПродолжительность: 00:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D49948D2FA61DA5F9B1D1448202032EAF44821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986344   (931079) от 14.02.2016
-
-Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Evockation (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part I),
-02. Lex Ego Exitium (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part II)
-03. Tetravirulence (Pestilentiam Intus Vocamus, Voluntatem Absolvimus Part III)
-04. Trials(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
 ```
 
 

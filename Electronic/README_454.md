@@ -1,3 +1,84 @@
+###  Публикация: 1105189   (876543) от 17.02.2017
+
+VA - Acoustic Covers Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Umbrella - Acoustic Version
+02. Hannah Dorman - Pumped Up Kicks - Acoustic Version
+03. Ginnie - Secret Love Song
+04. Karizma Duo - Cry Me a River(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C953DFBA6BFDB8E19B23EB5EF9E363B386EE71E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373701   (876712) от 08.04.2020
+
+VA - Massive Erotic Lounge Kiss (2020) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876712.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Frank Demegni - Di Cortesia (4:41)
+2.AMS - Mo (6:33)
+3.Liquid Groove - Solar (3:09)
+4.Konnor Sullivan - When You Kiss Me (Blue Chill Mix) (4:55)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:501C49D72942187058EF7C715BA22BCFDDF9BB6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105318   (876736) от 17.02.2017
+
+VA - Lazy Hammock Sounds Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Submersion - My Little Beach (Chillout Mix)  5:18
+02.  Chris Le Blanc - El Sur  4:02
+03.  Seven24 - Hope (Vocal Mix)  4:12
+04.  Doors In The Sand - True Story  4:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A65D91BA74B4E55FD8E8224415B0DF9B0B19632
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373333   (876895) от 08.04.2020
 
 Greg Dusten - Pure Trance Selection Winter 2020 2020-03-30 [MP3|320 Kbps] <Trance>
@@ -614,87 +695,6 @@ Lauge - Pusterum (2015) [FLAC|Lossless|WEB-DL]<Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCEAE43C5ED7980D85E2599EADCF6B5BB7925E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104775   (880057) от 15.02.2017
-
-The Bhaktas - Darshan Atmosphere (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ananda Purnima VII (Darshan Atmosphere Remix) [00:12:48]
-02. Samgachadvam (Darshan Atmophere Remix) [00:07:52]
-03. New Dawn (Darshan Atmosphere Remix) [00:08:24]
-04. Cosmic Mantra (Darshan Atmophere Remix) [00:12:11](   Читать дальше...   )Жанр: Psychill, AmbientПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077BF836D30F900B3D9E26B6E87D014DB5525804
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104676   (880072) от 15.02.2017
-
-VA - Future House 2017-01 - Armada Music (2017) [MP3|320 Kbps] <Progressive House,House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Norman Doray - All In (Olin Batista Remix) [03:05]
-02 Boehm feat. Brandyn Burnette - Let's Give It A Shot [03:07]
-03 CAZZETTE feat. Laleh - Blue Sky (SAINT WKND Remix) [02:49]
-04 Galavant - Falling [02:55](   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E42FC592C5B51E5C721EF2EF425FDC544FF0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373269   (880146) от 06.04.2020
-
-VA - Stay At Home (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Underbeat; Dottex - Diligence (6:45)
-2. Solarix; Planet 6 - Solar 6 (Domateck Edit) (6:32)
-3. Phanatic - SkyFall (7:35)
-4. Solaris; harmonika - Samadhi (7:25)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD124B47B3B749051AE9FD719DBB23A5C6BCBC2
 ```
 
 

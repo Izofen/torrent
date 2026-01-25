@@ -1,3 +1,54 @@
+###  Публикация: 822004   (481851) от 17.09.2014
+
+Pharrell Williams - iTunes Festival London (2014) WEB-DL [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481851.jpg" />
+</div>
+
+
+###  Подробнее
+
+iTunes Festival - ежегодный музыкальный фестиваль, проходящий в Лондоне в легендарном концертном зале "The Roundhouse",01. Lose Yourself to Dance
+02. Come Get It Bae
+03. Frontin'/Hunter
+04. Marilyn Monroe(   Читать дальше...   )Жанр: Hip Hop, R&B, FunkПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F678162929A6178C6F34E1077D3D2EFEE6E23A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319494   (482690) от 12.08.2019
+
+Жара в Баку (2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открытие музыкального фестиваля ЖАРА в Баку 2019.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12271591DCEEA4372A3AE1EE845AE0D95A54771
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405502   (482854) от 30.08.2020
 
 Metallica & San Francisco Symphony - S&M2 (2020) BDRemux [H.264/1080p]
@@ -610,60 +661,6 @@ magnet:?xt=urn:btih:E5E0D23DBE84060728527BD0B24927E8F6CD4EE2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDEE721656848FD867A003891A291890671A5DE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158384   (491984) от 16.08.2017
-
-John Mayall & The Bluesbreakers And Friends - 70th Birthday Concert (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491984.jpg" />
-</div>
-
-
-###  Подробнее
-
-John Mayall один из ветеранов, прозванный "белым королем черного блюза" и "Большим Отцом британского блюза", воспитавший и давший имя львиной доле ведущих британских роковых инструменталистов. Несмотря на свои 70 лет Майалл с уверенностью смотрит в будущее и далее намерен нести блюз в массы. Концерт, посвященный 70-летию John Mayall01. Southside Story
-02. Kids Got The Blues
-03. Dirty Water
-04. Somebody's Acting Like A Child(   Читать дальше...   )Производство: США, Eagle Rock EntertainmentЖанр: концерт, блюз-рокПродолжительность: 02:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB119F91F5522336F2DB48C42881F61C58EE0B29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936944   (492231) от 13.09.2015
-
-The Rolling Stones - From The Vault - Hampton Coliseum - Live in 1981 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рекорд-компания Eagle Rock выпустила серии живых концертных записей из архива The Rolling Stones, получившей название «From The Vault». Первым релизом в ней стала запись выступления «роллингов» 1981 года в Хэмптоне, штат Вирджиния, «Hampton Coliseum — Live In 1981».  Релиз The Rolling Stones «From The Vault – Hampton Coliseum – Live in 1981» (Eagle Rock) состоялся (   Читать дальше...   )01. Under My Thumb
-02. When The Whip Comes Down
-03. Let s Spend The Night Together
-04. Shattered(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: RockРежиссер: Hal Ashby & Tom TrbovichАктеры: Mick Jagger (vocals, guitar), Keith Richards (guitars, vocals), Ronnie Wood (guitars, backing vocals), Bill Wyman (bass guitar), Charlie Watts (drums), Ian Stewart (piano), Ian McLagan (keyboards, backing vocals), Ernie Watts, Boby Keys (saxophone)Продолжительность: 02:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D8C88305F7B049FB5F8F53F98134D8C55A5E3D
 ```
 
 

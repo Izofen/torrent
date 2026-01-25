@@ -1,3 +1,57 @@
+###  Публикация: 989569   (915414) от 23.02.2016
+
+Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + .cue] <Alternative Rock, Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cornflake girl  05:04
+02.Crucify  04:56
+03.Spark  04:11
+04.Caught a lite sneeze  04:24(   Читать дальше...   )Жанр: Alternative Rock, VocalПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367612   (915451) от 16.03.2020
+
+In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (Interlude)
+02. Fly Like An Eagle
+03. The Red Crusade (Interlude)
+04. The In-Between(   Читать дальше...   )Жанр: Alternative Metal, Female VocalПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8685F8EBB06D179CE17EDCEF7762CDA9BAE889C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367579   (915511) от 16.03.2020
 
 Pyogenesis - A Silent Soul Screams Loud (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Gothic Metal, Alternative Rock>
@@ -643,60 +697,6 @@ Tomcat - Something’s Coming On Wrong (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5568A857F8ADD4CAEABEC61ED01D51DC7264BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097135   (915971) от 26.01.2017
-
-Kreator - Live Antichrist (2017) Metal Hammer Promo CD [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enemy Of God (05:48)
-02. Phobia (03:26)
-03. Pleasure To Kill (04:17)
-04. Mars Mantra (01:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE91CB5D911821C8B2B6C39E063624CA80198E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097279   (916015) от 26.01.2017
-
-National Suicide - Anotheround (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Shot No Dead
-02. I Refuse To Cry
-03. Scene Of The Crime
-04. Anotheround(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A8329DCE06C16D88AC42A6D95732A1C13E1306
 ```
 
 

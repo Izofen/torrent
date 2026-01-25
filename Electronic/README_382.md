@@ -1,3 +1,84 @@
+###  Публикация: 1126785   (764473) от 19.04.2017
+
+Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Surrender  10:13
+02.  Feel  9:26
+03.  Baroque V  8:49
+04.  Back Home  8:49(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7625795EF7C2A95C12CA0A6CE26F92B00449B012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394234   (764513) от 04.07.2020
+
+VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764513.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Under The Moonlight (Edit) 2:55
+02. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me 2:59
+03. Martin Garrix feat. John Martin - Higher Ground 3:27(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 03:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F836EC1FE1FE64035C6512182A1D0D450687BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279844   (764532) от 31.01.2019
+
+VA - Paul Oakenfold: Sunset At Stonehenge (2019) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Oakenfold - Sunset At Stonehenge (Continuous Mix) 1:19:23
+02. U2 - Love Is All We Have Left 2:43
+03. The Grid - Floatation (Subsonic Grid Mix) 7:06
+04. Empire Of The Sun - We Are The People 4:28(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 03:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC30D46EEB7FA48A400D34E210EFE30607072A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279871   (764542) от 31.01.2019
 
 Erik Wøllo (Erik Wollo) - Infinite Moments (2018) Projekt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -611,87 +692,6 @@ Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17185C1438D671550D615A040B7424301F89A722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126534   (765536) от 18.04.2017
-
-VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delalic - Sitting On The Dock Of The Bay (Thomas Godel Radio Edit) (Feat. Tasos Fotiadis) 03:01
-02. Dany Cohiba - Cuban Girl (Original Mix) 06:04
-03. Dj Cosmo - Home (Radio Edit) 03:22
-04. Palace, Double Project - Looking For Love (Feat. Renald)Жанр: House, EDM, DanceПродолжительность: 01:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793BC3E3DB7A8A49174D493EC94762A3338DFC2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126602   (765538) от 18.04.2017
-
-VA - April Relax Hits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven24 - Infinity (Feat. Allam) 04:55
-02. Oleg Byonic - I Don't Want Your Love 05:44
-03. Alex Lead - Falling Stars 02:18
-04. Seven24 - Sunset (Arma8 Remix) (Feat. Alexander Gecko) 05:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68923D95C42200CD09B578FF71695695DBA4D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126622   (765540) от 18.04.2017
-
-VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bes & Meret - My Cocoon (Deep Dawn Mix)  6:20
-02.  Poenitsch & Jakopic - Two People (DJ Linus Remix)  7:17
-03.  Heinrich & Heine - Like The Sun  5:49
-04.  Bildertal - Playa De Barceloneta (Fullruhm Remix)  6:08(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3440E4752ED92AB728327232152EA64EA1E308
 ```
 
 

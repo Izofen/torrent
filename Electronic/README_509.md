@@ -1,3 +1,84 @@
+###  Публикация: 1346757   (1022053) от 08.04.2021
+
+Thierry David - Discography 32 Releases (1988-2021) [MP3|320 Kbps] <New Age, Lounge, Ambient, World>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022053.jpg" />
+</div>
+
+
+###  Подробнее
+
+1988 - Moonstorm (Reissue '98)
+1991 - Humaninhuman
+1992 - Tales Of Sand (Reissue '93)
+1993 - Tones & Colours (Reissue '98)(   Читать дальше...   )Жанр: New Age, Lounge, Ambient, World, Electronic, Tribal, Space & Relaxing MusicПродолжительность: 32:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B108C1115E99A887962329414999093AB99AC4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461048   (1022085) от 08.04.2021
+
+Roberto Sol - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Chillout, Nu Jazz, Deep House, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022085.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - Loveflow (EP)
+2013 - Playback Rewind (EP)
+2013 - Electrified Emotions (10 Years Of Ibiza Flavored Tunes)
+2015 - Hotel Aurora(   Читать дальше...   )Жанр: Chillout, Nu Jazz, Deep House, Downtempo, Lounge, Tribal, World, BreakbeatПродолжительность: 08:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98320413362E8137C6C3C2350C9B4487F77E770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461232   (1022091) от 08.04.2021
+
+Roberto Bronco - Discography 7 Releases (2013-2020) [MP3|320 Kbps] <Lounge, Nu Jazz, Chillout, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022091.jpg" />
+</div>
+
+
+###  Подробнее
+
+2013 - Welcome To The Broncolounge
+2015 - At The Broncolounge
+2017 - Promise
+2018 - Move In Silence(   Читать дальше...   )Жанр: Lounge, Nu Jazz, Chillout, AmbientПродолжительность: 06:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA7FF518B1077CDD0EFA7FFADEFB4E9555DBB7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461134   (1022098) от 08.04.2021
 
 Toki Fuko - Human Design (2021) Lowless Music [FLAC|Lossless|WEB-DL|tracks] <Techno Ambient, Tribal, Spoken Word>
@@ -611,86 +692,6 @@ Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C32B04713FA17861EA7F13E177F03487A8577BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366701   (1023101) от 02.04.2021
-
-nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, Mörk [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It (04:22)
- 02. Above The Clouds (04:40)
- 03. Mad About You (05:53)Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 07:33:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E85CBA5DF2CD55E5AFC5CC0619C543118D9B4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459586   (1023134) от 02.04.2021
-
-Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sentience of Touch (04:51)
- 02. A Skein for Skin (04:42)
- 03. Fabric Improvisations (13:30)
- 04. Transpiration (04:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36113857D9E96AB19BC495BEACEDB9126E48262E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459655   (1023138) от 02.04.2021
-
-Frank Steiner, Jr. - Discography: 6 Releases (1998-2021) [MP3|320 Kbps] <New Age, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023138.jpg" />
-</div>
-
-
-###  Подробнее
-
-1998 - I Ching Symphony
-2004 - Touching Silk
-2011 - Calma
-2012 - Into Forever(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 06:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4225006543E4561ABB6F71FE8799A7D9D725AA2F
 ```
 
 

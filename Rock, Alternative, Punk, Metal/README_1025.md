@@ -1,3 +1,57 @@
+###  Публикация: 1123619   (786399) от 08.04.2017
+
+Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail Mary (03:04)
+02. Purity Gone (03:12)
+03. A Tale of Two (04:31)
+04. The Devil Makes Five (04:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123596   (786403) от 08.04.2017
+
+Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. God In Skin (05:05)
+2. Coffins Like Kites (07:22)
+3. Memoriam (05:28)
+4. Remedy (04:47)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BF1DAC2139E5BF0135C18B467AA9C90C977BB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123674   (786413) от 08.04.2017
 
 Expulsion - Overflow (1994) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
@@ -641,60 +695,6 @@ John Paul Jones - 5 albums, 7 CD (1985-2010) [FLAC|Lossless|image + .cue] <Prog 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560142FCA858B92F5BF35B4B06CFAD83F88C9972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277227   (787006) от 19.01.2019
-
-Lividity - Fetish for the Sick (1997) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lacerations of an Unclean Twat (2:11)
- 02. Feasting on Mankind (0:57)
- 03. Immortal Impact (1:38)
- 04. Randomly Raped Rectum (1:13)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6052594566207BA2F8AE5F4AC48BA0513D8D0A77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277155   (787012) от 19.01.2019
-
-Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Dancing
-02. Remember
-03. Shang A Lang
-04. Summerlove Sensation(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB4E8CC3E11D11DFFF194EA70409E053E3BB705
 ```
 
 

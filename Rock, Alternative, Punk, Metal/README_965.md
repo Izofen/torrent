@@ -1,3 +1,63 @@
+###  Публикация: 1024380   (718150) от 08.06.2016
+
+Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Explode
+02. We Got It All
+03. Every Little Monster
+04. Nothing Is Forever(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEDFA56204873DA858424179EBDA65436D6A7E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326955   (718208) от 25.04.2011
+
+Dub War - 4 альбома + 3 сингла (1994-1998) [MP3|192-320 kbps]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_718208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Chill - Aphrodite 'Smash Up The Place' Remix (5:32)
+02. Million Dollar Love - DJ Rap Remix (5:25)
+03. Nations - Aphrodite Remix (5:39)
+04. Over Now - 'Bonobo's Tea Party' Remix (4:13)
+05. Strike It - Attica Blues (Mo'Wax) Remix (4:26)
+06. Silencer - Boilerhouse Boys Remix (5:02)
+07. Mental - 'Jazzid' Remix (Mo'Wax) (3:41)
+08. Strike It - DJ Hurricane Remix (4:40)
+09. Nar Say A Thing - Rootsman Dub Remix (5:34)
+10. Mental - Haggis (Senser) Remix (3:48)(   Читать дальше...   )Жанр: Reggae / Alternative / PunkПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024459   (718254) от 08.06.2016
 
 Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
@@ -638,60 +698,6 @@ Weezer - Weezer (Black Album) (2019) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1385096B982FD4B774B6EC94226DD5650DBE77F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130048   (718990) от 30.04.2017
-
-Deserter - Coils of the Lesser Serpent (2017) [MP3|320 Kbps] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkening Clouds Over Utopia 03:32
-02. Urban Gehenna 03:29
-03. Headhunter 04:01
-04. Carnal Carnival 03:23(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D1F786FE6B528303A041D8DD071A8CCABFE240
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129971   (718993) от 30.04.2017
-
-Resurrected - Resurrected (2017) [MP3|320 Kbps] <Brutal Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hellcome 05:03
-02. The Overkill To Dwell 02:36
-03. Human Killing Spree 05:01
-04. Bewareness Of Truth 05:15(   Читать дальше...   )Жанр: Brutal Death Metal, GrindcoreПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C043EEA28067314EA8A7BAE7C9BE779EA1FC3C1
 ```
 
 

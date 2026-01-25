@@ -1,3 +1,57 @@
+###  Публикация: 1443035   (1036014) от 27.01.2021
+
+Crystal Viper - The Cult (2020) [MP3|320 Kbps] <Heavy Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Providence (01:50)
+ 02. The Cult (04:37)
+ 03. Whispers from Beyond (04:44)
+ 04. Down in the Crypt (03:14)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalsПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FE2FC7D9AE83FED04C97438B5287379A3768C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443145   (1036034) от 27.01.2021
+
+Riverside - Wasteland (2018) Reissue, 2019, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036034.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Day After (1:48)
+02. Acid Rain (6:03)
+03. Vale of Tears (4:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C3A533A63D61252985BF7B624AC11FCDF719B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443044   (1036040) от 27.01.2021
 
 Canary - Cage Company (1981) LP [MP3|320 Kbps] <Krautrock, Prog Rock, Hard Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:581DFF76064430C7F805E0F5EF7A666740BB9CEF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64AE74FB9D462B8B369211A17878FDCBE61B520B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616376   (1036445) от 02.03.2023
-
-U.S. Girls - Bless This Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Only Daedalus (00:03:29)
-02 - Just Space For Light (00:03:56)
-03 - Screen Face (00:03:20)
-04 - Futures Bet (00:04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, SynthpopПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A41D8825C8026EC75BC34D03DAC213D81A35F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616405   (1036446) от 02.03.2023
-
-Сегодняможно - Искусство (2023) [MP3|320 Kbps] <Alternative Rock, Emo Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Искусство [00:02:31]
-02 - Кома [00:02:28]
-03 - Ему все равно [00:02:34]
-04 - Когда наступит рассвет [00:02:49](   Читать дальше...   )Жанр: Alternative Rock, Emo PunkПродолжительность: 00:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A43E9FCA7AF54E056F2D56F4599FF26835D1209
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1390802   (782261) от 17.06.2020
+
+VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyranix And Firman JP - Megapolis (Original Mix)
+02. Roman Hayez - Take Over (Original Mix)
+03. Mike Zaloxx - Voltage (Original Mix)
+04. Mat1ne - High Bounce (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB028B8423BB710AD6D7E21A58788999B81EB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390805   (782262) от 17.06.2020
+
+VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabloo - Make Me Complete (Original Mix)
+02. Amos Dj - Popcorn (Remix)
+03. Dj Marco Marzo - Open for Lunch
+04. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5149FD5AAA418E0A83B50958748CCB1496CAE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390869   (782271) от 17.06.2020
+
+J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Deep House, Dub>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Radio (08:22)
+ 02. Inward (05:20)
+ 03. Peripheral (08:22)
+ 04. Woo (06:09)(   Читать дальше...   )Жанр: Techno, Tech House, Deep House, DubПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390864   (782299) от 17.06.2020
 
 Javier Marimon - General Noise (2020) Oslated [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Abstract, Techno Ambient>
@@ -614,86 +695,6 @@ Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C5CA7D139D61D588E260F8FB2880A6BE44BD4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206081   (782937) от 12.02.2018
-
-Spaceinvader - Escape (2018) [MP3|320 Kbps] <Synthwave, Darksynth, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape From Reality
-02. Activation
-03. Impact
-04. Memory Lane(   Читать дальше...   )Жанр: Synthwave, Darksynth, RetrowaveПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366E2E8D43BD02A61EAF5450257D8EE86C7E0DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205952   (782944) от 12.02.2018
-
-Ison - 2 EP (2015 - 2018) [MP3|320 Kbps] <Space Ambient, Drone Doom, Post-Rock>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - Cosmic Drone (EP)
-2018 - Andromeda Skyline (EP)Жанр: Space Ambient, Drone Doom, Post-Rock |Продолжительность: 01:17:20 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F196184A9CDA95BB7848A34FA98BA7E2DB4752
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205989   (782948) от 12.02.2018
-
-VA - Best Of Deep House Vol.01 (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Midnight  -  Synthetic (Mango vs. We Are All Astronauts Vocal Remix)  7:40
-02.  Elypsis & Mandy Reign  -  Poison (Gregory Esayan Dub Remix)  5:42
-03.  LaMeduza & Stendahl  -  Different You (Approaching Black Vocal Remix)  4:59
-04.  Marsh  -  Mini Anthem (Original Mix)  3:51(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 01:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDB4268AA723F72B1ACBD225DE6BCADDE049407
 ```
 
 

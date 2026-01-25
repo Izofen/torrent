@@ -1,3 +1,84 @@
+###  Публикация: 1315443   (512853) от 20.07.2019
+
+VA - Melicia (2003,2006) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grip (Remix)
+ 02. Suenos
+ 03. Image Of My Soul
+ 04. Discoteque (Remix)(   Читать дальше...   )Жанр: Goa-Trance, Psy-TranceПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996B3784385FAB8A9908285B25A3EFA4032CC79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930684   (512921) от 25.08.2015
+
+Neuroticfish - A Sign Of Life (2015) [MP3|320 кб/с]<Synthpop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rose (03:05)
+02 Silence (04:04)
+03 Depend On You (04:22)
+04 Opposite of Me (05:42)(   Читать дальше...   )Жанр: Synthpop, EBMПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD2D6495A3699AEA193AE33BD33B67C8918A570
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242961   (512975) от 24.08.2018
+
+V.A. - Vintage Cafe: Lounge & Jazz Blend Vol. 11 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Lovin' You [04:08]
+02. Flora Martinez - Take My Breath Away [03:31]
+03. Jamie Lancaster - 24k Magic [03:51]
+04. Shelly Sony - New Rules [04:06](   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0693048D0D98FDB420E30DA3E6D2B4EC4947E2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242809   (513120) от 24.08.2018
 
 VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix)(2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -621,87 +702,6 @@ VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5EDC463C736EE620E889CF3E093B3BD453C21DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930559   (515258) от 23.08.2015
-
-SiJ - Way To Dream (2015) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, New Age>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When She Comes Ashore (04:05)
-02. It Was Early Morning (07:56)
-03. ...with Her Timid Movements (02:19)
-04. Way To Dream (Anna) (06:40)(   Читать дальше...   )Жанр: Ambient, Modern Classical, New AgeПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D51E4BC67AC6B7DDD066DDD2DB24F2C9F122EA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930650   (515287) от 23.08.2015
-
-G.E.N.E. - Visionary Voyager (1993) [FLAC|image + .cue]<New Age>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamonds at the Beach (04:04)
-02. Mallorca Love Theme (03:18)
-03. Feeling (04:24)
-04. Honey Bees (03:49)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CC0AB6D4BC32B6E06D088ACC942EEE849A2F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561296   (515592) от 04.07.2022
-
-VA - Goodmorning: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - A Beautiful Thing (6:56)
-02. Michael E - It's Your Time (original mix) (6:04)
-03. Chillson - Giant Steps (feat Marc Hartman - original mix) (3:50)
-04. Five Seasons - Le Soleil (original mix) (4:56)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A7D39B54DB2FB66DF1CBDAADABE2F4C727B2CC
 ```
 
 

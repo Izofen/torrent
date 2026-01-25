@@ -1,3 +1,57 @@
+###  Публикация: 131080   (737425) от 22.07.2020
+
+Земляне - The Best (2005) [MP3|128 - 320 kbps] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Трава у дома (4:37)
+02. Путь домой (3:21)
+03. Я люблю природу (4:26)
+04. Артист (4:05)(   Читать дальше...   )Жанр: РокПродолжительность: 02:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86DC70AAD5A8DC280904ADC7F4B4DFF4E2D72CA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856582   (737552) от 22.07.2020
+
+Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With My Face On The Floor (3:10)
+02. Somebody Made For Me (2:25)
+03. She's Such A Beauty (2:24)
+04. Long Time No See (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9524287C191128C002E7F630BC70D2224522A9F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 786767   (737743) от 15.05.2014
 
 Gerard Manset - Un oiseau s'est pos (2014) 2CD [MP3|320 кб/с]<Rock>
@@ -643,60 +697,6 @@ The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61CD3F6366D473F88F89392D4FF17142D094C5E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526265   (738800) от 23.01.2022
-
-Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Of Magic
-02. The Spark
-03. Shadow Of Emeria
-04. Blackblade(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526253   (738806) от 23.01.2022
-
-Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpathos Rising
-02. Chosen Sentinels
-03. Moonshiner
-04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1132888   (697216) от 11.05.2017
+
+VA - Deep Chill Out Waves Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kevin Place - Dottoressa Payot (feat. Fresh)  4:21
+02.  Velvet Dreamer - Night Raindrops (Original Mix)  5:02
+03.  351 Lake Shore Drive - Forever (Original Mix)  4:58
+04.  Roberto Bronco - Memories (feat. Wenawedwa)  5:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354A021E0E28126809A37F0BDFB08C2EEC311EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132877   (697222) от 11.05.2017
+
+VA - Summer Chill Smooth Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kool&Klean - The Way You Look Tonight  5:07
+02.  Chillaxing Jazz Kollektion - One Hundred Ways  4:03
+03.  Konstantin Klashtorni - Smoothing  5:13
+04.  Love Suggestions - Little Talks  5:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BF1F1C386C758E067E7088F734840E61C532C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132934   (697224) от 11.05.2017
+
+VA - Late Night Vibes Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christos Stylianou - Kill Me Now  4:28
+02.  Gaba Milani - Like A Butterfly  5:52
+03.  Vega Ray - Track In Rhythm  4:56
+04.  Oscar Barros - In My Head  5:10(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3CF6E70EE3D4F30C7E9DB25A98CE8C62F42BBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132883   (697228) от 11.05.2017
 
 VA - Top 20 Chillout May (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -613,87 +694,6 @@ VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132736   (698968) от 10.05.2017
-
-Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Robert Nickson - Every Sun (Factor B's Perfect Sunrise Remix)
-02.London Grammar - Big Picture (Ciaran McAuley Rework)
-03.Driftmoon feat. Laurie Ann Haus - Felix (Ferry Tayle Remix)
-04.Arctic Moon - Nocturnal Horizons (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0E586DE7DD273A149FACB31C263DCF451EBD6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288074   (699506) от 09.03.2019
-
-VA - The Art of Skullduggery (Mixed by Greg Downey & Stoneface & Terminal) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vincextz - Clockwork (Original Mix)
-02. Greg Downey - The Tone (Intro Mix)
-03. Greg Downey - Loco (Original Mix)
-04. Greg Downey & Bo Bruce - These Hands I Hold (Richard Durand Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BD5BEC64CD3FB57AC66BFDC4C365913B8440C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177882   (699607) от 07.06.2014
-
-VA - Covert Operations Record Pres: Global Connections vol. 1-6 (2007-2009) [MP3|192-320 kbps] <Intelligent Drum'n'Bass, Atmospheric Drum'n'Base>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_699607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Operon & Lm1 - Lorien(07:01)
-02. JCB - December(08:41)
-03. B.Fuse - Solar Patrol(07:59)
-04. Entharsis - Boundless Wonder(04:18)(   Читать дальше...   )Жанр: Intelligent Drum'n'Bass, Atmospheric Drum'n'BaseПродолжительность: 06:43:11
-
-## Скачать торент
-```bash
-нет
 ```
 
 

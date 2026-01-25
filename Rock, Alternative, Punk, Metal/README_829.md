@@ -1,3 +1,57 @@
+###  Публикация: 1043119   (574800) от 15.08.2016
+
+Diesel - Into The Fire (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Under Cover (3:42)
+2. Into The Fire (3:57)
+3. Starting Over (4:18)
+4. Fortune Favors The Brave (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7EB991A57FB68E4E3DD4BFEF0DC3D96AF76ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043130   (574802) от 15.08.2016
+
+Satisfied Drive - Live (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight of the World (4:03)
+02. Sunset (4:26)
+03. Wasting My Love (3:15)
+04. Long Way Back (3:36)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECFBEC1E6C59DD1CF88A60C22BE4433AC02A961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361805   (574849) от 11.07.2011
 
 VA - Happy Hippie Hits (2009) 5 CD Box Set [MP3|320 kbps]<Rock>
@@ -662,60 +716,6 @@ Aversio Humanitatis - Abandonment Ritual (2011) 2012, Self Mutilation Services, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2084D482B72120D3837668FF276A0505325A42A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303070   (576458) от 19.05.2019
-
-Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chant Of Oblivion
-02.No More Room In Hell
-03.Dominion
-04.Damned(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4665A96B05D1D9FA63699BCEEE78B78A42AF082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042986   (576532) от 14.08.2016
-
-Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Was Then, This Is Now.flac
-02. Last One.flac
-03. Is This What You Want.flac
-04. A Night To Remember.flac(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE876C19A314A694ADB7CD9B32632BF08729724
 ```
 
 

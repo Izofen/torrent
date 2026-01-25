@@ -1,3 +1,57 @@
+###  Публикация: 1046417   (551937) от 27.08.2016
+
+King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One For The Road
+02. Shining
+03. In Wheels Of No Return
+04. Coming Back To Life(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615C403855DD8A452CBB657A0BA39F033FFB710E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237304   (552345) от 23.07.2018
+
+BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552345.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контакты
+2. Nothing Lasts Forever
+3. Ogles
+4. Ogles (Edit)Жанр: Pop RockПродолжительность: 00:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9164A2C82004AC6B02906DA770D323B41CBAB95C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237229   (552460) от 23.07.2018
 
 Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, Blues>
@@ -647,60 +701,6 @@ Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51A1C69195860881B317CFD14C5F610BA44879B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555801   (565512) от 06.06.2022
-
-Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Songwriter's Gone 03:09
-02. Connected 03:02
-03. You Leaning On Me 03:24
-04. Magic Child 04:25(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FDD9C564CBBAAF48051CC3CB4C91B49460D49D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044645   (565523) от 20.08.2016
-
-The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Louise
-02. Try Another Day
-03. I Feel The Same Way Too
-04. My Mind Cries(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1547201   (603462) от 27.04.2022
+
+Эйфори.Я - Кофе (2022) [MP3|320 Kbps] <Alt. Rock, Post Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ХБПВР [00:03:37]
+02 - Стая (feat. Round Hills) [00:03:18]
+03 - Свинец [00:04:13]
+04 - Трудно дышать [00:03:42](   Читать дальше...   )Жанр: Alt. Rock, Post GrungeПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9710E6EBC26963938A2D06C5E37268F975A311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547215   (603464) от 27.04.2022
+
+Откровения Дождя (Revelations Of Rain) - 5 Albums (2007-2016) [FLAC|Lossless|image + .cue] <Doom Metal, Slow Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алтарь блудниц (8:54)
+02. Сквозь ночь Фобетора (6:46)
+03. Эшафот (8:29)
+04. В грусти и радости (9:08)(   Читать дальше...   )Жанр: Doom Metal, Slow Death MetalПродолжительность: 5 CD, 05:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF8C5DD591883FB2A7788F9E2B4FFA86E1B9906
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547325   (603466) от 27.04.2022
 
 Экспедиция Восход - Трансатлантика. Часть 1 (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Punk>
@@ -640,60 +694,6 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546888   (603956) от 26.04.2022
-
-Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC|Lossless|WEB-DL|tracks] <Glam, Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Never Been In Love (2017 Remaster) (3:03)
-02. Mind Demons (2017 Remaster) (2:28)
-03. She's in Love with You (2017 Remaster) (3:33)
-04. Hollywood (2017 Remaster) (3:00)(   Читать дальше...   )Жанр: Glam, Pop Rock, Soft RockПродолжительность: 7CD, 07:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EFA334D01D2694A32E68E96E7DA23766153C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546995   (603965) от 26.04.2022
-
-Catharsis - Книга Времен. Будущее Прошлого (Часть 1-2) (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кто ты?
-02. Гонки за мечтой
-03. Сердце мира
-04. Дальше - тишина...(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC8BDA7C6618D24F98C3E5BAA2525471E5E64A8
 ```
 
 

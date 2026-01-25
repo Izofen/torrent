@@ -1,3 +1,55 @@
+###  Публикация: 1492982   (899021) от 01.09.2021
+
+Faithful Breath - 2 Studio Albums (1984-1985) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899021.jpg" />
+</div>
+
+
+###  Подробнее
+
+1984 - Gold 'N' Glory
+1985 - SkolЖанр: Heavy MetalПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2219F21FA840D61990E48EFAAE40A5FFF18308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100404   (899039) от 04.02.2017
+
+VA - Союз. Rock 3 (2017) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса - Rock 'n' Roll жесток
+02. Йорш - Музыка сильных
+03. Totem - Люди Севера
+04. Louna - Те, кто в танке(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB53FD5E2551EDF83F28C127B45B2C25606018E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 400467   (899156) от 04.02.2017
 
 Heart - Greatest Hits (1998) remastered, 2011, Audio Fidelity [WavPack|Lossless|image + .cue]<Rock>
@@ -638,60 +690,6 @@ The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35B9EB907A9B1E26839E03866726EDB5E697523C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369943   (900428) от 25.03.2020
-
-Facs - Void Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy [03:22]
-02. Teenage Hive [03:03]
-03. Casual Indifference [03:39]
-04. Version [06:17](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E3F9B91B01AEFB7A3854EC9B946C5ADD72D565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369954   (900430) от 25.03.2020
-
-Infected Rain - Embrace Eternity (2014) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalcore, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling Through Time (1:04)
-02. Hysterical Watches (4:33)
-03. Dancing Alone (3:52)
-04. Count To Three (3:31)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Melodic Death MetalПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A8515A1D5C8F1936A3DB0DE24CCF8C24B49042
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1293697   (633738) от 05.04.2019
+
+VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Heat (4:41)
+02. Bodywork (12'' Extended Mix) (5:46)
+03. Downtown (12'' Extended Mix) (5:56)
+04. Miami's Finest (12'' Extended Mix) (6:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAEE70677815EEED705978BF821F018895B4A3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293807   (633748) от 05.04.2019
+
+KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Abstract>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ever (06:29)
+02. Yajna (06:27)
+03. Purgatory (04:37)
+04. Binary (04:50)(   Читать дальше...   )Жанр: Electronic, AbstractПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AC9E3DDE5F3BA37474B81F2B18F8237F27FCC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907606   (633864) от 14.06.2015
+
+VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
+02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
+03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
+04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519134   (633884) от 08.07.2012
 
 VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
@@ -621,87 +702,6 @@ CD1: 01:09:42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293413   (635657) от 04.04.2019
-
-Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arpology (4:19)
-02. Tierra Del Fuego (4:33)
-03. No Escape (6:09)
-04. Realism (4:13)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA016DDF79E2F5BE1435EE94B03842B367D224B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293410   (635658) от 04.04.2019
-
-Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Limits of Our Frontier (5:40)
-02. Destination Mars (6:40)
-03. Spirit (6:11)
-04. Opportunity (6:00)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9455D72E6190B2DA63AEF230C68298C77B1EA51F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293409   (635659) от 04.04.2019
-
-Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lair of the Dragon (6:43)
-02. Spirit Warriors (6:33)
-03. Shadow Dancer (5:58)
-04. Lunar Festival (4:52)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C16936E653D3684FBFB8D13465EEB11DE2BC1B6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1009547   (810173) от 21.04.2016
+
+VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810173.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2nd Phase - Short Circuit (Original Mix) 07:23
+002. Above & Beyond - A.I. (OM) 06:29
+003. Airbase - Lachrymose (Original Mix) 06:59
+004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504695   (810204) от 24.10.2021
 
 VA - 30(9) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A975854E7F57AE5FAE1C6CF772903DD6E65391F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118709   (811676) от 26.03.2017
-
-VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miles Dyson - Beyond (Extended Mix) 04:55
-002. Dizart - Just In The Way (Original Mix) 03:53
-003. Atside - Kitelahw (Jean Bloc Remix) 05:00
-004. #Monkeystuff - World Connection Feat Dmitry F. (Original Mix) 05:25(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 09:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1504458   (810060) от 24.10.2021
+
+Pink Floyd - Pulse (1995) Live, Reissue 2021 [FLAC 2.0|192/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc - 1:
+01. Shine On You Crazy Diamond (Pts. 1-5, 7) (13:36)
+02. Astronomy Domine (4:21)
+03. What Do You Want from Me (4:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B436BD08F22565C38047B0C2C8E7A5E0F18AD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504656   (810072) от 24.10.2021
+
+Electric Light Orchestra - Vocoder (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art.Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky (2012 Version) [00:03:42]
+02. Steppin' Out [00:04:40]
+03. Sweet Talkin' Woman [00:03:49]
+04. Confusion [00:03:41](   Читать дальше...   )Жанр: Progressive Rock, Art.Pop RockПродолжительность: 00:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D4BD635EEFB6A26AE26E27B4A915051D84143C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 730444   (810106) от 16.05.2020
 
 Nahemah - Second Philosophy (2007) [FLAC|Lossless|.iso.wv]<Melodic Death Metal>
@@ -636,60 +690,6 @@ Santana - 54 albums, 5 Box sets, 137 CD (1968-2021) [FLAC|Lossless|image + .cue 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47855A411620B1F3B42994FE9004DF9E53B1564E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504596   (811542) от 23.10.2021
-
-ДДТ (DDT) - Творчество в пустоте (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Муха
-2. Борщевик
-3. Хор
-4. В магазине(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A99F6828CC3D5A7930CF55A0F0C663AF1E1C4D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619018   (811638) от 20.04.2016
-
-Placebo - This Picture (2003) Australian Exclusive EP [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Picture
-02. Soulmates
-03. Where Is My Mind (XFM Live Version)
-04. Daddy Cool(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB30A1D72D5DA4F7D4A1BEBD66991A5AFE9E573
 ```
 
 

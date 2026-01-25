@@ -1,3 +1,57 @@
+###  Публикация: 1155494   (533529) от 03.08.2017
+
+Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533529.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sun of the Night (5:15)
+2. Patchworks (4:59)
+3. Uncreation (5:41)
+4. Add Reality (6:17)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:961FA9E06BC9153FF39AAAC0666B01BA4C7F83D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926409   (533562) от 10.08.2015
+
+Heavenside - A Long Way To The Stopline (2015) [MP3|320 кб/с]<Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533562.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Похоже, действительно лебединая песня может стать самым интересным открытием года. Лучший Gothic Metal последних нескольких лет: группу HEAVENSIDE и их прощальный альбом "A Long Way To The Stopline". Тульский проект, который построил на своих плечах Михаил Гуз, бывший гитарист группы FORGIVE-ME-NOT, автор песен группы DARK PRINCESS и многих других (   Читать дальше...   )01. Behind The Mirror
+02. A Reason To Fly
+03. The Ghost
+04. Sinnersaint(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A872699D8E8A7B729D09840D07CB4F1E2D0511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926539   (533566) от 10.08.2015
 
 Seventh Wave - Psi-Fi (1975) Remastered /2005, Air Mail Archive/ [FLAC|image+.cue]<Psychedelic, Progressive Rock>
@@ -650,57 +704,6 @@ magnet:?xt=urn:btih:73EA1DFAB6325D0EC2426A6E1F952152F6AF190E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEDA956E4F18A2A0B8BFA3FB5847C7158AE0E0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050838   (534662) от 10.09.2016
-
-Rev Theory - The Revelation (2016) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns
-02. We Own The Night
-03. Red Light Queen
-04. Piece Of Me(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B016F76EBA9989276EE1564123A9E0760E404D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532885   (534781) от 09.08.2012
-
-745 - 745 (2009) [MP3|256кб/с] <Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RapcoreПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB656EFC891AA010E58D6674AE9DC34A89CFD810
 ```
 
 

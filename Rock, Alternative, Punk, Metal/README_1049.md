@@ -1,3 +1,57 @@
+###  Публикация: 1502838   (799881) от 31.10.2021
+
+Creedence Clearwater Revival - 39 albums, 1 Box sets, 95CD (1968-2021) [FLAC|Lossless|image + .cue | tracks + .cue ] <Classic Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creedence Clearwater Revival (CCR) — американская рок-группа, образовавшаяся в 1967 году и за пять лет существования добившаяся всемирного успеха и признания критиками. CCR, возникшие в Сан-Франциско, с самого начала находились под влиянием свомп-блюза. В ранних песнях («Born On The Bayou» и др.) CCR создали своего рода легенду «простых парней со старого доброго (   Читать дальше...   )--------------------------
+
+01. Born On The Bayou (5:33)
+02. Green River (3:16)(   Читать дальше...   )Жанр: Roots Rock, Swamp Rock, Southern Rock, Classic Rock, Country |Продолжительность: 80:02:49 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB3DF420E7EEAD45F5AADD778671C8D93E6A900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273624   (799893) от 02.01.2019
+
+Phenomena - Innervision (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock House (4:19)
+02. Banzi (4:39)
+03. What About Love (5:05)
+04. Into The Fire (4:26)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB8704031CCBFF95800B612DFA8AED8007E0E9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273561   (799897) от 02.01.2019
 
 Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -642,60 +696,6 @@ Skyclad - Vintage Whine (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3505CD872104653DE306BD3B6717F21F42CE137
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506486   (800253) от 31.10.2021
-
-Painters of Ether - Painters of Ether (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defenders of Lorenia (12:00)
-02. Euterpe (05:31)
-03. Silent Sinners (06:19)
-04. Demon Hunter (06:38)(   Читать дальше...   )Жанр: Symphonic, Heavy Power MetalПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F323D7A2E3B2E77A44E23DA35048BB67D1290FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385128   (800283) от 23.05.2020
-
-ЛЯПИС 98 - Неизвестные песни Ляписов (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Девочка с бездонными глазами
-2. Саяны
-3. Любови капец
-4. Холодная мамба(   Читать дальше...   )Жанр: RockПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E237E256018DC3EABB2ECB6AD40B46F0700351
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1405178   (485836) от 29.08.2020
+
+Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Catacombs of Flesh
+02. Mass Obliteration
+03. Ossuary Rituals
+04. Funeral Storm(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C8717EE6BF5D39275B82A7327E54134B639387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405160   (485837) от 29.08.2020
+
+Cavern - Powdered (2020) [MP3|320 Kbps] <Progressive Sludge, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485837.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. River [00:03:36]
+2. Grey [00:05:23]
+3. Powdered [00:02:38]
+4. Red Moon [00:03:22](   Читать дальше...   )Жанр: Progressive Sludge, Thrash MetalПродолжительность: 00:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD03A58A30F235ABBD4F5F5FC9D4D80FE34618B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055837   (485888) от 23.09.2016
 
 Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
@@ -639,60 +693,6 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319229   (486815) от 10.08.2019
-
-Tug Of War - Soulfire (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before I Will Know (4:15)
-02. Bullet With Your Name (4:22)
-03. Come Home (4:21)
-04. Confess to Your Demons (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E877DE5DA9BCC504988B6C5C484365F14B1FC28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405003   (487119) от 28.08.2020
-
-Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487119.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Электронный авангард
-2. Автократор
-3. Антибиотик
-4. Полночь(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2395253F4F097F0547C5A225DB9EB41D8150B3DB
 ```
 
 

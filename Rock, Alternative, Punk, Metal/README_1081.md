@@ -1,3 +1,57 @@
+###  Публикация: 1501443   (835265) от 10.10.2021
+
+Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glass Prison (13:53)
+02. Blind Faith (10:22)
+03. Misunderstood (9:33)
+04. The Great Debate (13:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622020ACD291551AC1C52289BA48D05E80AB3A82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114087   (835289) от 13.03.2017
+
+Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда гитарист Ларс Крисс (Lion`s Share) и басист-клавишник Сампо Аксельссон (Glenn Hughes) встретились в 2005-м году, то решили основать команду, играющую классическиий хард-рок в духе Rainbow, Thin Lizzy, Whitesnake, Deep Purple, Led Zeppelin, Black Sabbath и так далее. Когда в 2006-м к ним присоединились барабанщик Томас Броман (Electric Boys, Glenn Hughes, Audiovision, (   Читать дальше...   )01. The Only One (3:53)
+02. Pale Rider (5:12)
+03. Face Of An Angel (4:28)
+04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF4887FFC919578D7E19135DE6D9F753EBBF303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113738   (835299) от 13.03.2017
 
 Ten Jinn - Alone (2003) [FLAC|Lossless|image + .cue] <Crossover prog>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:5B19D64C0E70F9FBA9212CBF6B0E58E64B621342
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3851E9D9ED79503A4A93D92CDDD322D9FAA58FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379899   (836523) от 01.05.2020
-
-Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicht kommen sehen [03:38]
-02. Besteste Band [03:34]
-03. Regier'n den Pogo [04:03]
-04. Saunaclub [03:41](   Читать дальше...   )Жанр: Punk-Rock, RapcoreПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EB15A21E8E4EFB7C9D739C7959BE42FB54A1D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501298   (836558) от 09.10.2021
-
-Рабфак 2.0 - Живая классика (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836558.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Наш дурдом
-2. Раскачивать лодку
-3. Просрали страну
-4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43E911FA0B33D68229D14CE04144042235B3551
 ```
 
 

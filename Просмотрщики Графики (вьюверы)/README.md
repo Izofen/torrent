@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820845   (65) от 29.09.2025
 
 XnView MP 1.9.4 + Portable [Multi/Ru]

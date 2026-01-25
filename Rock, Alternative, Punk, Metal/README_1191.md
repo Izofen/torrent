@@ -1,3 +1,66 @@
+###  Публикация: 610725   (989221) от 30.01.2013
+
+Mogwai - Les Revenants (2013) [MP3|320 кб/с]<Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry Face 02:24
+02. Jaguar 02:19
+03. The Huts 04:02
+04. Kill Jester 03:29
+05. This Messiah Needs Watching 04:37
+06. Whisky Time 01:39
+07. Special N 03:49
+08. Relative Hysteria 03:40
+09. Fridge Magic 03:22
+10. Portugal 04:01(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B82645F6FB36FA919F579C7B6FF7AE7C52B3735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591242   (989346) от 30.01.2013
+
+1349 -  7 CD (2001-2011) Дискография [FLAC|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989346.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 - Rapture (Morbid Angel cover)
+25 - Strike Of The Beast (Exodus cover)
+26 - Nerves (Bauhaus cover)
+27 - The Heretic (Possessed cover)
+28 - Pandemonium War Bells (live)
+29 - When I Was Flesh (live)
+30 - Atomic Chapel (live)Жанр: Black MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610742   (989398) от 30.01.2013
 
 Buddy Holly - The Ultimate Best Of Buddy (2011) [MP3|320 кб/с]<Rock-n-Roll>
@@ -715,60 +778,6 @@ Abnormal Thought Patterns - Manipulation Under Anesthesia (2013) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A2881F04A7B66C7C4ECB027B35068BCD695E75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353863   (990851) от 19.01.2020
-
-Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|image + .cue] <Instrumental Technical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Machine Within (2:38 )
-02. Velocity and Acceleration: Movement 1 (3:50)
-03. Velocity and Acceleration: Movement 2 (4:25)
-04. Velocity and Acceleration: Movement 3 (1:43)(   Читать дальше...   )Жанр: Instrumental Technical MetalПродолжительность: 00:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFF36A271CAB9A3D4399D7557980F399989CF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353859   (990853) от 19.01.2020
-
-Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bulletproof Scales
-02. Silver Plated Advocate
-03. Immaculate
-04. Warm Blooded(   Читать дальше...   )Жанр: Death Metal, DeathcoreПродолжительность: 00:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:818C6E59AB4377044D0376A9D51BC587A7579585
 ```
 
 

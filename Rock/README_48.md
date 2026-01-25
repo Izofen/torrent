@@ -1,3 +1,57 @@
+###  Публикация: 1058475   (466444) от 02.10.2016
+
+Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture 1964
+02. Born in 64
+03. The King & The Prince
+04. The War(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9495EB4DCF9D5005D9BED122DB6C86074EF9AA8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320846   (467267) от 20.08.2019
+
+Deo - Deo (1982) [MP3|320 Kbps] <Electronic, Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_467267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер: Klaus Schulze01. Exakt Neutral (3:45)
+02. Bequem (4:22)
+03. Killerautomat (2:51)
+04. Traum (2:34)(   Читать дальше...   )Жанр: Electronic, Rock, New WaveПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD7D9AABC3F572CA79C839B2B9B1A805074570D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548569   (467602) от 18.09.2012
 
 Hidria Spacefolk - Astronautica (2012) [MP3|~240 kbps] <Psychedelic Rock,Progressive Rock,Space Rock>
@@ -661,60 +715,6 @@ VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C61B10483990B7FE88739B99FF733337F33C9C47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938614   (479556) от 19.09.2015
-
-Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting
-02. Cat’s Eyes
-03. Hard To Find
-04. Fly Away(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:796C505255C0DC3DAFD68582AFFD5CD84D3B762B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244569   (479929) от 02.09.2018
-
-Marc Bolan - Tramp King Of The City (2018) [MP3|320 Kbps] <Glam Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunken Rags
-02. Cadillac
-03. Truck On (Tyke)
-04. Metal Guru(   Читать дальше...   )Жанр: Glam Rock, RockПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348666678DF028E94FA56DA50E8889EED93B4571
 ```
 
 

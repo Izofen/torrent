@@ -1,3 +1,57 @@
+###  Публикация: 1503730   (817890) от 20.10.2021
+
+Scarlet Aura - Falling Sky (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortal In Your Eyes 04:18
+02. Colour Blind 04:19
+03. You're Not Alone 04:09
+04. My Own Nightmare 05:51(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D998A1FB450FDB9E2969397232252F7B4CCA2DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503710   (817892) от 20.10.2021
+
+Scarlet Aura - Genesis of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Book of Scarlet
+02. Raw Power
+03. Dark Lightning
+04. Utopia(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B817E82662366A4FF9FBCB8BC9EA3885CCE10A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503639   (817893) от 20.10.2021
 
 Paradox - Heresy II: End Of A Legend (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
@@ -643,60 +697,6 @@ The Cranberries - Remembering Dolores (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C6831823BCFE52D716B40072F36413B9EED805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503532   (819400) от 19.10.2021
-
-Гарин и Гиперболоиды - Экстрада (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сооснователь группы "Кино" Алексей Рыбин выпустил альбом проекта "Гарин и Гиперболоиды" "Экстрада". Рыбин возродил группу "Гарин и Гиперболоиды" в 2019 году. Именно такое название имела группа Рыбина и Цоя в начале 80-х годов, пока не была переименована в "Кино". Репертуар ГиГ состоит из собственных песен, а также (   Читать дальше...   )01 - Движение (04:30)
- 02 - Работа не волк (05:01)
- 03 - Песни восточных славян (03:33)
- 04 - Бездельник (03:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E956EDDF2274A948DD86D7EFA3258B77731E41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382352   (819403) от 11.05.2020
-
-Catamenia - Morning Crimson (1999) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aurora Borealis 03:15
-02 Talviyon Varjot 02:40
-03 ...And Winter Descends 03:16
-04 In Blood They Lay 03:17(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81ED3DE6296A9B7332702B544F5D87D4BD2F0DAC
 ```
 
 

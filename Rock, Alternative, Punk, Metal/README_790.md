@@ -1,3 +1,57 @@
+###  Публикация: 1155752   (529781) от 05.08.2017
+
+Vanden Plas - Far Off Grace (1999) Reissue, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can See (4:01)
+02. Far Off Grace (7:03)
+03. Into The Sun (6:33)
+04. Where Is The Man (6:11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D78D7528086738A9B42ED8FB1EC9F979F18C6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926932   (529827) от 12.08.2015
+
+Styx - Live at the Orleans Arena, Las Vegas (2015) [FLAC|image + .cue]<Classic-Rock, Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grand Illusion (5:50)
+02. Too Much Time On My Hands (5:36)
+03. Fooling Yourself (The Angry Young Man) (6:37)
+04. Lady (3:11)(   Читать дальше...   )Жанр: Classic-Rock, Hard-RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41E7CA4DB09130906B1E17AA1C4BAFC805AA9A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558696   (529905) от 21.06.2022
 
 VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kbps] <Rock>
@@ -636,60 +690,6 @@ In Loving Memory - Negation Of Life (2011) [FLAC|Lossless|image + .cue] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6143BC47EE75BB4671EBF645E7CBF5C3C0E5945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239550   (531399) от 09.08.2018
-
-Cauldron - Aker (2001) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marching Towards the North
-02. Odium
-03. Those Who Has No Expression in Their Faces
-04. Man, Mist & Spirit(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4696CB82E69FB17AD411602283BC2059BC9658E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239586   (531400) от 09.08.2018
-
-Nakkiga - Belebeltzeta (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aio iparreko lurra
-02. Iluntasunaren esturan
-03. Utuk'ku
-04. Desagerpena(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE29EB91150E8A6DFAF7AE2CDB8CD4A20CF821D
 ```
 
 

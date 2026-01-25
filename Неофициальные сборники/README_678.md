@@ -1,3 +1,30 @@
+###  Публикация: 1445879   (1033297) от 07.02.2021
+
+VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свежий музыкальный симбиоз танцевальных стилей Disco и Electro House в танцевальном сборнике "Crazy Disco Party" начинает будоражить разум своего слушателя уже с начала первого трека. Музыкальные композиции, вошедшие в микс прекрасно сбалансированы, а также крайне легки для слуха. Саунд микса получился не менее насыщенным и необычайным, чем само содержание (   Читать дальше...   )001. Avrupts & Llolita - Funky Fever
+002. Bass Station - Funky World
+003. Namy F - Bright Eyes
+004. Laser King - Burning Up(   Читать дальше...   )Жанр: Funky House, Disco House, DanceПродолжительность: 08:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3819002B1D16CD94FD9E5129B28E2AD6F0416BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445880   (1033301) от 07.02.2021
 
 VA - Flash Dance Hit: Set Electro House (2021) [MP3|320 Kbps] <Electro House>
@@ -668,33 +695,6 @@ VA - Quantum Motion (2021) [MP3|320 Kbps] <Synth Space, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52CD90E3597AAEED126A618A77FEE1D5CB58B14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444844   (1034222) от 03.02.2021
-
-Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская вокальная группа из Филадельфии. Некогда, во времена Disco, довольно популярная в Америке и мало известная в нашей стране. Основной период их творчества приходится на 1975-1983 года, а в последующие года меликнувшие только со своими ремиксами.01. Theme Of The Queen Of Sheba
-02. Theme Of Nefertiti
-03. Theme Of Cleopatra
-04. Lady Champagne(   Читать дальше...   )Жанр: Pop, Funk, DiscoПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE161BD68BBB3AF0EFFDBAF47B957516D669EAC9
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1374495   (870435) от 11.04.2020
+
+Эротика Звезда - Сексуальная джазовая ночь -  Чилл лаунж музыка для сексуальной и интимной атмосферы (2019) [MP3|320 Kbps] <Ambient, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сексуальная джазовая ночь
+02. Чилл лаунж музыка
+03. Для сексуальной и интимной атмосферы
+04. Новолуние(   Читать дальше...   )Жанр: Ambient, Easy ListeningПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D677D5D6E9C6F15B282CA7CE857BAC2B17BEBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374795   (871186) от 11.04.2020
+
+Symphonix - Symphonix Orange Box (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871186.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Threshold to Eternity (5:09)
+2. Metronome - Journey Inside Yourself (Symphonix Remix) (6:07)
+3. Distorted Silence (5:45)
+4. Berg - Bayaka (Symphonix Remix) (6:09)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48748ECDF6B23393A08EA1AE8556C63D1158ABC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374799   (871187) от 11.04.2020
+
+VA - Static Movement Spring Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Static Movement; Ilai; Lydia - Lift Me Up (Original Mix) (7:33)
+2. Static Movement; Artmind - Who You Are (Original Mix) (6:30)
+3. U-Recken; Static Movement - Harmonizer (Original Mix) (7:32)
+4. Static Movement; Sentinel 7 - Transition (Original Mix) (7:06)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84BF08D19D4C1654039A5C494615CCE993205A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374798   (871189) от 11.04.2020
 
 Astral Terror - Liquid Brain (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -611,87 +692,6 @@ Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Space
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374350   (872984) от 10.04.2020
-
-Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tempest (8:14)
-02. Departure (6:37)
-03. Godspeed (8:26)
-04. In My Mind (8:28)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E49FF20B55F3809598876FDAD15DE66CF0168C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374569   (873169) от 10.04.2020
-
-VA - One Synth (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Synth>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4T Thieves - The North (4:17)
-02. Aaron Jasinski - Late to the party (4:00)
-03. Abyssal Plains - Salamander (6:48)
-04. Blake Casimir - Aura Ceni (3:45)(   Читать дальше...   )Жанр: IDM, Ambient, SynthПродолжительность: 01:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1FD88B969EA587F8378EE04144D30ADCC4E963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643636   (873464) от 14.04.2013
-
-David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helpe Through
-02. For Eternity
-03. Phenomena
-04. Anthem(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 

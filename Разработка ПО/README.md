@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820904   (68) от 29.09.2025
 
 Microsoft Visual C++ 2015-2022(2026) Redistributable 14.50.35615.0 [Ru]

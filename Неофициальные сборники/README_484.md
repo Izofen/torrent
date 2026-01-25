@@ -1,3 +1,30 @@
+###  Публикация: 1214984   (761456) от 24.03.2018
+
+VA - DFM Top 30: D-Chart / Март (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Steve Aoki feat. Daddy Yankee, Play-N-Skillz & Elvis Crespo  -  Azukita  3:46
+02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
+03.  Sherrie Sherrie & The Ware feat. Nina  -  Nana Song  3:14
+04.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer  5:05(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3086E972DD33EBD2E39DCF2DAD59898BB33D01F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214971   (761531) от 24.03.2018
 
 VA - Europa Plus: ЕвроХит Топ 40 / 23.03 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ VA - Блатная Песня Года (2018) [MP3|256-320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6C2910E1528843C1AABD7788404172E8215F4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214845   (762987) от 23.03.2018
-
-VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762987.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK061 Europe - All Or Nothing
-062 Suicidal Tendencies - Send Me Your Money
-063 Skid Row - Get The Fuck Out
-064 Nickelback - Lullaby(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
 ```
 
 

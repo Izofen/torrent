@@ -1,3 +1,30 @@
+###  Публикация: 997970   (871769) от 18.03.2016
+
+VA - Танцевальная Весна (2016) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871769.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arty ft. Conrad - Braver Love 03:33
+002. Би-2 - Дурочка (S.p.l.a.s.h. Сlub radio Mix) 04:05
+003. Dj Antonio feat. Natasha Grineva - Last Kiss (Radio Edit) 03:08
+004. Jax - La La Land 03:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCC3F52EFBDFF21FC10810DCBC8FA9D53D28FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 642266   (871782) от 15.04.2013
 
 VA - Солнечный Заряд Хорошего Настроения (2013) [MP3|256 кб/с]<Pop>
@@ -674,33 +701,6 @@ VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496444   (872856) от 17.09.2021
-
-VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christoph Spendel - Afoxe Verao
-02. Mkk - Still Tryna
-03. Jusscomplex - Last Orders
-04. Five Seasons - Let Me Drive(   Читать дальше...   )Жанр: Lounge, Chillout, Relax, DowntempoПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B96E25E67707F6A71DA8838608AA38A4C576BB
 ```
 
 

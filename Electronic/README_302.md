@@ -1,3 +1,84 @@
+###  Публикация: 1039739   (594578) от 02.08.2016
+
+Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594578.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Introduction (2:42)
+2. Fugue in Eb minor (6:36)
+3. Lonely Harp (3:38)
+4. .SILENT (7:42)(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2A2A59596AE7EE57A3C7C2AF23BB073C4B5521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548950   (594740) от 05.05.2022
+
+VA - Tomb of Primordials (from Tomb of.. Series by Cryo Chamber) (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dark Ambient, Darkwave>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594740.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dahlia's Tear - Crystal Scars Beneath a Bleak Sky [00:08:12]
+2. Skadi - Seed of Pestilence [00:07:35]
+3. Svartsinn & Letum - One by One I Broke Their Wings [00:08:09]
+4. New Risen Throne & Mortiis - Chants for Isimud [00:09:00](   Читать дальше...   )Жанр: Dark Ambient, DarkwaveПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3A7F133BD564F174156D7DBCD5B7ABC68F083B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039899   (594789) от 02.08.2016
+
+VA - Perfect Day Chillout Music (2016) [MP3|320 Kbps] <Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Away - Things We Can Change (05:53)
+02. Minka - Land of Sand (03:02)
+03. Joe Jog - Moments (04:58)
+04. Heavenly Light - Electro Mantra - Radio Edit (04:42)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 03:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60C3D470D90009B73693B91BFE864673B93025A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548936   (594865) от 05.05.2022
 
 Isidor - Portals & Dimensions (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
@@ -622,93 +703,6 @@ VA - Ibiza 2017 - Dance For Love Vol 2 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EA3F08EDA827020262441F285D509BCDE416480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150030   (596626) от 13.07.2017
-
-VA - Euphoric House Anthems 2017 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Million Colours - I Hold On (Club Mix) 05:16
-02. Cheap Sunglasses - Till The End (Million Colours Remix) 04:55
-03. Pearls Of Ibiza - I Live My Life (Mykel Mars Remix) 05:27
-04. Eddy Chrome - Feel It In Your Soul (Dub Mix) 05:30(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED35B50EB42155811AF43202CB7EBBAA65C8957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 117407   (596866) от 24.07.2012
-
-Deadmau5 - It Sounds Like (2009) [MP3|320kbps]<House / Progressive House / Tech House / Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_596866.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01] alone with you_original mix [08:12]
-[02] arguru_edxs 5un5hine remix [07:11]
-[03] bye friend_original mix [05:40]
-[04] clockwork_original mix [06:41]
-[05] complications_original mix [09:51]
-[06] everything after_original mix [06:07]
-[07] everything before_original mix [06:35]
-[08] faxing berlin_original mix [08:38]
-[09] ghosts n stuff_original mix [06:10]
-[10] hi friend feat mc flipside_instrumental mix [06:34](   Читать дальше...   )Жанр: House / Progressive House / Tech House / Electro HouseПродолжительность: 02:29:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914457   (597560) от 02.07.2015
-
-Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597560.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Robeast
-3. Blind
-4. Fracture(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8F2662894DDFA197E5711E82CE0DD67C0C363E
 ```
 
 

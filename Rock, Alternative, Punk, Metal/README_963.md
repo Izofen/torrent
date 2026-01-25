@@ -1,3 +1,57 @@
+###  Публикация: 1218557   (715601) от 13.04.2018
+
+Andy James - 6 альбомов (2005-2017) [MP3|320 Kbps] <Modern Metal, Shred, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультиинстументалист, виртуоз Энди Джеймс родился в неметропольном графстве на востоке Англии, в Норфолке. Будучи 12-летним подростком, он уже ознакомился с гитарой. Его навыки совершенствовались, причем скоротечно. Именно тогда молодой Энди понял, что это его призвание и назад дороги нет. Примером музыкального вдохновения юноши были Guns'n'Roses, Extreme, Queen, (   Читать дальше...   )2005 - Machine
+2007 - In the Wake of Chaos
+2009 - Kaos 7
+2011 - Andy JamesЖанр: Modern Metal, Shred, InstrumentalПродолжительность: 03:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0085BF5093EC2A3AA25141C5D61380A19BA35FE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024710   (715618) от 09.06.2016
+
+Garbage - Strange Little Birds (2016) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes
+02. Empty
+ 03. Blackout
+ 04. If I Lost You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2DA15B7843E230902B39276C8268FDEE264DF3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219301   (715620) от 13.04.2018
 
 НОМ - Я тебя услышал (2018) [MP3|320 Kbps] <Rock>
@@ -642,60 +696,6 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0397D62506463739A60E4DC9FFE2EAA67C6DD360
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285839   (716680) от 28.02.2019
-
-Deserted Fear - Drowned By Humanity (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:42)
-02. All Will Fall (03:48)
-03. An Everlasting Dawn (03:33)
-04. The Final Chapter (04:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60F3CEBAE05EA4F1766C8376AE0150E25DA5162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286012   (716681) от 28.02.2019
-
-Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light
-02. That’s How Strong Our Love Is
-03. Part Friday Night, Part Sunday Morning
-04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
 ```
 
 

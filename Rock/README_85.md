@@ -1,3 +1,57 @@
+###  Публикация: 1377767   (849734) от 23.04.2020
+
+John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary Don't You Weep (Live 1985) (2:44)
+02. Interview Pt. 1 (Live 1985) (2:40)
+03. My Pretty Baby Leave My Woman Alone (Medley) (Live 1985) (4:03)
+04. Interview Pt. 2 (Live 1985) (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8568A15358E445A554477B80DC65807BC63E21B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377600   (851728) от 22.04.2020
+
+Лінія Маннергейма - Конфіскат (2020) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Інтро (05:29)
+02. Чорний (04:32)
+03. Отче (03:48)
+04. Де Твоя Лінія (05:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6F850A25D879DA3C44D2E1784B19D489288911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377599   (851822) от 22.04.2020
 
 Kozak System - Закохані злодії (2020) [MP3|320 kbps] <Ethno Rock, Folk Rock>
@@ -653,60 +707,6 @@ Please - Seeing Stars (1969) Remastered, 2001, Acme Deluxe Series [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAC40BE34C1922A37B64D03829BFCEF5BE10E20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998970   (866695) от 21.03.2016
-
-Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me The Money   05:03
-02. Insane   04:30
-03. When We Were Young   04:14
-04. Tell Another Lie   03:57(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54F55884D98605DCB130D45CB6F5576615A8A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999192   (866697) от 21.03.2016
-
-Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit In The Sky   03:25
-02. Out Of Heaven   03:54
-03. Personal Jesus   03:30
-04. Hooked   03:13(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C65EB75C133003E1ACFDEF018DEE579167D1A6
 ```
 
 

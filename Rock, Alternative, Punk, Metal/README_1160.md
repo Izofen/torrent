@@ -1,3 +1,57 @@
+###  Публикация: 986064   (932527) от 13.02.2016
+
+U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gutter (Instrumental)(1:04)
+02. Metal Eater (3:42)
+03. Thunderforce (3:40)
+04. Overloaded (Instrumental)(1:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D9705D991A2CE0CB8A29C371E740DF3596B55F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986110   (932538) от 13.02.2016
+
+Bloodbound - One Night Of Blood - Live At Masters Of Rock MMXV (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodtale (Live at Masters of Rock 2015)
+02. Iron Throne (Live at Masters of Rock 2015)
+03. When Demons Collide (Live at Masters of Rock 2015)
+04. In the Name of Metal (Live at Masters of Rock 2015)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1731FE033BB6A78834BDA282B61E1E75946FF2D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985958   (932585) от 13.02.2016
 
 Hollow Illusion - Hollow Illusion (2016) [MP3|320 кб/с] <Hard & Heavy>
@@ -641,60 +695,6 @@ Breed 77 - Acoustic Rarities (2015) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1489A828F32313E5D5B22F8305CF6A7EE5A4DF28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364858   (933899) от 05.03.2020
-
-Noise Box - Here's That Bliss You Left Behind (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Girl [03:38]
-02. On and Off [03:56]
-03. Glow [03:48]
-04. Smithereens [04:57](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467C33F7DDB70C8E13BDEAA1645909AB27562C8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093520   (933904) от 15.01.2017
-
-Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Anthem Collapse Of Empiries
-03. Valium
-04. Four(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF4A097AF3A19F4CC5F111716D447F7673B3036
 ```
 
 

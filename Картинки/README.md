@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820089   (798) от 26.09.2025
 
 Промты - SevenUnited LLC - 554 Midjourney Prompts for Jewelry: Vol 2 - 6094680 [TXT, JPG]

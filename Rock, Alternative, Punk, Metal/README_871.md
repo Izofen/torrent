@@ -1,3 +1,57 @@
+###  Публикация: 1146001   (616205) от 28.06.2017
+
+Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Town Of Plenty (3:38)
+02. A Word In Spanish (4:37)
+03. Mona Lisa And Mad Hatters (Part Two) (4:11)
+04. I Don't Wanna Go On With You Like That (4:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D663647DE883530B424ADA5C1CAC99C55E626736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911342   (616303) от 23.06.2015
+
+The Prophets Of Addiction - Reunite The Sinners (2015) [MP3|320 кб/с]<Glam Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. As We Fall
+2. Welcome to the Show
+3. Kings and Queens
+4. Razor’s Edge(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC1073A2E58788157529A820D80CF6BB5F6FDB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911361   (616315) от 23.06.2015
 
 ZamTrip - King's Game (2015) [MP3|320 кб/с]<Hard Rock, Female Vocal>
@@ -641,60 +695,6 @@ Immanent - Human Reflection (2015) [MP3|320 кб/с]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A05E4345D8013584EBB19CBE94A53D3407EEFA37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911377   (616579) от 23.06.2015
-
-Soldier - Defiant (2015) [MP3|320 кб/с]<Heavy Metal, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616579.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conquistador
-2. Leaving
-3. Kill Or Cure
-4. Concrete Wilderness(   Читать дальше...   )Жанр: Heavy Metal, NWOBHMПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8F94FE597F75CF7AFADE254C8DDF778A9C5B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911240   (616580) от 23.06.2015
-
-Aeon Rising - Aeon Rising (2015) [MP3|320 кб/с]<Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cleansing
-02. Realign
-03. Amenti
-04. The Chain(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 00:38:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B2E716FE6488F234234B54FFED931DD732C8A0
 ```
 
 

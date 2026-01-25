@@ -1,3 +1,30 @@
+###  Публикация: 1297296   (604825) от 21.04.2019
+
+VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604825.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Elements - Feel Good
+002. Alok Jetlag Music - Bella Ciao
+003. ZB - OIO
+004. Aryozo - Franz Kafka(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297263   (604827) от 21.04.2019
 
 VA - April Bassline Mastermix (2019) [MP3|320 Kbps] <D&B, Dubstep, Bass>
@@ -688,33 +715,6 @@ VA - Vocal Trance: Spring Positive Mix (2022) [MP3|320 Kbps] <Trance, Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9757CB7BD7B2ECA23A2F3EA6A185069C44B8D204
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038422   (606065) от 28.07.2016
-
-VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonard Cohen - Waiting for the miracle
-02. Houston - Runaway
-03. Tasmin Archer - Sleeping Satelite
-04. IamX - Your Joy Is My Low (You Are X Remix  By Thomas Sari)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0912EDAD217149E6B942EFEADA7B1D953B3B2498
 ```
 
 

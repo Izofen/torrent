@@ -1,3 +1,30 @@
+###  Публикация: 1102795   (889218) от 10.02.2017
+
+VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Alban & Yamboo ft. Cuzzins - Sing Hallelujah (Melbourne Bounce Project Remix)  6:32
+02.  Global Deejays - Hardcore Vibes (Feeling Beat Bootleg)  5:06
+03.  Adoel Smidt - Show Me Space (Original Mix)  4:15
+04.  Onur Aktemur - Bass (Original Mix)  3:19(   Читать дальше...   )Жанр: House, Melbourne Bounce, Dutch, Electro House, Club, DanceПродолжительность: 06:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102669   (889333) от 10.02.2017
 
 VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
@@ -668,39 +695,6 @@ VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2254188FDB592D006A327C306B9A0DEB91B1CD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638533   (891191) от 05.04.2013
-
-VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dinka - Campfire - Original Mix [04:23]
-02. Jerome Isma-ae - Drifting - Original Mix [05:36]
-03. Passenger 10 - Blue Harbour - Original Mix [05:06]
-04. DJ Tatana - Always On My Mind - Atmosphere Piano Edit [03:48]
-05. Opium Lounge - Tears For Monks [07:57]
-06. Croatia Squad - Childish - Original Mix [05:40]
-07. Dinka feat. Angelika Vee - Inseparable - Acoustic Version [03:39]
-08. Fair Light Ranger - Ronin - Original Mix [04:00]
-09. Chris Reece - Conspiracy - Original Mix [03:41]
-10. Sunfriends - Sun Bleach - Original Mix [05:30](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA74EB3BF092574D3258BAA47C9E9331CB69EF86
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 952030   (631812) от 03.06.2018
+
+VA - Dream Injection Vol. 1-6 (1995-1998) [FLAC|Lossless]<IDM, Ambient, Downtempo, Trip Hop, Techno, DnB, Trance>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631812.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Scan Carriers - Untitled (06:45)
+ 02. Megashira - Microcosmos (07:15)
+ 03. Biomechanoid - Ghosts (08:35)(   Читать дальше...   )Тип издания: CD |Жанр: IDM, Ambient, Downtempo, Trip Hop, Techno, DnB, Trance |Продолжительность: 01:19:22+01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0965F273A30221CC56CE642C3070CD19F8F59C64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542939   (631840) от 10.04.2022
+
+Unkle - Rōnin I (2021) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-Hop, Leftfield, Electroniс>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.初登場 (0:25)
+02.Ar.Mour (Rōnin Dub) (6:39)
+03.The Other Side (Rōnin Def Mix) (3:46)
+04.On My Knees (Rōnin Def Mix) (5:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542934   (631844) от 10.04.2022
+
+Unkle - Rōnin I (2021) Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Electroniс>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 初登場 (00:00:24)
+02 - Ar.Mour (Rōnin Dub) (00:06:39)
+03 - The Other Side (Rōnin Def Mix) (00:03:46)
+04 - On My Knees (Rōnin Def Mix) (00:05:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293985   (631861) от 06.04.2019
 
 Koan - Briar Rose Side A|B (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
@@ -613,87 +694,6 @@ Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB6C6C6549EED4BC633301096B9261D686AABE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293697   (633738) от 05.04.2019
-
-VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Heat (4:41)
-02. Bodywork (12'' Extended Mix) (5:46)
-03. Downtown (12'' Extended Mix) (5:56)
-04. Miami's Finest (12'' Extended Mix) (6:18)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAEE70677815EEED705978BF821F018895B4A3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293807   (633748) от 05.04.2019
-
-KÁRYYN (KARYYN) - The Quanta Series (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ever (06:29)
-02. Yajna (06:27)
-03. Purgatory (04:37)
-04. Binary (04:50)(   Читать дальше...   )Жанр: Electronic, AbstractПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65AC9E3DDE5F3BA37474B81F2B18F8237F27FCC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907606   (633864) от 14.06.2015
-
-VA - Deep House Ibiza - Vol 1 (2015) [MP3|320 кб/с]<Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirupa - I can C through U feat. Manuela - Original Mix (06:16)
-02. Barbara Tucker - You Want Me back - Paolo Madzone Zampetti 2015 Vibe Rmx (06:40)
-03. BAG - Back It Up feat. Taka Boom - Rickie Snice Rmx (06:25)
-04. Paolo Madzone Zampetti - Close Your Eyes - Original Mix (07:03)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:26:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7A75A9D9011322EEC53C8F01CCCB1B633C458
 ```
 
 

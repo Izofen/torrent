@@ -1,3 +1,30 @@
+###  Публикация: 1014921   (775846) от 09.05.2016
+
+VA - 40 Top Hits DJ Boom (2016) [MP3|320 кб/с] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrick - Ardent (Original Mix) 5:23
+02. Gordey Tsukanov - Flight To Infinity (Digital X Remix) 4:39
+03. Husman - Destiny (Extended Mix) 4:25
+04. Crystal Lake & DJ Isaac - Pirates (Extended Mix) 3:58(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4302883C54EE5A8BBC6F5859A47141340EFE727
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014980   (775853) от 09.05.2016
 
 VA - Sexy Deep Chilling (2016) [MP3|320 кб/с] <Deep House, Chill House>
@@ -668,33 +695,6 @@ VA - Holiday Atmosphere: Beach Trance Progressive (2016) [MP3|320 кб/с] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7CD056A073D812E0FC6335858DFFA42197C379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014454   (776205) от 08.05.2016
-
-VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776205.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Val Entin, Gaetan Durand - Do It Hard (Club Mix) 5:38
-002. Samee - Close Yet Far (Original Mix) 7:38
-003. Phatt-B - Hesitation (Radio Edit) 3:24
-004. Pulsedriver - Do You Want It Right Now (Bounce Mix) 4:02(   Читать дальше...   )Жанр: House, Progressve, ClubПродолжительность: 10:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EE75854C851501661DBC83CAB1697587D94471
 ```
 
 

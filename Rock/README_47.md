@@ -1,3 +1,54 @@
+###  Публикация: 1569541   (451904) от 13.08.2022
+
+Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devils Rise [00:06:27]
+02. Rollin' [00:05:52]
+03. Trippin' On Evil [00:07:33]
+04. Space Man [00:08:35](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 2 CD, 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCD3E4EDDB421159EADD168CFAC56B9C02A0B6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163111   (452404) от 04.09.2017
+
+VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Soft RockПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9368A87C678A92245A8D7FC3B14367BFFD3EEF7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682424   (452510) от 04.09.2017
 
 Steely Dan - Everything Must Go (2003) [MP3|320 кб/с]<Rock, Jazz Rock>
@@ -663,60 +714,6 @@ Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058475   (466444) от 02.10.2016
-
-Eyal Raz - A Story Under The Blanket (2016) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture 1964
-02. Born in 64
-03. The King & The Prince
-04. The War(   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9495EB4DCF9D5005D9BED122DB6C86074EF9AA8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320846   (467267) от 20.08.2019
-
-Deo - Deo (1982) [MP3|320 Kbps] <Electronic, Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продюсер: Klaus Schulze01. Exakt Neutral (3:45)
-02. Bequem (4:22)
-03. Killerautomat (2:51)
-04. Traum (2:34)(   Читать дальше...   )Жанр: Electronic, Rock, New WaveПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD7D9AABC3F572CA79C839B2B9B1A805074570D
 ```
 
 

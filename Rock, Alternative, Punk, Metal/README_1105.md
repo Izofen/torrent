@@ -1,3 +1,57 @@
+###  Публикация: 1497439   (864883) от 22.09.2021
+
+Carcass - Torn Arteries (2021) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torn Arteries
+02. Dance Of IXTAB (Psychopomp & Circumstance March No.1 In B )
+03. Eleanor Rigor Mortis
+04. Under The Scalpel Blade(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86988C3B841B8CC5B2EECEFEED7935ED775B9C18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999488   (864906) от 22.03.2016
+
+Mystic Prophecy - War Brigade (2016) Limited Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow the Blind
+02. Metal Brigade
+03. Burning Out
+04. The Crucifix(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D122692F395138BF0E0C2B6CFE4DD6AD4A7B518
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999318   (864913) от 22.03.2016
 
 Arraigo - Fronteras y Horizontes (2012) [FLAC|Lossless|image + .cue] <Folk Metal>
@@ -639,63 +693,6 @@ Save The World - Two (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C58110F7D3386A2A6270136D093F3EA4E585A68C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497121   (866599) от 21.09.2021
-
-Night Ranger - ATBPO (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming For You
-02. Bring It All Home To Me
-03. Breakout
-04. Hard To Make It Easy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325899B08DE6E5DA2B9B91A319B2137074AC732B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497174   (866600) от 21.09.2021
-
-Amorphis - Live At Helsinki Ice Hall (2021) 2xCD [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом.
-
-Bass – Olli-Pekka Laine
-Crew - Logistics / Merch – Raapale Osolanus(   Читать дальше...   )CD - 1:
-01. The Bee
-02. Heart Of The Giant
-03. Bad Blood(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEEE101B6CAEB5A2AB6D7D083D273AD51697518
 ```
 
 

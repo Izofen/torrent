@@ -1,3 +1,84 @@
+###  Публикация: 1368140   (912279) от 18.03.2020
+
+VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Faze DJ-Set 28 (Continuous DJ Mix) [01:15:54]
+02. Mattheis - Klrnoe [09:06]
+03. Adriatique - Lophobia [06:53]
+04. David August - Epikur [08:08](   Читать дальше...   )Жанр: EDM, Deep House, Tech House, MinimalПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2688D3A0CDD8ADFE0D874E39F06812464056851
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990371   (912283) от 25.02.2016
+
+VA - Carnaval House (2016) [MP3|320 кб/с] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autosky - Beyond The Sea (Original Mix) [07:35]
+02. Dmitrii G - Stronger (Original Mix) [06:15]
+03. J_ZeuS - Grand Bay (Original Mix) [06:34]
+04. Z-Dopamine - Pumping (Original Mix) [05:08](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A96F80C6DBB8DB5BD424D4FBCD264A31C99DBF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491318   (912355) от 24.08.2021
+
+Olaf Wempe - Anomaliac (+) (2021) L50 [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Septium (03:44)
+ 02. Phosphor (03:44)
+ 03. Bitch Mirror (03:32)
+ 04. Ednaloy (02:46)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, ExperimentalПродолжительность: 01:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B7DDCC07BEB2292A763D653C50A4BBC31D163F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097879   (912483) от 28.01.2017
 
 VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Tech House>
@@ -620,87 +701,6 @@ VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097176   (915730) от 26.01.2017
-
-Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicious Circle [4:55]
- 02. Heaven Give Me Words [5:11]
- 03. Your Wildlife [6:32]
- 04. Only One Word [5:51](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364840D17E9124535650FEBD04BD8D99D31D6B84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097319   (915737) от 26.01.2017
-
-David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age,Easy listening>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Lucia [03:42]
-02. Arrivederci Roma [04:07]
-03. Speak Softly, Love [04:09]
-04. Mio Dolce Sogno [04:04](   Читать дальше...   )Жанр: New Age,Easy listeningПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CC20E9E51DD84E18FEDEA50AF4445BEF793CDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097159   (915849) от 26.01.2017
-
-VA - Sweet Vocal Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moonnight - I Need a New Love (feat. Neptune)  3:46
-02.  Alex Field - Wake Me (Bryan Milton Remix) (feat. Natune)  5:31
-03.  Seven24 - Frozen  5:01
-04.  Marga Sol - Beautiful Morning (Deep Mix)  3:54(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1CB073CCBF94619657165D8F57771970A897C0
 ```
 
 

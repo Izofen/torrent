@@ -1,3 +1,54 @@
+###  Публикация: 527727   (475180) от 21.09.2015
+
+Tesseract - 5 альбомов, 2 Ep и 7 прочих релизов (2003-2015) [MP3|128-320 кб/с]<ambient/math/progressive metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475180.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010 - Concealing Fate (ep)
+2011a - One (CD, DVD)
+2011b - One (instrumental)
+2012 - Perspective (ep)(   Читать дальше...   )Жанр: Progressive metal, Djent, Math, AmbientПродолжительность: 00:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86BD87B70B8DCBC5DA678D3A79DA8F8D309BFBB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320102   (475185) от 16.08.2019
+
+Paul Vincent - L.O.V.E. (2015) 4xCD Box Set [MP3|320 Kbps] <Classic Rock, Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший на мой взгляд сольный альбом популярного в Германии (но малоизвестного в остальном мире) композитора, автора, исполнителя, музыканта и продюсера Paul Vincent Gunia (1950 - 2016).Жанр: Classic Rock, Blues Rock, Blues, Classic Power Pop, BalladsПродолжительность: 04:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4FE6A2C96967D3463164C19696B008F83008EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320040   (475189) от 16.08.2019
 
 Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop Rock>
@@ -641,60 +692,6 @@ magnet:?xt=urn:btih:0ECB5A448D74C6B573CCD4A888C27F3F0F525353
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560B04C8EDF2C501D4DBBEEF5A3AB54C26AA14A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939085   (475799) от 21.09.2015
-
-Metal Allegiance - Metal Allegiance (2015) [FLAC|Lossless|WEB-DL]<Thrash / Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift Of Pain (Feat. Randy Blythe, Alex Skolnick, David Ellefson, Mike Portnoy, Gary Holt)
-02. Let Darkness Fall (Feat. Troy Sanders, Alex Skolnick, David Ellefson, Mike Portnoy, Mark Menghi, Rex Brown, Randy Blythe)
-03. Dying Song (Feat. Phil Anselmo, Alex Skolnick, Mark Menghi, Mike Portnoy)
-04. Can’t Kill The Devil (Feat. Chuck Billy, Alex Skolnick, David Ellefson, (   Читать дальше...   )Жанр: Thrash / Heavy MetalПродолжительность: 01:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E84E9A492643B0905E169E2E17EF81C362AB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160478   (475862) от 24.08.2017
-
-Blue Stahli - Antisleep Vol. 04 (2017) [MP3|320 Kbps] <Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Neon
-02. Headshot
-03. Secret Agent Business
-04. Red Carpet Rush(   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C81CB47D9266E74AD6C0C8F5320AE4A136680E
 ```
 
 

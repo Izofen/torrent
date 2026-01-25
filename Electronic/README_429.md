@@ -1,3 +1,84 @@
+###  Публикация: 1197318   (811777) от 09.01.2018
+
+VA - High Class Tech House Music Nonstop (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joscha Rickert – Wing
+02. Joel Fuel – Jazz
+03. Jeff Haymaker – Annual
+04. Jad Peak – Theft(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEC1609630FD8D393A9B6493584A424D07E41C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009146   (811785) от 20.04.2016
+
+ATB - Trilogy (2007) 2CD [FLAC|Lossless|tracks + .cue] <Breakbeat, Trance, Euro House>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811785.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Justify (3:48)
+02. Desperate Religion (4:39)
+03. Renegade (5:38)(   Читать дальше...   )Жанр: Breakbeat, Trance, Euro House, AmbientПродолжительность: 02:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD712A4E2ACABB430338FE12880B9976F4587742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008894   (811788) от 20.04.2016
+
+Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House,>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undisguised (6:21)
+02. Copilot (6:49)
+03. Brizzle (8:09)
+04. Fields Without Fences (6:40)(   Читать дальше...   )Жанр: Tech House, Deep House,Продолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCCFD1F5B5DD7D156632F8B0090C3D1004CB62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197856   (812019) от 09.01.2018
 
 VA - Magic Of Trance (Mixed by Dr.Gri) (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -613,87 +694,6 @@ VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3426574383BC9F1AC28E64F3D14FA93CB5874C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197196   (813926) от 08.01.2018
-
-VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Maria Healy  -  Maktub (Extended Mix)  7:04
-02.  Neofance  -  Omicron (Original Mix)  7:46
-03.  A-Leo feat. Lauren Mayhew  -  Frequency (Virium Remix)  5:39
-04.  Heart Of Steel  -  Try To Forget (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D8474357B854754377D5D4DC73293FDBD6091D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197178   (813927) от 08.01.2018
-
-VA - Trance (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Arty  -  Twilight Tonight (Steve Brian Remix)  2:57
-02.  Daniel Kandi  -  What Happens When We End (Original Mix)  4:21
-03.  Paul Arcane  -  Transcend (Original Mix)  4:14
-04.  Emme  -  Kilimanjaro (Original Mix)  3:49(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCEF19DC0F9729CFE85174136537A2D25D86FDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197237   (813928) от 08.01.2018
-
-VA - Dark Trance Vol.3 (2018) [MP3|320 Kbps] <Trance, Tech Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Betsie Larkin & Roman Messer  -  Unite (Extended Full Fire Mix)  5:46
-02.  Sunset & Steve Dekay  -  Turbulence (Extended Mix)  6:02
-03.  Attila Syah feat. Cari  -  Dark Side Of The Moon (Andy Elliass Extended Remix)  6:28
-04.  Cyril Ryaz  -  Punk Connection (Extended Mix)  6:51(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7185F20C4DEE315097FD2BAEA39FBFE99656CC56
 ```
 
 

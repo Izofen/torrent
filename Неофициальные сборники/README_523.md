@@ -1,3 +1,30 @@
+###  Публикация: 1200892   (794662) от 22.01.2018
+
+VA - Music Collection - NewAge Enigmatic Meditation Ethnic Electronic (2018) [MP3|320 Kbps] <NewAge, Enigmatic, Ethnic, Electronic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794662.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Amethystium - Garden Of Sakuntala
+002 Bella Sonus - Eye of the Beholder
+003 Karl Meddison - Pearls Of Wisdom
+004 Mystical Travel - Chirapaq(   Читать дальше...   )Жанр: NewAge, Enigmatic, Meditation, Ethnic, ElectronicПродолжительность: 25:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117A7CB4EFF510B9F0527E4FEE5267DDFA88D4B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274088   (794706) от 05.01.2019
 
 Max Oazo feat CAMI - What Is Love (2018) Remix, Cover [MP3|320 Kbps] <Club, Dance>
@@ -665,33 +692,6 @@ VA - Жестокий Романс: Лирика Шансона (2018) [MP3|256-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B78C442644C78639F74A51AD9432E546CC0D260B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012024   (795503) от 29.04.2016
-
-VA - Classical in Jazz Vol.2: New Jazz Version of Classical Masterpieces (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnu Quartet - My Favorite Things
-02. Riccardo Arrighini - Polacca, Op. 53 "Eroica"
-03. Armando Corsi - Encantado
-04. Riccardo Arrighini - Nabucco: Va, pensiero(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A95631CD4320E68361CF95B266BD92EACD7E872
 ```
 
 

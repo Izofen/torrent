@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1819203   (1714) от 21.09.2025
 
 ESET NOD32 Internet Security 18.2.18.0 [Multi/Ru]

@@ -1,3 +1,30 @@
+###  Публикация: 1363095   (944931) от 26.02.2020
+
+VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944931.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Moam - Run With It
+002. Marwell - Jaipur (Radio Edit)
+003. Sunrider - Instant Moments
+004. Big Box - Nichtraucherzone(   Читать дальше...   )Жанр: Dance House, Tech HouseПродолжительность: 07:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363102   (944932) от 26.02.2020
 
 VA - 135 Classic Soul Ballads (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -677,33 +704,6 @@ VA - Similar Sound: Winter Drum And Bass (2017) [MP3|320 Kbps] <Drum And Bass, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B48046F3618CB16F2A0DA760DE1FBF04B57EA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090801   (946107) от 07.01.2017
-
-VA - Freezing Trance Mix: 100 Hit January (2017) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  PvR - Solar Station (Original Mix)  8:22
-002.  Tristan Armes - Dreamfall (Original Mix)  6:14
-003.  Manuel Rocca - Omkara (Original Mix)  6:51
-004.  4 Strings - Wondering (Original Mix)  6:02(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 11:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8D6AB2BD47070EFDED8AB0D26009A629EE68C8
 ```
 
 

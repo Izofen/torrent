@@ -1,3 +1,84 @@
+###  Публикация: 1126534   (765536) от 18.04.2017
+
+VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delalic - Sitting On The Dock Of The Bay (Thomas Godel Radio Edit) (Feat. Tasos Fotiadis) 03:01
+02. Dany Cohiba - Cuban Girl (Original Mix) 06:04
+03. Dj Cosmo - Home (Radio Edit) 03:22
+04. Palace, Double Project - Looking For Love (Feat. Renald)Жанр: House, EDM, DanceПродолжительность: 01:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793BC3E3DB7A8A49174D493EC94762A3338DFC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126602   (765538) от 18.04.2017
+
+VA - April Relax Hits (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven24 - Infinity (Feat. Allam) 04:55
+02. Oleg Byonic - I Don't Want Your Love 05:44
+03. Alex Lead - Falling Stars 02:18
+04. Seven24 - Sunset (Arma8 Remix) (Feat. Alexander Gecko) 05:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68923D95C42200CD09B578FF71695695DBA4D3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126622   (765540) от 18.04.2017
+
+VA - Smash The House Vol.1 (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bes & Meret - My Cocoon (Deep Dawn Mix)  6:20
+02.  Poenitsch & Jakopic - Two People (DJ Linus Remix)  7:17
+03.  Heinrich & Heine - Like The Sun  5:49
+04.  Bildertal - Playa De Barceloneta (Fullruhm Remix)  6:08(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3440E4752ED92AB728327232152EA64EA1E308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126564   (765548) от 18.04.2017
 
 VA - Senssual Miami (2017) [MP3|320 Kbps] <House>
@@ -614,87 +695,6 @@ VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AA321BB3651813BE2630E42609EE1BF890CF52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213929   (766593) от 19.03.2018
-
-Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Things (06:28)
- 02. Negative Space (07:49)
- 03. Abstract Landscape (07:46)
- 04. Negative Space (Hydergine Remix) (06:19)Тип издания: WEBЖанр: Dub Techno/TechnoПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90462CCCDE63AA197DB68BDC125C277A0CFE6083
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213901   (766594) от 19.03.2018
-
-VA - Levitated Radio Top 25: Winter 2018 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Manuel Rocca  -  The Soul Healer (Original Mix)  6:50
-02.  Blue5even  -  Forever (Original Mix)  5:13
-03.  Melbourne  -  Lost In Love (Horizon Dub Mix)  6:37
-04.  Mehdi Belkadi  -  Beautiful Goodbye (Derek Palmer Remix)  7:22(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3AEEB4FA6A186ACE4ED7FD80B31CDF98C62C6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213912   (766597) от 19.03.2018
-
-VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Manuel Rocca  -  Rising From Ashes (4 Seas Remix)  7:46
-02.  Nolans Stenemberg  -  The Code (Original Mix)  6:44
-03.  Amos & Riot Night  -  Interstate Four (Extended Mix)  6:24
-04.  Kiyoi & Eky feat. Berdi  -  Reasons Why (Original Mix)  6:38(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D82FDF044C04DFE5227B394404B49ECA486DBB0
 ```
 
 

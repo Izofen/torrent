@@ -1,3 +1,84 @@
+###  Публикация: 1136976   (669302) от 25.05.2017
+
+VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CamelPhat - Siren Song - Radio Edit
+02. AMinusLex - Nepal - Radio Edit
+03. E.M.C.K. - Be Yourself - Radio Edit
+04. Paris Avenue - Better Day (In Lifetimes) - Radio Edit(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136972   (669400) от 25.05.2017
+
+Rising Galaxy - Re-Animation (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Act
+02. No News From Iceberg 17
+03. Hypnosis
+04. Storm Ahead, A Cat is Sleeping(   Читать дальше...   )Жанр: Ambient, Psychill, DowntempoПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA0732D7FBE486A54421C98680DA56C83319761
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137030   (669403) от 25.05.2017
+
+VA - Chill Out Paradise Vol.1 Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  351 Lake Shore Drive - Brighter Than The Sun 7:29
+02.  Placid Larry - Elastic Slum 4:25
+03.  Ann Grace - Eternal Love 4:50
+04.  Pier-O - Red Sunset (feat. Mia Lemar) 5:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3EC217F5E740913565FA30137F3A8D9A9E0BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137318   (669404) от 25.05.2017
 
 VA - Evening Acoustic Playlist: 14 Relaxing and Chilled Acoustic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
@@ -614,86 +695,6 @@ Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:560266DAF7EB882B34497FF50375256DE556848F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291432   (670573) от 24.03.2019
-
-VA - Miami Sessions 2019 (Mixed by Milk & Sugar) (2019) [MP3|320 Kbps] <House, Progressive House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar - That Body (Original Mix) 5:16
-02. Sugarstarr & GOH feat. Redman & Method Man - I Used To Be (Milk & Sugar Club Edit) 4:48
-03. Seductive Souls feat. Onita Boone - Ain't Nobody (Mousse T.'s Ain't No Good Man Mix) 5:17
-04. Purple Disco Machine - Walls (Original Mix) 6:39(   Читать дальше...   )Жанр: House, Progressive House, Afro House, Electronica, DowntempoПродолжительность: 05:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66902193100372D04D778D7C6F5D5CD2B53DD61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536884   (670612) от 14.03.2022
-
-Rammstein - Zeit (2022) Single [FLAC|Lossless|image + .cue] <Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zeit (5:22)
-02. Zeit (RMX by Olafur Arnalds) (3:55)
-03. Zeit (RMX by Robot Koch) (4:44)Жанр: IndustrialПродолжительность: 00:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3FD77AAD35EA3813506872E78CE4F22C89109E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291424   (670700) от 24.03.2019
-
-VA - Miami Deep House (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archi Nova - Disco Dancer (Original Mix) 8:23
-02. Cole P - Down (Original Mix) 6:09
-03. Gaten - Abstract Illusion (Original Mix) 8:04
-04. Kevin Beard - Zulu Choir (Original Mix) 4:36(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CED4BC7494E6723722D177880B83D4A4A353985
 ```
 
 

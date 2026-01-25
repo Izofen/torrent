@@ -1,3 +1,84 @@
+###  Публикация: 1320138   (473372) от 17.08.2019
+
+VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Laslau - Gone Yet Never Forgotten 02:46
+02. Amisso - Resistance 05:41
+03. Beatzshocker - Beatz Rules Back 02:56
+04. Dirty Wild - Boomstik 03:32(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A895812F8A029C0C534FE7C685E56EB936A758
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939585   (473453) от 22.09.2015
+
+VA - Trilogy The Best of Chillout (Part One) (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Feelings - Vitalie Rotaru
+02. Carry Heart - idenline
+03. I Feel Your Body (Feat. Sone Silver) - DJ Artak
+04. Unplanned Detours - Matthew Billings(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABD89DDBECE080024D58663D93928032703E3930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939594   (473470) от 22.09.2015
+
+VA - Trilogy The Best of Chillout (Part Two) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Touch - August Noise - Original Mix
+02. Alastair Pursloe - Ocean Drift - Original Mix
+03. 2F - Sensations - Original Mix
+04. Gemini Tri - Silence of the Universe - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26C7C5ABE368D6377180E69D23BB43FA310EEF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939602   (473472) от 22.09.2015
 
 VA - Trilogy The Best of Chillout (Part Three) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -617,87 +698,6 @@ Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B2CB1C7AD918BD69090D55A411603DA8A11B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053196   (476540) от 02.09.2020
-
-Carsten Nicolai (Alva Noto, ANBB, Aleph-1, Noto, Diamond Version) - Discography (1996-2020) Raster-Noton [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Minimal, Glitch, Ambient, Experimental, Te ...
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1 C A a 01x (07:47)
- 02. 1 C A b 05 (02:24)
- 03. 1 C A c 08.2.2 (07:57)
- 04. 1 C A d 04 (03:36)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Abstract, Minimal, Glitch, IDM, Ambient, Experimental, Techno, Drone •Продолжительность: 44:26:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9FF6F4CC87D27A18EAF1109926C09E483C58C5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390932   (476824) от 02.09.2020
-
-Takayuki Shiraishi (白石隆之) - Collection 4 Releases (2002-2020) Studio Mule [FLAC|Lossless|tracks] <Experimental, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Thunder (04:41)
- 02. Birds In Paradise (05:09)
- 03. Flicker (06:10)
- 04. Lapis Lazuli (05:43)(   Читать дальше...   )Тип издания: Vinyl, Web, CassetteЖанр: Experimental, IDM, Ambient •Продолжительность: 02:08:43 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A4101B19B2337C927AB9C5F37D690229BE58B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194407   (476850) от 02.09.2020
-
-Steffi - Discography 18 Releases (2009-2020) Ostgut Ton [FLAC|Lossless|tracks+.cue, tracks] <Techno, Electro, House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.u.c.a. - Echo 1 (02:31)
- 02. Voiski - Sound Of Distance (05:00)
- 03. STFSHD - 1.5 (04:29)
- 04. Unbalance - Freedom (05:53)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Electro, House, Tech House, Deep House •Продолжительность: 09:06:06 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0BC5452811D9679EC5F79DE19C4C5E736F6851
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1094958   (927700) от 19.01.2017
+
+Peter Cetera - One More Story (1988) [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Of Times (4:13)
+02. One Good Woman (4:35)
+03. Peace Of Mind (4:25)
+04. Heaven Help This Lonely Man (4:25)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F13BFE1075EF6557286F078B2D16F55FBB77A76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094414   (927706) от 19.01.2017
+
+Magnum - The Valley Of Tears: The Ballads (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream About You (remastered) (from 2002 - Breath of Life)
+02. Back In Your Arms Again (newly re-recorded) (from 1994 - Rock Art)
+03. The Valley Of Tears (remixed, remastered) (from 2014 - Escape From the Shadow Garden)
+04. Broken Wheel (newly re-recorded) (from 1992 - Sleepwalking)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D4A70D444578FE5A2E60754231CFC6F2A52A3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987027   (927723) от 16.02.2016
 
 Paul Gilbert - I Can Destroy (2015) [FLAC|Lossless|tracks] <Rock, Hard Rock>
@@ -641,60 +695,6 @@ Kataxu - Hunger Of Elements (2005) [APE|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E5183EE6583518DB77FBEC9176BAC5DA28F2ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986872   (929342) от 15.02.2016
-
-Do Or Die - Crows (2015) [FLAC|tracks|WEB-DL]<Groove Metal, Hardcore, Thrash Metal, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929342.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:08] 01. Crows
-[03:41] 02. Off With Their Heads
-[03:36] 03. Bella Famiglia Soldiers
-[03:52] 04. Bunker Hill Blues(   Читать дальше...   )Жанр: Groove Metal, Hardcore, Thrash Metal, DeathcoreПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768B8ABE4F13469AE70B7B0D3ACC0041878E5EAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094517   (929385) от 18.01.2017
-
-Mahogany - Mahogany (1969) Reissue, 2006, Walhalla Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coolin'
-2. Best Woman, Best Friend
-3. Live Your Love A Lie
-4. Easy(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE26C4DF8C273805023FD6107E3D5009F41EAA34
 ```
 
 

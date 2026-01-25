@@ -1,3 +1,30 @@
+###  Публикация: 1031323   (668772) от 03.07.2016
+
+VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Dizzee Rascal -  Hype (Original Mix) 3:32
+002. Mark Sixma & Futuristic Polar Bears feat. Amba Shepherd -  Cupid's Casualty (Original Mix) 3:28
+003. Vicetone Ft. Cozi Zuehlsdorff -  Nevada (Original Mix) 3:29
+004. DJ Favorite feat. Will Fast -  Together (Original Mix) 4:41(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 08:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D28ABCC53A5CCE9DF503FE65DE4D6DC01B5BCBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031295   (668776) от 03.07.2016
 
 VA - Ibiza Beach Answer Commission [Gravitation Sound] (2016) [MP3|245-320 Kbps] <House, Funky, Progressive>
@@ -664,33 +691,6 @@ VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music (2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:696DBA56948BC748580A0CF2E21C23F7EDD976EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031087   (670244) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patty Ryan - I Don't Want To Lose You Tonight ( 1987 )
-02. Alan Barry - Gimme Gimme ( 1986 )
-03. 2 Eivissa - Move Your Body ( 1998 )
-04. Pet Shop Boys - Two Divided By Zero ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B1B095D059444F52203E1E51E9AEBB783F2118
 ```
 
 

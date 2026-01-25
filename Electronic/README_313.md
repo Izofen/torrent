@@ -1,3 +1,84 @@
+###  Публикация: 1146093   (616476) от 28.06.2017
+
+VA - Summer Party Dance Hits 2017 [MP3|320 Kbps] <Progressive House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southree & Wayck - Carousel (feat Nick Tart - radio edit)
+02. Stephan F - Color Of Love (feat Tony T - Tropical edit)
+03. Federico Seven & William Tag - Amelie (original mix)
+04. Charlie Atom & Michael Fall - Gone (feat Drew Darcy - original mix)(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96C6F7EA3335A55953B3C24E3C3DFCC63551ADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146239   (616479) от 28.06.2017
+
+Alba Ecstasy - The Quest (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin School>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616479.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Beyond the Fog
+2 Silent
+3 About You
+4 The Quest(   Читать дальше...   )Жанр: Electronic, Ambient,  Berlin SchoolПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBBA399509020C022715B6EC65F3442328A5F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146010   (616485) от 28.06.2017
+
+VA - Chill Town In The Night (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chill Insider - You Are Like I Need (Rain Mix)  2:38
+02.  Junk Collective - Proper (Main Rar)  2:35
+03.  Sangar - Like A Butterfly (Jazzy Reload)  2:49
+04.  Satellite Soul - Red (Clear Mod)  2:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F031C2BCC0A92064863C1766AC2935160E00F8D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145834   (616489) от 28.06.2017
 
 VA - Acoustic Pop Edition (2017) [MP3|320 Kbps] <Acoustic>
@@ -614,84 +695,6 @@ Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544936   (618391) от 17.04.2022
-
-VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - Move (03:34)
-02. Martin Hiska - Shangla (03:40)
-03. Michael E - Lost In Thought (05:18)
-04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545000   (618392) от 17.04.2022
-
-Compilerbau - Discography (2000-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Sequencer 83 (3:46)Жанр: Synthwave, Retrowave, Outrun |Продолжительность: 12:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F39A1C347878DC1439746D85089C5FD89A0217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544966   (618396) от 17.04.2022
-
-Hocico - HyperViolent (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When the Trumpets of Hate Blow
-02. Broken Empires (Radio Version)
-03. Acts of Aggression
-04. Un Sepulcro Sin Cadaver(   Читать дальше...   )Жанр: Dark Electro, Electro, IndustrialПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A579CAF18AC44F788631C830C2DD9ED871192B25
 ```
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1317546   (500416) от 01.08.2019
+
+VA - Summertour (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mm&t - Sunshine House (Club Mix) 4:59
+02. Nick Solid & Jake - Versace Girl (Paul Vain Future House Mix) 4:55
+03. Vegas House feat. Keisha - All About (Club House Remix) 3:32
+04. Ibiza Ltd. feat. Ronnie Sherman - Show Me Love (House Mix) 6:37(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC943E4089A694A25AFE25E3C3D2BA2357681B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541906   (500523) от 01.09.2012
+
+VA - Erotic Summer Chill House Vol. 2 (2012) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrojas - Perceiving the World Around
+02. Don Gorda Project - Count the Clouds
+03. Enrico Donner - Catch a Glimpse
+04. Diario - A Tear and a Smile
+05. Kusuma Orchestra - Can of Worms
+06. The Sura Quintet - Hermosa
+07. Cesar Martinez Ensemble - Everynight
+08. Solanos - Funkadocious
+09. Shivana faction - Future Dance
+10. Melting Plastic - Jocking(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3869387C770C56916E1028C12F69834ED74AD2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934873   (500542) от 07.09.2015
+
+VA - Summer Gold Chill Out (Relaxing Music For A Wonderful Dawn On The Beach) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davide Tognini - Indians Chimes (03:12)
+02. Renato Pezzano - Enjoy the Pain (03:55)
+03. Fabrizio Marioni - Mari incantati (03:22)
+04. Gysnoize - I Need You (04:19)(   Читать дальше...   )Производство: Lounge Music CocktailЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAA16838AC9964F36265782B8292E766BF46E09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564371   (500592) от 18.07.2022
 
 VA - Northern Summer (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
@@ -628,87 +715,6 @@ VA - Uplifting Trance Vol.2 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9575E6B6F3D3771DFD2BBC7F7C44BC94E3C4CE08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563713   (503728) от 15.07.2022
-
-VA - FSOE - July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila with Greg Downey - Take Flight (Extended Mix)
-02. Ciaran McAuley - Lilac (Extended Mix)
-03. Sunlounger & Inger Hansen feat. Susie Ledge - Run (Extended Club Mix)
-04. Tempo Giusto - Braveheart (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2E888B95EB7D5C795DEC5E9A29F3C468EA180B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934011   (503751) от 04.09.2015
-
-VA - French Cafe Moods Vol 4 (2015) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Witch Music - Lazy Summer Days (02:04)
-02. Craig McConnell - Snows of Stillness (03:04)
-03. Richy Kicklighter - Cool Breeze (05:38)
-04. Richard Freitas - Luscious (03:19)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49453FE0B3FA56BCC580B4BEC9C57C303C9AE49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934007   (503752) от 04.09.2015
-
-VA - French Cafe Moods Vol 3 (Oriental Flavour) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jive Ass Sleepers - Life In The Slow Lane (03:50)
-02. Cafe Praga - Welcome (03:19)
-03. Edd Charmant - Mellow With Me (03:08)
-04. Missing Black Cat - Clavinet (02:38)(   Читать дальше...   )Производство: Musique SensuelleЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D15A893A9B35B34CE0622D91B4482FC91A28D0
 ```
 
 

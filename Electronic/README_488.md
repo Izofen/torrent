@@ -1,3 +1,91 @@
+###  Публикация: 617300   (969884) от 14.02.2013
+
+VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
+02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
+03. Rock That Beat (Original Mix) - Duher
+04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
+05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744896   (970121) от 12.01.2014
+
+Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Touch (Prototype)
+02. Respected
+03. The Prisoner
+04. I’ve Said Too Much(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168010   (970144) от 20.01.2010
+
+VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970144.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Danger - 4h30 (F.O.O.L Remix) (5:42)
+2. Danny Soundz - Jack It Up (Original Mix) (5:09)
+3. Defunct! Feat. Mr Eyez - Drop the Bomb (Original Mix) (6:11)
+4. DJ Fenix feat. Supafly - Reason to live (Original rmx) (7:37)
+5. Foundation - Boogie Wonderland (Noll & Kliwer Travolta Remix) (5:39)
+6. Franklin & Navaro - I Need Love (Electro Banger Remix) (4:30)
+7. John Revox vs EasyTech - Sexy Ole (Disco Fanatics Bootleg) (5:26)
+8. Michael Feiner - The Feeling (Jean Elan Remix) (6:16)
+9. Ray Guarano - Killing Me (Original Club Mix) (7:55)
+10. Re-Deux - Another Lonely Night (Rev-Players Extended Remix) (6:06)(   Дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975901   (970191) от 16.01.2016
 
 VA - Goa 2016 Vol. 1 (2016) [MP3|320 кб/с] <Psychedelic, Progressive Psytrance, GOA Trance>
@@ -633,87 +721,6 @@ VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974512   (975682) от 12.01.2016
-
-VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
-02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
-03. Marga Sol - Find Yourself (07:01)
-04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974593   (975729) от 12.01.2016
-
-Blank & Jones - Chilltronica №5 (2015) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blank & Jones - Interstellar (Marc-George Infinite Reprise) (4:40)
-02. Troels Hammer - Azur (2:01)
-03. Marc-George - World of Life (5:20)
-04. Blank & Jones - White Light (7:34)(   Читать дальше...   )Жанр: Downtempo, Ambient, ChilloutПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B348A3DDF26D6D52249ADB3BDB40CF781673153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973558   (975748) от 12.01.2016
-
-Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Revees feat. Alanah - Lonely (Aurosonic intro bootleg)
-02.Aurosonic - My Way (original mix)
-03.Aurosonic & Ange - Without You (2011 dj mix)
-04.Aurosonic & Frainbreeze feat. Katty Heath - All I Need (club mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FE2CBE68BF153945EDE582C19D699F1DE05826
 ```
 
 

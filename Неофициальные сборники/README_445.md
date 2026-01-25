@@ -1,3 +1,30 @@
+###  Публикация: 1131256   (708776) от 05.05.2017
+
+VA - Любимая музыка. Дискотека Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708776.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наталья Sоловей - Без Тебя 3:42
+002. Evelina - Уходить 3:38
+003. Alekseev - Чувствую Душой 3:40
+004. Russell Ray - Мне Так Хорошо 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6273A0538A8EC993F1861E2B6EA8ED795F50769E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131285   (708777) от 05.05.2017
 
 VA - Hits Cocktail Vol.6 (2017) [MP3|320 Kbps] <Dance , Club House , Electro>
@@ -665,33 +692,6 @@ VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401416   (709284) от 10.08.2020
-
-VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709284.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Da Groove Bar - Jazz In My House
-002. Kirby Carlisle - What Is Your Answer
-003. Smart Sounds - Hyperpassive
-004. Sunset Bay - Star Edit(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 08:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D357FB293FD5463D0A8DA62A091339AAEA94FD5
 ```
 
 

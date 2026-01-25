@@ -1,3 +1,57 @@
+###  Публикация: 1285597   (721192) от 26.02.2019
+
+Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revery (5:28)
+ 02. Reality Wave (4:46)
+ 03. World of Ruin (3:47)
+ 04. Ash in the Sky (4:19)(   Читать дальше...   )Жанр: Goth Rock, Doom MetalПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D79882A6CC7052CB550294204A227BF82C9842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285588   (721194) от 26.02.2019
+
+WIZO - Bleib Tapfer / Für'n Arsch (1992) Compilation [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bleib Tapfer 
+01. Bei Dir (1:32)
+ 02. Mein Tod (3:25)
+ 03. Nice day (4:20)(   Читать дальше...   )Жанр: PunkПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6901C7F69C0F07783E9A94AC0BDA289840E4C10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285069   (721196) от 26.02.2019
 
 Condenados - The Tree Of Death (2016) [FLAC|Lossless|image + .cue] <Doom Metal>
@@ -661,60 +715,6 @@ Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129190   (722615) от 28.04.2017
-
-Guilles - Harvest Of Grey Days (2017) [MP3|320 Kbps] <Death’n’Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latent 01:01
-02. Born In A Black Void 03:33
-03. Clock 00:24
-04. Bewildered Predator 04:57(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1232833E7A7DE7FB383EF7DDE252005194070C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129178   (722623) от 28.04.2017
-
-Psykup - Ctl + Alt + F*ck (2017) [MP3|320 Kbps] <Experimental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violent Brazilian Massage 04:09
-02. We Will Win This War 04:00
-03. Ssanta Clauss (Write Me a Letter) 05:12
-04. Shampoo the Planet 04:21(   Читать дальше...   )Жанр: Experimental MetalПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB24DCEDD6ACFBAE8D7647A685970C427D6F352
 ```
 
 

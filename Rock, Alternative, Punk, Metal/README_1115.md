@@ -1,3 +1,57 @@
+###  Публикация: 1496058   (876063) от 15.09.2021
+
+Järnbörd - 2 Albums (2017-2021) [MP3|320 Kbps] <Punk, Crust, Grind, Harcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Parad Av Försupna Män [00:01:33]
+02. Utbytbar Löneslav [00:01:38]
+03. 2 Steg Från Morgonsnapsen [00:03:00]
+04. Mördare Utan Gränser [00:02:43](   Читать дальше...   )Жанр: Punk, Crust, Grind, HarcoreПродолжительность: 2CD, 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE3DAC82A58CB872E212F563D065D525C4C547E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495962   (876068) от 15.09.2021
+
+Thundermaker - The Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road
+02. Fire Burns Forever
+03. Broken Promises
+04. A Twin Flame Journey(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75EAA76BA250D91B9F124C7773B207B112E0BCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495955   (876071) от 15.09.2021
 
 Bon Scropion - Winds Of The Unseen Sun (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -638,60 +692,6 @@ Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642730   (877819) от 12.04.2013
-
-Dead Can Dance - In Concert (2013) Live [MP3|320 кб/с]<Alternative, Experimental, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Sun
-02. Anabasis
-03. Rakim
-04. Kiko(   Читать дальше...   )Жанр: Alternative, Experimental, AmbientПродолжительность: 01:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780E1EA1660992F375A9A370352CDB8F028542BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104644   (878124) от 16.02.2017
-
-Аляска - Скачать бесплатно (2015) [MP3|320 Kbps] <Ska, reggae>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878124.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Снежок (2:37)
-2. Маракасы (2:47)
-3. Бандиты (2:58)
-4. Космос (2:51)(   Читать дальше...   )Жанр: Ska, reggaeПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3990E3C58AB04C7454998065CC9A7C804976C89
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 149228   (704640) от 24.02.2022
+
+Группировка Ленинград - Лучшее (2CD) (2008) [FLAC|Lossless]<Ска, Психоделический рок, Пост-панк, Регги, Хардкор>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ска, Психоделический рок, Пост-панк, Регги, ХардкорПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10195A93A85CC5967872F056C99B8CE08E9768DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131934   (704708) от 07.05.2017
+
+VA - A Tribute To Iron Maiden (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kreator - The Number Of The Beast
+02. Trivium - Iron Maiden
+03. Stone Sour - Running Free
+04. Iced Earth - The Trooper(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Power MetalПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AB9B4770D67CA28594138B700FA3DFDEC00A66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916642   (704713) от 07.05.2017
 
 Neutrino, Нейтрон - 7 релизов (2012-2017) [MP3|320 кб/с]<Melodic, Power, Progressive, Symphonic Metal>
@@ -639,60 +690,6 @@ Cry Venom - Vanquish the Demon (2016) Japan, Reissued 2017 [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5376D1D84177DABE17845252D635A9131CF28239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131849   (705396) от 07.05.2017
-
-Enslaved - The Sleeping Gods - Thorn (2016) [FLAC|Lossless|image + .cue] <Black Metal, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heimvegen
-02. Alu Misyrki
-03. Synthesis
-04. Nordlys(   Читать дальше...   )Жанр: Black Metal, Viking MetalПродолжительность: 00:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F70FFFC414D382DAC5B19DE8C096828408CEF14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131794   (705417) от 07.05.2017
-
-Black Autumn - Rivers Of Dead Leaves (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rivers of Dead Leaves 06:44
-02. A Darkness Profound 05:03
-03. Ashes 05:21
-04. Oath 06:27(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8E4C138305DDD34BBF65645FA03DD29BBA9E96
 ```
 
 

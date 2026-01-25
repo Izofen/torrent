@@ -1,3 +1,57 @@
+###  Публикация: 1506104   (800897) от 30.10.2021
+
+Electric Light Orchestra - Ballads (2021) [MP3|320 Kbps] <Progressive-Rock, Art-Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800897.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mr. Radio (5:04)
+2. Eldorado (5:18)
+3. Can't Get It Out Of My Head (2012 Version) (4:34)
+4. Mister Kingdom (5:30)(   Читать дальше...   )Жанр: Progressive-Rock, Art-Pop-RockПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EFA50553C086173B35DC8A8442749058F69823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120990   (801257) от 01.04.2017
+
+Stories - Stories / About Us (2007) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801257.jpg" />
+</div>
+
+
+###  Подробнее
+
+STORIES: 
+01. Hello People
+02. I'm Coming Home
+03. Winter Scenes(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6047174C8E4F1BE12D92AF64DFC8E3A761C9CFA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505966   (801395) от 29.10.2021
 
 Whitesnake - Restless Heart (1997) 25th Anniversary, Super Deluxe Edition, 4CD, 2021 [MP3|320 Kbps] <Blues Hard Rock>
@@ -635,60 +689,6 @@ Black Rebel Motorcycle Club - Wrong Creatures (2018) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52067C0DE671A6A12C0614907883FA05D920791
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198479   (808395) от 11.01.2018
-
-Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Fire (03:38)
-02. With or Without You (04:08)
-03. Going to California (03:23)
-04. Baby Did a Bad Bad Thing (02:45)Жанр: Rock, Synth-Pop, ElectronicПродолжительность: 00:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA0B3F863767BD2200A3A43B7894CE829C85F32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198307   (808401) от 11.01.2018
-
-Crack The Sky - Animal Notes / Safety In Numbers (1976-1977) Reissue, 1989, Lifesong [MP3, 320 Kbps] <Prog Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808401.jpg" />
-</div>
-
-
-###  Подробнее
-
-ANIMAL NOTES (1976)
-1. We Want Mine
-2. Animal Skins
-3. Wet Teenager(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ED48B24D54362B0B867E0A9986533BBE012541
 ```
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1509421   (794073) от 13.11.2021
+
+L.A. Guns - Checkered Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветераны хард-рока L.A. GUNS выпустили новый студийный альбом "Checkered Past" 12 ноября на лейбле Frontiers Music Srl.
+"Checkered Past" сочинялся и записывался в конце 2020 – начале 2021 года. На нем Трейси Ганс (Tracii Guns, гитара), Фил Льюис (Phil Lewis) и компания продолжают разрабатывать более мрачную тематику текстов, которая доминировала (   Читать дальше...   )01. Cannonball
+02. Bad Luck Charm
+03. Living Right Now
+04. Get Along(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFABC4111DB0F8364D6EF662FB29A7CB312AC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509659   (794076) от 13.11.2021
+
+Nancy Wilson - You And Me (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You And Me (feat. Sue Ennis)
+02. The Rising
+03. I'll Find You
+04. Daughter(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B858C65748F6806A7DFF0E72D9C236EA5E0E5B21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509765   (794083) от 13.11.2021
 
 Brain Echoes - Blackbird (On A White Oak Tree) (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -643,60 +698,6 @@ Placebo - Covers (2003) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307FB48A43C2462EB864E32AA7B07CFAD8B3FFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200872   (794916) от 22.01.2018
-
-Aqueous - Dark Side of Oz (2016) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MGM Theme/Somewhere Over the Rainbow [00:04:48]
-02. Kitty Chaser (Explosions) [00:14:21]
-03. Eon Don [00:14:23]
-04. Mulligans [00:09:49](   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE7050E40EFBB1EE1382AB9BA4B4D14E8B96814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509265   (794955) от 12.11.2021
-
-Pain - Dancing With The Dead (2004) [FLAC|Lossless|image + .cue] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't Count Me Out [4:39]
- 02.  Same Old Song [3:59]
- 03.  Nothing [4:08]
- 04.  The Tables Have Turned [4:23](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EDC2D75D5A956E099DDF571C070B0AD78A3BE1
 ```
 
 

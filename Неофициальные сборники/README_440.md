@@ -1,3 +1,30 @@
+###  Публикация: 1132634   (701118) от 09.05.2017
+
+VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
+002. Deeppirate Feat. Vilia - Love (Audio Luxury Remix) 5:41
+003. Ilkay Sencan - Back To Life 3:11
+004. Loungetronic - Ready Or Not - Nu Deep Mix 3:15(   Читать дальше...   )Жанр: Deep, Chill HouseПродолжительность: 08:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4FD3DA5A91983B73414AD0EDB917FE81B221DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132381   (701144) от 09.05.2017
 
 VA - Green Therapy Music (2017) [MP3|320 Kbps] <Chillout, Lounge, Dountempo>
@@ -667,33 +694,6 @@ VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026738   (702513) от 16.06.2016
-
-VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mari Ferrari - Hello, Hello (Extended Mix) 4:00
-02. Oxidyon - I Want to Say (Radio Edit) 3:36
-03. Martin Garrix Vs Matisse & Sadko - Break Through the Silence (Original Mix) 4:43
-04. Pulsedriver - I Want Your Soul (Club Mix) 4:33(   Читать дальше...   )Жанр: House, Future House, BigroomПродолжительность: 04:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF9A0F234190462331A50AFA4CAB38AA851E64F
 ```
 
 

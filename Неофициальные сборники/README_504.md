@@ -1,3 +1,30 @@
+###  Публикация: 1207630   (780424) от 19.02.2018
+
+VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Neev Kennedy Jared Knapp and Patrick de Vere - Night Moves (Daniel Kandis Emotional Edit)
+002. Ciaran McAuley - Thoughts Become Things
+003. Fischer & Miethig - Touched By Bermuda (Mindsoundscapes Radio Cut)
+004. Dan Thompson - Lucid(   Читать дальше...   )Жанр: TranceПродолжительность: 10:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207704   (780431) от 19.02.2018
 
 VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
@@ -672,33 +699,6 @@ VA - Music For Running: Sport Electro Mix (2018) [MP3|320 Kbps] <Techno, Minimal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80E68C79BB33BF6DBA7A81BD2B4824A0AC228AA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206973   (781276) от 16.02.2018
-
-VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781276.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nathan Sykes - Good Things Come To Those Who Wait
-002. Kylie Minogue - Better The Devil You Know
-003. Ed Sheeran - Shape Of You
-004. The Monkees - Good Times(   Читать дальше...   )Жанр: PopПродолжительность: 09:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210665D4C7AA2B4539EF825401185C8DA738BF12
 ```
 
 

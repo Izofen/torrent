@@ -1,3 +1,57 @@
+###  Публикация: 1554076   (579101) от 29.05.2022
+
+Secret Alliance - Solar Warden (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're All In
+02. The Countdown
+03. Walking Man
+04. Last Day(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF211124461AB597E354A64815D22E05941079F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554043   (579102) от 29.05.2022
+
+Gramma Vedetta - The Hum of the Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progressive, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Chance to Win the Orb (00:06:23)
+02 - Starlight Portal Show (00:05:26)
+03 - Robots for War (00:04:57)
+04 - A Broken Time Machine (00:03:18)(   Читать дальше...   )Жанр: Psychedelic, Progressive, Stoner RockПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E1A3303AE704FA9292CCE6F1994249198DBA8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554181   (579104) от 29.05.2022
 
 Alistair Terry - Yonge At Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -634,60 +688,6 @@ Vultoro - A Violent Daydream (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D52323E4BD1170D5C0EFFDF7892EE80E5C45EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553902   (580091) от 28.05.2022
-
-Dewok - Armonía Gris (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Armonia Gris (00:06:22)
-02 - No Esperes Mas (00:04:30)
-03 - La Llegada (00:02:15)
-04 - Por Perderme (00:04:32)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52E1CAE324D582A526E89A8E1378BA08E61C893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919952   (580120) от 22.07.2015
-
-The V - Now Or Never (2015) [MP3|320 кб/с]<Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Again
-02. Now or Never
-03. Rollcoaster
-04. L.O.V.E(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75CB311738E36F5DBB1E0775105AB6AD89F8365
 ```
 
 

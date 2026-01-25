@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820707   (22) от 29.09.2025
 
 Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Definitive Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>

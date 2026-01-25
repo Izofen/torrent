@@ -1,3 +1,57 @@
+###  Публикация: 1221690   (692894) от 25.04.2018
+
+BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Контакты
+2. Мой друг океан
+3. Для тебя
+4. For a Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1111BDED259961B7D16FEA545E87E7AFC53EB070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027960   (692971) от 21.06.2016
+
+Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flames (02:34)
+02. Wake Up (03:38)
+03. Magical Girl (03:11)
+04. Lone Warrior (02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55CF4DA77C3B51F4CE02607B3739A8C302C8109
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221564   (692978) от 25.04.2018
 
 BrainStorm - Par to zenu, kas sit skarda bungas (2018) [MP3|320 Kbps] <Pop Rock>
@@ -647,60 +701,6 @@ The Mekons - Deserted (2019) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3E005800DD086CE3829373155E5C4288E3F5E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288719   (694301) от 12.03.2019
-
-Husbandry - Bad Weeds Never Die (2017) EP [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Punk, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elder Spencer Deery (4:08)
- 02. Hierba Mala Nunca Muere (3:47)
- 03. Never Trust a Cuckold (3:47)
- 04. Misery is a Butterfly (5:35)(   Читать дальше...   )Жанр: Hard Rock, Post-Punk, Post-HardcoreПродолжительность: 00:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6304E28C9093BB17305B01DF06104F6F9C70508
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288501   (694302) от 12.03.2019
-
-The Japanese House - Good At Falling (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Went to meet her (intro) (02:31)
-02. Maybe You're the Reason (03:38)
-03. We Talk All the Time (03:15)
-04. Wild (03:43)(   Читать дальше...   )Жанр: Indie Pop, Synth-popПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2E9B56A0D5DC654D4AAFAD95935B63C5A01A47
 ```
 
 

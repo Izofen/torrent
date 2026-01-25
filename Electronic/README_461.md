@@ -1,3 +1,84 @@
+###  Публикация: 994310   (891542) от 07.03.2016
+
+VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haddaway - What Is Love (4:28)
+02. Londonbeat - I've Been Thinking About You (3:48)
+03. Crystal Waters - Gypsy Woman (La da Dee la da Da) (3:42)
+04. Robin S. - Show Me Love (4:25)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 01:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5732EB870F467ADCD53904E567AA295D7DC072EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994364   (891614) от 07.03.2016
+
+Night Sky (aka Afternova) - Visions (2016) [MP3|320 кб/с] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Wind (Original Mix) (2:27)
+02. Visions (Original Mix) (2:43)
+03. Reminiscence (Original Mix) (2:02)
+04. A New Way (Original Mix) (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEDE09D3DE02FDAE9A3D32D0E43103D79976388
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371403   (892020) от 30.03.2020
+
+Derek Carr - Pursuit (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <EDM, Deep House, Tech House, Techno, Minimal>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Tonight_Dawn (7:15)
+ 02. Not Tonight_Dusk (8:44)
+ 03. Acid Bath_Pursuit Mix (7:01)
+ 04. Up And Atom (7:32)(   Читать дальше...   )Жанр: EDM, Deep House, Tech House, Techno, MinimalПродолжительность: 01:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B9E4F248F9FA7AFEBAF5422421A609C4B412D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493632   (892292) от 05.09.2021
 
 ONUKA - KOLIR (2021) [MP3|320 Kbps] <Electronic, Folk, Downtempo>
@@ -618,87 +699,6 @@ VA - Deep Red Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C291FC0C50A3CB4B37C2D479DB99CCD5AC502997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101610   (894844) от 07.02.2017
-
-VA - Silencio Collection Vol.1 Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IJO - Forey
-02. Fran Rodriguez - Guitar Star Dub
-03. Schurakin - I Love You
-04. Union Jack - There Will Be No Armageddon - Remastered(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E34B352E9E7D61C35A3FD7DD5A61252F1BD23A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370665   (895088) от 28.03.2020
-
-VA - Cafe Del Mar Essentials (Vol. 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Easy Listening>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. José Padilla - Walking on Air
-02. A Man Called Adam & Eddie Parker - Easter Song
-03. Afterlife - Dub in Ya Mind (Beach Club Mix)
-04. The Metaluna Mutant - Blinky Blue Eyed Sunrise(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy ListeningПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA5CBC845D8F223421EE89C1E03C3BE341262B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277105   (895112) от 28.03.2020
-
-Secede - Discography 7 Releases (2003-2019) Merck, Sending Orbs [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hospital Requiem (04:22)
- 02. Foliage Pathway (04:28)
- 03. Leraine (With Kettel) (07:45)
- 04. The Realms Of Sanda (07:53)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient/IDM/Breaks/DowntempoПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100F67C2010BF67B93BA4E6D332C42D85CA233D0
 ```
 
 

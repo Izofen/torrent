@@ -1,3 +1,84 @@
+###  Публикация: 1362968   (943703) от 27.02.2020
+
+Pet Shop Boys - Hotspot (2020) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, House, Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will-O-The-Wisp (4:29)
+ 02. You Are The One (3:35)
+ 03. Happy People (3:51)
+ 04. Dreamland (3:26)(   Читать дальше...   )Жанр: Electronic, Synthpop, House, DiscoПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647193C374593402AE234DA8ED3C709F980B8E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983500   (943745) от 06.02.2016
+
+VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|320 кб/с] <Trance, House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Nifra - The Creation (Prague) (Transmission Theme 2015) (07:27)
+02. Arkham Knights - Knightfall (Original Mix) (07:02)
+03. M.I.K.E Push vs Rank 1 - Zenith (Original Mix) (08:59)
+04. Solarstone & Gai Barone - Fata Morgana (Extended Mix) (09:15)(   Читать дальше...   )Жанр: Trance, House, Progressive TranceПродолжительность: 02:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081CA925E08C30B293CEA6767760F6ABA233BADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090877   (944608) от 08.01.2017
+
+Jens Buchert - Electronic Space Lounge, Vol.1-3 (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Electronic Space Lounge - One
+2013 - Electronic Space Lounge - Two
+2014 - Electronic Space Lounge - ThreeЖанр: Ambient, Downtempo, Trip HopПродолжительность: 03:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345F50FF126882D48B95DEF8C7E67BB5F07BA2E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091250   (944857) от 08.01.2017
 
 VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -608,87 +689,6 @@ VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F5E5754AE688DEFCF6F3D3EDDB6280D1C790AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090144   (947309) от 06.01.2017
-
-VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrix & Futurebound - Fire (Feat Max Marshall) 03:02
-02. Brookes Brothers - Good To Me (Feat Majesty) 02:59
-03. Dossa & Locuzzed - Only Way (Feat Tasha Baxter) 04:59
-04. Nct - Give In (Feat Raign) 05:43(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 02:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8C89685709927C17318FECC4F4B5FA8BFAACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858856   (947327) от 12.01.2015
-
-VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Drone>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dämmern - Liberda (03:32)
- 02. Phon.o - Tell Me (04:39)
- 03. Eomac - No Name (04:28)
- 04. Bill Youngman - Resolution (05:03)(   Читать дальше...   )Жанр: Techno, Ambient, IDM, Abstract, DroneПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1F9991C1F2318642D8CB4D01FFCAF12283AA5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090244   (947427) от 06.01.2017
-
-VA - Acoustic Covers Of Popular Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hannah Dorman - Mercy 3:36
-02.  Thom Cooper - Somebody That I Used to Know 3:29
-03.  Portland UK - Heart's on Fire 3:24
-04.  Ginnie - Secret Love Song 4:46(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5589A4835FCDDEF589DEBC60BBEFA0D0806391
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1556364   (559722) от 09.06.2022
+
+Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On Long Island (05:08)
+02. Demons (04:35)
+03. Moving Like a Cat (04:14)
+04. The Black Rose (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A558E22C60BB100A9E3B0FE129AB8AC31087171E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556445   (559727) от 09.06.2022
+
+Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Those Creatures from Ganon are Pretty Bad
+2. Ghost Maze Project
+3. Dismantled
+4. One-Winged Angel of Death(   Читать дальше...   )Жанр: Nintendocore, Metalcore, ElectronicПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556467   (559731) от 09.06.2022
 
 Dead Register - Alive (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Gothic Rock, Shoegaze>
@@ -669,60 +723,6 @@ Roadside Gamblers - Rust, Smoke & Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48DBE59E68FDAC9752520D9FBC46F4E30A49FA7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556154   (561524) от 08.06.2022
-
-Reeper - Rise of Chaos (2021) Deluxe Edition, 2022, Art Gates Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rebound (00:03:35)
-02 - Save Me (00:03:30)
-03 - Home (00:04:03)
-04 - Let It Go (00:03:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard, Desert, Stoner RockПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0A56A67D5B0B6A641A07BDB8477455624E3FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556193   (561525) от 08.06.2022
-
-Joe Bouchard (ex-Blue Oyster Cult) - American Rocker (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Way is The Highway (00:02:45)
-02 - In The Golden Age (00:03:44)
-03 - Deadly Kisses (00:04:04)
-04 - Love Out of Thin Air (00:04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C0CD016BF1646AE9CB062CDDF1C58B1BE1D199
 ```
 
 

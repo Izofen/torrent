@@ -1,3 +1,30 @@
+###  Публикация: 1043378   (571863) от 16.08.2016
+
+VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loboda - Пора домои (DJ Antonio Extended Remix)
+02. Iowa - Одно и то же (DJ Nejtrino & DJ Baur Remix)
+03. Меджикул - Марфа (DJ Шевцов Remix)
+04. Татьяна Буланова & Anton Liss - Призрачныи Сон(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D902E8526411C2359AEA245832CD8171E73E8386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 822158   (572000) от 21.05.2019
 
 VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
@@ -666,33 +693,6 @@ VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303396   (572899) от 21.05.2019
-
-Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena mia
-02. Aire soy (feat. Ximena Sarinana)
-03. Te amare (MTV Unplugged)
-04. Hacer Por Hacer(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FA3AF0B46DDC7CA3667BAC81E3CBFFA4760FD9
 ```
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 1112295   (843287) от 08.03.2017
+
+VA - DJ Zen - Winter (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Argus - The Time Before (07:28)
+ 02. Argus - We Are One (08:02)
+ 03. Profondita - Island (08:29)
+ 04. Suduaya - Clear Water (08:51)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A30F1D2E562710338B6B5961AE9470F845790F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112545   (843302) от 08.03.2017
+
+VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barg Van - Hai (Original mix) [00:03:11]
+02. QKazoo - Summer (Original mix) [00:04:20]
+03. Sound Diller - Make Some Drop [00:05:21]
+04. Bonix - Tirex (Original mix) [00:04:41](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC502E2035AF53A8B661D0446DD518F48241BDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112498   (843386) от 08.03.2017
+
+VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midimute — Idea [04:02]
+02. Mike Goldberg — Simon [03:45]
+03. Karasto — Plus [04:30]
+04. Klinikum — Stronger [04:32](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:50:09
+Лейбл: Skyheels - 10118910
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003162   (843571) от 03.04.2016
 
 VA - 5 Years With Macarize (2016) [MP3|320 кб/с] <Progressive House>
@@ -611,87 +693,6 @@ Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:975BC59DE82DCE37BFE22DAA6D40E552AE1629FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499571   (846313) от 03.10.2021
-
-Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home (3:52)
- 02. Too Weak (4:01)
- 03. Sweeping (4:04)
- 04. Lost for Words (feat Panama) (3:19)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E515388B9939FCA492AB9479ACE002A6281233CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000474   (846433) от 01.04.2016
-
-Little Big - With Russia From Love (2014) [MP3|320 кб/с] <Rave>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  With Russia From Love (02:04)
-02.  Life In Da Trash (03:20)
-03.  Public Enemy (03:08)
-04.  My Way (03:59)(   Читать дальше...   )Жанр: RaveПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F810F743127BB139AF6EAE6A684F5EBC29DB562E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378607   (846456) от 25.04.2020
-
-VA - All Killers, No Fillers LP Volume 7 (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GAW - Back & Forth [03:23]
-02. Decrypt - Bio Weapon [04:29]
-03. MQ - Bootcut Slut [04:30]
-04. Project Lando - Apollo [04:34](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C422120AB6BCDFDADB8DF051BAEB535798B1D78E
 ```
 
 

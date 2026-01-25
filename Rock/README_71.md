@@ -1,3 +1,57 @@
+###  Публикация: 1132940   (698863) от 10.05.2017
+
+VA - Space Oddities (2009) CD, Vol. 2 [MP3|320 Kbps] <Electronic, Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Air - Strange Form (5:24)
+02. A.Perry, L.Delacour - New Life (9:11)
+03. Jean-Pierre Decerf - Gates Of Pop Empire (1:50)
+04. Eddie Warner - Shut Up (2:25)(   Читать дальше...   )Жанр: Electronic, Psychedelic Rock, Prog RockПродолжительность: 01:16:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED2A4295148C5576EC071699F877E9A80209DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027017   (699846) от 17.06.2016
+
+Один в каное - Один в каное (2016) 2CD [MP3|320 кб/с] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Човен  (02:46)
+02.  Вулиця  (03:47)
+03.  Пішы  (02:35)
+04.  Мамма  (02:43)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC54CAEC97BBB600AC77ECA7811C9E7D1B56D161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132698   (700828) от 09.05.2017
 
 The Rubettes - The Singles Collection (1992) [MP3|320 Kbps] <Rock & Roll, Pop Rock, Glam>
@@ -644,60 +698,6 @@ Paul McCartney - Pure McCartney (2016) 2CD [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5587B1CE1BE60811EF8B6534A779AF359D7B4437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286218   (714921) от 01.03.2019
-
-Mike Tramp - Stray From The Flock (2019) [MP3|320 Kbps] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - No End to War 8:37
- 2 - Dead End Ride 4:07
- 3 - Homesick 5:01
- 4 - You Ain't Free Anymore 4:32(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF6E07F365DEA1CAF6EFA176E11590F89F8ECBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286012   (716681) от 28.02.2019
-
-Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine A Light
-02. That’s How Strong Our Love Is
-03. Part Friday Night, Part Sunday Morning
-04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
 ```
 
 

@@ -1,3 +1,60 @@
+###  Публикация: 166148   (977153) от 14.01.2010
+
+Echoterra - The Law of One (2009) [MP3|~224 kbps]<Symphonic/Operatic Progressive/Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Symphonic/Operatic Progressive/Heavy MetalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615439   (977168) от 08.02.2013
+
+Красная плесень - 21.12.2012 (2012) [MP3|320 кб/с]<Панк-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Письмо Обаме
+02 Если имя Ваше Лера
+03 Милиция
+04 Дусю (remix 2012)
+05 Инзе Рихтер
+06 Меня зовут Шклява
+07 Сын к отцу пришел
+08 Запорожец
+09 Тихо в лесу 999
+10 Спит человечество (КП & Master Lee)(   Читать дальше...   )Жанр: Панк-рокПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699F9D79E99997E330A6ED71919AD31E5C588A46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614243   (977262) от 08.02.2013
 
 Nick Cave and the Bad Seeds - Push The Sky Away (2013) [MP3|320 кб/с]<Alternative / Rock / Post-Punk>
@@ -659,73 +716,6 @@ magnet:?xt=urn:btih:82F269B94659D13D328B63195C32F6FB208835F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C02695F94AF16FBDC3325235FAA6B0D1E141975
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590094   (978678) от 07.02.2013
-
-Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Nightfall была основана в начале последней декады нового тысячелетия. Четверо молодых людей объединились с единственной священной целью - создать маленькое сообщество, святилище для их драгоценных мыслей, желаний, теорий и других разумных вещей.
-Они представили себя миру посредством единственного демо-релиза "Vanity" (1991). Эта лента была "официально" выпущена почти через 2 месяца. Именно тогда французский лейбл Holy Records связался с группой и предложили четырём перспективным грекам лучший шанс завоевать мир. Результат? Довольно фантастический.01. Phaethon 04:35
-02. Oberon & Titania 04:33
-03. Colonized Cultures 03:21
-04. The Nightwatch 04:49
-05. Stellar Parallax 04:05
-06. Hubris 05:18
-07. The Reptile Gods 04:42
-08. Hyperion 04:27
-09. Akhenaton, the 9th Pharaoh of the 18th Dynasty 04:10
-10. The Sand Reckoner 04:20(   Читать дальше...   )Жанр: Symphonic Black Metal (early), Dark Metal, Gothic Metal, Doom/Death MetalПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614904   (978682) от 07.02.2013
-
-Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Melodic Death Metal | Thrash Metal >
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978682.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. Out From Below
-02. Fear The World
-03. What Dwells Within
-04. Behind The Sun
-05. The River
-06. Monolith
-07. Paradox
-08. A Dying Vine(   Читать дальше...   )Тип издания: ДискографияЖанр: Melodic Death Metal | Thrash MetalПродолжительность: 00:72:39 >>>
-
-## Скачать торент
-```bash
-нет
 ```
 
 

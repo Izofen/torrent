@@ -1,3 +1,30 @@
+###  Публикация: 1462545   (1021228) от 14.04.2021
+
+Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сами музыканты утверждают, что жанр, в котором они сочиняют и исполняют свои композиции, имеют в своей основе элемент народного творчества и состоит главным образом из латинских гармоний.01. Sin Fortuna (En Vivo)
+02. El Hp
+03. Saldrй Adelante (feat. Scooby Y Sus Aguachiles)
+04. Si No Te Hubieras Ido(   Читать дальше...   )Жанр: Latino, Folk PopПродолжительность: 04:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A136385C112B699E83F5D2B657DA40EA56EC49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462116   (1021238) от 13.04.2021
 
 VA - Громкие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B1B67E11A569AA158C797E22FBFA6886073FBFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460989   (1021770) от 10.04.2021
-
-VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Юлия Морозова & Vasiliy Arefiev - А дождь не проходит (Nikolay Lavrentiev remix)
-02.Юлия Долотова - Моя планета ( Udaw Remix )
-03.Тимур Timbigfamily Девочка Хайп (M-DimA Remix)
-04.Тимур TIMBIGFAMILY - Неровно дышу (OST «Внук») (Eddie G Remix)(   Читать дальше...   )Жанр: Remix, Dance, ElectroПродолжительность: 02:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB32A9839296DCAA08B854C1DA53F7E3EA86980
 ```
 
 

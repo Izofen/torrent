@@ -1,3 +1,84 @@
+###  Публикация: 1285217   (722774) от 25.02.2019
+
+VA - Uplifting Only: Orchestral Trance Year Mix 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandro Mireno - It's Your Day (Intro Edit)
+02. Akku - Megumi (Emotional Mix)
+03. Ram & Stine Grove - RAMore (Daniel Skyver Remix)
+04. Illitheas - Levity (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3034E8E1E84A09572401D44E1427BECAE88EA03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218453   (723289) от 09.04.2018
+
+Space Drum Meditation - Space Drum Meditation (2018) [MP3|320 Kbps] <Ambient, Techno, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arp Meditation (02:15)
+02. D! Bodytalk (05:15)
+03. Tower Of Terror II (06:45)
+04. Walzer Therme (06:30)(   Читать дальше...   )Жанр: Ambient, Techno, Deep HouseПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6DE909A025934782264C00530722162039E50F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218398   (723306) от 09.04.2018
+
+VA - The Best Progressive Hits Vol.7 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZANIO & Kaiiila – Ever(Feat. Kaiiila) (Dub Mix)
+02. Illumia – Deeley (Original Mix)
+03. Evave – Falling in My Eyes (Vintage Colors Remix)
+04. Denis Neve – Last Sunrise (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F8356EF20606D1362DB97450CC22508D8A54F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218501   (723307) от 09.04.2018
 
 VA - A Sensual Lounge Experience (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -614,87 +695,6 @@ Dormantgod - Animated Bas-Reliefs (2007) [FLAC|Lossless|image + .cue] <Dark Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16293AEB255D712F729B9BC56A5C6BBFAFFB5CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218035   (725085) от 08.04.2018
-
-VA - DJ Robert Miles - In The Mix (1997) Mixed [FLAC|Lossless|image + .cue] <Breakbeat, Goa Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Offshore (4:14)
-02. Goldie - Inner City Life (3:35)
-03. Prana - Geomantik (4:10)
-04. D-Saw - Track 7:22 (2:51)(   Читать дальше...   )Жанр: Breakbeat, Goa Trance, Progressive TranceПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A68A5D5D83585FDF5DCF19CCB1E0B6C930629AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399919   (725152) от 02.08.2020
-
-Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormy Love, NM. (3:48)
- 02. Still Want U (3:33)
- 03. Guilty Love (4:33)
- 04. Desert Woman (6:15)(   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F950D1BA3AC7F9E3D31C896040BDC8FAAC850AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218204   (725208) от 08.04.2018
-
-VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Skies & Frank Laverne - Celebrate The Love (Radio version)
-02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance mix)
-03. Chris Excess - Secret (Frozen Skies remix edit)
-04. Elaine Winter - Forever Young (Tbo & Vega remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
 ```
 
 

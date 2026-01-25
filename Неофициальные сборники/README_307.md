@@ -1,3 +1,30 @@
+###  Публикация: 1561176   (516501) от 03.07.2022
+
+VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop, Dance, Shanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Иванушки International - Тополиный пух
+002 Никита - Улетели навсегда
+003 Полина Ростова - По краю дождя
+004 Краски - Сегодня к маме я приехала домой(   Читать дальше...   )Жанр: Pop, Dance, ShansonПродолжительность: 28:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6B76EB05DEFC568410B4C9D2275952DD87CC90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 374255   (516555) от 11.08.2011
 
 VA - Пиратская Станция Часть 10 (2011) [MP3|256 kbps]<Club>
@@ -695,39 +722,6 @@ VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534703   (519057) от 14.08.2012
-
-VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ralph Novell - Lagoon (Original Mix)
-02.Jaytech feat. Steve Smith - Stranger (Original Mix)
-03.Lost Emotions - Sunrise At Delimara (Original Mix)
-04.Susana & Ernesto vs. Bastian with Wezz Devall - Brave (Original Mix)
-05.Mike Sonar - Wicked 7 (Original Mix)
-06.Sou Kanai - Oriental Wind (North State & Roby K Remix)
-07.Stone N Forward - Oregano (Original Mix)
-08.LTN - Never Let Me Go (Anhken Sunset Remix)
-09.Mike Sonar & Anthya - Anytime (Original Mix)
-10.Neev Kennedy vs. Ruby & Tony - One Step Behind(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2C7B8FF5DFC9C9955C1D15D7C5DE185BED034D
 ```
 
 

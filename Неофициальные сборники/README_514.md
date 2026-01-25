@@ -1,3 +1,30 @@
+###  Публикация: 1276410   (788219) от 16.01.2019
+
+VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
+002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
+003. The Regrettes - Don't Stop Me Now
+004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276413   (788222) от 16.01.2019
 
 VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
@@ -665,33 +692,6 @@ VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202865   (789071) от 31.01.2018
-
-Алимханов А. - Instrumental Collection (2018) [MP3|320 Kbps] <Electronic, Spacesynth, Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlimkhanOV A. - Spire Synthesizer By Reveal Sound (3:09)
-02. AlimkhanOV A. - CyberForum (9:16)
-03. AlimkhanOV A. - Disco Dancer (3:37)
-04. AlimkhanOV A. - Space Odyssey (4:25)(   Читать дальше...   )Жанр: Electronic, Spacesynth, DiscoПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2336BB6514BB9F1DAAAA65BE04FCF2FB2832B6A
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1239791   (535249) от 07.08.2018
+
+VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kristina Mailana - Make It Right (Original Mix) 4:13
+02. Momentums - Love By You (Original Mix) 3:45
+03. Kid Williams - Shimmy Yam, Shimmy Yay (Original Mix) 4:13
+04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, FunkyПродолжительность: 03:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64CC91C56AE01CB79CFEEE08E67EA5CB444968DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155250   (535304) от 02.08.2017
+
+VA - The Swampilation: Volume II (2017) [MP3|320 Kbps] <Neuro Psychedelic, Psystep, Trap>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alejo & Vusive – Nocturnivore (04:01)
+02. 5AM – Vernation (04:44)
+03. MantisMash – Deep Float (07:01)
+04. Droplitz – Swimming Deep (05:50)(   Читать дальше...   )Жанр: Neuro Psychedelic, Psystep, TrapПродолжительность: 03:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA314FD7455FF79AF8A1AD9C4D11CB95AE80773
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155236   (535306) от 02.08.2017
+
+Martian Love - 5 Albums (2009-2014) Discography [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Happening (2:54)
+02. On The Hills (4:46)
+03. In Your Eyes (4:22)
+04. Escape (4:00)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 03:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1AC75BCD30316BE95588EAF5F6010B2CB96729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239833   (535323) от 07.08.2018
 
 Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC|Lossless|tracks+.cue] <Modern Classical>
@@ -608,87 +689,6 @@ Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-Schoo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925547   (539007) от 07.08.2015
-
-Dynatron - Escape Velocity (2012) [MP3|320 кб/с]<80s, dreamwave, electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Space Operators (04:35)
-2. Fireburner (03:57)
-3. Propulsion Overdrive (05:15)
-4. Aurora Nights (08:24)(   Читать дальше...   )Жанр: 80s, dreamwave, electronicПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB1C0273A505924CA67A2BF1BBA68D4525F724D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557465   (539071) от 16.06.2022
-
-3Force - Crossfire (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Darksynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crossfire (00:04:10)
-02 - Pursuit (00:05:02)
-03 - Oversoul (00:04:56)
-04 - Olympus (00:04:36)(   Читать дальше...   )Жанр: Synthwave, DarksynthПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4826A2F5A67F2A4967FB4C12B6B9BFD8B00D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925483   (539112) от 07.08.2015
-
-Droid Bishop - Beyond The Blue (2014) [MP3|320 кб/с]<Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanisher( 03:56)
-02. Out Of My Mind (Ft. Sam Sparro) (04:33)
-03. Beyond The Blue (04:51)
-04. Letter To Earth (01:01)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0701B1C52677B473F081A1736DBE001CE76D538D
 ```
 
 

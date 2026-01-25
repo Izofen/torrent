@@ -1,3 +1,30 @@
+###  Публикация: 1001007   (855417) от 27.03.2016
+
+VA - Зажигательный музон в машину (2016) [MP3|318-320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loquai — Nightcrawler (09:58)
+02. J.Verner — Sentindo (09:36)
+03. Essential DJ Team — Bad boyz (Club mix) (08:49)
+04. STA — Insomnia (08:42)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 18:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B110554330F1EEBA0B6EB6C04A70F211A5EA0961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110085   (855458) от 01.03.2017
 
 VA - Хиты в тачку. Сборник 5 (2017) [MP3|256 Kbps] <Pop>
@@ -669,33 +696,6 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2B78F084E24202B78FD380659CFB50C65877EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109190   (857349) от 28.02.2017
-
-VA - Deep House Collection Vol.110 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857349.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abbi - The Things We Had (Original Mix) 3:43
-002. Aberton - Pictures In My Mind (Original Mix) 4:55
-003. Abriviatura IV - Live Me (Original Mix) 5:34
-004. Alesso - Falling (Lisitsyn Remix) 4:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB5828CADF278520B7FED3CF1906B25FA9E9B2B
 ```
 
 

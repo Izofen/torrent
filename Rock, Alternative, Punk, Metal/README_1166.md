@@ -1,3 +1,57 @@
+###  Публикация: 984008   (942121) от 07.02.2016
+
+The Cult - Hidden City (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Energy (4:28)
+02. No Love Lost (3:14)
+03. Dance The Night (4:16)
+04. In Blood (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D359264E3DC126F087CF0CF15F49BCE3EC857A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983831   (942199) от 07.02.2016
+
+The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Midnight Summer Dream
+02 - It's a Small World
+03 - Ships That Pass in the Night
+04 - The European Female (In Celebration of)(   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983998   (942201) от 07.02.2016
 
 Ace Frehley - Frehley's Comet (1987) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -641,60 +695,6 @@ Last In Line - Heavy Crown (2016) [MP3|320 кб/с] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF2D5C2FC3D5E8BF06245561C88D9242AA8C6F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983426   (943782) от 06.02.2016
-
-Nordic Union - Nordic Union (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The War Has Begun [03:52]
-02. Hypocrisy [03:42]
-03. Wide Awake [03:27]
-04. Every Heartbeat [04:00](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0E8F2F65ACF731BB7628B17DDA015D5236C7C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983396   (943791) от 06.02.2016
-
-Алексей Чернышёв - Пресвятая Русь (2015) [FLAC|lossless|image +.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пресвятая Русь (04:22)
-02. Потребитель (демо) (03:08)
-03. The Golden Eagle (04:22)
-04. Пресвятая Русь (инструментальная версия) (04:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2BB5F469C7D98E1DE83E63671B4275E8D80BB0
 ```
 
 

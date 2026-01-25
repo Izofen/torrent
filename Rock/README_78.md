@@ -1,3 +1,57 @@
+###  Публикация: 1206233   (782114) от 14.02.2018
+
+No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Unify Express
+2. Invasor Ballad (The Fallen Mask)
+3. You Are in Teatro
+4. Fly Under the Moon When Midnight Rises(   Читать дальше...   )Жанр: Rock, Modern RockПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206598   (782143) от 14.02.2018
+
+Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Blues
+02. Angels
+03. I Wanted You
+04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199273   (782776) от 10.05.2010
 
 Shocking Blue - 2 Compilations & 1 Remastered (Japan Album) (1973-2008) [MP3|320 kbps]<Classic Rock>
@@ -647,60 +701,6 @@ Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388647   (786544) от 07.06.2020
-
-VA - Shoot To Thrill A 2020 Legends Tribute To AC/DC (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keri Kelli, Richard Kendrick, Chris Wimple, Lyle Muncy - Highway to Hell
-02. Sheldon Tarsha, Richard Kendrick - Back in Black
-03. Hells Belles - Rock & Roll Damnation
-04. Damon Johnson, Derrick LeFevre, Richard Kendrick, Chris Wimple III - Dirty Deeds(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF757A23E5E6A1A18F1D87615C6A5232A924079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388654   (786549) от 07.06.2020
-
-Rockopera - Tribute to Pink Floyd The Wall Live Orchestra (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Flesh?
-02. The Thin Ice
-03. Another Brick in the Wall, Pt. 1
-04. When the Tigers Broke Free(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CF60D5355C924752D2D278706750294991FE2A
 ```
 
 

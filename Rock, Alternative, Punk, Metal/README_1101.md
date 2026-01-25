@@ -1,3 +1,57 @@
+###  Публикация: 1376393   (860699) от 17.04.2020
+
+Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Tredje Dagen [09:55]
+02. Hyllningen [11:59]
+03. Domd [15:39]
+04. Den Sista Resan [07:00](   Читать дальше...   )Жанр: Doom Metal, Sludge, Space Rock, StonerПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376363   (860701) от 17.04.2020
+
+Crusher - Unleashed (2020) [FLAC|Lossless|tracks] <Melodic Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violence Stays Violent (5:06)
+02. The Others (4:26)
+03. Time-Leap Pit (6:32)
+04. Downfall (6:15)(   Читать дальше...   )Жанр: Melodic Thrash MetalПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF240688610CD1758418A5A471932FD41353826F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376272   (860702) от 17.04.2020
 
 Vermicide Violence - The Praxis of Prophylaxis (2020) [MP3|320 Kbps] <Deathcore>
@@ -649,60 +703,6 @@ Dёргать! - Нереально, но легально (2021) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3097F319FDC7035B2801EE71E188844F2DE2D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497855   (861363) от 24.09.2021
-
-All For The King - Let There Be Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Six-Winged Seraphim
-02. Let There Be Light
-03. I Am He
-04. The Way, Truth and Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027F4B57FE950E072229E5282AAB9DD7E2C38A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497782   (861367) от 24.09.2021
-
-Inglorious - Heroine (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of The Night (Whitney Houston cover)
-02. Barracuda (Heart cover)
-03. Midnight Sky (Miley Cyrus cover)
-04. Nutbush City Limits (Tina Turner cover)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882C886ADD129E962FDBC16AD805BA713119E60C
 ```
 
 

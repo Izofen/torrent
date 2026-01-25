@@ -1,3 +1,54 @@
+###  Публикация: 235771   (910293) от 05.02.2011
+
+The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294183   (910382) от 29.01.2017
+
+Faces - 5 Albums (1970-1976) Japanese Limited Release, Reissue, Remastered, 2010, Warner Music [FLAC|Lossless|tracks + .cue]<Rock, Blues-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pool Hall Richard (4:26)
+02. Cindy Incidentally (2:37)
+03. Ooh La La (3:32)
+04. Sweet Lady Mary (5:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 03:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E730CFCD0FC64D211392BFD4475830C3DD101A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098140   (910422) от 29.01.2017
 
 Гражданская Оборона - Долгая Счастливая Жизнь (2004) Reissue, 2016, Выргород [FLAC|Lossless|tracks + .cue] <Punk Rock>
@@ -641,60 +692,6 @@ As Lions - Selfish Age (2017) [MP3|320 Kbps] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8B9EF860B7C2172F0EBADE46899E68300467C94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098192   (910856) от 29.01.2017
-
-Trappazat - From Dusk Till Dawn (2012) [FLAC|Lossless|image + .cue] <NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. From Dusk Till Dawn (05:09)
-2. I Am D.O.A. (06:38)
-3. Can't Stand the Heat (06:24)
-4. Breakout (07:57)(   Читать дальше...   )Жанр: NWOBHMПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98C95CDD0022778AB2B2059EDA25ACB67BD4A30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098185   (910877) от 29.01.2017
-
-Seven Sisters - Seven Sisters (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny's Calling
-02. Highways Of The Night
-03. The Silk Road
-04. Seven Sisters(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF4C1D7CC29DA561249C2DB7DF3313881E1FE52
 ```
 
 

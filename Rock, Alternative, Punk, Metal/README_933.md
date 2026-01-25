@@ -1,3 +1,57 @@
+###  Публикация: 1290315   (678492) от 20.03.2019
+
+Martha - Love Keeps Kicking (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart is Healing (03:08)
+02. Sight for Sore Eyes (03:45)
+03. Into This (03:11)
+04. Wrestlemania VIII (01:48)(   Читать дальше...   )Жанр: Indie Rock, PunkПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8768ED44116BF6361A8813A72B69D4750E619979
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536133   (678536) от 10.03.2022
+
+Ghost - Impera (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imperium (01:40)
+ 02. Kaisarion (05:02)
+ 03. Spillways (03:17)
+ 04. Call Me Little Sunshine (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC2196F72E34155FE4917025A416C0D2CD386EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536211   (678550) от 10.03.2022
 
 Ghost (Ghost B.C.) - Impera (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
@@ -653,60 +707,6 @@ Linkin Park - One More Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BF427A56BE30BEFAFE3E50B3C0384E581F21E0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222999   (680669) от 01.05.2018
-
-Билли Новик (Billy's Band) - Песни Егора Летова (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680669.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Я, как давний фанат Летова, хотел бы спеть для вас свои самые любимые песни Егора. Для всех тех, кто ценит и главное, для тех, кто по какому-то недоразумению до сих пор не открыл для себя гений Летова. Его кубический сарказм замешанный на кровавой боли и вселенской любви. Не бойтесь, не будет никакого джаза. Только песни. Как дань благодарности, уважения и (   Читать дальше...   )1. Здравствуй, черный понедельник
-2. Непонятная песенка
-3. Зоопарк
-4. Мама мама(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737B19D65ACF5455D1B4FC899D02CFBDFADC7873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135370   (680803) от 19.05.2017
-
-Foreigner - 40 (2017) 2CD [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680803.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Feels Like The First Time (Remastered)
-02. Starrider (Remastered)
-03. Cold As Ice (Remastered)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9E3C8198FCE45DAF7A69EE1F076BD9467ADF96
 ```
 
 

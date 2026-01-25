@@ -1,3 +1,84 @@
+###  Публикация: 1134971   (685086) от 17.05.2017
+
+VA - Ibiza-Unique Presents Fairy Tails Vol.2 (Mixed by Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Bunka & Hammond Schneider - Desierto  4:16
+02.  Foundland - A Few More Survivors  6:24
+03.  Haldo - Back To Joy (feat. Georgia Cee) (Lounge Deep)  6:46
+04.  Graphite - Asmat (Alexander F Mix)  8:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0664DD4F1A071C7F10C56CE30A779CB3A4DA0E0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134953   (685213) от 17.05.2017
+
+VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ingo Herrmann - Serenata (Original Mix)  3:51
+02.  Vitali And His Lounge Orchestra - Smooth Dance (Original Mix)  5:15
+03.  Kulyela - Rare Mambo (Original Mix)  3:56
+04.  Pulse Tone - Zeus (Original Mix)  3:45(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A090639BBEB9C2D32DBAA521B8EFE1E74E78E2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134944   (685214) от 17.05.2017
+
+VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kai French - Balearic Dreams (Original Mix)  3:05
+02.  Urban Phunk Society - Night Train (Original Mix)  3:21
+03.  Castlebed - Hazy Place (Original Mix)  3:50
+04.  Zer - Yellow Reflections (Original Mix)  5:13(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF91108BD373496C6A56A98939334ADCB3A737B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134943   (685215) от 17.05.2017
 
 VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -617,87 +698,6 @@ Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594F38ACC46A2067B2CC36C81920F9648A1069CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222203   (687008) от 28.04.2018
-
-Prairie - After the Flash Flood (Bonus Track) (2018) Denovali Records [FLACFLAC|24/44.1|Lossless|WEB|tracks] <Experimental, IDM, Industrial, Ambient>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flash Flood (05:36)
- 02. Raindeaf (03:46)
- 03. Sisters (05:06)
- 04. A Permanent War Economy (03:12)(   Читать дальше...   )Жанр: Experimental, IDM, Industrial, AmbientПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5ED5D1E1E20C06F24774FC15726D8967725CF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134718   (687083) от 16.05.2017
-
-Rainforest - Life On Earth (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle, Ambient, Downtempo>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth From Above (07:45)
- 02. Garden Of Souls (Part I) (07:49)
- 03. Lyla & Saleem (05:33)
- 04. Black Ocean Temple (06:59)(   Читать дальше...   )Жанр: Drum & Bass, Jungle, Ambient, DowntempoПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A28EDD60B5F9E07DBF24925C5D4550D80EC157
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222251   (687110) от 28.04.2018
-
-VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic feat. Ana Criado - Ask Me Anything 3:10
-02. 4 S'trings feat. Fenna Day - Everybody's Gotta Learn Sometime 3:13
-03. Katty Heath - Connection Through Sound 3:57
-04. Steve Allen feat. Sue McLaren - Old Flame 3:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
 ```
 
 

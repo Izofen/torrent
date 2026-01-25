@@ -1,3 +1,57 @@
+###  Публикация: 1401334   (711326) от 09.08.2020
+
+Dukes Of The Orient - Freakshow (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dukes Return (05:01)
+02. The Ice Is Thin (06:01)
+03. Freakshow (04:29)
+04. The Monitors (04:39)(   Читать дальше...   )Жанр: Progressive Rock, Melodic RockПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4427246FFD9F15922CFB2A17BC8972933620BC74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401339   (711335) от 09.08.2020
+
+Onslaught - Generation Antichrist (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise to Power (2:05)
+02. Strike Fast Strike Hard (4:38)
+03. Bow Down to the Clowns (4:51)
+04. Generation Antichrist (5:43)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770444808441E53C342FDFD03B4C32F5E1FFAC4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286712   (711345) от 03.03.2019
 
 Trick Pony - Trick Pony (2001) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
@@ -643,60 +697,6 @@ Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D077AF60498CA60B63F69CCF56CDA9AEDDC301EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025313   (712129) от 11.06.2016
-
-Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative-Rock, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dull Times/The Moon (7:00)
-02. Solemn Oath (4:00)
-03. Hag (4:33)
-04. Casual Party (3:54)(   Читать дальше...   )Жанр: Alternative-Rock, Indie-RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B5275B158EB16ED686FE5DB1BBA7EF87329E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025303   (712131) от 11.06.2016
-
-Thundercats - The Covenant (2016) [MP3|320 кб/с]<Progressive Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712131.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:26] 01. Open The Door
-[04:05] 02. GG WP
-[03:57] 03. Zombie Pigman From The Nether
-[02:53] 04. Watching Through The Mirror(   Читать дальше...   )Жанр: Progressive DeathcoreПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932ABE8FF17FD346986288BA831767C5735F2696
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1136703   (670766) от 24.05.2017
+
+Papa Roach - Crooked Teeth (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Live At Fillmore Detroit) (1:12)
+02. Face Everything And Rise (Live At Fillmore Detroit) (3:18)
+03. Getting Away With Murder (Live At Fillmore Detroit) (4:00)
+04. Between Angels And Insects (Live At Fillmore Detroit) (4:18)(   Читать дальше...   )Жанр: Alternative Rock |Продолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B945613C178AB0D45464364D773D570A40061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536829   (670877) от 14.03.2022
+
+Виктор Зинчук - Секрет релакса (2021) [FLAC|Lossless|WEB-DL|tracks] <Guitar, Instrumental Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апрель (Времена года) (3:28)
+02. Лето (Времена года) (2:39)
+03. Осень (Времена года) (1:38)
+04. Рождество (Времена года) (1:49)(   Читать дальше...   )Жанр: Guitar, Instrumental Rock, ClassicalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DFF2377A9CDC1B1A3D1D3B567DF2696E7C38D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536821   (670880) от 14.03.2022
 
 Виктор Зинчук - Триумф гитары (2015) [FLAC|Lossless|tracks + .cue] <Guitar, Instrumental Rock, Classical>
@@ -649,63 +703,6 @@ Chelsea Grin - Self Inflicted (2016) [FLAC|Lossless|tracks + .cue] <Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECEBBDB93EACD9C5BED57797DAC45CA58A53C88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291075   (672336) от 23.03.2019
-
-Спирин (Тараканы!) и Кежватов - Бард - это слово из четырёх букв (2019) Live [MP3|320 Kbps] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выходной
-02. Летом
-03. Как в 3-й Quake
-04. 365 дней(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C23B34CAA0324A466B7824DA5F086D12882D2FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510192   (672493) от 13.06.2012
-
-Pg.lost - 3 albums (2007-2012) [FLAC|Lossless] <Post-Rock, Shoegaze, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirits Stampede (06:32)
-02. Vultures (05:03)
-03. Terrain (05:29)
-04. Sheaves (07:17)
-05. I Am a Destroyer (09:18)
-06. Gathering (07:54)
-07. Weaver (13:17)2007-2012Жанр: Post-Rock, Shoegaze, InstrumentalПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 

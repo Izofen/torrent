@@ -1,3 +1,30 @@
+###  Публикация: 1501971   (831749) от 12.10.2021
+
+VA - Beatport Chill House: Sound Pack #355 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lisa Lerkenfeldt - Champagne Smoke
+002. Floex - The Light
+003. Jon Sweetname - Flor Del Sol
+004. Nightdrive - Behind The Cloud(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 08:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E48004DE2E2530344CC1A0A100D1D23345E878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501927   (831750) от 12.10.2021
 
 VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114260   (833489) от 14.03.2017
-
-VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833489.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aeternitas - House Of Usher 4:26
-002. Aeternitas - Roderick 3:27
-003. Akoma - Enticing Desire 4:36
-004. Akoma - Mesopotamia 4:39(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1465605   (1018806) от 28.04.2021
+
+The Luka State - Fall In Fall Out (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel It
+02. Bury Me
+03. Kick In The Teeth
+04. Fake News(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, PunkПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3125CED2838E6F1C2A307E7C07B00E52CF44DF81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465916   (1018810) от 28.04.2021
+
+This Winter Machine - The Man Who Never Was (2016) [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Man Who Never Was (16:05) :
+- a) Asleep
+- b) Dreaming
+- c) Snow(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693404ED5819467AF74D0881B4AF638235B6A93F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465987   (1018821) от 28.04.2021
 
 Cannibal Corpse - Violence Unimagined (2021) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -638,60 +692,6 @@ Dirty Honey - Dirty Honey (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C3BD994993AA6E56BB6A055DD3B58C4668F7BE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465470   (1019157) от 26.04.2021
-
-Jeff Carlson Band - Yesterday's Gone (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Reckoning (01:10)
-02. Guilt Is Your Weapon (03:39)
-03. Yesterdays Gone (04:06)
-04. Promise The Moon (03:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4461BB2AE862E7B233426631570FB36C0CC05EBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465386   (1019158) от 26.04.2021
-
-Reach - The Promise Of A Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Frontier
-02. The Law
-03. Young Again
-04. Satellite(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF953F32B375599B4426B0AD2FBD6C1110805FFF
 ```
 
 

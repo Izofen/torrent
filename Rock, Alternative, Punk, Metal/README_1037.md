@@ -1,3 +1,57 @@
+###  Публикация: 1274552   (793010) от 07.01.2019
+
+Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrows (04:48)
+02. All for Believing (Original Demo) (02:55)
+03. Scar (03:33)
+04. Ten Days (03:46)(   Читать дальше...   )Жанр: Indie, Pop RockПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96E5F65FC2CEBC5B3C80373FB702E67F853B520
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274462   (793050) от 07.01.2019
+
+The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftershow (ReWired) (02:46)
+02. Cavorting (ReWired) (03:11)
+03. Bide Your Time (ReWired) (03:53)
+04. What Took You So Long (ReWired) (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274354   (793052) от 07.01.2019
 
 The Ocean - Phanerozoic I: Palaeozoic (2018) Limited Edition 2CD [FLAC|Lossless|tracks + .cue] <Progressive, Atmospheric Sludge Metal>
@@ -633,60 +687,6 @@ Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB2C36321888E6B4DD3CEC103BA17E9B83D3085C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122626   (793623) от 06.04.2017
-
-The Crest - Letters From Fire (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Walk With Me (3:43)
-02. Butterflies & Dragons (4:07)
-03. Thorn (4:15)
-04. Never Sleep Again (3:52)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407C38D9FD6917C2FFCB7268381D9F939AF2A0E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386556   (793629) от 30.05.2020
-
-Earthside - A Dream in Static (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Closest I've Come (8:00)
-02. Mob Mentality (9:56)
-03. A Dream In Static (7:35)
-04. Entering The Light (5:27)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD4CD0B73DBB718229F93AE842114DB06B4F252
 ```
 
 

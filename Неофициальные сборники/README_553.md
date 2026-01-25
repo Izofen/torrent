@@ -1,3 +1,30 @@
+###  Публикация: 1114260   (833489) от 14.03.2017
+
+VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833489.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aeternitas - House Of Usher 4:26
+002. Aeternitas - Roderick 3:27
+003. Akoma - Enticing Desire 4:36
+004. Akoma - Mesopotamia 4:39(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54B6F0A4CDBD4294DC5068009DD2B57F4F767B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114238   (833490) от 14.03.2017
 
 VA - Deep House Collection Vol.111 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -669,33 +696,6 @@ VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005323   (834163) от 08.04.2016
-
-VA - Русский суперсборник поп музыки (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ваня Чебанов - Все Хорошо
-02. Элемент - Музыка
-03. Анна Шульгина - Другая Я
-04. Кристина Орбакайте - Я Гадаю На Ромашке(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E84C665242650DF7C12846403CC8802E67D6BB
 ```
 
 

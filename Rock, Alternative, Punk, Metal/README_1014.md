@@ -1,3 +1,54 @@
+###  Публикация: 1210801   (778515) от 04.03.2018
+
+CCS (Collective Consciousness Society) - Discography: 4 albums, 5 CD (1970-2013) [FLAC|Lossless|image + .cue] <Classic Rock, Jazz Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из самых ярких представителей британской сцены, которому удавалось удивительно органично соединять в своем творчестве элементы блюза, джаза и рок-музыки был певец и гитарист Алексис Корнер. Корнер настоящий патриарх британского блюза, настоящий гуру. Оставаясь всегда немного в тени, он благославил и вывел в люди таких выдающихся артистов, как Мик Джаггер, Эрик (   Читать дальше...   )--------------------------Жанр: Classic Rock, R&B, Jazz Rock, Folk |Продолжительность: 05:05:08 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2181D6B32D75FD4BEE1B07A9791E4D690C9DC3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210803   (778524) от 04.03.2018
+
+Andrew W.K. - You're Not Alone (2018) [FLAC|Lossless|tracks] <Hard Rock, Arena Rock, Party Hard>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Partying 01:36
+02. Music Is Worth Living For 04:22
+03. Ever Again 03:18
+04. I Don't Know Anything 02:54(   Читать дальше...   )Жанр: Hard Rock, Arena Rock, Party HardПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23088CE1A868B71634F12EF7D1171EA734C028AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210675   (778541) от 04.03.2018
 
 Exodus - Bonded By Thrash (2017) 2CD Bootleg [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -640,60 +691,6 @@ Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Sh
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768F573F64FEB7F70CAC613E0C3E9B2ADD591F86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209196   (779503) от 25.02.2018
-
-Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Екран (01:09)
-02. Іній (03:31)
-03. Випустити з лап (04:10)
-04. Вестерн (03:50)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209054   (779528) от 25.02.2018
-
-MegaDriver - Metalvania (2016) [MP3|192 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk 01:
-01 - Moonlight Nocturne (Castlevania: Symphony Of The Night)
-02 - Wicked Child (Castlevania)
-03 - Opposing Bloodlines (Castlevania: Rondo Of Blood)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592A5CACE87238CB5590E6EE99A37F8AFC777E65
 ```
 
 

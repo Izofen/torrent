@@ -1,3 +1,84 @@
+###  Публикация: 1204725   (784398) от 07.02.2018
+
+VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
+02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
+03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
+04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204685   (784404) от 07.02.2018
+
+VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax - Close 2 U (feat Mike Schmid - Original mix)
+02. Tritonal - Getaway (feat Angel Taylor - Jengi Beats remix)
+03. LEVV - Collateral Damage (Matt Fax remix)
+04. Universal Solution - In Your System (Hexlogic remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2FA4B8D08E893E84B4EC105709E2F1A4B43FBF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204724   (784407) от 07.02.2018
+
+VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ibiza House Crew  -  Who Knows (Dimitri Vegas & Like Mike Remix)  5:38
+02.  Spencer & Hill  -  Cool (Afrojack Remix)  6:23
+03.  Electro Xtreme  -  One Touch Away (Dallask Radio Edit)  3:12
+04.  Spencer & Hill  -  Less Go! (Porter Robinson Remix)  7:04(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9718C6E00368F03D2B51878E0883C3D7C4E1FF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204803   (784409) от 07.02.2018
 
 VA - Neural Attacks Vol.1 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -614,87 +695,6 @@ Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BB109725B8955CAFFA8FE78642B22A910213877
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204254   (784975) от 05.02.2018
-
-VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
-02.  Talamanca  -  Meditation (Deep Mix)  7:21
-03.  Approaching Black  -  You Are (Original Mix)  8:08
-04.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  6:12(   Читать дальше...   )Жанр: HouseПродолжительность: 02:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC449E5DDCC6938C907EFF5B7DA8C57C23B8E7C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204380   (784977) от 05.02.2018
-
-VA - In The Mix 006 - Progressive Sessions (Mixed by Gai Barone) (2018) [FLAC|Lossless|tracks] <Progressive House, House,Progressive Trance, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gai Barone – Tanita (Intro Mix) (06:32)
-02. Tannura – Halfway (07:54)
-03. Gai Barone – Cantica (Gai Is Coming To Town Remix) (08:48)
-04. Kymatik – La Bataeu Ivre (07:48)(   Читать дальше...   )Жанр: Progressive House, House,Progressive Trance, TranceПродолжительность: 05:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:644B707FB446907C7A48C3BDB7CEA5687016D5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277249   (784979) от 21.01.2019
-
-Bright Light Bright Light - Make Me Believe In Hope (2019) Deluxe Edition [MP3|320 Kbps] <Indie, Alternative>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immature
-02. Feel It
-03. Love Part II
-04. Waiting For The Feeling(   Читать дальше...   )Жанр: Indie, Alternative, ElectroПродолжительность: 01:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBE1B3D70680A1ACE7531F8ECDFEBED7CD058CA
 ```
 
 

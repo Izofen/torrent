@@ -1,3 +1,30 @@
+###  Публикация: 1138578   (663165) от 30.05.2017
+
+VA - SpaceSynth & ItaloDisco Hits Vol.26 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D.White - Generous Love (Extended Version) 7:13
+02.  Giuseppe Alicata - Parla Con Me 5:54
+03.  Linda Jo Rizzo - Under Fire 5:59
+04.  SpaceQuake - Let's Fly 5:42(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC7F3AB431A843EED0492708F72AB1CF6E47F5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138642   (663170) от 30.05.2017
 
 VA - New Sounds & More Power Vol.12 (2017) [MP3|320 Kbps] <EBM, Futurepop, Synthpop>
@@ -662,30 +689,6 @@ VA - Дискотека Hit FM. Любимая музыка. Сборник № 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E2964509DBF870613306860F3DAC6CB3DA94E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340503   (665163) от 22.05.2011
-
-VA - Хитовый Смак (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F4A1AA204CB4360238FBB78E2CA5EA95DD7919
 ```
 
 

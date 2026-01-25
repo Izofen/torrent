@@ -1,3 +1,30 @@
+###  Публикация: 1098758   (908824) от 30.01.2017
+
+VA - Rush Funky - Essential Deep House (2017) [MP3|320 Kbps] <Tech House, Soulful, Club, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seryi - Ray Of Sun (Original Mix) 06:05
+02. Marcus Schossow - Raw (Extended Mix) 05:30
+03. 3Lau Ft. Neonheart - Fire (Price & Takis Remix) 03:06
+04. Mauro Oliveira - Statick Wave Soul 07:42(   Читать дальше...   )Жанр: Tech House, Soulful, Club, Nu DiscoПродолжительность: 03:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D08B906818776D6D15B5FF362AAEEB0787DDCBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098436   (908956) от 30.01.2017
 
 VA - Top 100 шансон зимний. Часть №3 (2017) [MP3|256 Kbps] <Шансон>
@@ -662,33 +689,6 @@ VA - Chilltrap Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBC2A01F52C83F1A2008C45C2C310A7120718E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097973   (910635) от 29.01.2017
-
-VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алсу - Я Пойду Чуть-Чуть Поплачу 3:37
-002. Santey Feat. Emelie Cyreus - Naked Souls 3:29
-003. Чаян Фамали - Моделька 3:31
-004. Mona - Счастье 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
 ```
 
 

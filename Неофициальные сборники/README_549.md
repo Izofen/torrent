@@ -1,3 +1,30 @@
+###  Публикация: 1115489   (826655) от 18.03.2017
+
+VA - Touch You Dream: Relax Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826655.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Above & Beyond - No One On Earth
+002. Lamar Ensemble - Zero Hour
+003. VEKY - Here Without You
+004. Aqua Mundi - Mezcal Shadows(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8E45B45C6345160EF892E14D58A3913D2D8B12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115552   (826656) от 18.03.2017
 
 VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -669,33 +696,6 @@ VA - Sports Dance Music (2016) [MP3|320 кб/с] <Progressive Trance, Dance Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0AF64A8346A6FF171C443340D68A08B80C6FDED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006170   (828976) от 11.04.2016
-
-VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лера Туманова - Покажи Мне Любовь
-02. Виктория Дайнеко - R.E.D.
-03. Dan Balan - Домой
-04. Mary Lambert Feat. Angel Haze & K.Flay - Ribcage(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDB9A97AA44D8B96CF9754D2DD316F0E664063C
 ```
 
 

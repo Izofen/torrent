@@ -1,3 +1,57 @@
+###  Публикация: 1466343   (1018405) от 30.04.2021
+
+Gojira - Fortitude (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Born For One Thing [00:04:20]
+02 - Amazonia [00:05:00]
+03 - Another World [00:04:24]
+04 - Hold On [00:05:30](   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B1C8121C0B5E97577B2B98A84753A6DBFCDF6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466522   (1018406) от 30.04.2021
+
+Touch - Tomorrow Never Comes (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow Never Comes
+02. Let It Come
+03. Swan Song
+04. Try To Let Go(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28FBED86733625B3C47E6F23DE5897E115B8ED78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466198   (1018437) от 30.04.2021
 
 Инна Пиварс и Гистрионы - Певчие Птицы В Лесу Берендеев (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Folk Rock>
@@ -641,60 +695,6 @@ Xiu Xiu - Oh-No (2021) [MP3|320 Kbps] <Experimental, Indie, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80687C6C917154B9ED9CCFC50EF48C03F95C5F22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465605   (1018806) от 28.04.2021
-
-The Luka State - Fall In Fall Out (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel It
-02. Bury Me
-03. Kick In The Teeth
-04. Fake News(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, PunkПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3125CED2838E6F1C2A307E7C07B00E52CF44DF81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465916   (1018810) от 28.04.2021
-
-This Winter Machine - The Man Who Never Was (2016) [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Man Who Never Was (16:05) :
-- a) Asleep
-- b) Dreaming
-- c) Snow(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693404ED5819467AF74D0881B4AF638235B6A93F
 ```
 
 

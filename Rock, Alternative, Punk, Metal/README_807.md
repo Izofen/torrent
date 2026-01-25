@@ -1,3 +1,57 @@
+###  Публикация: 1047528   (549338) от 30.08.2016
+
+Viсiоus Rumоrs - Соnсussiоn Рrоtосоl (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concussion Protocol
+02. Chemical Slaves
+03. Victims Of A Digital World
+04. Chasing The Priest(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F28E724A1ED4973D9AB9FDB464368C435ADF2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047514   (549339) от 30.08.2016
+
+Неlstаr - Vаmрirо (2016) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken Into Darkness
+02. Blood Lust
+03. To Dust You Will Become
+04. Off With His Head(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB4853CC7B0EEF3B3CC2C3BDE8E44BE6677A17C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213191   (549480) от 26.07.2018
 
 Nightwish - Decades (2018) Compilation [FLAC|Lossless|WEB-DL|tracks|24Bit] <Symphonic Metal, Power Metal>
@@ -641,60 +695,6 @@ Vader - Iron Times (2016) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034E9B1620C4ECDF03868AAE0D33C19BA413D3E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046887   (551021) от 28.08.2016
-
-Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deathrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Utopian Scream 03:37
-02. New Hip Moon 03:07
-03. Crying Wolves 05:06
-04. Futureshock 03:13(   Читать дальше...   )Жанр: Post-punk, gothic rock, deathrockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047015   (551023) от 28.08.2016
-
-Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Talks - 5:46
-02. Don’t Cry Sister - 3:03
-03. Sensitive Kind - 5:31
-04. Cajun Moon - 3:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EB7DD7F1952CDB3B0CEEF5CC3ACBDAFE8425DD
 ```
 
 

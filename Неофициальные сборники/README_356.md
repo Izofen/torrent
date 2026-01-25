@@ -1,3 +1,30 @@
+###  Публикация: 1300625   (587952) от 08.05.2019
+
+Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Rising
+02. Jawbreaker
+03. Love Zone
+04. Leather Rebel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300624   (588033) от 08.05.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -659,33 +686,6 @@ VA - Ищу тебя Новые хиты шансона (2015) [MP3|256 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC2C87CC0412DAACBFD604725BBAB7C8E7BEDCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917065   (589994) от 10.07.2015
-
-VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Spring - When It's Gone (Feat. Flo Rida) (Big Beat Remix Edit)
-02. M.Iam.I - Roll (Feat. Ludacris, Slow To Die & Adriana)
-03. Daniel Tek Vs Matthew Bee - Gimme The Noise (Alien Cut Remix) (Feat. Aryfashion)
-04. Kryder - Percolator (Feat. Cajmere)(   Читать дальше...   )Жанр: House, Bigroom, Progressive, FunkyПродолжительность: 01:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B705B1FAB7C125875A08D1CE478C50F62FB6A30
 ```
 
 

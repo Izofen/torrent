@@ -1,3 +1,54 @@
+###  Публикация: 1377694   (850161) от 23.04.2020
+
+The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AftermathЖанр: Metalcore, Melodic HardcoreПродолжительность: 00:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CF6CB6AC7A9BC4E89F51DF955AA6A98E9059DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002102   (850210) от 30.03.2016
+
+Louna - Песни о мире (С симфоническим оркестром Globalis) (2016) Live [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестровая увертюра
+02. Зачем
+03. Путь к себе
+04. Кто, если не мы(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF830D79864747E8FA115BA18EAEC0B318A5CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001875   (850214) от 30.03.2016
 
 Asking Alexandria - The Black (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Metalcore>
@@ -638,60 +689,6 @@ Infant Annihilator - The Elysian Grandeval Galeriarch (2016) [MP3|320 Kbps] <Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4CCD02162E65F1879782928CF601C841E0DC176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110810   (851848) от 03.03.2017
-
-Мураками - Ипи (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851848.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Старики
-2. Незнакомы
-3. Наш страх
-4. Старики (Инструментальная версия)Жанр: RockПродолжительность: 00:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAD6BCEBA1DFEAC681B31D08B83F68FCE1F103B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110381   (851852) от 03.03.2017
-
-Rainbow - The Best of Rainbow (1981) 2CD, Compilation, Reissuse, 1985, Polydor [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long (3:54)
-02. Man on the Silver Mountain (4:40)
-03. Lost in Hollywood (4:53)
-04. Jealous Lover (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CF8E1F922AD756E572B7427127ACC32009A00E
 ```
 
 

@@ -1,3 +1,82 @@
+###  Публикация: 1450665   (1028904) от 27.02.2021
+
+Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Darkwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening Credits [3:17]
+ 2. Exoterica [5:43]
+ 3. Those That Lurk Beyond [3:48]
+ 4. Memento Mori [4:13](   Читать дальше...   )Жанр: Darksynth, DarkwaveПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D855814276B68DDC24F5978505D0D71FC00C773C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1073209   (1028947) от 26.02.2021
+
+Warmth - Discography 31 Releases (2013-2021) Rohs! Records, Etoka Records, Archives [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven Laux - Imaginary Time (06:08)
+ 02. Warmth - Parallel (07:04)
+ 03. Luis Miehlich - St. Aygulf (05:36)
+ 04. Hirotaka Shirotsubaki - Morning Haze (06:24)(   Читать дальше...   )Тип издания: CD, WebЖанр: Dub Techno, Ambient, Drone •Продолжительность: 26:04:23 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053F1C4D175B27475021105D6723733B7570E984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659055   (1028953) от 26.02.2021
+
+Comaduster | Underfelt - Discography 21 Releases (2009-2020) Tympanik Audio | FiXT Music [FLAC|Lossless|tracks+.cue, tracks]<IDM, Dubstep, Ambient, Industrial, Drum & Bass>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Do You Belong Now? (feat. Mari Kattman) (04:08)
+ 02. Where Do You Belong Now? (Instrumental) (04:08)Тип издания: CD, WEBЖанр: IDM, Dubstep, Ambient, Industrial, Drum & Bass •Продолжительность: 10:18:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590175649F4D09E49FED704F0F2BD923F5102629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 222853   (1028955) от 26.02.2021
 
 Nu:Tone - 5 альбомов (2005; 2007; 2011; 2014; 2021) [FLAC|Lossless]<Drum'n'Base>
@@ -609,87 +688,6 @@ VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF9EFA240DD758CF993312FC1FE8D57D2F55FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623382   (1029414) от 01.04.2023
-
-VA - Ibiza XXL - The Summer Hits 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hight & Basti M & Blaikz feat. Hannah Jane Lewis - I'm With You [2:56]
-02. Klaas - 1   1 1 [2:23]
-03. Steve Modana & Freischwimmer - You Can't Buy My Like [2:35]
-04. Shaun Baker vs NDEE & ROOMS feat. Jessica Jean - Do It All Night [2:29](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262E4563743F1F8D1C9586D99892A6DA69B3D75B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013152   (1029477) от 23.02.2021
-
-Jerome Chassagnard (Jérôme Chassagnard) - Discography 8 Releases (2008-2020) Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Create (06:11)
- 02. A Song For Children (06:31)
- 03. Breath (06:46)
- 04. Calm (07:31)Тип издания: CD, Web •Жанр: IDM, Ambient •Продолжительность: 05:12:44 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB031049B879BAF29417E42C0687AEC101D880D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449609   (1029571) от 23.02.2021
-
-VA - Armada Chill 002 (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane, Lisa Gerrard - Orleans (Sunrise Edit) (04:21)
-02. Disco Fries, Niko The Kid - The Light (Acoustic Version) (03:20)
-03. Maison & Dragen, Toni Nielson - Immortal Love (Orion & J.Shore Classical Remake) (03:29)
-04. Rezonate - Elemental (Radio Edit) (03:20)(   Читать дальше...   )Жанр: Deep House, Downtempo, AmbientПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EF0B3D02B88152E9E14BB9BD54ECC5C158064C
 ```
 
 

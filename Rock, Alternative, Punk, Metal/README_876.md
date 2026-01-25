@@ -1,3 +1,57 @@
+###  Публикация: 911017   (620670) от 21.06.2015
+
+Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620670.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Back On Track
+2. Another Year
+3. Self-destruct...The Pain Never Ends
+4. Dancing With The Dead(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F1589138D73FAE6D50B12AC670B4FB7628779F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911011   (620673) от 21.06.2015
+
+Heavens Gate - Best for Sale! (2015) Remastered [MP3|320 кб/с]<Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Control
+02. Surrender
+03. Tyrants
+04. Path of Glory(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0FE20D6EE08B390DBB2D659B5F2E0C252F0366
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911016   (620675) от 21.06.2015
 
 Mount - Mount (2015) [MP3|320 кб/с]<Hard Rock>
@@ -671,66 +725,6 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3272A17666DE7A3E82FAC8188176A423976D0C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219683   (621599) от 20.07.2010
-
-Аквариум - День Радости (2010) [WavPack|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Трать Время (5:06)
-02. Два Поезда (3:58)
-03. Suaimhneas Intinne (5:16)
-04. Лошадь Белая (2:16)
-05. Еще Один Раз (6:15)
-06. Анютины Глазки (3:28)
-07. Аригато (5:04)
-08. Неизъяснимо (5:03)
-09. Last Of The Stars (3:55)
-10. С Той Стороны Зеркального Стекла (5:56)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145463   (621644) от 25.06.2017
-
-Donna Dunne & The Mystery Men - Voodoo (2017) [MP3|320 Kbps] <Rockabilly, Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voodoo (02:58)
-02. Shame (02:15)
-03. Moonbird (02:44)
-04. Restless Nights (03:58)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BAE0BAC2F4663CCA5AA7512DE8D297D297FD55
 ```
 
 

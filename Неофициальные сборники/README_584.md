@@ -1,3 +1,30 @@
+###  Публикация: 1495332   (880610) от 12.09.2021
+
+VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880610.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Koulz & More - Feeling Blue
+002. Tina B - Jazzy Sensation
+003. Martello - All The Things
+004. Softmal & Llшlita - So Glad(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 11:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495505   (880611) от 12.09.2021
 
 VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dancehall, Post-Disco, Synthpop>
@@ -656,33 +683,6 @@ VA - Know What I Want: R&B Collection (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF262F74026BE7376D83F8799F38B0BF07A7D09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373168   (882068) от 05.04.2020
-
-VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth Wave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikkelrev - Apollo
-02. Geocentric Fools - Neptunes Limes
-03. Noamm - Dance Macabre
-04. Four Seconds Ago - Over And Out(   Читать дальше...   )Жанр: Synthspace, Synth WaveПродолжительность: 05:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C995A2E069C80D12CAF80ECF57F901792ABAE1D
 ```
 
 

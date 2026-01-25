@@ -1,3 +1,62 @@
+###  Публикация: 517563   (647393) от 01.07.2012
+
+Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ochujałem
+02. Depresja
+03. Super good
+04. Dziwka z naprzeciwka
+05. Kawałek do tańca
+06. Femenistka
+07. Sołdat
+08. Życie ułożyć
+09. Ciągoty
+10. Prognoz pogody(   Читать дальше...   )Жанр: SKA/RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83201E97C0D013F568C2370F00EA6B048AEC64E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905834   (647448) от 07.06.2015
+
+Paradise Lost - The Plague Within (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Of Silence
+02. Never Look Away
+03. Victim Of The Past (orchestra version)Жанр: Gothic Metal, Doom MetalПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7EC38BEDCF1226AB01F37DA2159BC9239C45FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517738   (647528) от 01.07.2012
 
 Van Der Graaf Generator - Alt (2012) [MP3|320 кб/с]<Progressive Rock, Art Rock>
@@ -659,67 +718,6 @@ Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517573   (648023) от 01.07.2012
-
-The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tough Cool and Here to Mosh 00:40
-02. Ice Road Trucker Vs the Sun 03:45
-03. Don't Step Back 03:04
-04. Beyond the Purple Pipes 03:43
-05. Green Machine Laser Beam 03:36
-06. Sergeant P of the 23 00:18
-07. We Are the Pit Police 03:37
-08. Wake Me Up for Lunch 03:57
-09. Honor to Whom, Honor Is Due 04:12
-10. Captain Quick and the Pirates 04:07(   Читать дальше...   )Жанр: Melodic Death Metal/Thrash MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018E2935E30932767B280B07E8DB5F01827C3DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799319   (648072) от 25.06.2014
-
-VA - Pure... hard rock (2011) Box Set, 4 CD [FLAC|Lossless]<Hard Rock, Heavy Metal, Album Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648072.jpg" />
-</div>
-
-
-###  Подробнее
-
-По количеству любителей тяжелой музыки наш клуб, наверное мог бы выставить большую команду на чемпионат мира по тяжелой атлетике.
-Я себя к таковым (любителям) не отношу. Но увидев этот сборник в очередной зарубежной командировке не мог пройти мимо. Здесь много известных имен, но я бы обратил Ваше внимание на не представленные на трекере, но очень интересные группы: (   Читать дальше...   )01. Alice Cooper - Poison  (4:32)
-02. Judas Priest - Living After Midnight  (3:31)
-03. Scorpions - The Cross  (4:30)
-04. Joe Satriani - Satch Boogie  (3:14)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Album Rock, Arena RockПродолжительность: 04:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F8D4EDE8E99D81AC71F0C12202CA31A3142756
 ```
 
 

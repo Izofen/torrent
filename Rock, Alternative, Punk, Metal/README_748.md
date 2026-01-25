@@ -1,3 +1,57 @@
+###  Публикация: 1319229   (486815) от 10.08.2019
+
+Tug Of War - Soulfire (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before I Will Know (4:15)
+02. Bullet With Your Name (4:22)
+03. Come Home (4:21)
+04. Confess to Your Demons (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E877DE5DA9BCC504988B6C5C484365F14B1FC28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405003   (487119) от 28.08.2020
+
+Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487119.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Электронный авангард
+2. Автократор
+3. Антибиотик
+4. Полночь(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2395253F4F097F0547C5A225DB9EB41D8150B3DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404969   (487131) от 28.08.2020
 
 From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternative Metal, Rap-Rock>
@@ -653,60 +707,6 @@ Raydead - End in Sight (1993) [FLAC|Lossless|tracks] <Thrash, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09203B42C499CFBD0C59D5A1480AA4920F25A818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319112   (488733) от 09.08.2019
-
-Snow Patrol - Reworked (EP1) (2019) EP [FLAC|Lossless|tracks] <Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Won't Go Slowly (03:41)
-02. Chocolate (Reworked) (03:47)
-03. Crack The Shutters (Reworked) (03:16)
-04. Open Your Eyes (Reworked) (04:14)Жанр: Indie Pop, Indie RockПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B9BFCC0BF1BDAE3836B33D0831EE1BD9004E564
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319154   (488869) от 09.08.2019
-
-Finsterforst - Zerfall (2019) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wut
-2. Zerfall
-3. Fluch des Seins
-4. Weltenbrand(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BE70EBA7B8542D33EB5AEA7A678C8AE993128C
 ```
 
 

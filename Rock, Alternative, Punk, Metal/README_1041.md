@@ -1,3 +1,57 @@
+###  Публикация: 1508999   (795480) от 11.11.2021
+
+Radiohead - Kid A Mnesia (2021) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, IDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Spinning Plates ('Why Us?' Version) (05:05)
+ 02. Untitled V1 (01:49)
+ 03. Fog (Again Again Version) (02:25)
+ 04. If You Say The Word (04:23)(   Читать дальше...   )Жанр: Alternative Rock, IDMПродолжительность: 02:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D13C1FCAAB444B994A1814E0CFBE64F6B806F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509019   (795483) от 11.11.2021
+
+Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795483.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Век воли не видать
+02. Черней, чем блюз
+03. Оксюморон(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E380EEF62F0E41052759704F44B89792F21A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509254   (795543) от 11.11.2021
 
 NorthTale - Eternal Flame (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -641,60 +695,6 @@ Queen - 15 Studio Albums, 8 Live Albums, 18 Compilation, 66 Singles, 2 Collabora
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9CBA13B39D342F0F74413D5069230F350C5F269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386019   (795884) от 27.05.2020
-
-Die Kreatur - Panoptikum (2020) [MP3|320 kbps] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гиганты немецкой тяжелой сцены Деро Гои (Oomph!) и Крис Хармс (Lord Of The Lost) выпустили дебютный альбом со своим новым совместным проектом Die Kreatur. Первая в дискографии полноформатная пластинка получила название "Panoptikum" и появилась 22 мая 2020 года на лейбле Napalm Records.01. Die Kreatur (04:12)
-02. Kälter Als Der Tod (04:20)
-03. Unzertrennlich (04:07)
-04. Durch Die Nacht (04:37)(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAB23A1B4E8D26C6BE5149477F5A477F3E47A762
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386014   (795885) от 27.05.2020
-
-One Desire - Midnight Empire (2020) [MP3|320 kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowman (06:33)
-02. After You're Gone (05:25)
-03. Down And Dirty (04:33)
-04. Godsent Exstasy (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9D81F8643763CDC4B2DFDD205A4565939EA769
 ```
 
 

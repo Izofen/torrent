@@ -1,3 +1,30 @@
+###  Публикация: 1237113   (552227) от 23.07.2018
+
+Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Outlaw Torn (Unencumbered By Restrictions)
+02. Bass Solo
+03. Killing Time
+04. Guitar Solo(   Читать дальше...   )Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237281   (552232) от 23.07.2018
 
 VA - Reggaeton Hits (2018) [MP3|320 Kbps] <Latin, Hip-House, Salsa>
@@ -671,33 +698,6 @@ VA - Летние хитовые песни 9 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92AECB8C9704F9B017D5C5608D71E9C01738A05E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046181   (553072) от 26.08.2016
-
-VA - Летний заводной музон - 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brooke Candy - Changes
-002. Алекс Юлдашев - Сердцебиение
-003. Robin Stjernberg - Take Me Home
-004. Марсель - Здравствуй Мам(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D994492883F1339B46CC767DE10DBD4C1F19028
 ```
 
 

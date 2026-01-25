@@ -1,3 +1,84 @@
+###  Публикация: 1145445   (621547) от 25.06.2017
+
+Alizee Moreau - Sexy Relaxing Lounge And Chill Out Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahora Dice (04:41)
+02. Airone (04:41)
+03. Amor Amor Amor (03:42)
+04. Amor (04:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1503FD3C5E9342570C8B2A6230839540919D814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910373   (621565) от 20.06.2015
+
+VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CDPM - Kalas (05:53)
+02. The Sura Quintet - Intimacy (05:32)
+03. Soul Emphasis - Going Deeper (06:16)
+04. Chiffre 100 - Need 2 Feel (06:51)(   Читать дальше...   )Производство: StereoheavenЖанр: Deep House, Chill HouseПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24546BBBE5D7D9671A5EDE683DE90988342122E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145474   (621638) от 25.06.2017
+
+VA - Chill Out Ibiza: The Best Of 50 Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miraflores - Waves Of Love (Original Mix)  5:24
+02.  Schwarz & Funk - Angles (Original Mix)  6:49
+03.  8 Bit - Bizzare (Original Mix)  4:53
+04.  Arrojas - Didascalias (Original Mix)  5:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3723DA40230650CF14531DBE547C62C90C66C07F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145262   (621760) от 25.06.2017
 
 Bjm Mario Bajardi - Schengen (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -614,84 +695,6 @@ VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544191   (623798) от 14.04.2022
-
-VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Lockdown Heart (Original Mix) (3:30)
-02. 4 Strings & Susana - Completely (Original Mix) (2:49)
-03. James Dymond & Stine Grove - Birds Of A Feather (Original Mix) (4:15)
-04. Alan Morris with La Antonia & Sue Mclaren - Nowhere Left To Hide (BiXX Remix) (3:53)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544047   (623804) от 14.04.2022
-
-Chris van Buren - Дискография (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthwave, Italodance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aim for the Moon (4:16)Жанр: Spacesynth, Synthwave, ItalodanceПродолжительность: 03:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8910519E33DAC75419E808ECB76A8A27923B705F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145042   (623896) от 24.06.2017
-
-VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Glitter Twins - Blue Paradise  6:42
-02.  Felix - Wind Bender  8:39
-03.  Terry Lewis - Behind You  6:45
-04.  Mr. Dexter 4U - Back To Back  6:42(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
 ```
 
 

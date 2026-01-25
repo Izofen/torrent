@@ -1,3 +1,62 @@
+###  Публикация: 537089   (512464) от 20.08.2012
+
+Secret Signs - For A Lifetime (2012) [MP3|320 кб/с]<Gothic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome (01:09)
+02. My Theatre Of Sadness And Pain (05:27)
+03. Words (06:06)
+04. Voices From The Afterlife (05:51)(   Читать дальше...   )Жанр: Gothic Metal, Female VocalsПродолжительность: 00:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D6F66CAE43305793EAC4D6229D4CB642CB659E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536830   (512466) от 20.08.2012
+
+Phish - Lawn Boy (1990) / Elektra / [FLAC|Lossless]<Progressive rock, Rock, Jam, Jazz fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Squirming Coil (6:05)
+02. Reba (12:27)
+03. My Sweet One (2:08)
+04. Split Open and Melt (4:43)
+05. The Oh Kee Pa Ceremony (1:41)
+06. Bathtub Gin (4:29)
+07. Run Like an Antelope (9:52)
+08. Lawn Boy (2:32)
+09. Bouncing Around the Room (3:56)Жанр: Progressive rock, psychodelic rock, Jam, Jazz fusionПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562124   (512501) от 07.07.2022
 
 Neil Young with Crazy Horse - Toast (2022) [FLAC 2.0|192/24|WEB-DL|tracks] <Rock>
@@ -648,60 +707,6 @@ The New Regime - Exhibit A (2013) [OGG| 475-550 кб/с]<Alternative Rock, Moder
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A71B6BA7797808141DA9943C45D35E6B2E8FAAB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931269   (513015) от 25.08.2015
-
-The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Modern Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where I’ve Headed All Along
-02. Smokescreen
-03. We Rise, We Fall
-04. The Longing(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52FB8DB71D57C5C0816E07DA7657016394DC51E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242727   (513104) от 24.08.2018
-
-HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock With Me
-02. Chain Reaction
-03. Taking Up Space
-04. Say What Ya Mean(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Female VocalПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34EDB47B7A6E571C6E0C1A2AB175B6FA0031B05
 ```
 
 

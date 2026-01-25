@@ -1,3 +1,30 @@
+###  Публикация: 1216234   (751240) от 30.03.2018
+
+VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adriatique - Ray (Original Mix)
+002. al l bo & Leerex - Fighters (Original Mix)
+003. Alex Metric &  Ten Ven - Otic (Extended Mix)
+004. Anderson Soares feat. Luiza Caspary - You Make Me High  (Soares Main Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216314   (751361) от 30.03.2018
 
 VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
@@ -669,33 +696,6 @@ VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87AEB9C32244648232228DCFAC380A8FA1E56B7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216075   (753056) от 29.03.2018
-
-VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR Pres.The MVI - Save Me
-02. Jenia Stan - Dimension (Original Mix)
-03. Mike Drozdov & VetLove ft. Natune - I Love You (Original Mix)
-04. Ilkan Gunuc feat. JJ - I Don't Wanna Know (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B802E22AB8A6B9C1AD8BC4FACC0C5D8FA0C4012E
 ```
 
 

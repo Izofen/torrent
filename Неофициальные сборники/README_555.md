@@ -1,3 +1,30 @@
+###  Публикация: 1380336   (835047) от 02.05.2020
+
+VA - Beatport Techno Electronic: Sound Pack #73 (2020) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835047.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fishela - Techno (Original Mix)
+002. Emir Hazir - White
+003. Dmitry Hertz - Unity Sound (Original Mix)
+004. Max Chizhov - Jungle Reload(   Читать дальше...   )Жанр: TechnoПродолжительность: 11:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15DDFCD5E95C4278843A86A7AC4B733BD4FFA3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380329   (835050) от 02.05.2020
 
 VA - Reggae On The Roof Vol.11 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Regaeton>
@@ -668,33 +695,6 @@ VA - Empire Records - Dancenudisco 12 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC80EEBB50B766D284197B5AA911A80A4B204D3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113561   (836813) от 12.03.2017
-
-VA - Miraflores Deep House Assembly (2017) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burak Yeter Feat. Danelle Sandoval - Tuesday
-02. Feathered Sun - Miraflores
-03. Ian Ludvig - Move My Body (Paul2Paul Remix)
-04. Ed Sheeran - I See Fire (Addictive Elements Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 06:18:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24F3A2CFDCFF7A3FEB230F2C0C2319D43ED4F1B
 ```
 
 

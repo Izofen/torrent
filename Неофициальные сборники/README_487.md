@@ -1,3 +1,30 @@
+###  Публикация: 1126839   (764491) от 19.04.2017
+
+VA - Club Dance Dependence vol. 6 (2017) [MP3|320 Kbps] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers - Dont Say (Original Mix)
+02. Rag'n'Bone Man - Skin (Original Mix)
+03. Matoma & MAGIC! feat D.R.A.M. - Girl At Coachella
+04. Mike Wit feat. Brenda Be - Hold Me Now (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 06:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB465C63DB0C159ACF9C50586B3D36154027D9F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279840   (764530) от 31.01.2019
 
 VA - Better World (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
@@ -665,33 +692,6 @@ VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126461   (765370) от 18.04.2017
-
-VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765370.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Crowbar - Plasmic And Pure 5:38
-002. Heavenwood - The Juggler 6:43
-003. Bathsheba - At the End Of Everything 8:26
-004. Beelzefuzz - The Righteous Bloom 6:55(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 15:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81491284C9B4756213D042DD5577944712D17FF
 ```
 
 

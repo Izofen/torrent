@@ -1,3 +1,65 @@
+###  Публикация: 598708   (999376) от 06.01.2013
+
+Shining - 7 Альбомов (2000 - 2009) [FLAC|Lossless]<Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Vilseledda Barnasjalars Hemvist
+02 - Plagoande O'Helga Plagoande
+03 - Fullstandigt Javla Dod Inuti
+04 - Ohm (Sommar Med Siv)
+05 - Krossade Drommar Och Brutna Loften
+06 - Total UtfrysningЖанр: Depressive Black MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598651   (999404) от 06.01.2013
+
+Gehenna - 10 альбомов (1994 - 2012) Дискография [MP3|CBR:320, VBR:~280]<Atmospheric Black Metal, Death Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норвежская блэк металлическая группа. В начале играла очень спокойный, мелодичный и мрачный атмосферный метал (до 1996 года, включительно), более тяготеющий к жанру Dark metal, а не к типичным представителям атмосферного блэка.
+Позже был переходный период к дэт-блэку, который, с альбома 2000 - Murder, приобрёл очень жёсткое, дэт-блэковое, даже, скорее, трешевое звучание.
+Поначалу лирика была посвящена средневековой мистики, черной магии и жизненному пути во тьме и среди зла. Позже она приобрела явный сатанинский и современный апокалипсический окрас, чаще всего присущий обычному блэк/дэт металлу, и несколько утратила свою первоначальную красоту.1 Grenade Prayer.mp3
+2 Death to Them All.mp3
+3 New Blood.mp3
+4 Flames of the Pit.mp3
+5 Silence the Earth.mp3
+6 Werewolf.mp3
+7 Abattoir.mp3
+8 Pallbearer.mp3Жанр: Death Black Metal (Trash metal)Продолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C9DB7C8C7499CE4D5FCF45FF7482350489573C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599258   (999406) от 06.01.2013
 
 Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
@@ -691,60 +753,6 @@ Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352274   (1001277) от 13.01.2020
-
-Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Progressive Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Morning (5:44)
-02. In a Sacred Manner (4:40)
-03. Sundance Chant (4:10)
-04. Young Coyote (3:18)(   Читать дальше...   )Жанр: Progressive Rock, KrautrockПродолжительность: 01:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC16946A98EFA3FF3258943EBC94538CC37725A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352330   (1001349) от 13.01.2020
-
-Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Change My Heart
-02 Dream Chaser
-03 Surrender
-04 Holy Child(   Читать дальше...   )Жанр: Neoclassical MetalПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
 ```
 
 

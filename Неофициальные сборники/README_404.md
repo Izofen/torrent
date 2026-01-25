@@ -1,3 +1,30 @@
+###  Публикация: 1140939   (653441) от 08.06.2017
+
+VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ace of Base - All She Wants (SNBRN & KLATCH Remix)  6:04
+02.  Bob Marley - No Woman No Cry (SLAPFISK Remix)  4:26
+03.  Corona - Rhythm Of The Night (Hotel Garuda Remix ft. AObeats)  4:06
+04.  Metallica - Nothing Else Matters (YASTREB Remix) (Radio Version)  3:50(   Читать дальше...   )Жанр: Deep House, Nu Disco, TropicalПродолжительность: 07:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC16C309832BF7698A28D66F2ECE8606BCEE376D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140924   (653443) от 08.06.2017
 
 VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big Beat>
@@ -687,33 +714,6 @@ VA - Hits Cocktail Vol.8 (2017) [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4AEE631C6FDBC0A5BDC7E2EFF30F4E5B5481AD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226533   (654698) от 21.05.2018
-
-VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654698.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Distance & Riddick - Where Did U Go (Original Mix)
-002. Lucas Keizer - Toxic Desire (Original Mix)
-003. Dassler - Orion Choir (Original Mix)
-004. Barratt - Collider (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
 ```
 
 

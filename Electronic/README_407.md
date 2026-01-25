@@ -1,3 +1,84 @@
+###  Публикация: 1203374   (788127) от 02.02.2018
+
+François X (Francois X) - Irregular Passion (2017) Dement3d [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Ambient, Experimental>
+
+>>Electronic
+>>Trance, House, Techno (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of A Lifetime (04:46)
+ 02. Blurry Youth (03:41)
+ 03. Slave, No Slave (06:14)
+ 04. Just A Dream (02:49)(   Читать дальше...   )Жанр: Techno, Ambient, ExperimentalПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0050882A9445E7839EE22B2AB7B73E2212ACDEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203501   (788130) от 02.02.2018
+
+VA - Armin Van Buuren and Above & Beyond - A State of Trance Episode 850 (Part 1) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren – Be In The Moment (ASOT 850 Anthem)
+02. Omnia & Alex Sonata – Titans
+03. Super8 & Tab ft. Envy Monroe – True Love
+04. Alexander Popov & Tenishia ft. Thomas T – Play Your Cards (Max Roven Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24AA2B155AB492AD6088DFD429049D07B94CBE7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203523   (788132) от 02.02.2018
+
+VA - Armin Van Buuren & Gareth Emery & Ashley Wallbridge - A State of Trance 850 (Part 2) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Armin van Buuren played:
+01. Armin van Buuren feat. Conrad Sewell – Sex, Love & Water
+02. Axwell Λ Ingrosso feat. Trevor Guthrie – Dreamer (ALPHA 9 Remix)
+Tune Of The Week(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B98B51496038D5CEB068988F28F8AD78ECB1C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203538   (788169) от 02.02.2018
 
 Klaada - Breaking The Cycle (2018) [MP3|320 Kbps] <Balearic,Downtempo>
@@ -614,87 +695,6 @@ Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203163   (788676) от 01.02.2018
-
-VA - Dream Mood Energy (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tantricistics  -  Indian Soul (Original Mix)  5:02
-02.  The Alf Men  -  Rainy Day (Original Mix)  3:41
-03.  The Royal Club  -  Fuerteventura (Original Mix)  4:05
-04.  Spirit & Flame  -  Hot Long Night (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE1435AA275C0B1F0830413509C67757CD3C339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203248   (788679) от 01.02.2018
-
-VA - Progressive Dream Escape (2018) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Furkan Senol  -  Far & Close (Original Mix)  7:23
-02.  Seven24 & S.A.T feat. Allam  -  Infinity (Eugene Becker Remix)  5:31
-03.  Max Denoise feat. Angel Falls  -  Destiny (Alexander Volosnikov Lost Love Mix)  6:15
-04.  Anton DelaiTech  -  Safari (Original Mix)  7:36(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853971F34F7810E80831CEDA9A814C7465C68153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203356   (788680) от 01.02.2018
-
-VA - Psichi (Matsuri Digital Chill) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivier Orand - Psichi 7:00
-02. Circular - Juno 9:49
-03. Ascendant - Beyond The Horizon 6:18
-04. Elastic - Breaking Point Of No Return 6:28(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E199DCCD660D05F21C4B807ABA59B82D97A101
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1472487   (1014356) от 25.05.2021
+
+Векторный клипарт - Beautiful girl and guy in stylish and fashionable clothes [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Красивые девушки в стильной одежде
+13 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2098E3A887141EB8BEC460796DDE61F2BB08C37C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472497   (1014360) от 25.05.2021
 
 Векторный клипарт - Cosmetic tube with beautiful paper colors peach-pink [EPS]
@@ -606,31 +632,6 @@ magnet:?xt=urn:btih:2AE42C2D96A5B1A8AE329650CF31EF6AE67FEF19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E833DF3CC9354540F732F31FEA207380BF24EE17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468794   (1016869) от 09.05.2021
-
-Шаблоны - Architecture Scenes PSD - High Quality part 2 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблоны многослойные для вашего творчества.
-98штФормат: PSDРазрешение файлов: 3001x4000-6165x2647
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFBFF2C84F62A676DD04BA2FECA20ACC29F12FE
 ```
 
 

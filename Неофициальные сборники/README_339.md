@@ -1,3 +1,30 @@
+###  Публикация: 922717   (568203) от 29.07.2015
+
+VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jahkoy - Still in Love (Leon Bolier Remix) (04:39)
+02. Pasha & Izik - High Hopes (Original Mix) (06:50)
+03. Paul M. - Tayrona (Gux Jimenez Remix) (07:27)
+04. Olej, Stereoteric & Toxez feat. Raha - No Limits (Lessovsky Remix) (07:59)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62555B88B739CD87166B361060853DB282F8A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922713   (568356) от 29.07.2015
 
 VA - Relax Hotel Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -704,33 +731,6 @@ VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98B1C9CA852A5EC1C12E41946162B11A0090264
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922352   (569878) от 28.07.2015
-
-VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Heat - Wildfire (Electro Rocking Boyz Remix)
-02. Fedde le Grand - Rockin' N' Rollin' (Jewelz & Scott Sparks Tomahawk Radio Edit)
-03. Frik 'N' Krazy - Ultimate (Original Mix)
-04. Ruede Hagelstein - Give a Little Slap to Your Soul - Patrick Chardronnet's Dubby Mix(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 09:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B3ABF5EE6509BC7906662409F6B5866B4533ABA
 ```
 
 

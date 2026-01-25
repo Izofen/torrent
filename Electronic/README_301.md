@@ -1,3 +1,84 @@
+###  Публикация: 1233508   (593011) от 30.06.2018
+
+Ди-джей КЕФИР & Евгений Арсентьев - Мы сделаем Вас счастливыми (1999) [FLAC|Lossless|image + .cue]<House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Возьми меня ( Ди-Джей Кефир* & Евгений Арсентьев )
+02. Soul 99 ( Ди-Джей Кефир )
+03. Когда моя любовь звонит 99 ( Ди-Джей Кефир )
+04. Soul 99 ( Евгений Арсентьев )(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C15E3AF87F1076E679DF29322104B36D1FA0C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233507   (593012) от 30.06.2018
+
+VA - Автобан 1 (1997) [FLAC|Lossless|image + .cue] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascura - Nobody Sed't Me ( Remix )
+02. Руки Вверх - История Любви ( Remix )
+03. Trancedriver - Синий Иний ( Remix )
+04. Action Directe - Funky Life(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7957D771946397EADB85AEA44F58CBE555501D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233497   (593019) от 30.06.2018
+
+VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Kolev - Oblivion (Extended Mix) 07:21
+02. Max Freegrant - Drama King 06:49
+03. Orphyd - Replicant (Original Mix) 05:43
+04. AxelPolo - Mirage 06:36(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300568   (593125) от 06.05.2019
 
 VA - A State Of Trance 2019 (Mixed by Armin van Buuren) (2019) [MP3|320 Kbps] <Trance>
@@ -614,87 +695,6 @@ Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08CEF03F5FC4BCD56480DDD260C5023CED12938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039739   (594578) от 02.08.2016
-
-Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introduction (2:42)
-2. Fugue in Eb minor (6:36)
-3. Lonely Harp (3:38)
-4. .SILENT (7:42)(   Читать дальше...   )Жанр: DarkwaveПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2A2A59596AE7EE57A3C7C2AF23BB073C4B5521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548950   (594740) от 05.05.2022
-
-VA - Tomb of Primordials (from Tomb of.. Series by Cryo Chamber) (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Dark Ambient, Darkwave>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594740.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dahlia's Tear - Crystal Scars Beneath a Bleak Sky [00:08:12]
-2. Skadi - Seed of Pestilence [00:07:35]
-3. Svartsinn & Letum - One by One I Broke Their Wings [00:08:09]
-4. New Risen Throne & Mortiis - Chants for Isimud [00:09:00](   Читать дальше...   )Жанр: Dark Ambient, DarkwaveПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3A7F133BD564F174156D7DBCD5B7ABC68F083B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039899   (594789) от 02.08.2016
-
-VA - Perfect Day Chillout Music (2016) [MP3|320 Kbps] <Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Away - Things We Can Change (05:53)
-02. Minka - Land of Sand (03:02)
-03. Joe Jog - Moments (04:58)
-04. Heavenly Light - Electro Mantra - Radio Edit (04:42)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 03:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60C3D470D90009B73693B91BFE864673B93025A
 ```
 
 

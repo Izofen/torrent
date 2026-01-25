@@ -1,3 +1,84 @@
+###  Публикация: 1153595   (558083) от 27.07.2017
+
+Troels Hammer - The/Human/Tree (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letters from Uhuru (5:27)
+ 02. Botswana Girl (5:20)
+ 03. Mockingbird (4:44)
+ 04. Sunrise at Beira Beach (8:10)(   Читать дальше...   )Жанр: Balearic, Downtempo, ChilloutПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD21CE3E42844FC797DD41C619E3FD2D60196798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153472   (558084) от 27.07.2017
+
+Solee - What Remains Are the Memories (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee – What Remains Are the Memories (Continuous DJ Mix)
+02. Solee – Dromen (Reinterpretation)
+03. Solee – Years Gone By
+04. Solee – Infinidad(   Читать дальше...   )Жанр: Tech House, ProgressiveПродолжительность: 04:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AEA28E0652080D3839E9F7D43B847461CF1F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045674   (558146) от 24.08.2016
+
+VA - Sexy Beach Lounge Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magical Corner - Infinite Revelations
+02. Hauba - In Your Bodies Life
+03. Aaron The Baron - A Tu Lado - Salsa on the Beach Mix
+04. Ralf Rondell - My Forgotten Paths - Bar & Lounge Instrumental Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9D95BFB8403AC50E1FBDB8D69B9E3E886DB95C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045663   (558149) от 24.08.2016
 
 VA - Ibiza Classics (2016) [FLAC|Lossless|tracks] <House, Progressive House>
@@ -614,87 +695,6 @@ VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F5E91C76F9912E88092FA7076ACC881D5F4544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045410   (559832) от 23.08.2016
-
-VA - DUBAI: Best Lounge Music, Vol. 1 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mardon Bros - After the Sack (6:29)
-02. Alex Nothlich - Leisure Choices (4:24)
-03. Hotel Stereo - Believe - Lounge Radio Edit (3:38)
-04. Bahia de Roses - You Got Me for Life (2:26)(   Читать дальше...   )Жанр: Lounge, ChillOutПродолжительность: 02:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A4913EEA828CCBD32B90E6562250EFEB2AA1807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556468   (559869) от 09.06.2022
-
-Biopsyhoz (Биопсихоз) - Осознание (2022) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industrial Metal, Experimental, Cybercore, Alternative Rock>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конструкция реальности [00:05:29]
-02. Скажи мне свое имя [00:04:11]
-03. Box [00:04:48]
-04. Храм судьбы [00:03:36](   Читать дальше...   )Жанр: EBM, Industrial Metal, Experimental, Cybercore, Alternative RockПродолжительность: 01:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0011FED949CD78D330FB537032CC1DDE8013A534
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304899   (559943) от 28.05.2019
-
-Anthéne (Anthene) - Asymmetry (2019) Whitelabrecs [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Soundscape>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles (05:23)
- 02. Mirror (04:31)
- 03. Degrade (04:32)
- 04. Expedition (06:30)(   Читать дальше...   )Жанр: Ambient, Drone, SoundscapeПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6E8CDBAECF50EA3442116F4D6F1CD566BD25B6
 ```
 
 

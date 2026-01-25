@@ -1,3 +1,30 @@
+###  Публикация: 1096254   (921072) от 23.01.2017
+
+VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive, Soulful, Nu Disco, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boogie Bros Feat. Big Daddi - Fight For Your Right! (Yelhigh! Remix Edit)  3:14
+02.  R3HAB & ZROQ - Skydrop (Ethyr Remix)  6:07
+03.  Uberjak'd Ft Nuthin Under A Million - All I Need (Bomber) (Nicolas Strands Remix)  4:39
+04.  Stefano Carparelli & Torny - Beautiful Day (Hard Mix)  5:20(   Читать дальше...   )Жанр: House,  Progressive, Soulful, Nu Disco, ClubПродолжительность: 06:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 631960   (921487) от 19.03.2013
 
 VA - Попсовый Драйв Весны (2013) [MP3|256 кб/с]<Pop>
@@ -666,33 +693,6 @@ VA - Club Of Fans Dance Vol. 6 (2016) [MP3|320 кб/с] <Club, Dance, Hands Up>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE0605F7D46B89B00EF8F89828EDE6B9C37CE3C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987735   (922811) от 19.02.2016
-
-VA - Music For Everyone - Dubstep & Drumstep Vol.4 (2016) [MP3|320 кб/с] <Dubstep, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nitrix – Soaring (Original Mix)
-2. Jacob Stanifer feat. Twilight Meadow — Wings (Original Mix)
-3. Inukshuk - Forever (Original Mix)
-4. Route 94 - My Love (Synchronice Remix)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4506D73B5C2293AAEDB61BFBBD99B0D995C7E86F
 ```
 
 

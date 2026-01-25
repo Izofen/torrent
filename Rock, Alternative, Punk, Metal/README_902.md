@@ -1,3 +1,57 @@
+###  Публикация: 1032472   (645948) от 07.07.2016
+
+Roy Orbison - Collected (3CD) (2016) [FLAC|Lossless|image + .cue] <Rock-N-Roll, Rockabilly, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645948.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Trying To Get To You (2:42)
+02. Ooby Dooby (2:14)
+03. Uptown (2:08)(   Читать дальше...   )Жанр: Rock-N-Roll, Rockabilly, Pop-RockПродолжительность: 03:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6489B1B44145761A36FD73986AC9A622B3091C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032497   (645951) от 07.07.2016
+
+ХаРа - Мерячение (live in studio) (2016) [MP3|192 Kbps] <Ethnic Acoustic Rock, Trance>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Исходил
+02. Долушка
+03. Восток
+04. Ой, да мы(   Читать дальше...   )Жанр: Ethnic Acoustic Rock, TranceПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D3A5040112E7809119E55B2B86DF9BE6CC2AD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032322   (645952) от 07.07.2016
 
 The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -645,65 +699,6 @@ Sabaton - Carolus Rex (2012) (Japanese Edition)[FLAC|Lossless]<Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCD15FD167A4473043F60A73519D18698D1471E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517563   (647393) от 01.07.2012
-
-Poparzeni kawa trzy - Musculus cremaster (2010) [MP3|320 кб/с]<SKA>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ochujałem
-02. Depresja
-03. Super good
-04. Dziwka z naprzeciwka
-05. Kawałek do tańca
-06. Femenistka
-07. Sołdat
-08. Życie ułożyć
-09. Ciągoty
-10. Prognoz pogody(   Читать дальше...   )Жанр: SKA/RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83201E97C0D013F568C2370F00EA6B048AEC64E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905834   (647448) от 07.06.2015
-
-Paradise Lost - The Plague Within (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Gothic Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Of Silence
-02. Never Look Away
-03. Victim Of The Past (orchestra version)Жанр: Gothic Metal, Doom MetalПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7EC38BEDCF1226AB01F37DA2159BC9239C45FC
 ```
 
 

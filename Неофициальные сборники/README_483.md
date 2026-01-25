@@ -1,3 +1,30 @@
+###  Публикация: 1522163   (760245) от 06.01.2022
+
+VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прожигаем новогодние праздники по полной программе под звуки лучшей и свежей танцевальной музыки. Делаем звук громче, веселимся до утра, наслаждаемся позитивной музыкой, дарим друг другу улыбки и летим на встречу своей мечте!001. The Pet Detectives - Molehill
+002. Perfect Pitch - Outa Space!
+003. Schizoofr3nik - Find Me
+004. David Enguix - Espace Project(   Читать дальше...   )Жанр: EDM, Dance, Club HouseПродолжительность: 26:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261D202BF478B31ADFD3BD30654CC1F04D075707
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522250   (760343) от 06.01.2022
 
 Bonnie Bianco - Compilation (2019) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA6A365A47972B5B3462FE4A033A9FCBDDDA23A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214984   (761456) от 24.03.2018
-
-VA - DFM Top 30: D-Chart / Март (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Steve Aoki feat. Daddy Yankee, Play-N-Skillz & Elvis Crespo  -  Azukita  3:46
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  Sherrie Sherrie & The Ware feat. Nina  -  Nana Song  3:14
-04.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer  5:05(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3086E972DD33EBD2E39DCF2DAD59898BB33D01F4
 ```
 
 

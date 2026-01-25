@@ -1,3 +1,30 @@
+###  Публикация: 1367718   (913996) от 17.03.2020
+
+VA - Beatport Vocal House: Electro Sound Pack #25 (2020) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_913996.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tefo - Emaweni
+002. Mr Black And Blue - Know What Love Is (Radio Edit)
+003. Key - Better Come With Me
+004. Da Chick - Watch Me Go(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1FA1F7965BCE9D34FA7D5FC19E20EB4316140C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367716   (914004) от 17.03.2020
 
 VA - Deep Uplifting Vibes (2020) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -668,33 +695,6 @@ VA - Зажигательный улетный музон - 2016 (2016) [MP3|256
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73366A06CF2EA37B2F42098114D53AB1CF805C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989615   (915689) от 23.02.2016
-
-VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ewonee - 1.23 (intro)  02:51
-02. Damon Albarn - Everyday robots  03:57
-03. Air - Who Am I Now  03:01
-04. Damon Albarn - Seven high  01:00(   Читать дальше...   )Жанр: Ambient, Lounge, HouseПродолжительность: 04:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E9414D36622AECFFA638950B912439400BD7EA
 ```
 
 

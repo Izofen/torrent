@@ -1,3 +1,84 @@
+###  Публикация: 1128215   (728898) от 24.04.2017
+
+VA - Universal Language Lounge Anthems Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Cools - Watching From Above
+02. Darius Dubois - Big Ban
+03. James Walden - Europa - Alternative Version
+04. Den Wood - Music Takes Me Higher(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB2AD83BC7791B345CFA30146FA494094B93481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128284   (728900) от 24.04.2017
+
+VA - Sunset Chillout Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  New Electronic Symphony - Water  3:33
+02.  Miraflores - The Color Of Your Wings  5:54
+03.  Schwarz & Funk - Laid Back  6:09
+04.  Still Cutt - 60  3:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2B6F27670A8A0E9CAD13098B0C9276D39FCB1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022476   (728934) от 02.06.2016
+
+Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Box (11:34)
+02. Consequences of Love (6:35)
+03. Transmission (5:32)
+04. Mind Control (5:37)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCC01C11DBBE231F4202842E539A80BAA46FC34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284517   (728956) от 21.02.2019
 
 VA - The Best Of The Last 50 Releases - Special 150 (2019) [MP3|320 Kbps] <Trance>
@@ -614,85 +695,6 @@ VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127690   (730600) от 22.04.2017
-
-VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Bryder - Kenobi (Original Mix)  5:15
-02.  DJ Swindali - Clouds (Original Mix)  3:30
-03.  Van de Like - To Your Heart (Original Mix)  4:17
-04.  Max Freegrant feat. Brandon Hills - Sometimes We Need To Forget (Silva Remix)  7:58(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73298A453E73498039AA73388981173D76D7FD78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021959   (730987) от 31.05.2016
-
-VA - Deep Vibes - Ibiza (2016) [MP3|320 кб/с] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassara - Shadow Show [05:44]
-02. Milk & Sugar - Heat (African Day)Жанр: Deep HouseПродолжительность: 05:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073C2A08273DC0ACA4532E957F37D75EE46F7F9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284090   (731025) от 19.02.2019
-
-VA - Abora Chillout: Best Of 2018 (Mixed by Johannes Fischer & Ori Uplift) (2019) [MP3|320 Kbps] <Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno - It's Your Day (Orchestral Mix)
-02. Johannes Fischer - Early Morning (Piano Version)
-03. Tycoos, Sandro Mireno - A Place Where Love Is Born (Orchestral Mix)
-04. Syntouch, Spins - Desolation (Orchestral Mix)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E66DFCE35442B90001DB70E77A2709F6AF664C
 ```
 
 

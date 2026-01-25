@@ -1,3 +1,30 @@
+###  Публикация: 1548808   (596045) от 04.05.2022
+
+VA - 80's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - I Want to Know What Love Is - 1999 Remaster (5:04)
+02. Air Supply - All Out of Love (4:00)
+03. Journey - Faithfully (4:26)
+04. Bonnie Tyler - Total Eclipse of the Heart (5:33)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 03:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C57E0B29445352B0E5DB6E6937A232785298579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299772   (596059) от 03.05.2019
 
 VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
@@ -671,33 +698,6 @@ Bass Drive Madness - это новый всплеск саунда высоко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CF402FAAFC566E2DA97BA41A220DCAE8D4CBC00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039227   (597629) от 31.07.2016
-
-VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker -  Sing Me To Sleep 3:09
-002. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42
-003. Robin Schulz feat. Akon -  Heatwave 3:07
-004. Alle Farben feat. YOUNOTUS -  Please Tell Rosie 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
 ```
 
 

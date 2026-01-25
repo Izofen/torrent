@@ -1,3 +1,57 @@
+###  Публикация: 1839636   (1046842) от 30.11.2025
+
+Factoria - All Synthetic (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Industrial Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (Intro) [00:01:35]
+02. Free Will [00:04:55]
+03. Nuclear Error [00:05:30]
+04. Oppressed [00:03:50](   Читать дальше...   )Жанр: Industrial Metal, Melodic Death MetalПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62AD09552CABA8675BD02ACD9D489B4AECCA7C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839791   (1046886) от 01.12.2025
+
+Equilibrium - Equinox (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Tongue [00:03:13]
+02. Awakening [00:03:48]
+03. Legends [00:04:49]
+04. Archivist [00:01:58](   Читать дальше...   )Жанр: Epic Folk, Viking MetalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603B64DFA778FF3C28B450F2F27BB352BB90E13F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839886   (1046893) от 01.12.2025
 
 Feuerschwanz - Knightclub (2025) [APE|Lossless|image + .cue] <Folk Metal>
@@ -641,60 +695,6 @@ Kaunis Kuolematon - Kun Valo Minussa Kuoli (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F44932D78ABFA5F96BDB38AE01E426933137DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840221   (1047118) от 04.12.2025
-
-Path Of Sorrow - Horror Museum (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inauguration [00:02:05]
-02. Horror Museum [00:04:57]
-03. Feral Hunt [00:04:38]
-04. Elegy of the Fallen [00:05:49](   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0667C0FA96E677E3E49C9E8E0A064E156BB9B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840223   (1047119) от 04.12.2025
-
-My Dominion - Extinction (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extinction [00:05:01]
-02. Riot [00:03:51]
-03. Bastards [00:03:31]
-04. Digging The Grave [00:04:13](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3B7DFC15034DD69386A1841615419716D0E38
 ```
 
 

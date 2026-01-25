@@ -1,3 +1,30 @@
+###  Публикация: 1356153   (980555) от 29.01.2020
+
+VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giusvab - Happyness (Original Mix)
+002. Deepness & Enzo Paradiso - Paysandu (Original Mix)
+003. Cyberx - Cut Off (Original Mix)
+004. Eqra - Library (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972766   (980653) от 07.01.2016
 
 VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Dance>
@@ -692,33 +719,6 @@ VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30147BA4EAC7C93E65E148F9C9DC4E814B03D53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972446   (982000) от 06.01.2016
-
-Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_982000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Welcome To Calypso 	                2:06
-2 	Hardcore Islands (Extended) 	6:42
-3 	Def Con 5 	                                5:31
-4 	Rave In Paradise 	                3:36(   Читать дальше...   )Жанр: Rave, Hardcore, Hard TranceПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80548632F5BFDF0072A6ABCABAAA7E2DC8298915
 ```
 
 

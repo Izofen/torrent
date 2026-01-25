@@ -1,3 +1,30 @@
+###  Публикация: 1278010   (773956) от 23.01.2019
+
+VA - Дискотека 2019 Dance Club Vol. 187 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+01. Mr. DJ Monj, A-Mase feat. Da Buzz - Without Breaking (Extended Version) (5:42)
+02. Adip Kiyoi & Christina Novelli - Carousel (Extended Club Mix) (6:01)
+03. Pete Bellis & Tommy - Looking For A New Home (Original Mix) (4:27)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 24:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89571573710719430A370BDF5AE3DDC6404C3FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278106   (773960) от 23.01.2019
 
 VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
@@ -666,33 +693,6 @@ VA - Top list. Dance sound (2016) [MP3|256-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C501A4F8AFA4B139561B52D89F187E587647793
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277859   (775011) от 22.01.2019
-
-VA - Dance (2019)[MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Lloyd-Nevermind
-02. Aya Nakamura-Djadja
-03. Magic System-Magic In The Air (feat. Ahmed Chawki)
-04. Loud Luxury-Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2599849E6294C3B178AFD2F05CBEECFE1CF4D252
 ```
 
 

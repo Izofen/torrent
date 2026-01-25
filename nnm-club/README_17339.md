@@ -1,672 +1,677 @@
-###  Публикация: 1029747   (678610) от 28.06.2016
+###  Публикация: 1536895   (666809) от 17.03.2022
 
-VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
+VA - Deep-House Atmosphere, Vol. 1 (2022) [AAC|~316 Kbps] <Deep House>
 
->>Electronic
->>House
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678610.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rockhouse Crew - Love Extensions - Balearic Remix
-02. Patrick Blasa - Loose - Henrik Schwarz Remix
-03. Julia Messenger - Give This Up
-04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
+01. Jaques Le Noir - We Find An Island (Extended Mix) (6:25)
+02. NoOne Known - I Feel Fire (Between You and Me) (5:12)
+03. Sak Chaime - Climpert (4:52)
+04. Dainpeace - My Devotion (2:14)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
+magnet:?xt=urn:btih:69DB6AFA1A7204DDB02EC1CD2E42BB330115E233
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029816   (678611) от 28.06.2016
+###  Публикация: 1537639   (666810) от 17.03.2022
 
-VA - Global Sound Life Eclipse (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+FigrCollage 3.2.8 [Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678611.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Axwell & Ingrosso -  Dream Bigger (Instrumental) 4:02
-02. Firebeatz & Jay Hardway -  Home (Edit) 3:17
-03. Juicy M feat. Endemix -  Skies (I Don't Wanna Come Down) (Radio Edit) 3:21
-04. Dimitri Vegas & Like Mike Feat. Ne-Yo -  Higher Place (Afrojack Extended Remix) 5:54(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 04:30:31
+FigrCollage - программа для создания удивительных композиций, коллажей и мозаик, из любых цифровых изображений и текста. Приложение поддерживает обработку изображений в форматах JPG, PNG, TIFF, и дает возможность сохранять готовые файлы в высоком качестве.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2022 SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3511755FC7DCEC457FC3205878086798EC8A22
+magnet:?xt=urn:btih:9C278B60D804757C4E09D48C10962B618D1D63CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029831   (678612) от 28.06.2016
+###  Публикация: 1536928   (666811) от 17.03.2022
 
-VA - Festival Trance Music (2016) [MP3|320 Kbps] <Trance, Progressive Trance, House>
+Малолетка - Третий альбом (2009) [AAC|~328 Kbps] <Chanson, Folk>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678612.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grigory Melikhov -  Tech Of Sentiment (Fanis & Emanuel Phaz remix) 7:25
-02. Digital Department -  Enzox 6:54
-03. Matteo Monero -  You Don't Fool Me (Ronny Ritt vs Shock Osugi remix) 6:11
-04. Hypnotic Duo -  Into the Deep 6:03(   Читать дальше...   )Жанр: Trance, Progressive Trance, HouseПродолжительность: 02:36:05
+01. Платье белое (3:06)
+02. Дождь (3:41)
+03. Наташка (3:01)
+04. Сумерки над лагерем спустились (5:22)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:41:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F868D54C6985A1C667676FFF1D2AD9CC36E9331D
+magnet:?xt=urn:btih:400EE50AAA4762FBBC64F5C0525AD4F01E480E5E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029875   (678613) от 28.06.2016
+###  Публикация: 1536913   (666812) от 17.03.2022
 
-Волейбол. Мировая лига 2016.Мужчины. Предварительный этап.Группа B1. 2-й тур. США – Иран (17.06.2016) WEB-DLRip [H.264/1080p-LQ]
+Александр Дюмин - Волк (2020) [AAC|~311 Kbps] <Chanson, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Времечко (2:49)
+02. Шпана (3:25)
+03. Пацаны (3:51)
+04. Судьба (3:59)(   Читать дальше...   )Жанр: Chanson, FolkПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01254E57EA653F2115C89F346825F2FCE4DDA301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536933   (666813) от 17.03.2022
+
+Владимир Ждамиров - Новое и лучшее (2021) [AAC|~342 Kbps] <Chanson, Pop, Folk>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я поцелуем выпью твои слёзы (4:53)
+02. Прости (5:17)
+03. Удача (3:45)
+04. Владимир Ждамиров, Натали Локс - Сквозь сон (4:33)(   Читать дальше...   )Жанр: Chanson, Pop, FolkПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC51ECCE2C3192DF640B4C650D60C5A1B0058764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537359   (666814) от 17.03.2022
+
+VA - Hangover Lounge Grooves, Vol. 3 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Hammock - Sound of the Tsunami (7:07)
+02. Marga Sol - Goodbye (4:12)
+03. Lemongrass, Karen Gibson Roc - You Gotta Be Free (3:35)
+04. Stargazer - White Caps (Sylt Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB2C51E1662BABCF799B840C85E41942EC54249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536897   (666815) от 17.03.2022
+
+VA - Deep-House Atmosphere, Vol. 2 (2022) [AAC|~320 Kbps] <Deep House>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_666815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganga - Autumn (DJ Malte Of Real XS Mexican Club Mix) (9:21)
+02. Jaques Le Noir - Madreperla (3:07)
+03. Kayligs - Words (5:39)
+04. Charly'n Black - Genève Rive Droite (3:44)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:40:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537549   (666816) от 17.03.2022
+
+VA - This Is Chillout Jazz, Vol. 1 (Cool Jazzy Sounds in a Lounge Mood) (2014) [AAC|~325 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nostra - Scream (6:08)
+02. Papik, Alan Scaffardi - Sign of Your Love (3:22)
+03. Afronauti, Silvia Donati - Same Place (4:51)
+04. Paolo Di Sabatino, Gino Vannelli - Into the Night (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C249BBAA3BCC0BB1D7D49B775295B4360C12CD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537582   (666817) от 17.03.2022
+
+Mic Drop 1.4.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.03.2022Разработчик: © 2020 Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C786F5E4E6969964DB073F6CEF0B8F99A9E1843F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537619   (666818) от 17.03.2022
+
+Sublime Merge Dev Build 2069 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 17.03.2022Разработчик: © 2022 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554A3CBACA0B1D1DE6F821EE90B33D8C15D66A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537356   (666819) от 17.03.2022
+
+High Step Society - High Step Society (Remixes) (2018) [AAC|~328 Kbps] <Electro Swing>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_666819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Newest St. Louis Toodle-oo (Käse Kochen Mix) (5:52)
+02. Is You Is (Cockney Nutjob Mix) (3:36)
+03. Heaven (Dephicit Mix) (5:00)
+04. The Rumble (Liberty Chaps Mix) (3:13)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537355   (666820) от 17.03.2022
+
+High Step Society - High Step Society (2017) [AAC|~324 Kbps] <Electro Swing>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is You Is (5:18)
+02. Searching for a Cure (4:00)
+03. Echoes of Whiteaker (3:39)
+04. Hot Jazz (4:35)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19C8EA4FED852AEEB4445AC41CE330FF1451CFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537551   (666821) от 17.03.2022
+
+VA - This Is Chillout Jazz, Vol. 2 (Cool Jazzy Sounds in a Lounge Mood) (2014) [AAC|~343 Kbps] <Lounge, Chill Out, Smooth Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italian Secret Service - Vox Media (5:04)
+02. Papik, Sarah Jane Morris, Fabrizio Bosso - Let The Music Play (4:03)
+03. Ithamara Koorax, Jose Roberto Betrami, Jeorge Pescara, Arnaldo De Souteiro, Haroldo Jobim - Goin' Out of My Head (3:13)
+04. Bossa Nostra, Bruna Loppez - Maiden Voyage (6:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD4ACA46C88E1BCA406033909E4E7D19E6A07AFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537365   (666822) от 17.03.2022
+
+VA - Hangover Lounge Grooves, Vol. 5 (2014) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_666822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metaharmoniks - Confession (4:34)
+02. Sylvering - The Power of Love (4:35)
+03. Guenter Haas - Tales of a Broken Planet (4:32)
+04. Ingo Herrmann - Minds Eye (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537673   (666823) от 17.03.2022
+
+VA - Chill-Out Music Market (Take-It-Easy Tunes) (2017) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rangiroa - Is There Anything (4:18)
+02. Alex Barattini - My Play (Chill Out Mix) (4:12)
+03. The Invisionary - Artificial Intelligance (9:11)
+04. Pianochocolate - Morning Coffee (1:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B70E8296F4A7F3DF57226E32C0EED475ED51E2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137499   (666824) от 27.05.2017
+
+VA - Trance Parade (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel & Jan Johnston - Skysearch (Ruslan Radriges Remix) 4:49
+02.  Aurora Night - Loryanna (Original Mix) 4:25
+03.  Andrey Pashkov - Moonlight (Original Mix) 6:09
+04.  Roman Messer & Armos - Higher (Original Mix) 6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC80266F405A25BCEA6D017610938D1ED661B41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137338   (666825) от 27.05.2017
+
+Monster Energy Nascar All-Star Race, Гонка Открытия - Charlotte (2017) HDTVRip [H.264/720p-LQ] [VO]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678613.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 июня 2016, пятница. 23:15 МСК
- Первая игровая неделя. 1-й дивизион. Группа B1. 2-й тур
-Стадион:  Арена Кариока 1 (Рио-де-Жанейро, Бразилия) , 3530 зрителей (22 % при вместимости 16000)
-Судья 1:  Ибрахим Аль Наама (Катар)(   Читать дальше...   )Жанр: СпортЯзык озвучки: ИнтершумПродолжительность: 02:28:50
+Внезачетный этап Monster Energy NASCAR Cup Series All-Star Race from Charlotte Motor Speedway.Телекомпания: FS1Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:03:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77E5662DFCC1D6780DD2F1FA29991723D9712276
+magnet:?xt=urn:btih:06B928EB4EA5E6C04980C3AA3A1365E5FCA191D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290456   (678614) от 20.03.2019
+###  Публикация: 1137710   (666826) от 27.05.2017
 
-Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+А. Бебель | Крестьянские войны в Германии (1923) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678614.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sapajou Walk [6:19]
-02. Grama Grass [7:36]
-03. Salamander [6:28]
-04. Moth Ball [4:26](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A37E62DD7437882E283573FAA69E23CC2CF6FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536157   (678635) от 10.03.2022
-
-Ghost - Impera (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведские оккультные рокеры GHOST выпустят пятый альбом "Impera" 11 марта 2021 года на лейбле Loma Vista (в составе компании Concord).
+Предисловие:
 
-На "Impera" "GHOST путешествуют во времени на сотни лет из эпохи “Черной чумы” в Европе XIV века, во время которой происходило действие их предыдущего альбома "Prequelle" (2018). В результате получилась (   Читать дальше...   )01. Imperium (01:40)
-02. Kaisarion (05:02)
-03. Spillways (03:17)
-04. Call Me Little Sunshine (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:26
+Это сочинение не имеет притязания быть научным исследованием; для этого, в том месте, где оно возникло, у меня не было никаких средств.
+(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A060D944D205D6DA4EFE1E65FF6E33719FAB2A08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 508482   (678636) от 10.06.2012
+###  Публикация: 1137731   (666827) от 27.05.2017
 
-М.Г. Манизер | Школа изобразительного искусства [1962] [PDF]
+В. Ваганян | В. И. Ленин о задачах внутрипартийного строительства (1924) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666827.jpg" />
+</div>
+
+
+###  Подробнее
+
+В речи и проекте резолюции по вопросу об очередных задачах партийного строи­тельства Ленин наметил конкретные меры по развитию внутрипартийной демократии, улучшению работы партийных органов в центре и на местах, по искоренению элемен­тов бюрократизма, голого администрирования и других нездоровых явлений, которые проявились в тот период в ряде организаций. Ленин выдвигал (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB935AF08F83B20E5A9822D5FC3476803F55A7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137773   (666828) от 27.05.2017
+
+QLab Pro 4.0.11 [En]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678636.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проверенное временем практическое руководство для начинающих и самодеятельных художников.1962Формат: PDF
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.
+
+Нужно обрезать начало и конец аудиотрека? Это можно с легкостью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2017Разработчик: Figure 53, LLC.Поддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:054274B1A7D35ED49D5E3D123E25F9489C14CB19
+magnet:?xt=urn:btih:B06168BB91FDE129B274D5DFDC8735ACD23063A9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536214   (678637) от 10.03.2022
+###  Публикация: 1137693   (666829) от 27.05.2017
 
-Дыхание нации / The Breath of a Nation (1919) DVDRip
+File Cabinet Pro 4.1.3 [En]
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678637.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Забавная история происшедшая в период продвижения и принятия в США так называемого "сухого закона". Все еще было впереди и американцам это пока что казалось смешным...Производство: США, International Film ServiceЖанр: Рисованная анимация, короткометражный, комедия, для взрослыхРежиссер: Грегори Ла КаваПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:06:01
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
+
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A68E000344E1C59AD118E99F58B24AEA9F99F7A5
+magnet:?xt=urn:btih:A80C50DB61DE511EF270E9A63ABE86807CEE4EAB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535928   (678639) от 10.03.2022
+###  Публикация: 1137597   (666830) от 27.05.2017
 
-Иерей Владимир Соколов | На грани жизни (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иерей Владимир Соколов знаком читателям как автор многих статей и книги о проблеме младостарчества. Новая книга отца Владимира - это не просто письма заключённым, это, скорее, ответы на вопросы, которые сама жизнь задаёт душе каждого человека. Отверженные обществом люди обращаются прежде всего к нашей совести. И главный вопрос, который читается между строк этих писем: (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D29C946E0DFEACA03038ED734DD7DBEC8EF066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508771   (678640) от 10.06.2012
-
-Беглец / The Fugitive (1993) HDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убитая жена. Однорукий мужчина. Одержимый детектив. Преследование начинается. Доктор Ричард Кимбл, чикагский хирург, ложно обвинен в убийстве своей жены.
-Полный решимости доказать свою невиновность, доктор совершает побег из тюрьмы. Он хочет сам привести своих преследователей — служителей закона — к настоящему убийце…Жанр: Боевик, триллер, драма, криминал, приключенияРежиссер: Эндрю ДэвисАктеры: Харрисон Форд, Томми Ли Джонс, Села Уорд, Джулианна Мур, Джо Пантольяно, Андреас Катсулас, Ерун КраббПеревод: Профессиональный дублированныйПродолжительность: 02:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7321216BDA7ECB71966C8F66657E7F519CF6A4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535393   (678641) от 10.03.2022
-
-Balduin - Vintage Vibes (2022) [AAC|~300 Kbps] <Electro Swing, Neo Swing, Swing Hop, Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Balduin, Kate Thomas - Hep Cat Boogie (3:23)
-02. Balduin, Masha Ray - Wabababa (3:04)
-03. Balduin, Wolfgang Lohr, J Fitz - New Ground (3:08)
-04. The Pink Cat (1:22)(   Читать дальше...   )Жанр: Electro Swing, Neo Swing, Swing Hop, PopПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535948   (678643) от 10.03.2022
-
-Marga Sol - Best of Marga Sol: 10 Years Anniversary Edition (2016) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dali Sonuvam (Ambient Chill Mix) (3:44)
-02. Around Me (3:36)
-03. Tocca Me (4:27)
-04. Prayer for Love (3:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:01:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508754   (678644) от 10.06.2012
-
-Sabayon 9.0 (GNOME, KDE, Xfce) [x86] (3xDVD)
-
->>След.
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фабио Эркулиани (Fabio Erculiani) и команда разработчиков Sabayon development team представляют новый стабильный выпуск своего основанного на Gentoo дистрибутива – Sabayon 9 (редакции GNOME, KDE, Xfce, SpinBase, ServerBase, CoreCDX). «Из коробки» компонентами этой версии являются ядро 3.4, GNOME 3.2.3, KDE 4.8.3, Xfce 4.10, LibreOffice 3.5.3. Основные особенности релиза Sabayon 9: использование в экосистеме Sabayon профиля Gentoo Hardened; Rigo – новая минималистичная и простая концепция пользовательского интерфейса Application Browser; tech-preview реализация поддержки ZFS (ограничена в связи с лицензионными конфликтами); PAE-ядро для версий x86 (32-bit); значительное количество исправленных ошибок.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24BA49CC851160471C388054A60A84B49BCA2172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536210   (678645) от 10.03.2022
-
-Джон Банни. Медовый месяц Банни / Bunny's Honeymoon (1913) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678645.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме Джон Банни играет крёстного отца красавицы Валерии, которая хочет выйти замуж за торговца недвижимостью Кьюти. Но её отец против их свадьбы, потому что Кьюти злоупотребляет алкоголем, а если прямо сказать - пьянствует до свинского состояния. Банни решает помочь влюблённым и помочь Кьюти избавится от дурной привычки.Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Дороти Келли, Уолли Ван, Чарльз Элдридж, Фрэнк Мэйсон, Роберт ГэллардПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEC7A3529BF55504DAF590605F3D9491DF1F796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536095   (678646) от 10.03.2022
-
-Marga Sol - Reflections (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calma (5:28)
-02. Marga Sol, Duke B - Falling into Existence (Original Mix) (4:13)
-03. Marga Sol, Darles Flow - Andromeda (7:29)
-04. Mind Travel (Original Mix) (3:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59667198245CC80EBABB15BE5315F672533B0F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536093   (678648) от 10.03.2022
-
-Marga Sol - Coastline (2019) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillvibes (Original Mix) (4:28)
-02. Beautiful & Bitter (Original Mix) (4:28)
-03. My Baby (Original Mix) (5:50)
-04. Bossalova (Original Mix) (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535891   (678650) от 10.03.2022
-
-VA - Wellness, Spa & Meditation, Vol. 4 (2022) [AAC|~287 Kbps] <Chill Out, Lounge, Ambient, Relax>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganganesha - Mother Gea (3:25)
-02. Dharma - Pleasure and Bliss (2:13)
-03. Flavas - The Ability to Master Attention and Intention (2:13)
-04. Shivara - White Mother (3:29)(   Читать дальше...   )Жанр: Chill Out, Lounge, Ambient, RelaxПродолжительность: 01:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25ACC8BFB182495C8C78ED4AE6CFA4B111B0CE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536085   (678652) от 10.03.2022
-
-Master - Vindictive Miscreant (2018) Reissue, 2021, Awakening Records [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+Cut Up - Wherever They May Rot (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678652.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666830.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vindictive Miscreant 05:06
-02. Actions Speak Louder than Words 05:40
-03. Replaced 04:35
-04. The Inner Strength of the Demon 06:13(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:55:52
+01. From Ear to Ear
+02. Necrophagic Madness
+03. Behead the Dead
+04. Wherever They May Rot(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EEB5A1CC542ACA287C7CEA7419469DFDF60E23B
+magnet:?xt=urn:btih:7574AFF41F875A87E69458095462BB3714378EF4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 508720   (678653) от 10.06.2012
+###  Публикация: 1137771   (666831) от 27.05.2017
 
-В. Надеждина | 130 домашних игр для детей и родителей [2007] [DOC]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678653.jpg" />
-</div>
-
-
-###  Подробнее
-
-130 домашних игр для детей и родителей – это сборник разнообразных игр для детей дошкольного и младшего школьного возраста. В книге собраны игры, способствующие развитию детей и подготовке их к обучению в школе. Играть с малышами могут родители и воспитатели детского сада, некоторые игры рассчитаны на большое число участников, некоторые - на 2-3 человека. В книге представлены следующие основные игры: игры на развитие внимания, координации движений, развитие восприятия, мышления и речи, воображения и художественных способностей, памяти, просто подвижные игры и разные забавы.Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098B4B016879B5C7C5C04F5CB730D805C6063D99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535894   (678654) от 10.03.2022
-
-VA - Urban City Vibes 9: Urban Chillhop, Soul & Nu Jazz Music (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Nu Jazz, Soul, Chillhop>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lennart Richter - Always Near (Original Mix) (6:21)
-02. sarosa - On the Run (Original Mix) (3:48)
-03. Matej Blanusa - Soulful (5:08)
-04. Digby Jones - Yes Please (Original Mix) (5:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, Nu Jazz, Soul, ChillhopПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D1B46E80D8BAADA5A9F090FC0A584F8385A275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535889   (678656) от 10.03.2022
-
-VA - Underwater Oasis: Chillout Your Mind (2022) [AAC|~326 Kbps] <Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Honey for All (Original Mix) (4:27)
-02. Organic Patch - Vibes (4:08)
-03. G.Pantelidis - Sailing (5:19)
-04. Marga Sol - Bliss of Water (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE6A023B50FB4DA40B1EDC546C1AFE955A2FA56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536094   (678658) от 10.03.2022
-
-Marga Sol - Soultalk (2020) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Seagulls (Original Mix) (4:37)
-02. Soulheaven (Original Mix) (5:50)
-03. Starry Night (Original Mix) (5:47)
-04. Sandwalk (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42C9D2255B016E419B70CC2B6AB5E113FD945F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536092   (678660) от 10.03.2022
-
-Marga Sol - Satisfied (2019) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes (6:19)
-02. Marga Sol, Darles Flow, Victoria Loba - All the Love (5:55)
-03. One Night Effect (5:34)
-04. Marga Sol, Darles Flow - Sol & Flow (6:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9523F064FFFC1F4C9BFFD8C8F9BCBFAD97315F99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508593   (678661) от 10.06.2012
-
-И.М.Коротков | Подвижные игры во дворе [1987] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подвижные игры - одно из самых любимых и полезных занятий детей. В книге описаны игры с мячом, городки и т.д., которые можно проводить во дворах жилых домов.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4513ABD52F94F9B9DF033008436F47147181E30F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535886   (678662) от 10.03.2022
-
-VA - Pool Chill Time (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gries - On the Move (5:42)
-02. Chiffre 100 - Summer Longing (Extended Mix) (5:30)
-03. Schauberger - A Sweet Allegory (5:53)
-04. Mono tuned - Sizzling Hot (6:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482CF7607B21BA4CE297973109A16B7DFB288CA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508738   (678663) от 10.06.2012
-
-Gabriel Knight 3: Blood of the Sacred,  Blood of the Damned / Гэбриэл Найт: В поисках грааля [Ru] (RePack) 1999 | RG Games (Pilotus)
+Формула 1. Сезон 2017. 6-й Этап. Гран-при Монако. Свободная практика 3 (27.05.2017) HDTVRip [H.264/720p-LQ] [ hand made 50fps]
 
 >>Архив торрентов
->>Архив Игр
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678663.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666831.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Третья, к сожалению, заключительная часть приключений Габриеля Найта, "Охотника за тенью", писателя, и просто хорошего парня. Теперь игра выполнена в полном 3D. На этот раз Найт расследует таинственное похищение сына принца Албании. Во время расследования Габриель узнает подробности о б истории мест, в которых он окажется, и окажется вовлечен расследование тайн ранней Церкви.(   Читать дальше...   )Тип издания: RePackЖанр: ПриключениеЯзык озвучки: РусскийЯзык интерфейса: Русский
+27 мая 2017 года, суббота. 12:00 МСК
+Формула 1. Сезон 2017. 6-й Этап. Гран-при Монако. Монте-Карло (Монако)
+Свободная практика 3
+Арена: Городская трасса Монте-Карло (Монте-Карло, Монако)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:828CC80C7E593AA3CE7EDB008460D81B21108D19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137784   (666832) от 27.05.2017
+
+Хоккей. НХЛ 2016-2017. Кубок Стэнли. Запад. Плей-офф. 1/2 финала. 4-й матч. Нэшвилл Предаторз – Сент-Луис Блюз (02.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666832.jpg" />
+</div>
+
+
+###  Подробнее
+
+03 мая 2017, среда. 04:30 МСК
+НХЛ 2016-2017. Кубок Стэнли. Западная конференция. Плей-офф. Второй раунд.
+1/2 финала. 4-й матч
+Нэшвилл Предаторз – Сент-Луис Блюз(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B652E5C3BCB777DE9BFF9269C1E46404DCC1CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137495   (666833) от 27.05.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Финал 4-х. Матч за 3-е место. Кучине-Лубе (Италия) — Берлин Рециклинг (Германия) (30.04.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666833.jpg" />
+</div>
+
+
+###  Подробнее
+
+30 апреля 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Финал четырёх. Рим (Италия)
+Матч за 3-е место
+Кучине-Лубе (Чивитанова-Марке, Италия) — Берлин Рециклинг (Берлин, Германия)(   Читать дальше...   )Телекомпания: СтартЖанр: СпортПеревод: Не требуется, нет голосовых комментариевЯзык озвучки: ИнтершумСубтитры: отсутствуютПродолжительность: 02:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61232E80AD92FE569002A7DB5A96A4523E1949EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137678   (666834) от 27.05.2017
+
+Новая "добавка" к системе OpenAI позволяет проводить обучение роботов в виртуальной реальности
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_666834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В свое время мы уже рассказывали нашим читателям о проекте под названием OpenAI, одним из главных организаторов которого является Элон Маск. Целью этого проекта является создание специализированной среды виртуальной реальности, своего рода полигона, предназначенного для обучения, самообучения систем искусственного интеллекта, проведения соревнований и экспериментов (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,57 @@
+###  Публикация: 1459459   (1023336) от 01.04.2021
+
+Amesoeurs - Amesoeurs (2009) [FLAC|Lossless|tracks + .cue] <Post Black Metal, Atmospheric Black Metal, Blackgaze, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gas In Veins (5:10)
+02. Les Ruches Malades (4:19)
+03. Heurt (6:01)
+04. Recueillement (7:01)(   Читать дальше...   )Производство: Code666 – CODE040Жанр: Post Black Metal, Atmospheric Black Metal, Blackgaze, Post PunkПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F0D9600E60F4FCC2F398BF37E0B1B6AAC6D209
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459314   (1023338) от 01.04.2021
+
+Perpetual Paranoia - The Reapers (2018) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Reapers
+03. Whatever It Takes
+04. I Say Jesus(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA445CB1D37B23042934F1F74DB3D4DED65C115A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458920   (1023458) от 31.03.2021
 
 Thomas Frank Hopper - Bloodstone (2021) [MP3|320 Kbps] <Blues Rock>
@@ -641,60 +695,6 @@ Band Of Spice - Economic Dancers (2015) [FLAC|Lossless|image + .cue] <Stoner Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DDEBBF2C88836714EBDFFC10E08FD929695B736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458277   (1023880) от 29.03.2021
-
-Terronaut - 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Post Rock, Post Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Gain [00:02:26]
-02. Nebulosa [00:05:53]
-03. Star Mother [00:05:56]
-04. Alone [00:08:43](   Читать дальше...   )Жанр: Post Rock, Post MetalПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68B112A0FB01616BD1515E8C201F369006F3799
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458516   (1023882) от 29.03.2021
-
-Septagon - Apocalyptic Rhymes (2018) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End
-02. The Weight Of The World
-03. Home, Sweet Hell
-04. Apocalyptic Rhymes(   Читать дальше...   )Жанр: Speed Metal, Thrash MetalПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF6B36E7044ECABE58E02952D5AF7685B57AB3E
 ```
 
 

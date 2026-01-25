@@ -1,3 +1,30 @@
+###  Публикация: 917065   (589994) от 10.07.2015
+
+VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Spring - When It's Gone (Feat. Flo Rida) (Big Beat Remix Edit)
+02. M.Iam.I - Roll (Feat. Ludacris, Slow To Die & Adriana)
+03. Daniel Tek Vs Matthew Bee - Gimme The Noise (Alien Cut Remix) (Feat. Aryfashion)
+04. Kryder - Percolator (Feat. Cajmere)(   Читать дальше...   )Жанр: House, Bigroom, Progressive, FunkyПродолжительность: 01:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B705B1FAB7C125875A08D1CE478C50F62FB6A30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551296   (590103) от 15.05.2022
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver. 119 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
@@ -666,33 +693,6 @@ VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915336   (592386) от 05.07.2015
-
-In-Grid - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Pop, Speech>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tu es foutou
-2. In-tango
-3. Нежность
-4. La Trompette (Rico Bernasconi Club Mix)(   Читать дальше...   )Жанр: Pop, SpeechПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
 ```
 
 

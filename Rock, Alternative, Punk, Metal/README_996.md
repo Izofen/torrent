@@ -1,3 +1,57 @@
+###  Публикация: 1018323   (757461) от 19.05.2016
+
+Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young At Heart
+02. Maybe You'll Be There
+03. Polka Dots And Moonbeams
+04. All The Way(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A334DB2837883C8EF971C98B32DCD4288E6D77F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018041   (757551) от 19.05.2016
+
+Rialto - Night On Earth (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Crawling
+02. Anything Could Happen
+03. Anyone Out There?
+04. Catherine's Wheel(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BF7A70ECFBC89E6B5AF1BA0FA9356165EC9402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018150   (757632) от 19.05.2016
 
 Suidakra - Realms Of Odoric (2016) [MP3|320 кб/с] <Epic Metal, MDM, Viking Metal>
@@ -639,60 +693,6 @@ Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8A525B3B4D21A48C27B002F2F9DC17660BD4F96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522296   (758792) от 07.01.2022
-
-Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Attack
-02. Starchild
-03. Killer Queen
-04. Master Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6057B1ABC121D6809CA54310FB35C2DE2989250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522294   (758793) от 07.01.2022
-
-Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The American Dream
-02. The Heat And The Fire
-03. Away Too Long
-04. Hold Out(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
 ```
 
 

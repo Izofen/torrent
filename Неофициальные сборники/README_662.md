@@ -1,3 +1,30 @@
+###  Публикация: 1472570   (1014057) от 27.05.2021
+
+VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014057.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Viking - Shine
+002. The D.Trance Team - On Burning Sand
+003. Sali - No Comment
+004. Crossed Minds - From Another Space(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 09:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87325D87EF72680D000BB99B4A145B662412B9B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472590   (1014058) от 27.05.2021
 
 VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Club, Dance House>
@@ -668,33 +695,6 @@ VA - Music News vol.101 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F12ECBD9C129B75990C94E07BF177C8D9EA957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470906   (1015307) от 19.05.2021
-
-VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
-002. Sasha F - Dead Generation
-003. Jay Reeve - The Nearest Star
-004. Sinister Seven - Ballers(   Читать дальше...   )Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
 ```
 
 

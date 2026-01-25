@@ -1,3 +1,57 @@
+###  Публикация: 1533648   (703220) от 25.02.2022
+
+Serious Black - Vengeance Is Mine (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703220.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rock with Us Tonight
+2. Out of the Ashes
+3. Fallen Hero
+4. Senso Della Vita(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E863BFB8540327887948CA73DEB539C30BE7E51C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287605   (703228) от 07.03.2019
+
+Спектакль Джо - Записки Адмирала (2019) [MP3|320 Kbps] <Punk Rock, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Напутствие (1:30)
+02. Адмирал (4:02)
+03. Романс о заброшенном театре (2:57)
+04. Цыган и Дракон (муз. гр.Тараканы) (2:31)(   Читать дальше...   )Жанр: Punk Rock, Art PunkПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B222E5C827F3649DD438D3C2A9AFAB92CBE7A2CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533616   (703344) от 25.02.2022
 
 Allegaeon - Damnum (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal>
@@ -641,57 +695,6 @@ VA - A Tribute To Iron Maiden (2017) [MP3|320 Kbps] <Heavy Metal, Thrash Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15711199F085CEEAC12307DAEE829F30E2F54210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 149228   (704640) от 24.02.2022
-
-Группировка Ленинград - Лучшее (2CD) (2008) [FLAC|Lossless]<Ска, Психоделический рок, Пост-панк, Регги, Хардкор>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ска, Психоделический рок, Пост-панк, Регги, ХардкорПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10195A93A85CC5967872F056C99B8CE08E9768DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131934   (704708) от 07.05.2017
-
-VA - A Tribute To Iron Maiden (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kreator - The Number Of The Beast
-02. Trivium - Iron Maiden
-03. Stone Sour - Running Free
-04. Iced Earth - The Trooper(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Power MetalПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AB9B4770D67CA28594138B700FA3DFDEC00A66
 ```
 
 

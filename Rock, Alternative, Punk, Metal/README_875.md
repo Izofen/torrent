@@ -1,3 +1,57 @@
+###  Публикация: 412945   (619545) от 28.07.2013
+
+Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Goth Industrial, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_619545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Миледи
+02. Аутодафе (Неизданный вариант)
+03. Проклятье Мертвых Роз (Ремастированный вариант)
+04. Одиночество Победителя (Эксклюзивный вариант)Жанр: Goth Industrial, Gothic Metal |Продолжительность: 00:21:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684563   (619745) от 28.07.2013
+
+Sammy Hagar - 4 альбома (1981-1987) Mini LP SHM-CD /2013, Universal Music Japan/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_619745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Hammer Falls (4:10)
+02. Hands And Knees (4:50)
+03. Give To Live (4:24)
+04. Boys' Night Out (3:19)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145797   (619796) от 26.06.2017
 
 Ten - Gothica (2017) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -653,60 +707,6 @@ Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C504E9062D7E5EDA63A03A7F5D6F26315BED45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911017   (620670) от 21.06.2015
-
-Negative Self - Negative Self (2015) [MP3|320 кб/с]<Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620670.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Back On Track
-2. Another Year
-3. Self-destruct...The Pain Never Ends
-4. Dancing With The Dead(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F1589138D73FAE6D50B12AC670B4FB7628779F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911011   (620673) от 21.06.2015
-
-Heavens Gate - Best for Sale! (2015) Remastered [MP3|320 кб/с]<Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Control
-02. Surrender
-03. Tyrants
-04. Path of Glory(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0FE20D6EE08B390DBB2D659B5F2E0C252F0366
 ```
 
 

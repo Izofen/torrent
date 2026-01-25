@@ -1,3 +1,84 @@
+###  Публикация: 1204895   (783796) от 09.02.2018
+
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205075   (783797) от 09.02.2018
+
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204927   (783798) от 09.02.2018
+
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204873   (783799) от 09.02.2018
 
 VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
@@ -613,87 +694,6 @@ ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
-
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204685   (784404) от 07.02.2018
-
-VA - Rooftop Beats, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax - Close 2 U (feat Mike Schmid - Original mix)
-02. Tritonal - Getaway (feat Angel Taylor - Jengi Beats remix)
-03. LEVV - Collateral Damage (Matt Fax remix)
-04. Universal Solution - In Your System (Hexlogic remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2FA4B8D08E893E84B4EC105709E2F1A4B43FBF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204724   (784407) от 07.02.2018
-
-VA - Bass House Nation Vol.14 (2018) [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ibiza House Crew  -  Who Knows (Dimitri Vegas & Like Mike Remix)  5:38
-02.  Spencer & Hill  -  Cool (Afrojack Remix)  6:23
-03.  Electro Xtreme  -  One Touch Away (Dallask Radio Edit)  3:12
-04.  Spencer & Hill  -  Less Go! (Porter Robinson Remix)  7:04(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9718C6E00368F03D2B51878E0883C3D7C4E1FF1
 ```
 
 

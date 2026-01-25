@@ -1,3 +1,57 @@
+###  Публикация: 1306508   (555582) от 05.06.2019
+
+Elvenking - Two Tragedy Poets and a Caravan of Weird Figures (2008) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Caravan Of Weird Figures
+02. Another Awful Hobs Tale
+03. From Blood To Stone
+04. Ask A Silly Question(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF9E0979B1F9EFDE9D1EA94072301A3A2CBB364
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306343   (555669) от 04.06.2019
+
+K-Man & The 45s - Stand With The Youth (2019) [FLAC|Lossless|tracks + .cue] <Rock, Punk, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand With the Youth (3:12)
+02. Hero With a Death Ray (1:36)
+03. Watcha Doing to Me (2:49)
+04. Get Outta My Head (2:08)(   Читать дальше...   )Жанр: Rock, Punk, SkaПродолжительность: 33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD0901BFD8CA06BD6F487B03D8698C5BECBA996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306341   (555673) от 04.06.2019
 
 Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative Rock>
@@ -641,60 +695,6 @@ Tank - Re-Ignition (2019) Japanese Edition [MP3|320 kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FC76E92EC5021E82236BDF9D30FCADD88F416A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305822   (556192) от 01.06.2019
-
-Steve Jones - Mercy (2018) 2019, Rock Candy/Geffen/UMG [FLAC|Lossless|tracks + .cue] <Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556192.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Mercy 4:59
-2.Give It Up 4:50
-3.That's Enough 4:10
-4.Raining In My Heart 5:15(   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00: 46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AF79610F4B5F1BD119E414FD2967B32400A0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236184   (556279) от 15.07.2018
-
-The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piglet (03:07)
-02. Stick With It (02:26)
-03. Watch Out (02:22)
-04. Black Coffee (02:13)(   Читать дальше...   )Жанр: Rockabilly, Rock&RollПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
 ```
 
 

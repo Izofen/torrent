@@ -1,3 +1,57 @@
+###  Публикация: 1495484   (880536) от 12.09.2021
+
+VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat Benatar - Heartbreaker
+02. Tears For Fears - Everybody Wants To Rule The World
+03. Steely Dan - Rikki Don't Lose That Number
+04. Lynyrd Skynyrd - Free Bird (Edit)(   Читать дальше...   )Жанр: Rock, Children RockПродолжительность: 01:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6688C5D9BFB3616E4B8345E01657D899BB5DA8B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373102   (881890) от 05.04.2020
+
+VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Whitesnake - Guilty of Love (3:18)
+2.The Doobie Brothers - Long Train Runnin' (Full Guitar Mix) (5:31)
+3.Deep Purple - Speed King (5:52)
+4.Alice Cooper - I'm Eighteen (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 186067   (881959) от 25.03.2010
 
 VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
@@ -642,60 +696,6 @@ Slade - Gospel According To Noddy (2006) [MP3|320 кб/с] <Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6CB10485C8020F64B7C60BA72D32DB0652BD9C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493304   (897497) от 02.09.2021
-
-Green Grey - Спичка (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EGO [00:03:41]
-02. По тонкому льду [00:03:44]
-03. Спичка [00:03:32]
-04. Машина времени [00:04:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297616CDE71F597F3A69B395EA4A8E5340D7832A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100697   (897976) от 05.02.2017
-
-Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Song
-02. After The Storm
-03. Sister Mary
-04. Move That Wigwam(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
 ```
 
 

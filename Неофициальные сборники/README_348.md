@@ -1,3 +1,36 @@
+###  Публикация: 360693   (579911) от 08.07.2011
+
+VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albin Myers - Faking Love (Sebastien Drums & Rob Adans Remix) (6:03)
+02. Alice Deejay - Better Off Alone (Laidback Luke Remix) (5:03)
+03. Antoine Clamaran feat. Laurent Pautrat - Somebody Scream (Original Mix) (7:03)
+04. Armin Van Buuren feat. Nadia Ali - Feels So Good (Armin Van Buuren Club Mix) (6:26)
+05. Bella - Nobody Loves Me (Hardwell Remix) (6:03)
+06. Belmond & Parker - On The Move 2k11 (Club Mix) (6:17)
+07. Ben Preston feat. Max Fredrikson - Glorious 2011 (Cliff Coenraad Remix) (7:15)
+08. Cahill feat. Joel Edwards - In Case I Fall (Club Mix) (6:56)
+09. Cobra Starship Ft. Sabi - You Make Me Feel (Disco Fries Extended Mix) (5:31)
+10. Craig Connelly - Absolute Electric (Tritonal Club Mix) (7:50)(   Читать дальше...   )Жанр: ClubПродолжительность: 04:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AACEC25B4E2DB208502584DAA48928DCF1449A14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360448   (579912) от 08.07.2011
 
 VA - Зарубежные клубные новинки vol.4 (2011) [MP3|320 kbps]<Club>
@@ -674,33 +707,6 @@ VA - Блатные 90-е. Ностальгия (2011) [MP3|256 kbps]<Шансо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDA2B86DA424FD3A377DB953BF221A0FE71410FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920031   (580862) от 21.07.2015
-
-VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580862.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Young Professionals Feat. Anna F - All Of It But Me (03:09)
-002. Анастасия Приходько - Ника (03:27)
-003. Chris Parker - Robot Romantic Love (03:39)
-004. Виктор Романченко - Я Услышу (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60ED180011B14CE33ED758CDA5A09464F4FF68E
 ```
 
 

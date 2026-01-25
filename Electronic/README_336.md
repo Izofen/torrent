@@ -1,3 +1,84 @@
+###  Публикация: 1138690   (661400) от 01.06.2017
+
+VA - Sperrstunde Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bernd Filz - So Cool 5:21
+02.  Bernd Filz - Soul Wellness 4:28
+03.  Bernd Filz - No Reason To Lie, Pt. 1 6:10
+04.  Dreams Machine - Moonlight 3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BD6D6B8A9E62502804FBDE79344A50E5087FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138914   (661401) от 01.06.2017
+
+VA - Summer Bike Boot Camp 2017 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zak Oil - Class 3:06
+02. Yael Wood - Burn 3:06
+03. Xort Base - Denne 3:06
+04. Voice Output - Style 3:06(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB3A36D5D1E72B7BC548C011B2C8EA99060257E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225247   (661821) от 14.05.2018
+
+VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nando Rodriguez, Black Of Birds - Brighter Days (Black Of Birds Interpretation) 8:01
+02. Fat V - How? (Original Mix) 5:12
+03. Nuka Abelsen - Raw And Pure (Original Mix) 4:50
+04. Otnicka - Before Sunrise (Original Mix) 4:55(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 04:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225265   (661827) от 14.05.2018
 
 Lemongrass - Unite (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chillout>
@@ -611,87 +692,6 @@ VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D97A3D7F63492D4A007CC138E189F3FAD36B170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138251   (664489) от 29.05.2017
-
-VA - Chill Luxury Del Mar - Beach Spa Resort Boutique Lounge Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moon de Lounge - La Mer Se Calme (Lounge Mix) 5:05
-02.  Princess Of Lounge - We Found Love (Wish You Were Here Mix) 4:44
-03.  Lounge Traveller - Many Places 5:48
-04.  Drops Of Honey - Pura Vida (Puro Del Mar Sunset Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D222EB708B55F99FAF7AF369C58FBEDE945D53E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138257   (664491) от 29.05.2017
-
-VA - Poolside Miami 2017 (Mixed by Tobtok) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobtok - Prelude (Original Mix) 03:39
-02. Alaia Gallo Ft Kevin Haden - Who Is He (Claptone Remix) 05:35
-03. Tchami - Adieu (Original Mix) 06:53
-04. Arle - Close To You (Icarus Edit) 03:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F46B7EC8AB55292AD1874FAA35A7B21CFB962C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138359   (664493) от 29.05.2017
-
-Bassic - Biochrome (2017) [MP3|320 Kbps] <Ambient, Chillout, Nu Disco>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruz (03:45)
-02. Cosmic Dark (03:48)
-03. Mata Hari (05:08)
-04. Drip Drop (02:10)(   Читать дальше...   )Жанр: Ambient, Chillout, Nu DiscoПродолжительность: 01:09:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78BC386FCA0020A4A509C8A55D3D1C3BDD5CB2E6
 ```
 
 

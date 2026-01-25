@@ -1,3 +1,30 @@
+###  Публикация: 1538880   (661088) от 22.03.2022
+
+VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sueco - Loser (2:13)
+02. Е2 Знакомы - Зёрна (2:21)
+03. Ярик Бро - В Питере Дождь (2:38)
+04. The Score - Fighter (2:36)(   Читать дальше...   )Жанр: RockПродолжительность: 04:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139217   (661200) от 01.06.2017
 
 VA - American Country Blues (3CD) (2017) [MP3|256-320 Kbps] <Country, Folk Blues>
@@ -656,33 +683,6 @@ Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138578   (663165) от 30.05.2017
-
-VA - SpaceSynth & ItaloDisco Hits Vol.26 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.White - Generous Love (Extended Version) 7:13
-02.  Giuseppe Alicata - Parla Con Me 5:54
-03.  Linda Jo Rizzo - Under Fire 5:59
-04.  SpaceQuake - Let's Fly 5:42(   Читать дальше...   )Жанр: Italo Disco, SpacesynthПродолжительность: 04:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC7F3AB431A843EED0492708F72AB1CF6E47F5B
 ```
 
 

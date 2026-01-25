@@ -1,3 +1,30 @@
+###  Публикация: 1132960   (697229) от 11.05.2017
+
+VA - Весна. Высшая лига выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697229.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. M19 - Двадцать Первое 3:48
+002. Полина Гагарина - Драмы Больше Нет 3:14
+003. Terry - Гороскопы 3:16
+004. Пальчики Оближешь - Нецветные Розы 3:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAFAC0A857CC5E812F0539A047524652908778A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402899   (697328) от 16.08.2020
 
 VA - TOP Non-Stop 2010-2019 - Deep House (2020) [MP3|192-320 Kbps] <Deep House, Techno House, Progressive House>
@@ -668,33 +695,6 @@ VA - The Official UK Top 40 Singles Chart 20.04.2018 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:069FC8C7CF17088FDAA542839CCB7999BD27165A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132630   (698689) от 10.05.2017
-
-VA - Fleeting Moment: Dream Blues Compilation (2017) [MP3|320 Kbps] <Rock Blues, Country>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698689.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 'sir' Oliver Mally's Blues Distillery - Fleeting Moments 6:46
-002. Aj & The Badcats - Acadiana's Song 4:06
-003. Al Jones & His Band - People 4:16
-004. Al Jones & His Band - You Don't Have To 4:55(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 08:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A285FBBBCAA9E6F22E8D39D5241C107102D6BA8
 ```
 
 

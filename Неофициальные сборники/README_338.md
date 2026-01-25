@@ -1,3 +1,30 @@
+###  Публикация: 1152211   (566974) от 22.07.2017
+
+VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566974.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Arrojas - Didascalias (Original Mix)  5:15
+002.  Sunset Session Group - Soulsalicious (Original Mix)  6:13
+003.  Lamar Ensemble - Inspirational Shortcut  5:47
+004.  Chillelektro - Koos  6:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A0767B9B1E84D7E5941615A22EAE7BAF038BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152165   (566978) от 22.07.2017
 
 VA - Impulse 6 - Так себе музычка для ржавых корыт (2017) [MP3|320 Kbps] <Deep House, House, Trap, Drum & Bass, DubStep, Electro, Progressive>
@@ -677,33 +704,6 @@ VA - Ibiza Progressive Sessions Unleashed (2016) [MP3|320 Kbps] <House, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A11EC28D02CE73EE99E5882C1A90F0E4C9A59BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922717   (568203) от 29.07.2015
-
-VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jahkoy - Still in Love (Leon Bolier Remix) (04:39)
-02. Pasha & Izik - High Hopes (Original Mix) (06:50)
-03. Paul M. - Tayrona (Gux Jimenez Remix) (07:27)
-04. Olej, Stereoteric & Toxez feat. Raha - No Limits (Lessovsky Remix) (07:59)(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 02:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62555B88B739CD87166B361060853DB282F8A51
 ```
 
 

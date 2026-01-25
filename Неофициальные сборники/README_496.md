@@ -1,3 +1,30 @@
+###  Публикация: 1277859   (775011) от 22.01.2019
+
+VA - Dance (2019)[MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Lloyd-Nevermind
+02. Aya Nakamura-Djadja
+03. Magic System-Magic In The Air (feat. Ahmed Chawki)
+04. Loud Luxury-Body(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2599849E6294C3B178AFD2F05CBEECFE1CF4D252
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014929   (775073) от 10.05.2016
 
 Dosis - Technoir: Part 1 (2016) [MP3|320 кб/с|image+cue] <Techno>
@@ -663,33 +690,6 @@ VA - Progressive Beats Best of Music Vol. 2 (2016) [MP3|320 кб/с] <Trance, Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C98ECF9CC7D12F5FE3943B18387F1C5B6ABA730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014921   (775846) от 09.05.2016
-
-VA - 40 Top Hits DJ Boom (2016) [MP3|320 кб/с] <House, Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matrick - Ardent (Original Mix) 5:23
-02. Gordey Tsukanov - Flight To Infinity (Digital X Remix) 4:39
-03. Husman - Destiny (Extended Mix) 4:25
-04. Crystal Lake & DJ Isaac - Pirates (Extended Mix) 3:58(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 03:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4302883C54EE5A8BBC6F5859A47141340EFE727
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1402440   (701960) от 14.08.2020
+
+Wolfheart - Wolves Of Karelia (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail Of Steel (05:42)
+02. Horizon On Fire (05:58)
+03. Reaper (04:58)
+04. The Hammer (06:09)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580325407D27A01F7A82D2B9180CBAC0B44A085C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220625   (702011) от 20.04.2018
+
+Кукрыниксы - Последняя песня (2018) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2018 году музыканты празднуют двадцатилетие и выпускают прощальный сборник лучших композиций с символическим названием «Последняя песня». Лидер группы Алексей Горшенёв объявил о новом проекте, который будет носить его имя.CD 1:
+1. Не беда
+2. Солдатская печаль
+3. По раскрашенной душе(   Читать дальше...   )Жанр: RockПродолжительность: 02:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D439CCD1E931F9E0F84DE32C81841EC559792DB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026668   (702063) от 16.06.2016
 
 Dark Funeral - Where Shadows Forever Reign (2016) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:2E8DEC7CFC904BDBEE11FFFD9725C5284E78F14A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6E15E6AC2115675EBD0993AC6A4EAF0E889B1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533648   (703220) от 25.02.2022
-
-Serious Black - Vengeance Is Mine (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rock with Us Tonight
-2. Out of the Ashes
-3. Fallen Hero
-4. Senso Della Vita(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E863BFB8540327887948CA73DEB539C30BE7E51C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287605   (703228) от 07.03.2019
-
-Спектакль Джо - Записки Адмирала (2019) [MP3|320 Kbps] <Punk Rock, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Напутствие (1:30)
-02. Адмирал (4:02)
-03. Романс о заброшенном театре (2:57)
-04. Цыган и Дракон (муз. гр.Тараканы) (2:31)(   Читать дальше...   )Жанр: Punk Rock, Art PunkПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B222E5C827F3649DD438D3C2A9AFAB92CBE7A2CE
 ```
 
 

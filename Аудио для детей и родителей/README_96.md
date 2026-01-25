@@ -1,3 +1,57 @@
+###  Публикация: 1388697   (786554) от 07.06.2020
+
+VA - Избранные классические произведения (2011) [MP3|128 Kbps]<Детская, Классика>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart - Symphony No.40 g-moll KV 550. Allegro molto "NBC Orchestra, Arturo Toscanini" - 256 kbps
+02. Mozart - Symphony No.40 g-moll KV 550. Andante "NBC Orchestra, Arturo Toscanini" - 256 kbps
+03. Mozart - Symphony No.40 g-moll KV 550. Menuet. Allegro "NBC Orchestra, Arturo Toscanini" - 256 kbps
+04. Mozart - Symphony No.40 g-moll (   Читать дальше...   )Жанр: Детская, КлассикаПродолжительность: 03:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0277F7E6921F7F94317FE36DBEED37A4ECCF3F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388763   (786589) от 07.06.2020
+
+Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP3|192 Kbps]<Детская музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sweet Home Alabama
+02.Free Bird
+03.Simple Man
+04.Gimme Three Steps(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2AC723821A0E51E8A9A6A1AC9AC49F218B6C310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388583   (786744) от 06.06.2020
 
 Jim Brickman - Piano Lullabies - Baby's Bedtime Favorites (2012) [MP3|320 Kbps]<Колыбельные мелодии/Instrumental/Piano>
@@ -603,57 +657,6 @@ magnet:?xt=urn:btih:BFE65B3CEBFB900869CF7F59493044958E1039EC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C9737CBB0534753586ABD2ED09E4D79EA4A1874
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386345   (795240) от 28.05.2020
-
-Андрей Усачёв | Знаменитая собачка Соня. Азбука умной собачки. (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795240.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Знаменитая собачка Соня» – продолжение популярнейшей книги Андрея Усачева «Умная собачка Соня». Что изменилось, спросите Вы? Во-первых, Соня немного повзрослела, и ее интересуют такие взрослые вопросы, как «Что такое Любовь?» и «Откуда берутся деньги?» А, во-вторых, за 20 лет, прошедших с выхода первой книги, Соня действительно стала очень известной, и не только (   Читать дальше...   )Жанр: СказкаПродолжительность: 01:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D2B7F15C43886B04C3CA01D696362EC11E8152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386299   (795274) от 28.05.2020
-
-Детский хор Yip's Canada (The Shanghai Restoration Project) - Little Dragon Tales (Chinese Children's Song) (2011) [MP3|192 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Friends (找朋友 - Zhǎo péngyǒu)
-02. Where is Spring? (春天在哪里 - Chūntiān zài nǎlǐ?)
-03. Clay Doll (泥娃娃 - Ní wáwá)
-04. Two Tigers (两只老虎 - Liǎng zhī lǎohǔ)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1993282A95E1E251D33E17EFA38AAA0618B2D1
 ```
 
 

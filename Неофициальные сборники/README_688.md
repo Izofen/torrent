@@ -1,3 +1,30 @@
+###  Публикация: 1604110   (1045476) от 12.01.2023
+
+VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alessandra - Queen Of Kings (02:28)
+ 002. Alexandra Ungureanu feat. Paul Ananie - Cea Mai Frumoasa Iarna (02:31)
+ 003. Allnity - По Барабану (02:31)
+ 004. Almost Weekend feat. Michael Shynes - Nice Face (Konn Remix) (02:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B1876238906E1625F83B975EDEBF3D61B4747
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603120   (1045726) от 09.01.2023
 
 VA - Suflower Reggae (2023) [MP3|320 Kbps] <Reggae, Dub, Riddim>
@@ -668,33 +695,6 @@ VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840791   (1047588) от 07.12.2025
-
-VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Piano House, Garage House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Игнат Кармалито feat. Тина Кузнецова - Твоё тело так загорело
-02-D'Influence - Rock With You (Mousse T Classic Club Mix)
-03-Andricka Hall - Stay Inside My Life (Jamie Lewis Vocal Mix)
-04-Jay-J Feat. Latrice Barnett - Keep on Rising (Copyright Classic Mix)(   Читать дальше...   )Жанр: Club House, Piano House, Garage House, Nu DiscoПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02253DBE2E522CBA885C0F17FCD832B8D1EC09BA
 ```
 
 

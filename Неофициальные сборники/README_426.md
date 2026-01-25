@@ -1,3 +1,30 @@
+###  Публикация: 1289857   (681796) от 18.03.2019
+
+VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda Dreams - Warp Drive
+02. Dance With The Dead - Entity
+03. The Gates Of Hell
+04. Galactic Warriors - Mysterious World(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D16ECABF3B3BFEB6243771B8DAEDA207624BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289820   (681872) от 18.03.2019
 
 VA - Зайцев.нет Лучшие новинки Марта 2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Italo Disco Hits Vol.14 (2017) [MP3|320 Kbps] <Disco, Italo-DIsco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C16AA7B16999BFFC3F896F5F85EF73C4AC85D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222706   (683023) от 30.04.2018
-
-VA - Melodic Techno Tom VI [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Melodic Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Davis - Jima (Solee Remix) [08:47]
-02. Miyagi - Fade Away [07:13]
-03. Supacooks - Aftermath [06:07]
-04. Luttrell - Generate [08:29](   Читать дальше...   )Жанр: Melodic TechnoПродолжительность: 03:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EB6F63ABEEE37053E4AB83B2EA9D41982B4462
 ```
 
 

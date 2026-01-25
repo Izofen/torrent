@@ -1,3 +1,57 @@
+###  Публикация: 1560167   (520745) от 29.06.2022
+
+Werewolves - From the Cave to the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Self-Help Book-Burning (00:04:59)
+02 - We Are Better Than You (00:03:43)
+03 - All the Better to Eat You With (00:02:52)
+04 - Crushing Heaven's Mandate (00:03:47)(   Читать дальше...   )Жанр: Technical Black, Death MetalПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B205EDBBF5C5335E5A5CF4AC4DE6F51CF1B88DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560126   (520804) от 29.06.2022
+
+Allen Morettini - Love, Lies, Bullets and a Blue Dress (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blue Dress (00:04:46)
+02 - That Train Don't Stop Here (00:04:55)
+03 - Love Rears It's Ugly Head (00:05:17)
+04 - Every Time I Roll The Dice (00:04:46)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F2B612A9A3C0335E49654E8027552A8E3B3735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560082   (520805) от 29.06.2022
 
 Victorius - Dinosaur Warfare Pt. 2 - The Great Ninja War (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -665,60 +719,6 @@ Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1639693F667FC2896A435BFBC90FC1E3732D072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928674   (521780) от 17.08.2015
-
-New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everywhere I Go (Kings and Queens) (03:25)
-02. West End Kids (03:32)
-03. Girl Crush (02:54)
-04. Lovers in a Song (03:12)(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928807   (521791) от 17.08.2015
-
-Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521791.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Der Gleisschlitzer
-2. Tiefer
-3. Memorandum
-4. Der Irrsinn(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
 ```
 
 

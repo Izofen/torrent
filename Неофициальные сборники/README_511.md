@@ -1,3 +1,30 @@
+###  Публикация: 1123553   (786152) от 09.04.2017
+
+VA - German Top 100 Single Charts 10.04.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran – Shape of You
+002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+003. Jax Jones – You Don’t Know Me (feat. Raye)
+004. The Chainsmokers Coldplay – Something Just Like This(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D50B7C6AD3A0F0C925B430744F01932A95AE8B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123559   (786176) от 09.04.2017
 
 VA - Шальной шансон в дорогу. Часть № 4 (2017) [MP3|256 Kbps] <Шансон>
@@ -668,33 +695,6 @@ VA - Record Super Chart 639 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A41C86CC0AAF4A5ADEFAE8B089CD641563BC68F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388565   (786581) от 07.06.2020
-
-VA - Fusion Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786581.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Five Seasons - Caminho De Amor
-002. W Ensemble - Contento
-003. Gene Bautista - Puzzles
-004. Innocent Dreams - Who Are You(   Читать дальше...   )Жанр: Lounge, Relax, Ambient, ChilloutПродолжительность: 07:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42023C07EDAA27A364E56BB3832C30772C7BCD0D
 ```
 
 

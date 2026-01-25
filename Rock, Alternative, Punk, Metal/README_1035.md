@@ -1,3 +1,57 @@
+###  Публикация: 1510210   (792143) от 15.11.2021
+
+Atomic Love Reactor - The Arrival (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Of Life 03:23
+02. Atomic Love Reactor 04:00
+03. Everything Is Dead 03:28
+04. Mr. Hyde 04:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B7052B2D6889B8EA3EB0C001955E239A3075B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510103   (792149) от 15.11.2021
+
+Atomic Love Reactor - Creation of a Masterpeace (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyranny of the King
+02. Cool Down
+03. Water in the Sky
+04. Universal Peace(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB201576E445F65F33ED6C9E4A5DCC299F629920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510165   (792154) от 15.11.2021
 
 Paradoxx - Plan Of Attak - The Complete Worxx (1985) Compilation, Limited Edition, 2021 [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -643,61 +697,6 @@ Magnum - The River Sessions (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A649007AA81254FF088BFA0E42726037B1C503AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387015   (792638) от 31.05.2020
-
-Карл Хламкин - Хламкин, заткнись! (2003) [FLAC|Lossless|tracks + .cue]<Pop Rock, Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лужники
-02. Лумумба
-03. Канава
-04. Гордый сокол(   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04F69D7F54556A4DD5E3BFD4FF1621C032BDA02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386881   (792641) от 31.05.2020
-
-Traffic - Traffic (1968) Limited Edition, Reissue 2008 [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Traffic — британская рок-группа из Бирмингема, образованная в конце 1960-х Стивом Уинвудом после того, как он покинул группу The Spencer Davis Group.
-Особое звучание группы, новый подход к записи и совместное написание песен повлияли на прогрессивный рок конца 60-х - начала 70-х годов.01. You Can All Join_In (3:37)
-02. Pearly Queen (4:19)
-03. Dont Be Sad (3:22)
-04. Who Knows What_Tomorrow May_Bring (3:13)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F02EA09E058DB7CFBC3E2B99543247AA09A0400
 ```
 
 

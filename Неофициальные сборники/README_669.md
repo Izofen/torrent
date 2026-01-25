@@ -1,3 +1,30 @@
+###  Публикация: 1460556   (1022626) от 05.04.2021
+
+Alamесоs Dе La Siеrra - Las Pacas (2021) [MP3|320 Kbps] <Latin, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка лучших песен коллектива "Alamесоs Dе La Siеrra"! Типичные народные мексиканские песни, в которых выражен весь национальный колорит этого народа!01. Bajando Del Rancho
+02. Casita De Adobe
+03. Como Te Extraсo
+04. El Caiman(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 04:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A4FE2AED1B8465E986093BC244DC41EA3F7F9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460148   (1022707) от 04.04.2021
 
 VA - Tik Tok Треки выстрелили весной 2021 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Club Music vol.2 (2021) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8699040B3B43EC718495293EBFA784419CEDCC27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458971   (1023514) от 31.03.2021
-
-VA - Zone Bassline (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Dub House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая сенсация на просторах электронной музыки! Треки сборника "Zone Bassline" придутся по вкусу как любителям сочных басов так и фанатам Drum And Bass музыки. Горячая линейка басслайн музыки всецело в Вашем распоряжении!001. Fracture - Latee Killer
-002. Dr Meaker feat. Lorna King - Fighter
-003. Echo Brown - Love Won't Do
-004. Deks - Distance(   Читать дальше...   )Жанр: Drum And Bass, Bassline, Dub HouseПродолжительность: 11:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9406E83ACDA8BE18395763C6DB08780F458BE8FA
 ```
 
 

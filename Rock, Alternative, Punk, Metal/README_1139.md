@@ -1,3 +1,60 @@
+###  Публикация: 866916   (906320) от 06.02.2015
+
+U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speeder
+02. Decadent
+03. House Of Fake
+04. Mystery(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE51DB7C426EA725DF79EA549887C7EBD5EE86F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 181683   (906385) от 09.03.2010
+
+Earth - Discography (20 albums) (1990-2008) [MP3|320 kbps] <Drone Doom, Doom Metal, Stoner Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906385.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Omens and Portents I: The Driver (9:07)
+2. Rise To Glory (5:47)
+3. Miami Morning Coming Down II (Shine) (8:01)
+4. Engine Of Ruin (6:28)
+5. Omens and Portents II: The Carrion Crow (8:04)
+6. Hung From The Moon (7:43)
+7. The Bees Made Honey In The Lions' Skull (8:11)Жанр: Drone Doom, Doom Metal, Stoner Rock, ExperimentalПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991290   (906389) от 28.02.2016
 
 Ivory - A Moment, a Place and a Reason (2016) [FLAC|Lossless|tracks] <Rock, Hard Rock>
@@ -633,60 +690,6 @@ The Neal Morse Band - Innocence & Danger (2021) [MP3|320 Kbps] <Progressive Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C889EA44288CB72EB6B9401C97D1CAB4CCDD479
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098958   (907322) от 31.01.2017
-
-All About A Bubble - This Atmosphere (2017) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alright, Alright, Alright
-02. Sing It! Scream It!
-03. It Rains in My Heart
-04. Awakened(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E97437A6B1635951F6A15C820ADB94578DE45302
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098956   (907334) от 31.01.2017
-
-Silent Circus - Rise and Fall (2017) [MP3|320 Kbps] <Groove Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Voice
-02. Affection
-03. My Return
-04. Indifferent(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D07A6CE3802426805DF5EEB3307B6CEC465E0F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1144463   (627604) от 22.06.2017
+
+VA - Italo & Space Vol.39 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Eurobeat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  D.White - Wonderful Day  6:02
+02.  Italove - Too Late To Cry  4:36
+03.  T.M.-Joy - Stay  3:36
+04.  Anosphere - Space Runner  4:56(   Читать дальше...   )Жанр: Italo Disco, Spacesynth, EurobeatПродолжительность: 03:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19087A4B8785D1B191DD3307AFE562AD4FD1D3F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294441   (627709) от 08.04.2019
 
 VA - Hits of My Soul Vol. 45 (2019) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -689,39 +716,6 @@ VA - Музыка для хорошей компании Vol.6 (2012) [MP3|256 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F78048035848174702CB26CCD0470390BBD83D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521229   (628873) от 10.07.2012
-
-VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алисия & Влад Корса - Здесь и сейчас
-02. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield remix)
-03. Elvira T - Все решено (Fresh Tunes remix)
-04. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
-05. Митя Фомин & Кристина Орса - Не манекен (Ural DJs Dance remix)
-06. Ledina Celo - Can you touch me baby (Edit mix)
-07. Чай Вдвоем - Улетай
-08. Kato - Never let u go (feat. Snoop Dogg & Brandon Beal)
-09. Юля Савичева - Юлия
-10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
 ```
 
 

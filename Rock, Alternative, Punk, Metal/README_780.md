@@ -1,3 +1,57 @@
+###  Публикация: 1241754   (518350) от 19.08.2018
+
+Blue October - I Hope You’re Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daylight
+02. Your Love Is Like A Car Crash
+03. I Want To Come Back Home
+04. I’ll Do Me, You Do You(   Читать дальше...   )Жанр: Alternative Rock, Art RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2319A5B1007AC6B7B4B86B102D938DA11689B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241815   (518359) от 19.08.2018
+
+The Guess Who - The Future Is What It Used To Be (2018) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Young
+02. Runnin' Blind
+03. Talks All The Time
+04. Baby's Come Around(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613F60585E55E92690E15BF50819F04A80F7EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929711   (518398) от 20.08.2015
 
 P.O.D. - The Awakening (2015) [MP3|320 кб/с]<Rap Metal, Nu Metal>
@@ -652,72 +706,6 @@ Tokyo Shoegazer - Crystallize (2011) [MP3|320 кб/с]<Alternative Post-Rock / S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CF4A0DC999E71EA2ED4AE23FB0BAF6BBA7A567C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533406   (519312) от 14.08.2012
-
-Bonded By Blood - The Aftermath (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Hear You (3:40)
-02. Shepherds Of Rot (5:05)
-03. The Aftermath (5:13)
-04. Crawling In The Shadows (3:08)
-05. In A Wake (3:28)
-06. Repulsive (3:09)
-07. Among The Vultures (2:11)
-08. Show No Fear (5:19)
-09. Restless Mind (4:10)
-10. Left Behind (5:20)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224080   (519336) от 21.08.2010
-
-Syd Barrett - The Madcap Laughs (1970) [APE|Lossless]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terrapin
-02. No Good Trying
-03. Love You
-04. No Man's Land
-05. Dark Globe
-06. Here I Go
-07. Octopus
-08. Golden Hair
-09. Long Gone
-10. She Took A Long Cold Look(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-нет
 ```
 
 

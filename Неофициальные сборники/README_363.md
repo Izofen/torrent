@@ -1,3 +1,27 @@
+###  Публикация: 356431   (599024) от 28.06.2011
+
+VA - В ритме танца (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E992887ED5A0E01AEF58D3FDBB6150AAD2B739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526058   (599213) от 23.07.2012
 
 VA - Флейта в Рок Музыке (2012) [MP3|181-320 кб/с]<Blues Rock, Folk Rock, Jazz Rock, Instrumental>
@@ -698,33 +722,6 @@ VA - White And Gold: Popular Dance Hit (2017) [MP3|320 Kbps] <Dance, Club, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8076C03071F7BE046C9A76F463C7BC6409B30D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149215   (601100) от 10.07.2017
-
-VA - Deep In My Soul: Deep House Mix July (2017) [MP3|320 Kbps] <Deep House, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601100.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stube - Spinning Around 06:20
-002. al l bo - Deep In My Soul (DJ Magnum Remix) 04:43
-003. Performative Mode - Egged On 06:16
-004. Alex Kenji & Luca Guerrieri Ft. Tito - You & I (Original Mix) 06:00(   Читать дальше...   )Жанр: Deep House, Dance, ElectroПродолжительность: 10:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D431CBE4FE6185B131FCF73BF714CB1EFBFA27E4
 ```
 
 

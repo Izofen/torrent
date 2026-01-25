@@ -1,3 +1,84 @@
+###  Публикация: 1277248   (787030) от 19.01.2019
+
+VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caleb Weiss - Crowd Control (Original Mix) 7:33
+02. Nacim Ladj - Mind Control (Original Mix) 5:53
+03. Guido Bruzzese - Time Control (Original Mix) 6:38
+04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512657   (787056) от 25.11.2021
+
+Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body Rock (3:13)
+ 02. Dance Till We Die (3:46)
+ 03. Shine A Little Brighter (2:42)
+ 04. Time To Go (3:37)(   Читать дальше...   )Жанр: EDM, Funky House, Nu DiscoПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F99DAA3EFE919CA1FB2151CA327BDCBF76FD1FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512655   (787067) от 25.11.2021
+
+Spell of Unseeing - Weaving Light and Shadow (2020) 2021, Northern Silence Productions [FLAC|Lossless|image + .cue] <Dungeon Synth, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Moss and Silver Birch 03:29
+02. Lair of Bones 03:59
+03. Water Forest 03:45
+04. Bottles of Spark Light 03:56(   Читать дальше...   )Жанр: Dungeon Synth, Modern ClassicalПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12517858F00F5D5928253AAE01A9706FD50D9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417742   (787103) от 25.11.2021
 
 Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
@@ -612,87 +693,6 @@ Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39DDA510D45ED231C11389F5318B06924C21AD6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203374   (788127) от 02.02.2018
-
-François X (Francois X) - Irregular Passion (2017) Dement3d [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Ambient, Experimental>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Of A Lifetime (04:46)
- 02. Blurry Youth (03:41)
- 03. Slave, No Slave (06:14)
- 04. Just A Dream (02:49)(   Читать дальше...   )Жанр: Techno, Ambient, ExperimentalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0050882A9445E7839EE22B2AB7B73E2212ACDEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203501   (788130) от 02.02.2018
-
-VA - Armin Van Buuren and Above & Beyond - A State of Trance Episode 850 (Part 1) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren – Be In The Moment (ASOT 850 Anthem)
-02. Omnia & Alex Sonata – Titans
-03. Super8 & Tab ft. Envy Monroe – True Love
-04. Alexander Popov & Tenishia ft. Thomas T – Play Your Cards (Max Roven Remix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AA2B155AB492AD6088DFD429049D07B94CBE7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203523   (788132) от 02.02.2018
-
-VA - Armin Van Buuren & Gareth Emery & Ashley Wallbridge - A State of Trance 850 (Part 2) (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren played:
-01. Armin van Buuren feat. Conrad Sewell – Sex, Love & Water
-02. Axwell Λ Ingrosso feat. Trevor Guthrie – Dreamer (ALPHA 9 Remix)
-Tune Of The Week(   Читать дальше...   )Жанр: Trance,Progressive Trance,Uplifting TranceПродолжительность: 03:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B98B51496038D5CEB068988F28F8AD78ECB1C4
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1440565   (1038760) от 17.01.2021
+
+Сегодня в Мире - Все не зря (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038760.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Удаленный доступ
+2. Сверхпроводимость
+3. Солнечный зайчик
+4. Остров свободы(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F27573DD9DBE7AF4940B9AA2D5617A6F1111F9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440212   (1038767) от 17.01.2021
+
+Blue Stahli - Obsidian (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Obsidian [00:03:24]
+02 Prognosis [00:03:55]
+03 Gravity [00:04:41]
+04 The Mountain [00:04:50](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A79C6047A65AE92032EBBB7DEA4720B4703EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614280   (1038784) от 21.02.2023
 
 VA - Romantic Collection '2000. Metal Ballads (2000) [OGG Vorbis|480 Kbps] <Rock, Heavy Metal>
@@ -638,60 +692,6 @@ magnet:?xt=urn:btih:37CDDE1A4638B66CD2470585DF4AC2C1BD76122F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5550B4AEF0F764DFCE1E851CAF8907AAF90CACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613764   (1039097) от 20.02.2023
-
-Прохор и Пузо - 5 Albums (2008-2020) [MP3|320 Kbps] <Experimental, Industrial Chanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2008 - Водка
-2010 - Алла
-2013 - Тлен(   Читать дальше...   )Жанр: Experimental, Industrial ChansonПродолжительность: 5 CD, 03:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75390456F82A5FE43A5CDE28D8A1C7E01A713BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613923   (1039098) от 20.02.2023
-
-Borssch (Борщ) - 4 Albums (2021-2023) [MP3|320 Kbps] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - В глухие дни..
-2021 - Сегодня ночью будет день
-2022 - Запустение(   Читать дальше...   )Жанр: PunkПродолжительность: 4 CD, 02:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FADEAEF7B28BC6D35660BC0CAACDA986C317EA
 ```
 
 

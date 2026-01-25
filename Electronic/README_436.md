@@ -1,3 +1,84 @@
+###  Публикация: 1006392   (829209) от 11.04.2016
+
+Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 More Of You (6:32)
+02 Breathe (7:30)
+03 Meaning (6:54)
+04 Inbetween Thoughts (6:52)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F17285D427288EB54676B867C0C20D99D1D22D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380773   (829745) от 05.05.2020
+
+Cell - Live in Corfu (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829745.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elevation (live edit) 09:02
+2. Over the Roof (live edit) 06:06
+3. Pulse (live edit) 08:03
+4. Traffic (live edit) 08:59(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489E5270EDFEC83F305E962C0FEBD0ADB40A161E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380955   (829759) от 05.05.2020
+
+Fatali - Retro (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829759.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Solid Harmonic (7:56)
+2. Deep (8:01)
+3. I Believe (7:25)
+4. Sleep On (7:33)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 03:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB98E66E992D531E44B18FDEBF912C31231C188C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380980   (829771) от 05.05.2020
 
 Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
@@ -612,87 +693,6 @@ VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Clu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9DFDACB21F14A8FCDE66B38CB9507F94998C33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380772   (831579) от 04.05.2020
-
-VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oöphoi - Potala Pt.1 (12:32)
- 02. Hum - The Spectral Ship (12:13)
- 03. Voice Of Eye - Virya (19:00)
- 04. Michael Northam - Through (11:58)(   Читать дальше...   )Жанр: Dark Ambient, DroneПродолжительность: 01:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:828900BF2B2DC8E83B3C9F46B537E684985B07AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380751   (831668) от 04.05.2020
-
-Cathode Ray Tube - Invisible Soundtracks (2018) M-tronic [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Omega Transect (07:58)
- 02. O Broken World (08:10)
- 03. Cyonara (09:05)
- 04. The Sleep Market (09:15)(   Читать дальше...   )Жанр: IDM, Ambient, GlitchПродолжительность: 01:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99FAFAF2B3DE34C7E213121C2BABC1E87EF0A80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421999   (831820) от 12.10.2021
-
-Korablove - Sociopath's Diary (2011) [MP3|320 kbps]<Tech House, Minimal, Ambient>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostamus (6:25)
- 02. Puppet Theatre (4:17)
- 03. Nothing To Say (feat. Ryba) (5:21)
- 04. Percussionata (8:53)(   Читать дальше...   )Жанр: Tech House, Minimal, AmbientПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECEDE25EA6DE5031B30ADC4057F25988255CDE6
 ```
 
 

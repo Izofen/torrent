@@ -1,3 +1,94 @@
+###  Публикация: 605635   (995662) от 20.01.2013
+
+David West Feat. Andreas Hermansson - Larry Mountains 54 (2005) [FLAC|Lossless]<Deep House, Progressive Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Larry Mountains 54 (Original Mix) (8:43)
+02.  Larry Mountains 54 (Inkfish Remix) (7:32)Жанр: Deep House, Progressive TranceПродолжительность: 00:16:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603133   (995874) от 19.01.2013
+
+VA - Ministry Of Sound Pump It Up 2013 (2013) [MP3|320 kbps] <Club, House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fresh - Gold Dust (Shy FX Re-Edit) (03:02)
+02. Wiley feat. Skepta - Can You Hear Me (Ayayaya) (03:52)
+03. Example - Changed the Way You Kiss Me (Radio Edit) (03:15)
+04. Carly Rae Jepsen - Call Me Maybe (Almighty Mix Radio Edit) (04:14)
+05. Jessie J feat. David Guetta - LaserLight (03:32)
+06. Nicki Minaj - Starships (Edited Version) (03:30)
+07. Lady Gaga feat. Colby O'Donis - Just Dance (04:02)
+08. LMFAO feat. Lauren Bennett & GoonRock - Party Rock Anthem (Radio Edit) (03:52)
+09. Maroon 5 feat. Christina Aguilera - Moves Like Jagger (Radio Edit) (03:21)
+10. Pitbull feat. Ne-Yo - Give Me Everything (03:48)(   Читать дальше...   )Жанр: Club, House, ProgressiveПродолжительность: 04:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B26D3305E562E13E1FC2B40B0D886A5FBE07E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603418   (995891) от 19.01.2013
+
+Dusky - Stick By This (2011) [FLAC|Lossless]<Progressive House, House, Downtempo, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Silence Never Heard (2:53)
+02. - Lost In You (feat. Janai) (5:15)
+03. - Stick By This (5:51)
+04. - Plastique (4:12)
+05. - I'm Running (feat. Soloman) (5:44)
+06. - Falling (7:00)
+07. - Grain (4:06)
+08. - Lost Highway (6:47)
+09. - Mr Miyagi (4:51)
+10. - Thoughts & Motions (4:40)(   Читать дальше...   )Жанр: Progressive House, House, Downtempo, Deep HouseПродолжительность: 01:16:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603187   (995951) от 19.01.2013
 
 VA - Clubbers Night Vol.2 - 50 Essential House Tunes (2012) [MP3|320 kbps] <House>
@@ -687,84 +778,6 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125104   (1001359) от 13.08.2021
-
-Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
- 02. Bing And Ruth - The How Of It Sped (05:48)
- 03. Nils Frahm - For (Max Cooper Remix) (07:06)
- 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046940   (1001396) от 13.08.2021
-
-Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Experimental, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. YYY (03:24)
- 02. 488BPM (03:24)
- 03. BND ROSE (03:22)
- 04. ASCII SNAKE (05:11)Тип издания: CD, WebЖанр: IDM, Ambient, Industrial, Techno, Experimental, Glitch •Продолжительность: 08:10:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9CFF51247CAC0785E03D98B3C2721279A5FCCC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321632   (1001399) от 13.08.2021
-
-Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humantime (04:14)Тип издания: WEBЖанр: IDM, Downtempo, Ambient •Продолжительность: 03:03:17 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7702CA2FC944189B1E3FBF3617F552D09EF108
 ```
 
 

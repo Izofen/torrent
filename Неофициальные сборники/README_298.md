@@ -1,3 +1,30 @@
+###  Публикация: 1564389   (500587) от 18.07.2022
+
+Lily Allen - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Waiting For?
+02. Silver Spoon
+03. Absolutely Nothing
+04. Friday Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDEE7FB784DCB05496181FAA49E951C50932752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541930   (500606) от 01.09.2012
 
 VA - Радио Record представляет. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -766,33 +793,6 @@ VA - Club Music Hits September Novation (2015) [MP3|320 кб/с]<Bigroom, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A39D8B2F4DD3F3FC50DBD7394D25F061FA76E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934482   (502521) от 05.09.2015
-
-VA - For All Lovers vol. 4 (2014) [MP3|320 кб/с]<Pop, Electronic, Pop-Rock, Dancepop, Soul, House, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя этот диск присутствует у меня в формате lossless и лог извлечения есть, но ввиду моего подозрения на самопальность, выкладываю его в этом разделе. Очень мне понравился авторский набор композиций. А уж Donna Summer с её композицией 1979 года There Will Always Be a You мало кто помнит.01. Billy Cobham And Asere - Destinos  (6:11)
-02. Demis Roussos - Love Me Tender  (4:15)
-03. Donna Summer  - There Will Always Be a You  (5:08)
-04. Julio Iglesias - L-O-V-E  (2:44)(   Читать дальше...   )Жанр: Pop, Electronic, Pop-Rock, Dancepop, Soul, House, R&BПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E524DF2B205F6CBDF1BB7D9BF1DBDD919D198C43
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1112807   (841233) от 09.03.2017
+
+Dreaming Cooper - Parallels (2017) AstroPilot Music  [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Extraterrestrial Civilizations (07:56)
+ 02. Liquid Flow (07:36)
+ 03. Ashes (08:00)
+ 04. Dreaming Cooper & Unusual Cosmic Process - The Colours Of Horizon (07:48)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6F99B8512AB74FF1B6F07961F97C606155388B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112666   (841237) от 09.03.2017
+
+ATB - Best Hits & Remixes (2000) [MP3|320 Kbps] <House, Progressive House,Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Repulse [02:40]
+02. ATB feat. York - The Fields Of Love (Club Mix) [06:25]
+03. ATB - Tune [06:09]
+04. ATB - The Summer (Ibiza Version) [03:44](   Читать дальше...   )Жанр: House, Progressive House,TranceПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E7C44C396CAB8EF35CAF5DBF51D1E4CE930977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500802   (841301) от 06.10.2021
+
+Eisfabrik - Discography (2015-2020) [FLAC 2.0|44.1/16,24|tracks|WEB-DL] <Synthpop, Futurepop, EBM>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Crystal (3:53)
+02. Ice Crystal (Melting Point Mix) (6:12)
+03. New Signs (3:46)
+04. Ice Crystal (Bitter Cold Mix) (3:40)(   Читать дальше...   )Жанр: Synthpop, Futurepop, EBM •Продолжительность: 07:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE598C763C767BAA0843066C89CB2F23E63E7BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003352   (841493) от 04.04.2016
 
 Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
@@ -615,88 +696,6 @@ Mr.Kitty - A.I. (2017) [MP3|320 Kbps] <Synthpop, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63032621CE583DF652054622A71C75B8E709FB2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112295   (843287) от 08.03.2017
-
-VA - DJ Zen - Winter (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Argus - The Time Before (07:28)
- 02. Argus - We Are One (08:02)
- 03. Profondita - Island (08:29)
- 04. Suduaya - Clear Water (08:51)(   Читать дальше...   )Жанр: Psybient, Ambient, Downtempo, Progressive TranceПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A30F1D2E562710338B6B5961AE9470F845790F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112545   (843302) от 08.03.2017
-
-VA - Top 10 Putin Electro House (2017) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barg Van - Hai (Original mix) [00:03:11]
-02. QKazoo - Summer (Original mix) [00:04:20]
-03. Sound Diller - Make Some Drop [00:05:21]
-04. Bonix - Tirex (Original mix) [00:04:41](   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC502E2035AF53A8B661D0446DD518F48241BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112498   (843386) от 08.03.2017
-
-VA - Summer Is Coming So Get Ready For Some Running (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midimute — Idea [04:02]
-02. Mike Goldberg — Simon [03:45]
-03. Karasto — Plus [04:30]
-04. Klinikum — Stronger [04:32](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:50:09
-Лейбл: Skyheels - 10118910
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7946D771CF603196B5B56DEAB3B1E303EE19AF54
 ```
 
 

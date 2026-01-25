@@ -1,3 +1,90 @@
+###  Публикация: 517192   (649471) от 30.06.2012
+
+VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky House, Disco House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loui & Scibi Feat. Nathalia - Giving You The Light (Shane D. Remix) (05:02)
+02. One51 Feat. Heidi Vogel - Elevate (Earnshaw's House Mix) (05:32)
+03. Steve K & Anna Rizzo - Second Time (Shane D Remix) (05:32)
+04. Raul Rincon Feat. Clara Mendes - Dry Martini (Original Mix) (05:32)
+05. Rasmus Faber & Alf Tumble Feat. Beldina - Leave Me Alone (Kocho Remix) (05:03)
+06. Spiritchaser - Yesterday's Gone (Club Mix) (06:43)
+07. Dom Navarra Feat. Kat Kyrris - If You Knew (Reelsoul Vocal Mix) (04:03)
+08. Natasha Watts - Look Inside (Glenn Thornton Slaag Original) (05:34)
+09. Blacksoul Feat. Andrea Love - All We Need (Original Mix) (05:41)
+10. Eesa - The Way (Original Mix) (05:02)Жанр: Deep House, Funky House, Disco House, Soulful HouseПродолжительность: 07:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E97A6F855B456A288DB4C5A0E1FE413CCB3358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905459   (649480) от 06.06.2015
+
+VA - Summer Chill (2015) [MP3|320 кб/с]<Chillout, Lounge, Deep>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649480.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Project Blue Sun - Waiting for the Sun (Chillout Mix) (07:23)
+002. Atlantic Project - The Night (03:57)
+003. Patricio AMC - (I Will) Always Love You (Radio Version) (03:22)
+004. Atlantic Project - Afterglow (04:09)(   Читать дальше...   )Производство: Deep FlowЖанр: Chillout, Lounge, DeepПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98A14B4352932BF1AD7BE04909F02103E90112B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905481   (649483) от 06.06.2015
+
+VA - Tresor - Lounge Chillout (2015) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649483.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simone Mencarelli - Hearthfire (05:17)
+002. W. Dekay - Marine Salt (04:34)
+003. The Smoker Lab - Venus (03:56)
+004. Avatar - A Beautiful Place (04:07)(   Читать дальше...   )Производство: AB MusicЖанр: Lounge, ChilloutПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D85343EA80CE97223814EA42F0AF19E5A9176D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031892   (649549) от 05.07.2016
 
 Mahamudra - ScreenSaver (2015) [MP3|320 Kbps] <Morning, Progressive>
@@ -607,87 +694,6 @@ Firstworld - Im Right Here (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4305C5F2056500E0255F10E88F257F5D48E9E514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291156   (650688) от 27.03.2019
-
-Daniel Kandi - Live @ Cuckoo's 1st Birthday (26-01-2019)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerome - One With The Music
-02. Gerome - Sky Citizen
-03. OceanLab & Justine Suissa Vs Exolight & Suncatcher - Siren Of The Sea (Daniel Kandi Mashup)
-04. Daniel Kandi - Child(   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDA9090D7BE8EE378A4BE5BD8A3E930DE80AC09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252732   (650814) от 05.06.2015
-
-Pet Shop Boys - Ultimate (2010) [MP3|192-320 kbps]<Pop, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West End Girls
-02. Suburbia
-03. It's A Sin
-04. What Have I Done To Deserve This?(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE5986FDAE5942BC407B163B570363E277135021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904880   (650995) от 05.06.2015
-
-Fatboy Slim - Halfway Between The Gutter & The Stars (15Th Anniversary) (2015) [FLAC|Lossless|WEB-DL] <House, Big Beat, Breakbeat>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking 'Bout My Baby (03:44)
-  02. Star 69 (05:44)
-  03. Sunset (Bird Of Prey) (06:50)
-  04. Love Life (06:59)(   Читать дальше...   )Жанр: House, Big Beat, BreakbeatПродолжительность: 02:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4853A63824DB35BD9851E62A30CE2E9726E1BC18
 ```
 
 

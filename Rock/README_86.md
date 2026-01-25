@@ -1,3 +1,57 @@
+###  Публикация: 998970   (866695) от 21.03.2016
+
+Unruly Child - Worlds Collide (2010) [MP3|320 кб/с] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Show Me The Money   05:03
+02. Insane   04:30
+03. When We Were Young   04:14
+04. Tell Another Lie   03:57(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54F55884D98605DCB130D45CB6F5576615A8A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999192   (866697) от 21.03.2016
+
+Dany Lademacher's Wild Romance - Out Of Heaven (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit In The Sky   03:25
+02. Out Of Heaven   03:54
+03. Personal Jesus   03:30
+04. Hooked   03:13(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C65EB75C133003E1ACFDEF018DEE579167D1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375430   (867268) от 13.04.2020
 
 Pholhas - Dead Faces (1973) Reissue CD, 2000, BMG Music Spain, S.A. [MP3|320 Kbps] <Pop Rock, Prog Rock, Ballad>
@@ -653,60 +707,6 @@ Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC50FF36B9055093689D82D8BEA47FA3D76F59E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495484   (880536) от 12.09.2021
-
-VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Benatar - Heartbreaker
-02. Tears For Fears - Everybody Wants To Rule The World
-03. Steely Dan - Rikki Don't Lose That Number
-04. Lynyrd Skynyrd - Free Bird (Edit)(   Читать дальше...   )Жанр: Rock, Children RockПродолжительность: 01:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6688C5D9BFB3616E4B8345E01657D899BB5DA8B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373102   (881890) от 05.04.2020
-
-VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Whitesnake - Guilty of Love (3:18)
-2.The Doobie Brothers - Long Train Runnin' (Full Guitar Mix) (5:31)
-3.Deep Purple - Speed King (5:52)
-4.Alice Cooper - I'm Eighteen (2:58)(   Читать дальше...   )Жанр: RockПродолжительность: 06:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DB46809D44ADE2EF4990558E5E4E02C104AC6B
 ```
 
 

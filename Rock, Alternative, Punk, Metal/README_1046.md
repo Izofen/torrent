@@ -1,3 +1,57 @@
+###  Публикация: 1507450   (798478) от 04.11.2021
+
+7000$ - Прометей (2021) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здесь и сейчас
+02. Хардкором жги сердца людей
+03. Я человек
+04. Бомбит(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA40FB4CD204141F4DFF18D02772D3D0E1E293A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507324   (798485) от 04.11.2021
+
+VA - Relapse Sampler 2015 (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, atmospheric black metal, other>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torche - Loose Men (02:28)
+02. Windhand - Crypt Key (05:39)
+03. Royal Thunder - Time Machine (07:08)
+04. Tau Cross - Fire In The Sky (04:39)(   Читать дальше...   )Жанр: Black metal, Death metal, Atmospheric black metal, otherПродолжительность: 03:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E120DEB76508E2C1D9C1D043A2A108A5458780
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507131   (798679) от 03.11.2021
 
 R.E.M. - New Adventures In Hi-Fi (1996) remastered 2021, Craft Recordings [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative rock>
@@ -639,60 +693,6 @@ Mastodon - Emperor of Sand (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00AA41A1589BC0C4E9020E595CE32DC0DE434BA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122231   (798864) от 05.04.2017
-
-Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silhouettes
-02. Woe to the Vanquished
-03. Remain Violent
-04. Shellfire(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00: 40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2343D7697936C3EFFD69429FFB6C1592EDF25A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122357   (798869) от 05.04.2017
-
-Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Tree of Life and Death (10:25)
-02. Your Prophetic Throne of Ivory (07:39)
-03. Excoriate (04:43)
-04. Nightside of Eden (02:38)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301A28AF5EBB60C9E161115BCDFF8E5ABE1DDB99
 ```
 
 

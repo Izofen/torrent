@@ -1,3 +1,57 @@
+###  Публикация: 1203141   (788635) от 01.02.2018
+
+The Cardigans - First Band On The Moon (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your New Cuckoo (3:55)
+02 - Been It (4:05)
+03 - Heartbreaker (3:42)
+04 - Happy Meal II (2:36)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DC048F2258B1C2DBBFDE11A8F6A2D47E0927AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203101   (788637) от 01.02.2018
+
+The Killers - Wonderful Wonderful (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Wonderful (05:11)
+02. The Man (04:10)
+03. Rut (04:24)
+04. Life to Come (04:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4F0411FDF89A0B6ABF9389D1150D6E84AF6421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203338   (788652) от 01.02.2018
 
 Фёдор Чистяков - Нежелательная песня (2018) Single [MP3|320 Kbps] <Rock>
@@ -645,63 +699,6 @@ MILKOVSKYI (Женя Мильковский) - Вернуться домой (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2AA1A100368D3F7F1D7976BCDD312E91266133
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275877   (789392) от 13.01.2019
-
-Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треки - 02, 03, 05, 06, 07, 08 и 10 ранее не издавались.01. Alone
-02. Devil's Tower (new song)
-03. Fearful Heart
-04. Spanish Sea(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4644ACD6F1A184A4A784ED7056B5010F1E6BE517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511278   (789418) от 20.11.2021
-
-Margenta - Алый Король (2020) [FLAC|Lossless|image + .cue] <Heavy metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
-Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
-Проект Margenta осуществляется при участии многих известных музыкантов.
-Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )01. Алый Король (9:17)
-02. Прикосновение Ангела (4:30)
-03. Лагерта (7:08)
-04. Невесомость (Инструментальная Версия) (5:26)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E70ABA269078B974A11A47F35CB874A192761F8
 ```
 
 

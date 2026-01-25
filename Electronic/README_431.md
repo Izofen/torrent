@@ -1,3 +1,84 @@
+###  Публикация: 1008211   (817464) от 17.04.2016
+
+Data Rebel - Angular (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <IDM, Ambient>
+
+>>Electronic
+>>Experimental, Industrial (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spektral Strut (04:53)
+02. Angular (04:46)
+03. Replika v2 (04:35)
+04. Tortoise (05:31)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B008B331485782DF2CB37448AA11D4096F53A261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382832   (817515) от 12.05.2020
+
+VA - Solitude Of The Forest Compilation (2020) Insectorama [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenchord - Untitledub 9 (06:11)
+ 02. FaKtor.Ost - 3828 (05:54)
+ 03. Markus Masuhr - Forest Lights (10:24)
+ 04. Drfct - Unknown (07:35)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 01:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57FD519235D346833CDB1CAFAADB06215DD2E8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382649   (817536) от 12.05.2020
+
+96 Back - ADRISM (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spanning & Adept (03:52)
+ 02. Carved Into (05:26)
+ 03. Collage Of A Tender Voice (02:49)
+ 04. Transport Sticcato (03:45)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2676129CCA909BFB048D3C2BF5281E23B919BE6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008124   (817601) от 17.04.2016
 
 Karma Fields - New Age | Dark Age (2016) [FLAC|Lossless|tracks] <Drum n Bass, Dubstep, Electro>
@@ -612,87 +693,6 @@ VA - Ibiza-Unique Pres. Fairy Tails Vol.1 (Mixed By Nightmosphere) (2017) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1660C2AFF98F0880C99069C2ED92BE1E153D7A1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382491   (819282) от 11.05.2020
-
-VA - Tropical & Future House Workout (2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo & Sander-7 feat. Tony T - Happy Every Day (Original Mix) 3:27
-02. Skelectro & Allenx feat. Norah B. with Itto - No Time (Spikaa Remix) 3:59
-03. Stephan F feat. Ya-Ya - Stay With Me (Extended Mix) 3:57
-04. Alpha Squad - All About The Music (Extended Mix) 4:08(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2284AC692A3781DB5115198E4EDC1B8F064B95DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117231   (819373) от 22.03.2017
-
-VA - Forever Chillout Set Collection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Loveliness [05:36]
-02. Enrico Donner - The Cherry On The Cake [06:08]
-03. Cane Garden Quartet - Close to You [05:30]
-04. Aquarius - Amiga E Amante (feat Adriana Macedo) [06:10](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADEFBF4A0E2F5737961818E593F7BAF3FE019EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117325   (819374) от 22.03.2017
-
-VA - Blue Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cris Pacini – Vocal Song [01:47]
-02. Latin Aspect – Estrella [05:11]
-03. Surfer – South Beach [05:05]
-04. Twelve – David You Don’t Stop [05:06](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B6E9F602E77195185C4B6F1DF4F58B59F49D81
 ```
 
 

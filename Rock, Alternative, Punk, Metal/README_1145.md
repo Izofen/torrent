@@ -1,3 +1,57 @@
+###  Публикация: 1097533   (914120) от 27.01.2017
+
+Betraying the Martyrs - The Resilient (2017) [MP3|320 Kbps] <Symphonic Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost For Words (04:00)
+02. Take Me Back (04:50)
+03. The Great Disillusion (04:15)
+04. Dying to Live (03:45)(   Читать дальше...   )Жанр: Symphonic Metalcore, DeathcoreПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C5D43C0DE3EDD755E7050F51CD70E592DC6354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491135   (914136) от 23.08.2021
+
+The Blackened House Band - Chapter Day II (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stone Cold Crazy
+02 - Shortest Straw
+03 - Fuel
+04 - All Within My Hands(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DD0AD6F2658BFB9E2C0F8F10FF272E2B12A4A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 180151   (914224) от 04.03.2010
 
 Би-2 - 19 альбомов (1998-2009) [FLAC|Lossless]<Rock>
@@ -645,60 +699,6 @@ Eric Clapton - Eric Clapton (2021) Anniversary Deluxe Edition [MP3|320 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B75EF6C4F03FB11FDB63FCCA8637A3E46A120F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989569   (915414) от 23.02.2016
-
-Tori Amos - Diamond Collection (1998) Unofficial Release [FLAC|Lossless|image + .cue] <Alternative Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cornflake girl  05:04
-02.Crucify  04:56
-03.Spark  04:11
-04.Caught a lite sneeze  04:24(   Читать дальше...   )Жанр: Alternative Rock, VocalПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EC98E82D3339D605D4923B3F83B21584FD0858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367612   (915451) от 16.03.2020
-
-In This Moment - Mother (2020) [MP3|320 Kbps] <Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (Interlude)
-02. Fly Like An Eagle
-03. The Red Crusade (Interlude)
-04. The In-Between(   Читать дальше...   )Жанр: Alternative Metal, Female VocalПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8685F8EBB06D179CE17EDCEF7762CDA9BAE889C1
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 909411   (628198) от 17.06.2015
+
+Fire - Could You Understand Me (1973) Reissue /2005, Skyf Zol/ [FLAC|image+.cue]<Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственный альбом чумового хорватского пауэр-трио Fire из города Чаковец (Cakovec). Одна из самых тяжёлых и громких групп Югославии 70-х годов. Но их там мало кто знал... Потому что, во-первых, пели они в основном на английском языке. И, во-вторых, власти им просто запрещали выступать, так как группа была бескомпромиссной и не шла ни на какие переговоры с властью (   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236FC50A128088AFDB2677C11C0E68F6C3D3F66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908883   (628347) от 17.06.2015
+
+Palace Of The King - White Bird - Burn The Sky (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Take Your Medicine
+2. No Chance In Hell
+3. Another Thing Coming
+4. Burn My Bridges(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4042CB282793B498F6A9FB7F89701D181FE44EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294390   (628370) от 08.04.2019
 
 VA - Music Inspired by the Film Roma (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
@@ -651,72 +702,6 @@ magnet:?xt=urn:btih:73C54783A8719CBA7A60FAB3DCE87A9FBEF59D68
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608BA81B30B8851917232B0A416985467A3764AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521024   (628804) от 10.07.2012
-
-Asia - The Platinum Collection 1982-2010 (5 CD Box Set) (2011) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628804.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Showdown
-02. Countdown To Zero
-03. End Of The World
-04. The Longest Night
-05. Wishing
-06. Through My Veins
-07. You're The Stranger
-08. Wherever You Are
-09. Rock And Roll Dream(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D03FD20ABECD8C924691CE23CCEE9BAB548C8638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520876   (629084) от 10.07.2012
-
-It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_629084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Man In The Photograph (3:46)
-02. Wallflower (4:50)
-03. Map Of The Past (4:37)
-04. Clocks (5:44)
-05. Flag (4:36)
-06. The Big Machine (5:19)
-07. Cartoon Graveyard (5:03)
-08. Send No Flowers (4:15)
-09. Meadow And The Stream (6:42)
-10. The Last Escape (6:06)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:52:40 / 00:56:59
-
-## Скачать торент
-```bash
-нет
 ```
 
 

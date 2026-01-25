@@ -1,3 +1,57 @@
+###  Публикация: 1550826   (591226) от 13.05.2022
+
+Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paroxysm
+02. One And Only
+03. Hero
+04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550893   (591229) от 13.05.2022
+
+Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livets Trädgård (3:29)
+02. Svekets Prins (6:37)
+03. Hjärtat Vet Vad Handen Gör (8:30)
+04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550925   (591235) от 13.05.2022
 
 Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
@@ -638,60 +692,6 @@ Enthrone The Unborn - LXXVIII (2015) [MP3|320 кб/с]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32909A948A747533052A68857980B6438ACC86C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915203   (591993) от 06.07.2015
-
-Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undying Light
-02. Tyranny Of Time
-03. Eliana
-04. Antietam(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D5B6F0590F75FDE77BA58436BBD737D227049A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915182   (591994) от 06.07.2015
-
-Thessa - The Other Side MMXV (2015) [MP3|320 кб/с]<Instrumental Progressive Metal, Djent>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origins
-02. Intentional Neglect
-03. Medusa
-04. Dot Exe(   Читать дальше...   )Жанр: Instrumental Progressive Metal, DjentПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B34EC7E9C53FB3C37A1EE090D80C794EA0B068
 ```
 
 

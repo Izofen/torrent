@@ -1,3 +1,29 @@
+###  Публикация: 1213494   (767973) от 17.03.2018
+
+Grivina - Я Хочу (2018) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я Хочу
+2. Alex Mistery
+3. Up MusicЖанр: Deep HouseПродолжительность: 00:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0289D14BF099344476A44F131A9620C07AA89F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125534   (768061) от 15.04.2017
 
 VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
@@ -668,31 +694,6 @@ VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016862   (769521) от 15.05.2016
-
-VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:02
-002. Ane Brun - Big In JapanЖанр: Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, ChilloutПродолжительность: 07:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C6ABB62EA954EDC341B28E5349ECB26FE46004
 ```
 
 

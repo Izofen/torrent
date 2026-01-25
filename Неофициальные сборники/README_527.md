@@ -1,3 +1,30 @@
+###  Публикация: 1011438   (797016) от 27.04.2016
+
+VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto - Into The Night (Laserdance Cover) (08:31)
+02. Spiral - Around The Planet (Laserdance Cover) (04:01)
+03. Galactic Warriors - You And Me (Laserdance Cover) (05:33)
+04. Amateras - New Adventure (Laserdance Cover) (05:33)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011235   (797017) от 27.04.2016
 
 VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
@@ -668,33 +695,6 @@ VA - не Громкие новинки недели 68 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DA98D17310DDCDB32CC325BD22AC218AB8D1858
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010857   (797699) от 26.04.2016
-
-VA - Future Trance Energy 002 April TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Horizon -  Invincible (Original Mix) 8:05
-02. Raphael Mayers & Ragevision -  Destination (Original Mix) 6:22
-03. Kaimo K & Neev Kennedy -  Afraid (Original Mix) 7:04
-04. Mike Saint-Jules & Amy Kirkpatrick -  Galaxy (A.R.D.I. Remix) 6:42(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDDD839AF866B320A17D323308BB4D14E64694A6
 ```
 
 

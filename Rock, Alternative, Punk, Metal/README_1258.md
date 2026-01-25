@@ -1,3 +1,57 @@
+###  Публикация: 1623359   (1029415) от 01.04.2023
+
+Геннадий Богданов и гр. Русские - 4 Альбома (1994 - 2008) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Соколом
+02. Пустыня
+03. Мия
+04. Чёрным по белому(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:26:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284856F5B0B8726B6930FD325D46D69070A5D994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449879   (1029514) от 23.02.2021
+
+Black Sabbath - Vol. 4 (1972) Super Deluxe Edition, 2021, Rhino Records, Warner Records, BMG [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow’s Dream [00:03:20]
+02. Sweet Leaf [00:05:31]
+03. War Pigs [00:07:52]
+04. Snowblind [00:05:16](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 4 CD, 03:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9109F05C8AF696B8705A2C8495EB86F2FB29ADD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449908   (1029564) от 23.02.2021
 
 Soen - 5 Studio Albums (2012-2021) 5xCD [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -641,60 +695,6 @@ The Ruins Of Beverast - The Thule Grimoires (2021) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C1A52BC97949CAF43A87990DE98219C0A8A995D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449725   (1029781) от 22.02.2021
-
-Cave of Swimmer - Aurora (2021) [MP3|320 Kbps] <Doom Metal, Progressive, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro1 Through the Star Gate [00:01:19]
-02 - The Sun 2021 [00:05:13]
-03 - Double Rainbow [00:03:25]
-04 - My Human [00:05:45](   Читать дальше...   )Жанр: Doom Metal, Progressive, Hard RockПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EE2CB2AEC92B2D067DD1178F602136E64CE53D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449678   (1029784) от 22.02.2021
-
-Tyga Myra - Deliverance (1986) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deliverance (Last Rites)
-02. Lightning Never Strikes Twice
-03. Right Through The Night
-04. Ain't Got Long To Go(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBED71F3A82808FCF3E2F674F566A5C4EA6F1ABA
 ```
 
 

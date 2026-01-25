@@ -1,3 +1,57 @@
+###  Публикация: 1199906   (797380) от 18.01.2018
+
+VA - Classic Rock: The Ultimate Collection (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Status Quo  -  Rocking All Over The World  4:04
+02.  Thin Lizzy  -  The Boys Are Back in Town  4:54
+03.  Rainbow  -  Long Live Rock 'N' Roll  4:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DB053F5CBDF608A0BE09337179D7189E46C7E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508408   (797382) от 08.11.2021
+
+Smokie - Gold (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они не стали рок-звездами первой величины, но их мелодичные песни, отмеченные высоким исполнительским профессионализмом, пришлись по душе меломанам второй половины 70-х. Тогда, в конце 1970-х их песни звучали почти на каждой дискотеке, редкий самодеятельный ансамбль (ВИА), коих в те времена было множество (при каждой школе, каждом ДК), не пели, старательно копируя (   Читать дальше...   )CD - 1:
+01. Pass It Around (3:07)
+02. Couldn't Live (2:25)
+03. Goin' Tomorrow (3:44)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE744A98CF2CF18137C7CC279592FCA4F91CF82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508515   (797398) от 08.11.2021
 
 Running Wild - Blood On Blood (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -638,60 +692,6 @@ Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Sym
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C9B67FBDEE5A17C5696DEF7783C20B153BD2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508552   (797564) от 08.11.2021
-
-Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Madness Took Me
-02. Starfall
-03. Calling My Name
-04. In Perfect Harmony(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21578667A65AF25BBFFE95ADF45E7A44D519BE75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508545   (797588) от 08.11.2021
-
-Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Possessor of Evil (07:35)
-02. Wartorn (03:16)
-03. World At Redemption (04:15)
-04. The Crypt (04:47)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500054018F9639CF0394A618896E1F338F12D44E
 ```
 
 

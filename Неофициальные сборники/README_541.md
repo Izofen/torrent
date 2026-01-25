@@ -1,3 +1,30 @@
+###  Публикация: 1383073   (813743) от 14.05.2020
+
+VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Upsetters - Night Doctor
+002. Spart MC - Jalouzi
+003. L.A.B. - Running
+004. Madison - Free(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 07:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CDE3EFB92A8B667758707ABAD88B2F72792F64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383146   (813749) от 14.05.2020
 
 VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
@@ -670,33 +697,6 @@ VA - Record Super Chart #518 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71A857CDB99E3F2D3A6D5D63BA9A494525D27E75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503924   (815860) от 21.10.2021
-
-VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W, Timmy Trumpet, R3hab - Distant Memory (2:30)
-02. Will Sparks - My Company (4:03)
-03. Virtual Riot, LeKtriQue, Leah Culver - Neon Angel (4:44)
-04. Vini Vici, Diego Miranda, Wuant - More Power (3:28)(   Читать дальше...   )Жанр: Club House, Dance, OtherПродолжительность: 05:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
 ```
 
 

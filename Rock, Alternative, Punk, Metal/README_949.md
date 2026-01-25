@@ -1,3 +1,57 @@
+###  Публикация: 1287875   (699875) от 09.03.2019
+
+Uneven Structure - Februus (2011) 2CD [FLAC|Lossless|image + .cue] <Death Metal, Experimental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD I
+01. Awaken (6:35)
+02. Frost (6:01)
+03. Hail (5:55)Жанр: Experimental MetalПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB44B34588B79F5E60B424FE2631C101E7560B51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287869   (699879) от 09.03.2019
+
+Obscura - Diluvium (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Clandestine Stars (3:38)
+02 - Emergent Evolution (4:52)
+03 - Diluvium (5:03)
+04 - Mortification of the Vulgar Sun (6:10)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208AA253672343727A2DDAC8C5C99B7CF445B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287872   (699881) от 09.03.2019
 
 Obscura - Omnivium (2011) [WavPack|Lossless|image + .cue] <Technical Death Metal>
@@ -635,61 +689,6 @@ Nokturnal Mortum - Істина (2017) [MP3|320 Kbps] <Folk Metal, Pagan Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B7AFB786C1796FCE68BF65ABA6D9186ECE6576
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220781   (700630) от 21.04.2018
-
-phoenix/NEBULIN - Mainframe (2018) [MP3|320 Kbps] <Alternative Rock, Industrial Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play Pretend
-02. Purge, Create, Destroy, Rebuild
-03. Reset, #1076
-04. Omegaworks(   Читать дальше...   )Жанр: Alternative Rock, Industrial Rock, Female VocalПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDC70D87DA4A69C1CEBED4F5E2CFD42EB1B2105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220866   (700638) от 21.04.2018
-
-Ди Курцман (The Dartz) - Качели на краю света (2018) [MP3|320 Kbps] <Neo-Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700638.jpg" />
-</div>
-
-
-###  Подробнее
-
-В отличие от жизнерадостных "дартцов", альбом довольно мрачноват, и критики уже успели окрестить его "катастрофическим фолком". Две песни альбома спеты вместе с коллегами из "Оргии Праведников" и "Мельницы".
-"...Музыка Ренессанса, рок, шансон, регги, ирландщина – каким-то чудом все это может выдать один единственный человек (   Читать дальше...   )1. Качели на краю света
-2. Блюз небесных кораблей
-3. Бумажный браслет
-4. В гавани Кадиса(   Читать дальше...   )Жанр: Neo-FolkПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC033C0B725342D92E0237D9D931FBC1B7619B1
 ```
 
 

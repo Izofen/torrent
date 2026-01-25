@@ -1,3 +1,30 @@
+###  Публикация: 1148687   (603411) от 07.07.2017
+
+VA - Beatport Top 100 Dance June (2017) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603411.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lokee, Stefane - I'm Coming Out (Original Mix) 04:26
+002. Tiesto, KSHMR, Talay Riley - Harder feat. Talay Riley (Extended Mix) 04:34
+003. Axwell & Ingrosso - More Than You Know (Extended Mix) 04:10
+004. Bassjackers, Lucas & Steve, Caroline Pennell - These Heights (Extended Mix) 03:33(   Читать дальше...   )Жанр: DanceПродолжительность: 07:02:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3A997FE31AA738698276FEDB415F0009C19B65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148693   (603446) от 07.07.2017
 
 VA - Beatport Top 100 Big Room June (2017) [MP3|320 Kbps] <House, Tech House, Trance, Big Room>
@@ -674,33 +701,6 @@ VA - Total Stress Relief (2019) [MP3|320 Kbps] <Meditation, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2780B2532095CC526EDE66275224E80EE58EA6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297296   (604825) от 21.04.2019
-
-VA - Special Electro House Mix For Ladies (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604825.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Elements - Feel Good
-002. Alok Jetlag Music - Bella Ciao
-003. ZB - OIO
-004. Aryozo - Franz Kafka(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8A3639FB458DFA14537CE77FFAA3955A96E620
 ```
 
 

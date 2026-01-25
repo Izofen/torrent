@@ -1,670 +1,689 @@
-###  Публикация: 1274838   (791712) от 09.01.2019
+###  Публикация: 1277307   (785457) от 20.01.2019
 
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MRUKS - UH
+02. MRUKS - FOX
+03. MRUKS - Tempore
+04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277298   (785458) от 20.01.2019
+
+VA - Civil Dance Vol.9 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Vegas - Let The Bass Kick (Radio Edit)
+02. Martial Flowz - Arena
+03. Tcline - Insanity
+04. Glamrock Brothers - Long Train Runnin (Walker &  Daniels Edit)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275852A4C307BB45572B07BBCD4D2CB393236E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277409   (785459) от 20.01.2019
+
+Blood Incantation - Starspawn (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791712.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
+01. Vitrification of Blood (Part 1) (13:09)
+02. Chaoplasm (5:34)
+03. Hidden Species (Vitrification of Blood Part 2) (7:01)
+04. Meticulous Soul Devourment (4:16)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
+magnet:?xt=urn:btih:7B40E0DD4D939B5F7FF8E66D376CD09437E89B0B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
+###  Публикация: 1277375   (785460) от 20.01.2019
 
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
+Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791713.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
+01. Consuming the Mana
+02. The Alien
+03. Unworthy
+04. Soul Searcher(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:58:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
+magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
+###  Публикация: 1203991   (785461) от 04.02.2018
 
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
+Св. Аммон и др. | Творения древних отцов-подвижников (2012) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791714.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785461.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
+Предлагаемые читателю «Творения древних отцов-подвижников» являются переизданием ставшей библиографической редкостью книги, вышедшей в 1990-е годы. В издании представлены переводы святоотеческих аскетических сочинений таких известных авторов Египетской пустыни IV века, как св. Аммон, св. Серапион Тмуитский, преп. Макарий Египетский, Стефан Фиваидский, блж. Иперехий, (   Читать дальше...   )Жанр: ПравославиеПеревод: А.И. СидоровФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
+magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274842   (791715) от 09.01.2019
+###  Публикация: 1204136   (785462) от 04.02.2018
 
-1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legado Sombrío
-02. Contemplaciones
-03. Trofeos de Honor
-04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275040   (791716) от 09.01.2019
-
-Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Moriendi  (4:06)
- 02. Dawn of Misery  (3:58)
- 03. Requiem  (2:02)
- 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274843   (791717) от 09.01.2019
-
-Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enferma Humanidad
-02. Sabor a Muerte
-03. Pastores Oscuros
-04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274972   (791718) от 09.01.2019
-
-Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791718.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 John Coltrane - Giant Steps:
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274841   (791719) от 09.01.2019
-
-1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     In tenebra
-02.     La vieja sangre
-03.     Piel de mбrtir, carne de asesino
-04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275039   (791720) от 09.01.2019
-
-Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275033   (791721) от 09.01.2019
-
-Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (1:57)
- 02. Shadows & Dust (2:53)
- 03. Death March (2:22)
- 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275032   (791722) от 09.01.2019
-
-Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
+Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental, IDM, Techno>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791722.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Comatones (2:38)
- 02. Solid State Messiah (vs the Valve Viking) (3:35)
- 03. Repeat and Fade (2:10)
- 04. Skeleton Coast (2:58)Жанр: PunkПродолжительность: 00:11:20
+01. Voices (4:42)
+ 02. Cascades (4:56)
+ 03. Forest Hills (5:30)
+ 04. Some Stripes (6:37)(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, TechnoПродолжительность: 01:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C0BAADCC0A13E09CFD71C3974F7A8E81A76F4BF
+magnet:?xt=urn:btih:D1B6C276B3D73FAC67BD97FEF3BE092B80F0BA6C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387485   (791723) от 01.06.2020
+###  Публикация: 1203907   (785463) от 04.02.2018
 
-Бог грома / Mortal (2020) WEB-DL [H.264/1080p-LQ]
+VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
 
->>3
->>4
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791723.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:58
+01. 2Gemeinsam - Want Some Love (Radio Edit)
+02. Scheinizzl - One More (Radio Edit)
+03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
+04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
+magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337743   (791724) от 01.06.2020
+###  Публикация: 1204007   (785464) от 04.02.2018
 
-Рик и Морти / Rick and Morty (2019) WEBRip [H.264/720p-LQ] (сезон 4, серии 10 из 10) Сыендук [Обновляемая]
+А. Алтаев | Старая песня яблонь (1911) [PDF]
 
->>3
->>4
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791724.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские, РусскиеПродолжительность: ~ 00:20:00 серия
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DDC30BC2E0918EAC7FA0A4874BB65101D381146
+magnet:?xt=urn:btih:8B131BC0E4478C35DDCEA27CB180B3CF1A676608
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387279   (791725) от 01.06.2020
+###  Публикация: 1203990   (785465) от 04.02.2018
 
-Охота / The Hunt (2020) BDRip [MVO]
+Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
 
->>3
->>4
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791725.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько человек имели неосторожность обсуждать в групповом чате охоту на людей. Некоторое время спустя та же компания летит на частном самолёте, когда к ним в салон вваливается ничего непонимающий грязный мужчина, и встречает свою смерть — пассажиры жестоко его убивают. Ещё через какое-то время несколько человек приходят в себя на лесной поляне: во рту у них кляпы, (   Читать дальше...   )Производство: США / Blumhouse Productions, White RabbitЖанр: Ужасы, боевик, триллерРежиссер: Крэйг ЗобелАктеры: Бетти Гилпин, Эмма Робертс, Итэн Сапли, Хилари Суэнк, Джастин Хартли, Дж.С. МакКензи, Айк Баринхолц, Гленн Хоуертон, Эми Мэдиган, Мэйкон БлэрПеревод: Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:30:02
+CD1:
+01. Drought [09:23]
+02. Felicite [08:26]
+03. Orientale [17:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:12:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:461318143801104888CF85BBE22018952C9DFD0B
+magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383753   (791727) от 01.06.2020
+###  Публикация: 1204004   (785466) от 04.02.2018
 
-Fragtime | Осколки Времени [2019, Movie] BDRip 1080p 10-bit raw+rus
+Святитель Иоанн Златоуст | Духовный жемчуг (2013) [PDF]
 
->>След.
->>Аниме с озвучкой (FullHD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791727.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что бы вы стали делать, обладай вы способностью останавливать время? Например, школьница Мисудзу Моритани использует свою необычайную способность, останавливать время на три минуты в день, чтобы наблюдать за окружающими людьми. Однажды она решается пошалить и посмотреть на трусики самой популярной девочки в школе Харуки Мураками. Однако это выходит ей боком, ведь (   Читать дальше...   )Производство: Tear-Studio, ЯпонияЖанр: Комедия, Романтика, Фантастика, Сёдзё-айРежиссер: Сато ТакуяОзвучка: Двухголосая закадроваяСубтитры: Надписи, ПолныеПродолжительность: 01:00:06
+Книга содержит избранные места из творений Иоанна Златоуста — архиепископа Константинопольского. Святитель Иоанн оставил нам огромное богословское наследие. В своем изъяснении Священного Писания он показывал, как Библия может стать подлинной наставницей человека. И сегодня слова святителя, обращенные к каждому из нас, дышат силой Святого Духа: «Грех не в нашей природе; (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82124F0A59D37DA127794D581566A49AB437A0A7
+magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387175   (791728) от 01.06.2020
+###  Публикация: 1204128   (785467) от 04.02.2018
 
-GeekUniversity | Факультет информационной безопасности [1 четверть] (2019-2020) PCRec [H.264/720p-LQ]
+Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
 
->>След.
->>IT, Компьютерные видеокурсы
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791728.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс первой четверти обучения на Факультете информационной безопасности, где вы изучите следующие темы:
-1. Безопасность клиентской части web-приложений
-2. Компьютерные сети
-3. Основы баз данныхЖанр: Сетевая безопасность, базы данныхЯзык озвучки: РусскийПродолжительность: 37:06:40
+01. Affection (06:22)
+02. Imperfect (06:05)
+03. Nefario (06:21)
+04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A453E656D76DD95DE9B7868B3647A55CBFA2D802
+magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382721   (791729) от 01.06.2020
+###  Публикация: 1204147   (785468) от 04.02.2018
 
-Strike the Blood III | Удар Крови [OVA-3] [2018, OVA, 10 ep] BDRip 1080p raw+rus
+VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Продолжение одноименной адаптации серии ранобэ "Удар крови", которое будет охватывать сюжет вплоть до 17 тома «Сломанное святое копьё» и является окончанием арки об истории Святой войны. Чем же закончится данное противостояние и как изменится жизнь главного героя Кодзё Акацуки и его взаимоотношения с Юкиной Химэраги вы узнаете, посмотрев данное аниме.Производство: Connect, ЯпонияЖанр: Приключения, ФантастикаРежиссер: Ямамото ХидэёОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 10 Эпизодов по 23 Мин
+01.  ThC Brothers - Bring Me Back To The Underground (original mix)
+02.  Gosha, Dessy Slavova & Anton Ishutin - I Know You (Anton Ishutin remix)
+03.  Albena Flores & Indira Boka - Rondo Minimale (original mix)
+04.  Jaques Le Noir - Oopart (original mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82A58FC30B03EBAE1CEEC96F595760187676B271
+magnet:?xt=urn:btih:A567E9A94F6E2D0A2D5167F0615B04CB9776017A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387100   (791730) от 01.06.2020
+###  Публикация: 1204055   (785469) от 04.02.2018
 
-Космические войска / Space Force (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-10 из 10) HDRezka Studio [AD]
+VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791730.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Комедийный сериал о новом виде вооруженных сил США, отвечающем за военные операции в космосе. Генерал Марк Марке Нэйрд получает задание отправить отряд солдат на Луну.Производство: США / 3 Arts Entertainment, NetFlixЖанр: комедияРежиссер: Пол Кинг, Том Маршалл, Даина РейдАктеры: Стив Карелл, Ноа Эммерих, Джон Малкович, Тоуни Ньюсом, Бен Шварц, Диана Сильверс, Джессика Ст. Клэр, Фред Уиллард, Джимми О. Ян, Дон Лейк и др.Перевод: Многоголосый профессиональный (HDRezka Studio)Субтитры: русские (hardsub на надписи)Продолжительность: ~00:32:00 серияРеклама: Присутствуют рекламные аудиовставки в начале и конце серии
+01. Homme - Mountains Of Prologomena (feat Nefeli) (04:05)
+02. Outpass - Apela (05:19)
+03. Craun - Birds Of Dissonance (04:14)
+04. Melorman - Mrs Sun In Her Eyes (03:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:412A97793943FDCF1957BD610BC89A51FD6D4302
+magnet:?xt=urn:btih:BFE5F7AF6B8077AD3A23E07BB1231E2A28B638E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377119   (791731) от 01.06.2020
+###  Публикация: 1203868   (785470) от 04.02.2018
 
-Родители (2020) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-20 из 20)
+VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive House>
 
->>Отечественные сериалы
->>
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791731.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В семье Саши и Маши грядет пополнение. Правда, на этот раз родителями в скором времени должны стать их старший сын Тимофей и его избранница Полина. К подготовке к появлению первого внука главные герои подойдут со всей ответственностью, и новые статусы бабушки и дедушки добавят в их отношения нечто необычное. «РОДИТЕЛИ» — сериал, где есть место не только меткому семейному (   Читать дальше...   )Производство: Россия / СУПЕР продакшн, Yellow, Black and WhiteЖанр: комедия, семейныйРежиссер: Александр ЖигалкинАктеры: Мария Порошина, Александр Самойленко, Александр Самойленко мл., Никита Митасов, Алексей Юрченко, Анастасия Крылова, Аксиния Кортнева, Валерия Механникова, Анастасия Акатова, Борис Богданов и др.Продолжительность: ~00:24:00 серия
+01.  Dennis Bune  -  Dark Sky (Original Mix)  8:52
+02.  DiCristino  -  Infinite (Micfreak Remix)  5:46
+03.  Foxt & Prodeeboy  -  New Era (Original Mix)  7:43
+04.  Dezza  -  Looking For (Extended Mix)  7:16(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:48:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5514A92FF48BF524326822362958AEE5FAC14E97
+magnet:?xt=urn:btih:4428D786DEB4109447208266A2A7083E2D8F84E8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387096   (791732) от 01.06.2020
+###  Публикация: 1204001   (785471) от 04.02.2018
 
-Охота / The Hunt (2020) BDRemux [H.264/1080p] [MVO]
+Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domino [04:22]
+02. Old Folks [06:44]
+03. My Little Red Nose [05:51]
+04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277390   (785472) от 20.01.2019
+
+Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Fire Zone
+02. Change of Front
+03. Beyond Nightmares
+04. Trial by Combat(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075FEE05577A5E3F9D9B95A2F67F9E4AB728B463
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277068   (785473) от 20.01.2019
+
+Jim Bryson - Tired Of Waiting (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791732.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785473.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько человек имели неосторожность обсуждать в групповом чате охоту на людей. Некоторое время спустя та же компания летит на частном самолёте, когда к ним в салон вваливается ничего непонимающий грязный мужчина, и встречает свою смерть — пассажиры жестоко его убивают. Ещё через какое-то время несколько человек приходят в себя на лесной поляне: во рту у них кляпы, (   Читать дальше...   )Производство: США / Blumhouse Productions, White RabbitЖанр: Ужасы, боевик, триллерРежиссер: Крэйг ЗобелАктеры: Бетти Гилпин, Эмма Робертс, Итэн Сапли, Хилари Суэнк, Джастин Хартли, Дж.С. МакКензи, Айк Баринхолц, Гленн Хоуертон, Эми Мэдиган, Мэйкон БлэрПеревод: Перевод: Многоголосый закадровый, профессиональный (HDrezka Studio)Субтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: 01:30:02
+1. Flurry Of Strikes
+2. Labour Drive
+3. Cerulean
+4. Cut Bait(   Читать дальше...   )Жанр: FolkПродолжительность: 00:19:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E1218D234B85A702F4975002338325A73385651
+magnet:?xt=urn:btih:5DBABB335F1B8E32D1FDAE886FD6EC487AD72ACA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387185   (791733) от 01.06.2020
+###  Публикация: 1277418   (785474) от 20.01.2019
 
-VA - Radio DFM Top D-Chart Май 2020 [MP3|320 Kbps] <Pop, Dance>
+Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intelligency - August (Alex Shik & Alex One Remix) 3:35
-02. Nelly Furtado - All Good Things (Come To An End) 3:56
-03. Doja Cat - Say So (Vadim Adamov & Safiter Remix) 3:07
-04. Zivert - ЯТЛ (Kolya Dark & DJ Prezzplay Remix) 3:33(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:35
+01. Somebody Loves Me
+02. I've Grown Accustomed To Her Face
+03. Unforgettable
+04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D028F2AA50AEB5656937D8AB1FCC08EF3BDB65B0
+magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387398   (791734) от 01.06.2020
+###  Публикация: 1277320   (785475) от 20.01.2019
 
-GeekUniversity | Факультет информационной безопасности [дополнительные курсы] (2019-2020) PCRec [H.264/720p-LQ]
+Wondershare Recoverit 7.4.2 [En]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791734.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курсы вне четверти Факультета информационной безопасности, на которых рассматриваются следующие дополнительные и факультативные темы:
-1. Алгоритмы и структуры данных на Python. Интерактивный курс
-2. Английский для IT-специалистов
-3. Аудит информационной безопасности (факультатив)(   Читать дальше...   )Жанр: Phyton, информационная безопасностьЯзык озвучки: РусскийПродолжительность: 32:14:02
+Комплексный набор для восстановления данных (был Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14ED3B91E961E68CAAF2ACB6F6AF4391CE90331D
+magnet:?xt=urn:btih:0F9292713D32260A385525D2E8664CA62A086EDC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387358   (791735) от 01.06.2020
+###  Публикация: 1277241   (785476) от 20.01.2019
 
-VA - Новинки с разных популярных MP3 сайтов. Ver 96 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791735.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Rus:
-1. Ahmed Shad - Малая (2:49)
-2. Alekseev - Ревность (3:24)
-3. Bahh Tee feat. Turken - Вытри Слезы, Дура (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:56:12
+01. Rectal Wench (2:50)
+ 02. Feasting on Mankind (1:51)
+ 03. Devour Humanity (2:00)
+ 04. Lacerations of an Unclean Twat (2:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4A4A62EA491EADE8FD0B94D5397C49368B02B49
+magnet:?xt=urn:btih:B36D34041F44C52F8791AE997E30D4AC97265829
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387304   (791736) от 01.06.2020
+###  Публикация: 1277221   (785477) от 20.01.2019
 
-GeekUniversity | Факультет информационной безопасности [2 четверть] (2019-2020) PCRec [H.264/720p-LQ]
+Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791736.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс второй четверти обучения на Факультете информационной безопасности, где вы изучите следующие темы:
-1. Администрирование серверов Linux
-2. Безопасность операционных систем
-3. Безопасность проводных и беспроводных сетейЖанр: Сетевая безопасность, администрированиеЯзык озвучки: РусскийПродолжительность: 55:00:13
+01. Revealed in Obscurity (5:13)
+ 02. Enthroned Abominations (4:05)
+ 03. Atonement (2:57)
+ 04. Abhorrent Desecration of Thee Iniquity (4:17)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1936108CFA3C4DEA32C3EF4BF52528702FD0C9F8
+magnet:?xt=urn:btih:29B34DB33933DCD120DFEC776B10A314F4D6BFFB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387388   (791737) от 01.06.2020
+###  Публикация: 1277446   (785478) от 20.01.2019
 
-GeekUniversity | Факультет информационной безопасности [4 четверть] (2019-2020) PCRec [H.264/1080p-LQ]
+Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791737.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс четвёртой четверти обучения на Факультете информационной безопасности, где вы изучите следующие темы:
-1. Бинарные уязвимости
-2. Криптография. Интерактивный курс
-3. Реверс-инжинирингЖанр: Криптография, реверс-инжинирингЯзык озвучки: РусскийПродолжительность: 24:37:24
+01. Fancy Free [12:07]
+02. I Love the Girl [8:48]
+03. The Uptowner [9:17]
+04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48062D69320835C55AE4E7F457F3B6F0EBB87782
+magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387340   (791738) от 01.06.2020
+###  Публикация: 1277442   (785479) от 20.01.2019
 
-Не та девушка / The Wrong Missy (2020) WEBRip [H.264/1080p] [MVO]
+Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда Тим Моррис случайно знакомится с очаровательной Мисси, то понимает, что встретил девушку своей мечты. Чтобы покорить ее сердце, герой решает пригласить красавицу провести с ним уик-энд на шикарном курорте, где его компания проводит корпоратив. Но Тим ошибается и отправляет сообщение другой Мисси — взбалмошной, эксцентричной особе, которая не стесняется демонстрировать (   Читать дальше...   )Производство: США / Happy Madison Productions, NetFlix, QC EntertainmentЖанр: Мелодрама, комедияРежиссер: Тайлер СпинделАктеры: Дэвид Спейд, Лорен Лапкус, Ник Свардсон, Джеффри Пирсон, Молли Симс, Сара Чок, Ванилла Айс, Джон Фарли, Лори Пелениз Туисано, Крис ВитаскПеревод: Двухголосый закадровый, профессиональный (IdeaFilm)Субтитры: Русские (Forced, Full), английские, испанские, французские, немецкие, итальянские, португальскиеПродолжительность: 01:30:02
+CD1:
+01. Powaii [18:48]
+02. St. Thomas [5:26]
+03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99568AB00FA0871E823F440CEAC5E8E2E7F01B24
+magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277406   (785480) от 20.01.2019
+
+Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785480.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Back In The Cage [5:08]
+02. Stablemates [4:36]
+03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277369   (785481) от 20.01.2019
+
+Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Yata-Garasu
+02. Thy the Ancient Wyvern
+03. Sea of Sacrifice
+04. For Whom the Bell of Ruin Tolls(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277382   (785482) от 20.01.2019
+
+Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disenthrall (1:44)
+02 - Entre Suffrage Et Mirage (4:20)
+03 - Surface's Echoes (6:54)
+04 - Ethereal Kingdom (5:19)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
 ```
 
 

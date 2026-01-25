@@ -1,3 +1,57 @@
+###  Публикация: 1395877   (752280) от 12.07.2020
+
+Форт Росъ - Корни в огне (2020) [MP3|320 Kbps] <Pagan Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В тени креста (04:50)
+ 02. Конец легенды (03:55)
+ 03. Сын своего отца (03:58)
+ 04. Рожденный в крови (03:53)(   Читать дальше...   )Жанр: Pagan Metal, Folk MetalПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1353808C2F54D38D498FE950AADC752367AF374C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395809   (752284) от 12.07.2020
+
+Michael Grant & The Assassins - Always the Villain (2020) [MP3|320 Kbps] <Hard Rock , Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barrel of a Gun (03:36)
+ 02. Always the Villian (04:51)
+ 03. Killing Me Slowly (04:55)
+ 04. Nightmares (05:26)(   Читать дальше...   )Жанр: Hard Rock , Glam MetalПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E9C939EB47B27F4E53F76C3C82DEA31646FB07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 662144   (752461) от 01.06.2013
 
 Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alternative Rock, Synth Rock>
@@ -646,60 +700,6 @@ Punky Meadows - Fallen Angel (2016) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EE165A480EA312DCE4ABF6F94A23B065FF22A36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018792   (754011) от 21.05.2016
-
-Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up (4:31)
-02. Momma's Boy (4:35)
-03. House Of Cards (4:41)
-04. Begging For Mercy (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EF0B8E255EAF6BDF24C4E0C8B58D102967B551
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018900   (754085) от 21.05.2016
-
-Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovin' Every Minute of it (Robert John "Mutt" Lange)
-02. Steal the Thunder (Paul Dean, Mike Reno, Davitt Sigerson, Bill Wray)
-03. Friday Night (Patrick Mahassen, Wray, Dean, Sigerson)
-04. This Could Be the Night (Jonathan Cain, Dean, Reno, Wray)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BBBA51726817E60743CC07C8815D13FFBAA86F
 ```
 
 

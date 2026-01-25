@@ -1,3 +1,84 @@
+###  Публикация: 1566155   (486403) от 27.07.2022
+
+VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Indie Elephant -  Retro Heaven Forest  (6:26)
+02.  2JOHN'S, SevenEver -  Stop & Stay  (6:12)
+03.  magic.made.by.r -  Absurdum  (6:59)
+04.  Redspace, GarryG -  Funny Rave  (6:46)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep House, Indie DanceПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65188775F66C424EAAE65480DD59E7019789E40E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319133   (486593) от 10.08.2019
+
+Erotic Massage Music Ensemble - New Age Erotic Massage (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Tantric Massage (4:35)
+2.Gentle Touch (4:04)
+3.Love Bliss (4:05)
+4.Feminine Spiritual Energy (4:01)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D960B27592D17181CF37424380DE3E63A659C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318814   (486679) от 10.08.2019
+
+Remix Sport Workout - The Best Music for Workout, Training & Running 2019 (2018) [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486679.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Youngblood (3:24)
+2.All I Am (4:58)
+3.Bad Girl (3:26)
+4.Be Alright (3:28)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E5ABA55A33E39CE1D4744EFEB7266EF5E1E1B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1319177   (486817) от 10.08.2019
 
 Phubber - Phun (2019) FunctionLab [FLAC|Lossless|WEB-DL|tracks] <Experimental, Bass, Industrial>
@@ -626,93 +707,6 @@ VA - Erotic Affairs Porn Lounge Sensations (2012) [MP3|320 кб/с]<Downtempo, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A72AB35C6D71B4DAFCE5BA2A427510540A930912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318993   (488726) от 09.08.2019
-
-The Planets - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, New Wave, Pop Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488726.jpg" />
-</div>
-
-
-###  Подробнее
-
-New wave - группа, сформированная в 1979г., Ливерпуль, Мерсисайд, Великобритания01. Iron For The Iron (3:36)
-02. Mile High (3:53)
-03. A Minute Ago (3:56)
-04. Lines (3:57)(   Читать дальше...   )Жанр: Electronic, New Wave, Pop RockПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B9AB49722041F9EFA2657408693161A64EA966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319103   (488728) от 09.08.2019
-
-Sigur Rós (Sigur Ros) - Sigur Rós presents Liminal Sleep (2019) Krúnk [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep 1 (19:04)
- 02. Sleep 2 (11:34)
- 03. Sleep 3 (19:18)
- 04. Sleep 4 (16:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA61FCA94FCC53309EFBEF3ED78084F998488BD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544848   (489054) от 08.09.2012
-
-VA - Sax On the Beach (Groovy Jazzy Chillout and Lounge Music) (2012) [MP3|320 кб/с]<Jazz, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KoolSax - Beyond the Sunset
-02. Candee Soulchillaz - Lily Was Here
-03. JazzyJazz - The Divine Puppet (Cafe Jazzy Del Mar Mix)
-04. Solitary Man - Deep in It (Sea Life #1 Mix)
-05. Perelandra - Dancing With the Sun (Travelling Silvertones Mix)
-06. Guru Sax - People Can't Stop Chillin
-07. Sunny Side - Sunset At Venice Beach L.A. (California Cafe Bar Lounge Mix)
-08. KoolSax - Angel Echoes
-09. Cocktail Groovers - Missing the Train (Dinner Night Lounge Mix)
-10. Sax and the City Boys - Tiny Little Secrets (Soul 2 Sax Mix)(   Читать дальше...   )Жанр: Jazz, Chillout, LoungeПродолжительность: 01:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60B9C589080D8C91A47F36DA7CB064F7DA94185
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1474905   (1012741) от 04.06.2021
+
+Poison - Poison's Greatest Hits 1986-1996 (1996) [FLAC|Lossless|image + .cue] <Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin’ but a Good Time (3:43)
+02. Talk Dirty to Me (3:44)
+03. Unskinny Bop (3:47)
+04. Every Rose Has Its Thorn (4:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF2AADCDCB1130C5EC7EF35C20573BE572658A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474741   (1012745) от 04.06.2021
+
+Blazon Rite - Endless Halls Of Golden Totem (2021) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legends Of Time And Eidolon (05:44)
+ 02. Put Down Your Steel (Only For The Night) (04:00)
+ 03. The Executioners Woe (03:35)
+ 04. Endless Halls Of Golden Totem (05:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEA66965E2B23AB0F812233694A09691F047A88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474920   (1012748) от 04.06.2021
 
 Atreyu - Baptize (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -641,60 +695,6 @@ Bulbous Creation - You Won't Remember Dying (1994) Reissue, 2011, O-Music [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:704879470DE2148DE44ECC89C57CF8148ECC9BBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474201   (1013233) от 01.06.2021
-
-Phil Vincent - Stigmata (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No End In Sight 04:54
-02. My Darkness 06:51
-03. Time 05:01
-04. My Life 04:24(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0685899AF4A5EB5B058DA4C016316D991C5A8A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474282   (1013235) от 01.06.2021
-
-теория симуляции - Тьма (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог [00:00:47]
-02. Тьма [00:03:33]
-03. Я не спокоен [00:02:49]
-04. Меня разрывает [00:02:04](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7D498D3226169F1182D9D61E3DF8DB5B7B3D00
 ```
 
 

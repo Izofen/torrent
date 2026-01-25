@@ -1,3 +1,57 @@
+###  Публикация: 1143782   (633383) от 19.06.2017
+
+Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie With The Devil's Soul
+02. Last Vice
+03. I'm Bad News
+04. 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10766C5E00A8E1EDBD93DBCF67F2D378F6B9EC6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293804   (633504) от 05.04.2019
+
+Don Felder - American Rock 'n' Roll (2019) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Rock 'n' Roll
+02. Charmed
+03. Falling In Love
+04. Hearts On Fire(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FA1E4287FD84495F75854D5BD82A09A77AF136
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519543   (633731) от 08.07.2012
 
 The Teens - Past And Present '76-'96 (1996) [MP3|320 кб/с]<Pop Rock, Glam Rock>
@@ -661,60 +715,6 @@ Skraeckoedlan - Sagor (2015) [MP3|320 кб/с]<Progressive Rock / Stoner / Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87BE46F1977313A97CDDE25558B9D463C1234B28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907268   (640032) от 11.06.2015
-
-Davy O'List - Second Thoughts (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Thoughts (08:55)
-02. To The Stars (04:07)
-03. The Emperor (08:21)
-04. Touch Wood (06:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E1B06BA2D9235C706D613590A988E4482FA005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033300   (640208) от 10.07.2016
-
-Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smoking Gun    05:21
-02.  For You    03:19
-03.  Poetic Rage    05:27
-04.  Wondering    03:36(   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60D0C12F152BAF75EB525CF1E448DB5DD5613C3
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1841293   (1047888) от 10.12.2025
+
+Sarayasign - Shadows Of The Dying Light (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Worlds Apart (Shadowlands) (6:36)
+02.  Watching It Burn Away (5:27)
+03.  Shades Of Black (4:11)
+04.  Shadows Of The Dying Light (6:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F12B202A40767292B158947BD38DFA12572D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841291   (1047889) от 10.12.2025
+
+Rick Hughes - Redemption (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dead End Road (3:39)
+02.  Croire en l'Homme (feat. Lee Aaron) (3:26)
+03.  The Real Me (feat. Tommy Aldridge, Brad Gillis, Rudy Sarzo) (4:17)
+04.  Carry The Torch (feat. Brad Gillis) (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90672F9F10B273A6296CFF031378905F2C7D436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841290   (1047890) от 10.12.2025
 
 Piledriver - First Nations Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -639,60 +693,6 @@ Zero 9:36 - They Were Always Here (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517CAC172B061EF0D27317952362EF7EB63B8DAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841707   (1048286) от 13.12.2025
-
-Машнинбэнд - Вечная память (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Electronic Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крысы [00:04:03]
-02. Утилизация [00:02:40]
-03. Жирный говнюк [00:03:03]
-04. Простыня [00:02:52](   Читать дальше...   )Жанр: Rapcore, Electronic Rock, Punk RockПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CD0A9122BA5ABAC95C68945E6AF4D9AFCD71AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841866   (1048292) от 13.12.2025
-
-Remina - The Silver Sea (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Black Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048292.jpg" />
-</div>
-
-
-###  Подробнее
-
-As with their 2022 debut, Strata, REMINA’s sophomore album demonstrates an especially spaced out approach to gothic doom. The blend recalls Third And The Mortal with enough colossal riffs to stay within metal territory but largely driven by the sort of slow burn textures and ethereal vocals from dream pop and ethereal wave. The execution has a sense of methodical (   Читать дальше...   )01. Trust No One
-02. Algol
-03. Vanta Ray
-04. Theia(   Читать дальше...   )Жанр: Doom Metal, Black Metal, Atmospheric Black MetalПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDED0C0F439566E3EC915E2FC1E0DE17225E4EC
 ```
 
 

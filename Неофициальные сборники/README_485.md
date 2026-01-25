@@ -1,3 +1,30 @@
+###  Публикация: 1214845   (762987) от 23.03.2018
+
+VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762987.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK061 Europe - All Or Nothing
+062 Suicidal Tendencies - Send Me Your Money
+063 Skid Row - Get The Fuck Out
+064 Nickelback - Lullaby(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB256B84FA438DF616AC971B3CE90177F2358C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214761   (762990) от 23.03.2018
 
 VA - Magic Piano Sounds (2018) [MP3|320 Kbps] <Piano, Classic, Instrumental>
@@ -668,33 +695,6 @@ VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394382   (763671) от 05.07.2020
-
-VA - Громкие новинки Июля (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763671.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Борис Гребенщиков - Не Судьба (7:04)
-2. City Of The Sun - La Luz (5:03)
-3. Bring Me The Horizon - Parasite Eve (4:51)
-4. Beyonce - Black Parade (4:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A343B4A57A0B8709A2852D81DC74F8C9A2A68A
 ```
 
 

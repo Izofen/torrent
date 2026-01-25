@@ -1,3 +1,36 @@
+###  Публикация: 520664   (631740) от 09.07.2012
+
+VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Даша Суворова - До Утра (NoName Dj's Remix)
+02. Pitbull - Back In Time (DJ STYLEZZ Remix)
+03. Jessica Wright - Dance All Night (Rudedog Remix)
+04. MMDance - Баня (Danil Gross Remix)
+05. LMFAO - Sexy And I Know It (DallasK Remix)
+06. Luna Moor - Pa Pa Groove Feat Stan WIlliams (Nopopstar Remix)
+07. Timbaland & Pitbull & Wisin & Yandel - Pass At Me (Official Remix)
+08. 5sta Family - Вместе Мы (DJ Solovey Remix)
+09. Eva Simons - I Don't Like You (R3hab Remix)
+10. Горячий Шоколад - Стены (Andry Makarov Club Remix)Жанр: Pop,DanceПродолжительность: 04:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F79520E9850AD50D919AD06C71628403246899E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520805   (631744) от 09.07.2012
 
 VA - Новинки танцполов 3 Русский (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -680,39 +713,6 @@ VA - Сборник хороших хитов - Позитивный заряд 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519387   (633452) от 08.07.2012
-
-VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633452.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Mike De Ville - Amada Mia Amore Mio (MD Electro Vs Eric Flow Remix Edit)
-002 Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Djs From Mars Remix Radio)
-003 Oceana - Endless Summer (DJ Sergey Fisun Remix)
-004 Mike Indigo - Bam Baram (SnickBoy Remix Edit)
-005 Linkin Park - In The End (DJ's From Mars Radio Edit)
-006 Pulsedriver feat. Johnny Rose - Take It Home (Radio Edit)
-007 Toby DeVille - Mamma Maria (Scotty Remix)
-008 Andrew Spencer - Tease Me, Please Me (DJ TNT & Van Snyder Remix)
-009 Ben La Pompe, Pedro De Cabra - La Soupe Aux Choux (Dan Winter Radio Edit)
-010 Aligator feat. Al Agami - Trash the Club (Pulsedriver Oldschool Flavour Remix)(   Читать дальше...   )Жанр: РорПродолжительность: 05:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A547B2E274A38EE3568CE85C1616D2005D03A198
 ```
 
 

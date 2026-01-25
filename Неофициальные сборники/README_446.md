@@ -1,3 +1,30 @@
+###  Публикация: 1401416   (709284) от 10.08.2020
+
+VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Da Groove Bar - Jazz In My House
+002. Kirby Carlisle - What Is Your Answer
+003. Smart Sounds - Hyperpassive
+004. Sunset Bay - Star Edit(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 08:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D357FB293FD5463D0A8DA62A091339AAEA94FD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401421   (709390) от 10.08.2020
 
 VA - Get The Indie Music (2020) [MP3|320 Kbps] <Indie Pop-Rock>
@@ -665,33 +692,6 @@ VA - Tropical House Crystal Weather (2016) [MP3|249-320 кб/с] <Funky, Future 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBD8A1DC502C148AA870A14D185ED73BA08A2016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025546   (710192) от 12.06.2016
-
-VA - Future House 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <Funky, Future House, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demoe Beats - Organics (Original Mix) [6:02]
-02. Audio Clown - Bijou (Original Mix) [5:10]
-03. FlexXTronic - I Can Feel It (Original Mix) [7:00]
-04. The Yacht Club - White Sand (Original Mix) [4:11](   Читать дальше...   )Жанр: Funky, Future House, House, DanceПродолжительность: 03:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969BBAFF673F67A5D6934E65362B1440729E3F83
 ```
 
 

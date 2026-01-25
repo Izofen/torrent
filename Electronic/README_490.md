@@ -1,3 +1,84 @@
+###  Публикация: 973363   (980101) от 08.01.2016
+
+VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brookes Brothers - Climb High (feat. Danny Byrd - radio edit)
+02. The Prototypes - Hypercube
+03. InsideInfo & Mefjus - Pulsation
+04. Matrix & Futurebound - Glow Worm(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973157   (980200) от 08.01.2016
+
+VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Morais - We All Fall Down (07:03)
+02. Hyzan - Booty (08:45)
+03. Hyzan - So Icey (07:18)
+04. OTTOO - Growl (06:49)(   Читать дальше...   )Производство: Deep InsaneЖанр: Deep House, Club HouseПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356031   (980523) от 29.01.2020
+
+Ed Carlsen - Morning Hour (2019) Moderna Records [FLAC|Lossless|WEB-24Bit|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Light (01:43)
+02. Whisper (03:22)
+03. The Gallery (03:31)
+04. Words (04:52)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36549A0144731C458A2AD5888C5F3F142DE5E213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972805   (980657) от 07.01.2016
 
 Pet Shop Boys - Story / 25 Years Of Hits (2009) [FLAC|Lossless|tracks + .cue] <Synth-pop, Electro>
@@ -627,87 +708,6 @@ Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355378   (983626) от 26.01.2020
-
-VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruede Hagelstein & The Noblettes - Berlin (4:03)
-02. Paul Kalkbrenner - Platscher (4:12)
-03. KlangTherapeuten vs. Melokind - Perlentaucher (Melokind Remix) (7:32)
-04. Nora En Pure - Come With Me (Radio Mix) (2:55)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:18:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355401   (983628) от 26.01.2020
-
-VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
-02. Dr. Space - Right Now (Radio Mix) 3:23
-03. Stephan Vegas & Rizzo DJ - Dime Que Me Amas (Radio Mix) 3:36
-04. Skelectro - The Game (Radio Edit) 2:53(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355377   (983631) от 26.01.2020
-
-VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schiller - Atemlos (3:11)
-02. Peter Heppner - Give Us What We Need (Truth Is Not The Key) (3:40)
-03. Turntablerocker - Deja-vu (4:08)
-04. Oliver Koletzki & Fran - Fingertips (5:26)(   Читать дальше...   )Жанр: House, Downtempo, AmbientПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CA95F3BEF81D825515DDF083D0AFE3D05C536B
 ```
 
 

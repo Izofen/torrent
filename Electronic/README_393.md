@@ -1,3 +1,84 @@
+###  Публикация: 1210392   (778869) от 02.03.2018
+
+VA - Armada Miami (2018) [MP3|320 Kbps] <House, Progressive, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren feat. Conrad Sewell  -  Sex, Love & Water (Extended Mix)  5:54
+02.  Lost Frequencies & Zonderling  -  Crazy (Mr. Belt & Wezol Extended Remix)  4:51
+03.  Showtek & Moby  -  Natural Blues (Extended Mix)  4:30
+04.  DubVision & Afrojack  -  New Memories (Extended Mix)  5:01(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE9FBB7F773A7B608CE5B85EAFC05CC68C648BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210231   (778873) от 02.03.2018
+
+VA - The Blossoming Flower (Soulful Music For Positivity, Good Energy & Stress Relief) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Nomad - Lily (01:09)
+02. The Real Babylon - Frail (03:03)
+03. The Real Babylon - The Controals (02:40)
+04. Ultimate Maestro - Flags (04:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD808C5D2AF9CF6DF96AE67C17F33E9A9D20FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210274   (778874) от 02.03.2018
+
+Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Strong
+02. Come Undone
+03. Forget You
+04. Don't Dream It's Over(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF3460584B289BF82FFE9184D0C9E5619A3F058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210440   (778877) от 02.03.2018
 
 VA - Chilling Sounds, Vol. 8 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -614,87 +695,6 @@ VA - Ladies Of Synth Vol.2 (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C254C4F9CED0AF9350876EE3F7EE2DE02DA7D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208695   (779524) от 25.02.2018
-
-VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  Attila Syah pres. Gamma feat. Cari  -  Every Goodbye (Original Mix)  4:31
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Three Faces feat. Christian Zechner  -  Lost In Time (Steve Allen Radio Edit)  4:23(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2024338DE8D81F407F6B7EAEED5820D9F90FD303
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208647   (779525) от 25.02.2018
-
-VA - Black Hole Presents Best Of Vocal Trance 2018 Vol 1 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate - Folded Wings 3:02
-02. Craig Connelly Feat. Kate Miles - Lost Without You 3:57
-03. Tiesto Feat. Christian Burns - In The Dark (First State Remix) 3:47
-04. Ferry Corsten - Wherever You Are 2:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEB9CF2B7C7F96A86B96FD6B900ADD24C21C5D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209013   (779533) от 25.02.2018
-
-VA - Subculture (Mixed By John O'Callaghan & Cold Blue) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  John O'Callaghan  -  Permutations (Intro Mix Edit)  1:58
-02.  Liam Wilson  -  Always With Me (Edit)  5:37
-03.  Temple One feat. Deidre Mclaughlin  -  Reaching For A Dream (Edit)  3:33
-04.  John O'Callaghan  -  Choice Of The Angels (Edit)  5:34(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7790F72E6D0E0362B308D64C4ECE14D126F3904
 ```
 
 

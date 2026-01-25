@@ -1,3 +1,57 @@
+###  Публикация: 1453635   (1026775) от 12.03.2021
+
+Sea Mouse - Tropical Fish (2021) [MP3|320 Kbps] <Sea Mouse, Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rutherfords [00:03:13]
+02 - Vogons [00:03:49]
+03 - Kickin' [00:05:06]
+04 - Car Smasher [00:02:55](   Читать дальше...   )Жанр: Sea Mouse, Rock, Alternative Rock, Modern Blues RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0812D2952D3D087710E01FD261DC1D72345C76F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453761   (1026776) от 12.03.2021
+
+Starmen - By The Grace Of Rock 'n' Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shining Star
+02. By The Grace Of Rock‘n’roll
+03. Kairi
+04. Black Thunder White Lightning(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A54DD5F14F1E9F8B814E4E92754A255EDBA760
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453813   (1026778) от 12.03.2021
 
 Slayer - World Painted Blood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -641,60 +695,6 @@ Gordon Lightfoot - - Summer Side Of Life (1971) 1990, Reprise [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEAB1D17B5E6E078008FD36EA8B00E6A9DA2CE02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453373   (1027075) от 10.03.2021
-
-Андрей Лефлер - Свобода (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Двоичный код [00:03:44]
-02 - Правда, Надежда и Ложь [00:05:22]
-03 - Не медлить и не ждать [00:05:26]
-04 - Четыре зверя [00:04:35](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E6060BBF2EB66B4968C62E79A041532E81CB25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453372   (1027078) от 10.03.2021
-
-Год Змеи - Перегруз (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выбираю
-2. Паучок
-3. Капли
-4. Против или за(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3701E67AFBF865C5F83E2EB912C65016223D3D99
 ```
 
 

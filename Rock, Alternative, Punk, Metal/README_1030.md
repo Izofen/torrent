@@ -1,3 +1,60 @@
+###  Публикация: 1275877   (789392) от 13.01.2019
+
+Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треки - 02, 03, 05, 06, 07, 08 и 10 ранее не издавались.01. Alone
+02. Devil's Tower (new song)
+03. Fearful Heart
+04. Spanish Sea(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4644ACD6F1A184A4A784ED7056B5010F1E6BE517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511278   (789418) от 20.11.2021
+
+Margenta - Алый Король (2020) [FLAC|Lossless|image + .cue] <Heavy metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
+Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
+Проект Margenta осуществляется при участии многих известных музыкантов.
+Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )01. Алый Король (9:17)
+02. Прикосновение Ангела (4:30)
+03. Лагерта (7:08)
+04. Невесомость (Инструментальная Версия) (5:26)(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E70ABA269078B974A11A47F35CB874A192761F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511373   (789428) от 20.11.2021
 
 Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -641,60 +698,6 @@ Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FEF924294D74031AE67B20B1C7951766C37E093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202524   (789893) от 29.01.2018
-
-VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kbps] <Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kosmos - Vegetable Man 02:51
-02. Kylesa - Interstellar Overdrive 06:55
-03. Intronaut - Arnold Layne 03:55
-04. Stinking Lizaveta - Matilda Mother 05:39(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E84DD835233A911ECBCEC192744766635D55E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202568   (789922) от 29.01.2018
-
-Mai Lan - Autopilote (2018) Wagram Music / Cinq 7 [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autopilote
-02. Peru
-03. Pumper
-04. Vampire(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B9C2918125C20BA689C9577C5773A890A3861F
 ```
 
 

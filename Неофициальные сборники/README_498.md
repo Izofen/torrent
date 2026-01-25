@@ -1,3 +1,30 @@
+###  Публикация: 1014454   (776205) от 08.05.2016
+
+VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776205.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Val Entin, Gaetan Durand - Do It Hard (Club Mix) 5:38
+002. Samee - Close Yet Far (Original Mix) 7:38
+003. Phatt-B - Hesitation (Radio Edit) 3:24
+004. Pulsedriver - Do You Want It Right Now (Bounce Mix) 4:02(   Читать дальше...   )Жанр: House, Progressve, ClubПродолжительность: 10:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EE75854C851501661DBC83CAB1697587D94471
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014716   (776206) от 08.05.2016
 
 VA - Floating Beings - Psy Trance Mix (2016) [MP3|320 кб/с] <Psy Trance, Psyhodelic, Goa Trance>
@@ -668,33 +695,6 @@ VA - Скиталец (Хроника звездной саги) (2016) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C7934F2D9F58A2AAFA33ED6FEDAF802DCA1211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014033   (776947) от 06.05.2016
-
-VA - Звездная Сага (2016) [MP3|320 кб/с] <Prog Electronic, Post-Rock, Soundtrack & OST>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Days Between Stations - In Utero (05:10)
-02 If These Trees Could Talk - The Gift Of Two Rivers (01:08)
-03 Blue Drift - Deep Space (05:01)
-04 Erik Norlander - Fanfare for Absent Friends (06:08)(   Читать дальше...   )Жанр: Prog Electronic, Post-Rock, Soundtrack & OSTПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DD2AE51B810F880C236B80DD400A344BAD60E8
 ```
 
 

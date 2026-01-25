@@ -1,3 +1,57 @@
+###  Публикация: 1460951   (1022271) от 07.04.2021
+
+Нервы - 7 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На вынос
+2. Камень
+3. Твоим морем
+4. Сбитые кулаки(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A5A879A6ABBC7C61D6AF8046973A43C8F2E554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460977   (1022275) от 07.04.2021
+
+65daysofstatic - Under The Summs (2021) EP [FLAC 2.0|24/44.1|tracks|WEB-DL] <Post-rock, Experimental, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Summs [00:04:48]
+02. Move Quickly [00:04:34]
+03. NiteTimeUses [00:05:04]
+04. Dawn of the Red [00:04:44]Жанр: Post-rock, Experimental, ElectronicПродолжительность: 00:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9E372DC0D392C722F48BC1714F12C1435E5FBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460958   (1022280) от 07.04.2021
 
 Joanna Stingray - Stay Together (2021) [MP3|320 Kbps] <Rock>
@@ -638,60 +692,6 @@ magnet:?xt=urn:btih:910FBF2C418F5815BD7BA445A586DB356ABC18B7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD82F0231308EAF9DDDA43404DDAD7EDAB1C61E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532301   (1022665) от 04.04.2021
-
-VA - НАШЕствие (01-19 шаги) 19CD (1999-2007) [ APE, FLAC|Lossless|image + .cue, tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022665.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Нашествие» — один из крупнейших в СНГ фестивалей мультиформатной-музыки отечественной сцены под открытым небом. Организатором фестиваля выступает московская радиостанция «Наше радио» и компания «С.А.Т.».01. Гришковец,Ренарс и Бигуди - На заре (04:37)
-02. Ю-Питер - Скажи мне птица (03:38)
-03. Бригадный подряд - Рив гош (03:11)
-04. Ляпис Трубецкой - Керчь2 (03:23)(   Читать дальше...   )Жанр: RockПродолжительность: 20:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228C6B9F16864A4BA19C6362305E3E4DA10E836C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459935   (1022976) от 03.04.2021
-
-Junk - Drop City Souvenirs (серия "Другие восьмидесятые") (1988) Vinyl, LP, Remastered, 2016, Cherry Red [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Junk Town Slam (Extra)
-02. Digging For Victory
-03. Me & The King
-04. Killing Of This Town(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D397CD98601C86949354FBA9F5EEA48E2CA02BE4
 ```
 
 

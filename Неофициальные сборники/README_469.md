@@ -1,3 +1,30 @@
+###  Публикация: 1397682   (737549) от 22.07.2020
+
+VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sharapov - My Way (Original Mix)
+002. Aex - I Wanna Know
+003. Dp Project - The Magic Dream Of Music
+004. Max The Sax - Make Me Feel Good(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 11:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1652F5848130303B7BDC0933B990A1EC8C205FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397690   (737561) от 22.07.2020
 
 VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
@@ -670,30 +697,6 @@ VA - German Top 50 Official Dance Charts 15.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42C0EC5D879A8CF891452A554D425CB0C7330269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282963   (740014) от 16.02.2019
-
-Joy - Touch By Touch (2019) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740014.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Joy - Touch By Touch (Marco Remix)Жанр: Club, DanceПродолжительность: 00:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DBEAAF66A192BCE9330477E4B0231FCA798684C
 ```
 
 

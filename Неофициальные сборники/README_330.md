@@ -1,3 +1,30 @@
+###  Публикация: 1305892   (555931) от 02.06.2019
+
+VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Aaron Smith - Dancin (Krono Remix) (4:15)
+2.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
+3.Billie Eilish - Bad Guy (3:14)
+4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C7E55B824F089BF6EBF487ECEF8DB4919E70AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236051   (556162) от 15.07.2018
 
 VA - Дискотека 2018 Dance Club Vol.181 от NNNB [MP3|320 Kbps] <Club, Deep House, Other>
@@ -668,33 +695,6 @@ VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924716   (557307) от 04.08.2015
-
-VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.25-17 - Просыпайтесь! (02:48)
-02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
-03.7Б - Холодно (vs. Влад Демьян) (04:26)
-04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
 ```
 
 

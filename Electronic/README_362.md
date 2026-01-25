@@ -1,3 +1,84 @@
+###  Публикация: 1023879   (720660) от 07.06.2016
+
+BLNDR - Hypermental (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prsm000 (5:12)
+02. HyperMental (Calming Strobe Mix) (5:40)
+03. HyperMental (Diving Mix) (6:08)
+04. Chords Dark (5:02)(   Читать дальше...   )Жанр: Techno, Experimental, Ambient, Dub TechnoПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C4629217D7E190ECE31C46112B4F70190D85C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024168   (720678) от 07.06.2016
+
+VA - Progressive Summer Vol.1 (2016) [MP3|320 кб/с] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twopandas - Make Me Alive (04:14)
+02. AL - B - Give Me Your Love (04:26)
+03. GreenLeto - Make Your Life (Feat. Kessy.) (06:36)
+04. Datdude - Take You Home (Feat. Danyka) (03:29)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566666C540DB1795325F5361B4EA19CAA73D3012
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023915   (720687) от 07.06.2016
+
+Elle - Yemaja (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akuj (7:21)
+02. Ikenga (7:18)
+03. Haiuri (8:39)
+04. Yemaja (8:31)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678D8AF94821AC768959231DF38CA05BC4EE5DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023885   (720690) от 07.06.2016
 
 Von Grall - Stemplot (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
@@ -613,87 +694,6 @@ VA - Sunny Morning Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD12507536A26AC35590AC1DE57C7EF6639CEF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285217   (722774) от 25.02.2019
-
-VA - Uplifting Only: Orchestral Trance Year Mix 2018 (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro Mireno - It's Your Day (Intro Edit)
-02. Akku - Megumi (Emotional Mix)
-03. Ram & Stine Grove - RAMore (Daniel Skyver Remix)
-04. Illitheas - Levity (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3034E8E1E84A09572401D44E1427BECAE88EA03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218453   (723289) от 09.04.2018
-
-Space Drum Meditation - Space Drum Meditation (2018) [MP3|320 Kbps] <Ambient, Techno, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arp Meditation (02:15)
-02. D! Bodytalk (05:15)
-03. Tower Of Terror II (06:45)
-04. Walzer Therme (06:30)(   Читать дальше...   )Жанр: Ambient, Techno, Deep HouseПродолжительность: 01:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6DE909A025934782264C00530722162039E50F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218398   (723306) от 09.04.2018
-
-VA - The Best Progressive Hits Vol.7 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZANIO & Kaiiila – Ever(Feat. Kaiiila) (Dub Mix)
-02. Illumia – Deeley (Original Mix)
-03. Evave – Falling in My Eyes (Vintage Colors Remix)
-04. Denis Neve – Last Sunrise (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31F8356EF20606D1362DB97450CC22508D8A54F6
 ```
 
 

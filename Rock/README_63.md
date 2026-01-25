@@ -1,3 +1,57 @@
+###  Публикация: 1144500   (625917) от 23.06.2017
+
+Crack The Sky - Crack The Sky (1975) Remastered, 2002, Lifesong [MP3|320 Kbps] <Prog Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Surf City
+03. Sea Epic
+04. She's A Dancer(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FADBF1BFDEC8E72FBC402818FB9E22D9580B7A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294777   (626106) от 09.04.2019
+
+Band Of Light - Total Union (1973) CD, Reissue, Remastered, 2006, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My First Home
+02. Free Them from Hunger
+03. Spaces of Time
+04. If(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5991178B3B8492F363102ED29EC1C56C9C5222E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909771   (626280) от 18.06.2015
 
 Scream Silence - Heartburnt (2015) [MP3|320 кб/с]<Gothic Rock>
@@ -662,60 +716,6 @@ Kiko Loureiro - Sounds Of Innocence [Japanese Edition] (2012) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BF6538488ED56E81DFAFED58AC3D414301298D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143782   (633383) от 19.06.2017
-
-Ida Maria - Accidental Happiness (2014)  EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie With The Devil's Soul
-02. Last Vice
-03. I'm Bad News
-04. 69(   Читать дальше...   )Жанр: RockПродолжительность: 00:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10766C5E00A8E1EDBD93DBCF67F2D378F6B9EC6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293804   (633504) от 05.04.2019
-
-Don Felder - American Rock 'n' Roll (2019) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Rock 'n' Roll
-02. Charmed
-03. Falling In Love
-04. Hearts On Fire(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FA1E4287FD84495F75854D5BD82A09A77AF136
 ```
 
 

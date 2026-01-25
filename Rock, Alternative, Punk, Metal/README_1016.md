@@ -1,3 +1,57 @@
+###  Публикация: 1207799   (780270) от 20.02.2018
+
+Visions of Atlantis - The Deep & the Dark (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Deep & the Dark (4:08)
+ 2. Return to Lemuria (4:09)
+ 3. Ritual Night (3:59)
+ 4. The Silent Mutiny (3:45)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406FE628375B0DD32232461025589F9B6C0D988A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207793   (780283) от 20.02.2018
+
+The Poodles - Devil In The Details (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before I Die (4:24)
+ 02. House Of Cards (4:25)
+ 03. The Greatest (3:53)
+ 04. Crack In The Wall (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16415BB54DC81A6E59899F085C00F39D7BECB08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207942   (780287) от 20.02.2018
 
 Счётчик Мыслей - Мир напрокат (2011) [MP3|320 Kbps] <Alternative Rock>
@@ -638,60 +692,6 @@ Steven R. Smith (Стивен Р. Смит) - Gehenna Belvedere (1996) Autopia [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF41F945FDD233E0390231594055585407960FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207383   (780782) от 17.02.2018
-
-Пилот - Пандора (2018) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гаятри (Пайлот Бабаджи)
-02. Пандора
-03. Нелюбовь
-04. 4 на 4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207395   (780784) от 17.02.2018
-
-Конец фильма - Конец фильма (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я дам тебе все
-2. На все 100роны
-3. По походке
-4. Тема любви(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AC886EB426B484635006210F639CA5E20C1229
 ```
 
 

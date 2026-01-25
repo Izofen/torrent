@@ -1,3 +1,55 @@
+###  Публикация: 197368   (816447) от 03.05.2010
+
+The Sensational Alex Harvey Band - 2 альбома (1974-1975) 2CD BoxSet /2002, Mercury/ [APE|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351099   (816616) от 29.03.2015
+
+The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Classic Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816616.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Greenhornes - американская группа, играющая в стиле гаражный рок, из Цинциннати, Огайо. Ясно и просто, в стиле The Rolling Stones.Список альбомов:
+1999 - Gun For You
+2001 - The Greenhornes
+2002 - Dual Mono
+2010 - Four Stars(   Читать дальше...   )Жанр: Classic Rock, Garage RockПродолжительность: 04:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116944   (816891) от 23.03.2017
 
 Harry Nilsson - The RCA Albums Collection (2013) 17xCD Box Set [FLAC|Lossless|image + .cue] <Rock>
@@ -639,60 +691,6 @@ Ronnie Atkins - 4 More Shots: The Acoustics (2021) EP [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F93C8D587BBFBEA17F9364F56D77566049E43FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503730   (817890) от 20.10.2021
-
-Scarlet Aura - Falling Sky (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal In Your Eyes 04:18
-02. Colour Blind 04:19
-03. You're Not Alone 04:09
-04. My Own Nightmare 05:51(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D998A1FB450FDB9E2969397232252F7B4CCA2DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503710   (817892) от 20.10.2021
-
-Scarlet Aura - Genesis of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Book of Scarlet
-02. Raw Power
-03. Dark Lightning
-04. Utopia(   Читать дальше...   )Жанр: Melodic Power Metal, Female VocalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B817E82662366A4FF9FBCB8BC9EA3885CCE10A4
 ```
 
 

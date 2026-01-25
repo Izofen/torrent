@@ -1,3 +1,57 @@
+###  Публикация: 1620901   (1031675) от 22.03.2023
+
+Preview - Preview (1983) Reissue, 2006, Rock Candy [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night (03:05)
+02. Open Up Your Heart (03:03)
+03. So Blind (03:04)
+04. Running Back (03:33)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0807832324337A857D46739E9A3ABF49796BBB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620894   (1031678) от 22.03.2023
+
+Riptown Riot - Of Martyrs & Mayhem (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moth (4:21)
+02. War (3:50)
+03. Martyr May I (4:51)
+04. The Beast (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D799287E1766AA28484C72B4FDA2A7A4257A77EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620975   (1031679) от 22.03.2023
 
 Ravenlight - Project Genesis (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
@@ -635,60 +689,6 @@ magnet:?xt=urn:btih:AC0B0567CE7B52607C42B99DC141E9CB3FDD6E22
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50CDD1975B351B7BAC470E534F06B359D36A2208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447154   (1032082) от 12.02.2021
-
-The Pretty Reckless - Death by Rock and Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death by Rock and Roll (3:54)
- 02. Only Love Can Save Me Now (feat. Matt Cameron & Kim Thayil) (5:12)
- 03. And So It Went (feat. Tom Morello) (4:30)
- 04. 25 (5:27)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2313A546868F21315308A8EA668A2C2DA5843478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447207   (1032102) от 12.02.2021
-
-Arc Of Life - Arc Of Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Has a Way (05:14)
-02. Talking with Siri (04:24)
-03. You Make It Real (04:32)
-04. Until Further Notice (03:42)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FB87028626BF003DE9328A53DDCA6B1B3D6C46
 ```
 
 

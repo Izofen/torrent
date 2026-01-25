@@ -1,3 +1,57 @@
+###  Публикация: 1439987   (1039297) от 15.01.2021
+
+Humanity Gone - The Seven Deadly Sins (2021) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pride (07:30)
+ 02. Wrath (05:57)
+ 03. Gluttony (07:20)
+ 04. Lust (07:50)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F3BBD26B4F710F19513007DBC375F5B2A332A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439944   (1039300) от 15.01.2021
+
+Ruins of Elysium - Amphitrite: Ancient Sanctuary in the Sea (2021) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexiel: An Epic Lovestory (08:24)
+ 02. Queen of the Seven Seas (05:22)
+ 03. Belladonna (05:10)
+ 04. Leviathan (07:42)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7273B2498B45E707CB0524DC6F7586E304B1940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439978   (1039338) от 15.01.2021
 
 Silent Temple - Marvelers Of Creation (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog, Jazz Rock>
@@ -642,60 +696,6 @@ Kromheim - Journey To Divinity (2023) [MP3|320 Kbps] <Vikings Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A08AEE50798D19A0D47DC0B0DDC6C9F9BBEBE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439835   (1039559) от 14.01.2021
-
-Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flesh & Bone (04:01)
- 02. Wasting Time (05:47)
- 03. Magic Woman Chile (06:17)
- 04. Locked & Loaded (03:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439769   (1039572) от 14.01.2021
-
-Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Inside of Me (04:18)
- 02. The Eyes of a Curious Man (03:49)
- 03. Broken (03:53)
- 04. Detached (03:59)(   Читать дальше...   )Жанр: Hard Rock, Male & Female VocalsПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BBAE53306BC54FF660199690633CCF9D9054E3
 ```
 
 

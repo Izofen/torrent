@@ -1,3 +1,57 @@
+###  Публикация: 1611101   (1041676) от 10.02.2023
+
+Khymera - Hold Your Ground (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wait for Love
+02. Firestarter
+03. Hear Me Calling
+04. Sail on Forever(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A730945E0864128912228CB28250872C936119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610984   (1041678) от 10.02.2023
+
+eMolecule - The Architect (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive-Rock-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emolecule (10:43)
+02. The Architect (6:05)
+03. Prison Planet (4:59)
+04. Mastermind (8:39)(   Читать дальше...   )Жанр: Progressive-Rock-MetalПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7028F48045AED1BF95D0C7DFFFA2A496A77D70CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610981   (1041679) от 10.02.2023
 
 Khymera - Hold Your Ground (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Rock>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:055A6F38F70AE3E4D535440380D2841EF31E1D76
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437398   (1042045) от 05.01.2021
-
-Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthcult (14:58)
-02. Everywhere And Nowhere (17:58)
-03. The Heart Of Time (16:06)
-04. Thaw (16:50)Производство: Not On Label (Trna Self-released)Жанр: Atmospheric Black Metal, Post Black Metal, Blackgaze, Ambient Black Metal, Post RockПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE9CDB5C395923817A92CC579FB5CF5F70FFB26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437508   (1042051) от 05.01.2021
-
-Mission Control - Mission Control (2021) [MP3|320 Kbps] <Jam Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conquest (05:01)
- 02. Mission Control (03:51)
- 03. Out the Window (05:58)
- 04. Player 2 (04:10)(   Читать дальше...   )Жанр: Jam Rock, FusionПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10573416B41453A1187A8DCF8D63ED9FFFB25F18
 ```
 
 

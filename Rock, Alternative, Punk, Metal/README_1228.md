@@ -1,3 +1,57 @@
+###  Публикация: 1468257   (1017285) от 07.05.2021
+
+Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <Power Metal, Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Ancient Artefact [00:05:35]
+02. Journey to the North [00:04:12]
+03. The Ballad of Arnoth the Wild [00:06:06]
+04. Mines of Eloroth [00:05:28](   Читать дальше...   )Жанр: Power Metal, Metal OperaПродолжительность: 3CD, 03:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468115   (1017286) от 07.05.2021
+
+High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace, Love and Harmony (4:07)
+02. Make It Better (3:03)
+03. All We Need (3:33)
+04. Roll That Stone Away (3:11)(   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468280   (1017294) от 07.05.2021
 
 J. D. Overdrive - 3 Albums (2013-2021) [MP3|320 Kbps] <Southern, Stoner Metal>
@@ -642,60 +696,6 @@ Heart - Heart (1985) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFCE14D67DC530DF0CF665CA07D5A966CCD782AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467604   (1017764) от 04.05.2021
-
-Heart - Bebe Le Strange (1980) [FLAC|Lossless|image + .cue] <Classic Rock, Psychedelic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe Le Strange
-02. Down On Me
-03. Silver Wheels
-04. Break(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Hard RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBF87A9808B9089E02DB850AD8BA42B940E9612
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467587   (1017768) от 04.05.2021
-
-Heart - Passionworks (1983) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Can I Refuse
-02. Blue Guitar
-03. Johnny Moon
-04. Sleep Alone(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00381F71B0A536D0778B018BC6B67EB0E3F0ED23
 ```
 
 

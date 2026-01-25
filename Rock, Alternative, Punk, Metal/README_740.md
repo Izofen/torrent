@@ -1,3 +1,57 @@
+###  Публикация: 1057032   (477384) от 27.09.2016
+
+Opeth - Sorceress (2016) [MP3|320 Kbps] 2CD <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477384.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Persephone
+02. Sorceress
+03. The Wilde Flowers(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E379C8B0CF653178CB6042C21F96B0B7E35816FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406304   (477480) от 02.09.2020
+
+Tanna - Storm in Paradise (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477480.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Storm in Paradise [5:38]
+2. Silhouettes [4:26]
+3. Run Like Hell Tonight [5:03]
+4. Like Kim Kardashian [4:04](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D0327CE0B2E2D3E5D38D15389ACB1CA063F6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056998   (477510) от 27.09.2016
 
 Sari Schorr - A Force Of Nature (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
@@ -658,60 +712,6 @@ Michael Schenker Group - Universal (2022) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14030C808CBC715AE9C01AB0C6D6DCC8E4D27328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566814   (478499) от 31.07.2022
-
-Avi Rosenfeld - After The Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pyramids Rise
-02. My Billy Jean
-03. Intruder
-04. After The Battle(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCACF10C45CDB7146B93711A365E50F487AEFDDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566790   (478638) от 31.07.2022
-
-Crystal Gates - Torment & Wonder: The Ways Of The Lonely Ones (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ways Of The Lonely Ones
-02. My Glorious Fall
-03. Alive For The Journey
-04. A Lonely Dreamer's Wish(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6596DAD3636299C76649467262BFA7E21B5EEEE
 ```
 
 

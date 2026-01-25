@@ -1,3 +1,57 @@
+###  Публикация: 1480119   (1009111) от 27.06.2021
+
+Within Temptation - Shed My Skin (2021) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shed My Skin (4:30)
+02. The Purge (4:16)
+03. Entertain You (3:31)
+04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F99789038412F1FB4DE7311F470D068329370A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478298   (1009117) от 27.06.2021
+
+Muse - Origin of Symmetry (2021) XX Anniversary RemiXX [FLAC 2.0|96/24|tracks|WEB-DL] <Alternative Rock, New Prog, Art Rock, Symphonic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Born (XX Anniversary RemiXX) [00:06:03]
+02. Bliss (XX Anniversary RemiXX) [00:04:14]
+03. Space Dementia (XX Anniversary RemiXX) [00:06:21]
+04. Hyper Music (XX Anniversary RemiXX) [00:03:21](   Читать дальше...   )Жанр: Alternative Rock, New Prog, Art Rock, SymphonicПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44AA999F2C3EB43327015063947B3FC41C3D648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478345   (1009121) от 27.06.2021
 
 Helloween - Helloween (2021) Limited Edition [FLAC 2.0|44.1/24|tracks|WEB-DL] <Power Metal, Heavy Metal, Speed Metal>
@@ -641,60 +695,6 @@ Lucifer's Hammer - The Trip (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77651C56B23376ADE50DB6AFEA38ECBC1B0C5300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479688   (1009328) от 26.06.2021
-
-SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival
-02. King Of The Skies
-03. Soldiers Of Light
-04. Constellation(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AE6B93A750AFA4B9FB8D7FE148E3F57067A16E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480072   (1009329) от 26.06.2021
-
-Спикер - Медленный День (2021) EP [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Depressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Суицидница (2:01)
-02. Ангел Ночи (3:23)
-03. Любовь - Тяжёлый Наркотик (8:17)
-04. Медленный День (4:16)(   Читать дальше...   )Производство: Not On Label (Спикер Self-released) – spkr-01Жанр: Atmospheric Black Metal, Post Black Metal, Depressive Rock, ShoegazeПродолжительность: 00:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280CD79A1D5745DD84B7D7CBF9EAE8058DD3D52E
 ```
 
 

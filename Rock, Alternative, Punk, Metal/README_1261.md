@@ -1,3 +1,57 @@
+###  Публикация: 1448508   (1030693) от 18.02.2021
+
+Thrudvangar - 6 Studio Albums (2004-2020) 6xCD [FLAC|Lossless|image + .cue] <Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030693.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Ahnenthron
+2006 - Walhall
+2007 - Zwischen Asgard Und Midgard
+2010 - Durch Blut Und Eis(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 04:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC65F343EB3C28419E610FA6A844DC7DDB9FB65F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448596   (1030710) от 18.02.2021
+
+Die Krupps - Rings Of Steel (1995) [FLAC|Lossless|image + .cue] <Electronic, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloodsuckers (Die Arzte Remix) (5:37)
+02. To The Hilt (Clawfinger Remix) (3:40)
+03. Crossfire (Faith No More Remix) (4:47)
+04. Language Of Reality (Nine Inch Nails Remix) (4:42)(   Читать дальше...   )Жанр: Electronic, IndustrialПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F1CB386338A7E3DC7CABF9BA606BBBA3776EA91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448575   (1030711) от 18.02.2021
 
 The Karaoke Crew - Drew's Famous #1 Karaoke Hits  Sing Like 70'-80's Hard Rock (2012) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
@@ -642,60 +696,6 @@ Powergame - Masquerade (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35DBE7F1782563438D5557591DE8211D0D063BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621226   (1031229) от 24.03.2023
-
-Luna Ad Noctum - The Perfect Evil In Mortal (2006) [APE|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantoms ov wrath (Intro) 1:38
-02. The perfect evil in mortal 5:44
-03. Diablex virus 4:25
-04. Devilrising impact 5:21(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99433A62B674BCD033B0B73FDBCED06192BA8D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447802   (1031341) от 15.02.2021
-
-AOR - The Ghost Of L.A. (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Easiest Way
-02. Too Late For Tears
-03. Give Her The Moon
-04. The Edge Of The World(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83357F654CFF6BE2A7C70587E6A5AB222189DADA
 ```
 
 

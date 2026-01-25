@@ -1,3 +1,57 @@
+###  Публикация: 1399678   (725065) от 02.08.2020
+
+Lockdown Revival - Stay Home (2020) [MP3|320 Kbps] <Modern Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lockdown (01:18)
+ 02. Wake Me Up (03:10)
+ 03. The Call (04:17)
+ 04. Wrong (04:38)(   Читать дальше...   )Жанр: Modern Metal, Alternative MetalПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED946E687A87BE61315E98CA87F638DDFE1358F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399886   (725082) от 02.08.2020
+
+The Neologist - Are We Not Drawn Onward To New Era (2020) Disc 1 [MP3|320 Kbps] <Melodic Death Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall Of An Empire (2020) (04:37)
+ 02. Cyclical Timing (2020) (04:12)
+ 03. 3.0 (2020) (04:04)
+ 04. A Place Where The Dead Don't Bother Me (2020) (03:43)(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4EF529B10597B68C02FDA3B681D97756D45CA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399861   (725210) от 02.08.2020
 
 Septic Flesh - Sumerian Daemons (2003) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -644,60 +698,6 @@ Sister Hazel - Fire (2019) [FLAC|Lossless|WEB-DL|tracks] <Southern rock, Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6265019C3164C881A9883556BFE70AA0F1655F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284696   (726579) от 23.02.2019
-
-Internal Bleeding - Onward To Mecca (2004) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleed by Example (3:20)
- 02. Siege in the Clouds (3:38)
- 03. Infidel (3:55)
- 04. Far Above You (3:47)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075FE015E12DDBE841ED4EDBCA12B49EB6134621
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284688   (726580) от 23.02.2019
-
-Disavowed & Nocturnal Silence - Plateau (1998) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sengaia (4:24)
- 02. Uncle Less (3:24)
- 03. Lionel (4:37)
- 04. Braindead (4:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142DE572BE41F505C209E8D0A11DB7CC747B2FC6
 ```
 
 

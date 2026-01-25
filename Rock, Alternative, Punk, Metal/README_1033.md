@@ -1,3 +1,57 @@
+###  Публикация: 1275286   (791084) от 10.01.2019
+
+All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Calling (3:39)
+ 02. Not Alone (3:30)
+ 03. It Dwells in Me (3:14)
+ 04. We Stand (3:47)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7784DD3382B59276ADB991968655D5F404BA23F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275054   (791086) от 10.01.2019
+
+The Cure - The Cure (2004) Special Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, New wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost (4:08)
+ 02. Labyrinth (5:14)
+ 03. Before Three (4:40)
+ 04. Truth Goodness And Beauty (4:20)(   Читать дальше...   )Жанр: Alternative Rock, New waveПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08937D4380C9DD79AC3AAC1B0AA5AD03200E825A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275299   (791115) от 10.01.2019
 
 The Allman Brothers Band - The Best Of The Allman Brothers Band (20th Century Masters The Millennium Collection) (2000) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -641,60 +695,6 @@ Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65E18011E55B4CA5E1490D89ECE1F6644750C376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201747   (791566) от 26.01.2018
-
-Ладушка - Солнцеворот (2018) [MP3|320 Kbps] <Folk Metal, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Масленица
-02. Горсти серебра
-03. Усладов пир
-04. Русалья ночь(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274947   (791607) от 09.01.2019
-
-Roger Waters - Greatest Hits (2018) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4.41 AM (Sexual Revolution)
-02. 4.50 AM (Go Fishing)
-03. 5.01 AM (The Pros And Cons Of Hitch Hiking Part 10)
-04. Radio Waves(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1088AD635816EEBC118F769028FB38247CC7C070
 ```
 
 

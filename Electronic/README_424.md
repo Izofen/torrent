@@ -1,3 +1,84 @@
+###  Публикация: 1199606   (801137) от 16.01.2018
+
+VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Vintage & Morelli - While The Earth Sleeps (Extended Mix)
+02.Mango - Here We Go (Original Mix)
+03.Johan Vilborg - Seashells (Original Mix)
+04.The Midnight - Memories (Sundriver Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DBC1A9C7D62285041E0E703792C87AD28E9A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199506   (801139) от 16.01.2018
+
+Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Atragun - The Long Journey (Original Mix)
+02.Atragun -  Sunrise Boulevard (Original Mix)
+03.Atragun -  Haven (Original Mix)
+04.Atragun & Tom Bro -  Lost In Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6ED602BEEF930771F90DE25C45D0B0D6448F5CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199517   (801143) от 16.01.2018
+
+VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nygma - See The Sea (Remaster) (Seif & Paula Remix)
+02. DJ Geri - All The Way (Original Mix)
+03. Highforcer - Dark Knight (Jens Jakob Remix)
+04. Robert Reazon - My October (Sebastian Montano pres. Scherzo Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19C48D010C5BBD86841E56C1820B11560243DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506112   (801512) от 29.10.2021
 
 VA - Tranquility (2021) [MP3|320 Kbps] <Psy, Trance>
@@ -614,87 +695,6 @@ All India Radio - CD4: The Slow Light (2016) Bandcamp Edition [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6485A40CCA57A54BB07114EB4B226FCF57D6B27B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384468   (802744) от 20.05.2020
-
-VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Lambert - Equal Rights (Dub Mix) 4:48
-02. Federico Rosano - Throws Up (Dub Mix) 4:16
-03. Laurent Champbell - Foundation (Dub Mix) 4:20
-04. Nicole Wane - Sounds Good (Original Mix) 4:44(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 02:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C2914F3EA10D6612FF64C1DD14B9E1C640D6B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198757   (802830) от 14.01.2018
-
-VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer, DJ Xquizit & OSITO  -  Empire Of Our Own (Original Mix)  3:56
-02.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
-03.  Mantra, Ruslan Radriges & Lucid Blue  -  Take Me Higher (Original Mix)  3:33
-04.  LTN  -  Wind & Cloud (Original Mix)  3:21(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EA59DA79D1F782FFAAB378CE0E0544348A7222
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198857   (802854) от 14.01.2018
-
-York - Peace (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Farewell To The Moon  6:33
-02.  Angels Will Help You  5:32
-03.  The Awakening  5:05
-04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F808CBB6B6F206C256CC64BD02469F44EB400F
 ```
 
 

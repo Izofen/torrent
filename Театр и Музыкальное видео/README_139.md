@@ -1,3 +1,90 @@
+###  Публикация: 1375328   (863609) от 15.04.2020
+
+Bongtower - 5 Music Videos (2019) WEBRip [H.264/1080p-LQ] <Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2019 Bongtower - Altered States (1080)
+002 2019 Bongtower - Bong Rider (1080)
+003 2019 Bongtower - Defender of Humanity  (1080)
+004 2019 Bongtower - What's Wrong With You (1080)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867505AB59C1D7A933E468830917ABBE550DE704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767708   (863730) от 18.03.2014
+
+VA - Весенний марафон № 98 / Видеоклипы (Звездные хиты) (2014) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Весенние (17.03.2014) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Arash ft. Helena - One Day (Official Video) (00:03:46)
+2. Austin Mahone ft. Pitbull - MMM Yeah (Official Video) (00:04:21)
+3. Dasoul feat. Fito Blanko & Maffio  De Lao a Lao  (Remix No Pierdes El Break) (Official Video) (00:04:14)
+4. Dencia - Super Girl (Official Video) (00:04:35)
+5. DN-Tato - Te Sigo Amando (Official Video) (00:04:23)
+6. Hitarda - Sex and Rock n Roll (Official Video) (00:03:54)
+7. Hunter Hayes - Invisible (Official Video) (00:04:42)
+8. Jennifer Lopez ft. French Montana - I Luh Ya Papi (Explicit) (00:05:19)
+9. Ola - Jacky Kennedy (Official Video) (00:03:47)
+10. Sharon Doorson - Louder (Official Video) (00:03:30)(   Читать дальше...   )Жанр: Pop, Dance, Latino, CountryПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63755AE047C9F160FB6F0CD2B2C2283D4BACD0C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375301   (863761) от 15.04.2020
+
+Kill the Kong - 7 Music Videos (2015-2020) WEBRip [H.264/2160p/1080p-LQ] <Sweden Metalcore, Groove Metal >
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863761.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2015 Kill The Kong - Caged (2160)
+002 2016 Kill The Kong - Bring the Heat (1080)
+003 2017 Kill the Kong - Ashes In the Wind (1080)
+004 2017 Kill The Kong - Juggernaut (Wolfpack) (1080)(   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6415CC82F6FA5E48B89C86BA0DD006F55A0FD3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375554   (863763) от 15.04.2020
 
 Concepts - Worry About Me (Ellie Goulding & blackbear Cover) (2020) WEBRip [H.264/1080p-LQ] <Post-Hardcore, Metalcore>
@@ -632,78 +719,6 @@ Cборник клипов и концертных выступлений Ста
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613972EF58C0EDD835CC392EF3C6B05FED7F67C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375037   (867033) от 13.04.2020
-
-Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766413   (867087) от 16.03.2014
-
-Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644421   (867127) от 17.04.2013
-
-Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Горизонтальная анаморфная стереопара 3D]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отрывайтесь по-полной в 3d-клипе с «Gangnam Style»  — синглом южнокорейского исполнителя и автора песен PSY! Песня в 2012 году стала первой в рейтинге Gaon Chart, а её видеоклип на YouTub сделал певца миллионером. В 3d ролике  комически танцующий PSY,  в двух местах в Каннамгу (район в Сеуле) и в восьми, которые находятся в Инчхоне и провинции Кёнгидо. В 3д-видеоклипе PSY задействовано много корейских актёров, а девушка – корейская певица Хёна.Жанр: Музыка, Dance, PopПеревод: ОтсутствуетПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
 ```
 
 

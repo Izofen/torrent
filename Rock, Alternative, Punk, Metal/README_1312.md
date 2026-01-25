@@ -1,3 +1,57 @@
+###  Публикация: 1601403   (1046461) от 01.01.2023
+
+Doomster Reich - Blessed Beyond Morality (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Discover Self-Love (13:39)
+02 - Spleen LXXIX (11:42)
+03 - Wish You Weren't Here (10:08)
+04 - Rape! (11:29)(   Читать дальше...   )Жанр: Psychedelic Doom MetalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5EC797DD7CCE7182B004FA63A88274702F64A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839255   (1046508) от 28.11.2025
+
+Marytale - Тёмное царство (2025) [MP3|320 Kbps] <Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046508.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Лес [00:01:48]
+2. Тёмное царство [00:02:48]
+3. Дракон [00:03:33]
+4. На твоей стороне [00:02:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE08AD173135FF761CF7BE8FE06D132E0C2A1B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839259   (1046509) от 28.11.2025
 
 My Ticket Home - Pure To A Fault (2025) [MP3|320 Kbps] <Nu-Metal, Metalcore>
@@ -644,60 +698,6 @@ Agents of the Apocalypse - Into the Apocalypse (2025) [FLAC 24/48|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB5DD2A05062742733188FBD52A7CC0782951B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839636   (1046842) от 30.11.2025
-
-Factoria - All Synthetic (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <Industrial Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignition (Intro) [00:01:35]
-02. Free Will [00:04:55]
-03. Nuclear Error [00:05:30]
-04. Oppressed [00:03:50](   Читать дальше...   )Жанр: Industrial Metal, Melodic Death MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62AD09552CABA8675BD02ACD9D489B4AECCA7C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839791   (1046886) от 01.12.2025
-
-Equilibrium - Equinox (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic Folk, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Tongue [00:03:13]
-02. Awakening [00:03:48]
-03. Legends [00:04:49]
-04. Archivist [00:01:58](   Читать дальше...   )Жанр: Epic Folk, Viking MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603B64DFA778FF3C28B450F2F27BB352BB90E13F
 ```
 
 

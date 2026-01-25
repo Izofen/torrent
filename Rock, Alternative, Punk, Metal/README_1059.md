@@ -1,3 +1,57 @@
+###  Публикация: 1504947   (806307) от 26.10.2021
+
+Pink Floyd - Meddle (1971) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of These Days (5:55)
+02. A Pillow of Winds (5:13)
+03. Fearless (6:08)
+04. San Tropez (3:43)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE4C4D058D6A3F2DEF92C10C073CA3C884325C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504957   (806316) от 26.10.2021
+
+Pink Floyd - Obscured by Clouds (1972) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obscured by Clouds (3:05)
+02. When You're In (2:31)
+03. Burning Bridges (3:30)
+04. The Gold It's in the... (3:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4900EB1031912199A27E5ED836A6B8114FC7478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505194   (806317) от 26.10.2021
 
 Кипелов - Жить Вопреки (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -637,60 +691,6 @@ Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1855C1DB0E40F66CCB65A64DA582CF674C0D7CBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119498   (807334) от 28.03.2017
-
-B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Pop Rock, Synthpop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Illusion
-02. Other People's Lives
-03. Perfect Storm
-04. She's A Car Crash(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, Indie RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DE793302CBBB2B849CEC2C3B9488572FE6A9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119067   (807338) от 28.03.2017
-
-The Mavericks - Brand New Day (2017) [FLAC|Lossless|tracks + .cue] <Rock, Americana>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807338.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mavericks ("Индивидуалисты") - Американская нео-традишнл кантри-группа, появившаяся в 1989 г., в Майами, штат Флорида. В период с 1991 по 2003 год записали шесть студийных альбомов, 14 синглов попали в биллборд-чаты. Самой успешной была композиция "All You Ever Do Is Bring Me Down" в 1996 году, совместно с аккордеонистом Flaco Хименесом. Коллектив (   Читать дальше...   )01. Rolling Along (3:27)
-02. Brand New Day (3:29)
-03. Easy As It Seems (3:04)
-04. I Think Of You (3:19)(   Читать дальше...   )Жанр: Rock, AmericanaПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD00B0097237E4ED6E2D876D59C57772A1A7558
 ```
 
 

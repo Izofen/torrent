@@ -1,3 +1,84 @@
+###  Публикация: 1045164   (561664) от 22.08.2016
+
+Roman Messer - New Life (Chillout Edition) (2016) [MP3|320 Kbps] <Electronic, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Sender, Roman Messer - New Life (Chillout Mix) (03:38)
+02. Jan Johnston, Roman Messer - Nebula (UltraNova Chillout Remix) (04:16)
+03. Eskova, Roman Messer - Without You (Aurosonic Chillout Remix)(03:43)
+04. Nomosk, Christina Novelli, Roman Messer - Lost Soul (R.I.B Chillout Remix) (05:20)(   Читать дальше...   )Жанр: Electronic, ChilloutПродолжительность: 02:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4603FCD59AA6E6F5EB047C01F7368DCFA3A6E087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045039   (561679) от 22.08.2016
+
+VA - Deep House Brazil (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Dupree - Another World - Original Mix
+02. John - Alexis' Night - Original Mix
+03. Parfenov - Mi Vida - Original Mix
+04. Ditto* - I Need You - Vox Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB9BB703294966B27410784966C68A6662D557F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153038   (561747) от 25.07.2017
+
+VA - Workout Music Vol.1 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ready Or Not & Azmik - That's How It Is (Original Mix)  4:23
+02.  Lion & VENCOR - Pruno (Original Mix)  3:49
+03.  Dirty Sound Society - Ready For The Noise (Original Mix)  4:07
+04.  Ad Voca - New Generation (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA96F354B8246FD822FA643CB447CF36E34FB63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153160   (561756) от 25.07.2017
 
 VA - House Fiesta Ibiza 2017 [MP3|320 Kbps] <House>
@@ -608,87 +689,6 @@ VA - Get Physical Presents: Words Don't Come Easy, Pt. 5 (2017) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E30F08DBE2D952CF1F182CB7422639130904128
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556216   (563382) от 07.06.2022
-
-VA - When We Dip Presents: Ete (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosini - Syd 7:06
-02. Lisandro (AR) - Serenade 6:21
-03. Luka Sambe & Eisenzahn - Vanilla 7:41
-04. VieL & Madraas - Vires 7:32(   Читать дальше...   )Жанр: Deep House, Organic House, Melodic House & TechnoПродолжительность: 01:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E3F1D4A413D059895ADB4FA82CC5EB3A8456CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044664   (563420) от 21.08.2016
-
-VA - John Digweed Live In Montreal: Finale (2016) 3CD Bedrock Records [FLAC|Lossless|image + .cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Out West - Tuesday Maybe
-02. The Chemical Brothers - Sometimes I Feel So Deserted (C2 Trigger Remix)
-03. Chaim – Genesis
-04. DJ H Ft. Stefy - Come On Boy (Larry Levan Remix)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 02:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1791089B713BFD601758E7595A7378AFB1B3CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044662   (563445) от 21.08.2016
-
-Blank & Jones - Dom (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Lumen Ecclesie	[3:48]
-02.	Dona Nobis Pacem	[6:34]
-03.	Genesis	[5:12]
-04.	Exim	[9:11](   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5A2D4BFCFA9A2E51D122558609387CBAB53A2E
 ```
 
 

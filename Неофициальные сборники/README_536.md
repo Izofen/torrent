@@ -1,3 +1,30 @@
+###  Публикация: 1384037   (806265) от 18.05.2020
+
+VA - Beatport Electro House: Sound Pack #83 (2020) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Karl Van Dee - Mexico
+002. Armin Van Buuren - Blah Blah Blah
+003. Tomio - Selfie (Radio Cut)
+004. Kurupted Kid - Metrovida (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 09:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99B30DCA9EA52A719FD968639E8E73C7079F8AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384049   (806273) от 18.05.2020
 
 VA - Simple Elegance: Ultimate Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
@@ -674,33 +701,6 @@ magnet:?xt=urn:btih:6A009B781665DC372A2A76E924BDCBE270BD4106
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C7BB1F05FA4D44997EA161322BB9D94037B1F17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009601   (808233) от 22.04.2016
-
-VA - Весна на шансоне 5 (2016) [MP3|256 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вячеслав Московкин - Что Же Ты Командир
-002. Любовь Попова - Мама
-003. Альберт Ибраев - Здравствуй Весна
-004. Александр Казанцев - Цыган(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA779FFE86833304805CC78E8065DE88C2F842DF
 ```
 
 

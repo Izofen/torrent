@@ -1,3 +1,30 @@
+###  Публикация: 1282498   (745394) от 12.02.2019
+
+VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745394.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Masterio - Mountain (Original Mix)
+002. R.I.B. - Starlit (Original Mix)
+003. Djeff-Z - One Day (Ambient Version)
+004. Animat - Throwing Shapes(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 07:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789423FE5647BCF96DEC6F28470F6065EA6EBB8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282324   (745405) от 12.02.2019
 
 VA - German Top 50 Party Schlager Charts 11.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -668,33 +695,6 @@ VA - Running Workout Moment Of Music (2016) [MP3|252-320 кб/с] <Club, House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D29AC975E4A0076D6223E1F1740B094E9719E78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020242   (746829) от 25.05.2016
-
-VA - : Весенний марафон от радио Шансон 9 (2016) [MP3|256 кб/с] <Chanson, Pop>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Владимир Тимофеев - Летний Дождь
-002. Мариан - Колхоз
-003. Алексей Прага - Мисс Расстояние
-004. Станислав Перелыгин - Любоваться(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473050AB7BC44F650DEC41ACC63E1B4F940328A1
 ```
 
 

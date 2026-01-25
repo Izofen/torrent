@@ -1,3 +1,57 @@
+###  Публикация: 1364858   (933899) от 05.03.2020
+
+Noise Box - Here's That Bliss You Left Behind (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Girl [03:38]
+02. On and Off [03:56]
+03. Glow [03:48]
+04. Smithereens [04:57](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467C33F7DDB70C8E13BDEAA1645909AB27562C8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093520   (933904) от 15.01.2017
+
+Ocean Of Sin - Escape From Heaven/Return To Hell (2016) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Anthem Collapse Of Empiries
+03. Valium
+04. Four(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF4A097AF3A19F4CC5F111716D447F7673B3036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985490   (933930) от 12.02.2016
 
 7Б  - Молодые Ветра (2002) Album, Reissue [FLAC|Lossless|image + .cue] <Rock,Pop Rock>
@@ -641,60 +695,6 @@ Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364608   (935039) от 04.03.2020
-
-Envy - Recitation (2010) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guidance (03:21)
-02. Last Hours of Eternity (07:04)
-03. Rain Clouds Running in a Holy Night (08:32)
-04. Pieces of the Moon I Weaved (04:48)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A6680E8A208FF0F911307D94245645A5F4E82F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364598   (935040) от 04.03.2020
-
-Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (02:05)
-02. Farewell To Words (02:47)
-03. Lies, And Release From Silence (04:49)
-04. Left Hand (03:02)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1305822   (556192) от 01.06.2019
+
+Steve Jones - Mercy (2018) 2019, Rock Candy/Geffen/UMG [FLAC|Lossless|tracks + .cue] <Pop Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mercy 4:59
+2.Give It Up 4:50
+3.That's Enough 4:10
+4.Raining In My Heart 5:15(   Читать дальше...   )Жанр: Pop Rock, Hard RockПродолжительность: 00: 46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AF79610F4B5F1BD119E414FD2967B32400A0F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236184   (556279) от 15.07.2018
+
+The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piglet (03:07)
+02. Stick With It (02:26)
+03. Watch Out (02:22)
+04. Black Coffee (02:13)(   Читать дальше...   )Жанр: Rockabilly, Rock&RollПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0077AFE4F8BE56A8A22FD02D25CFB2B9077D5A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556918   (556397) от 12.06.2022
 
 MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -641,60 +695,6 @@ Soft Machine Legacy - 6 альбомов (2005-2013) [WavPack|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A70A4A0B9B64E8F6954A8B2432B736F59E6C21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046096   (556914) от 25.08.2016
-
-Decembre Noir - Forsaken Earth (2016) [MP3|320 Kbps] <Melodic Metal, Doom-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In This Greenhouse Of Loneliness And Clouds
-2. Small. Town. Depression
-3. Ghost Dirge
-4. The Vast Darkness(   Читать дальше...   )Жанр: Melodic Metal, Doom-Death MetalПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414374B41FFA3D3C5F9DA8FF46CACD07192CC6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376249   (557003) от 11.06.2022
-
-Ignea (ex-Parallax) - 7 Relises (2013-2020) [MP3|320 Kbps] <Oriental Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Dies [00:03:58]
-02. Чорне Полум'я [00:05:24]
-03. Out of My Head [00:03:53]
-04. Í Tokuni [00:03:49](   Читать дальше...   )Жанр: Oriental Progressive MetalПродолжительность: 7 CD, 02:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:569FBB1549C487245E321A5DDB8C0C10D38F461C
 ```
 
 

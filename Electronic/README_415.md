@@ -1,3 +1,84 @@
+###  Публикация: 1386711   (793386) от 30.05.2020
+
+VA - Midnight Flight Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Midnight Flight (Original Mix)
+02. Marco Moli - Only Minutes Away (Original Mix)
+03. Marc Hartman - Emission of Love (Song for Wensi) (Original Mix)
+04. Chillson, Marc Hartman - It's Allright (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7B0D76C6E746C94BAFEF9B6520AB1890BEB1AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386769   (793473) от 30.05.2020
+
+VA - Rhythm Code 5 (2020) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo, Glitch>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ekorce - Feel Your Skin (05:57)
+02. Bumble - Desication (04:29)
+03. Beatroots - Indecisive Storms (05:13)
+04. Ecometric - Conifer (04:42)(   Читать дальше...   )Жанр: Psychill, Psydub, Downtempo, GlitchПродолжительность: 02:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B128906A33FBB2A2375FFEDD1186AD84450951C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122713   (793514) от 06.04.2017
+
+VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matt Darey & Kate Louise S - See The Sun (Original Mix)  5:35
+02.  York & Jennifer Paige - Lost Under The Sun (Max Denoise & Harnam Remix)  5:28
+03.  Asheni - Only Magic  6:26
+04.  Ayla - Angelfalls  4:24(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 02:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3634EF62FC6589D93E1475881F8D011C57883D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122921   (793608) от 06.04.2017
 
 VA - Dinner and Jazz Vol.1: Finest Lounge and Smooth Jazz Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -613,87 +694,6 @@ NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274282   (794169) от 06.01.2019
-
-VA - Cratediggers (2019) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KRS-One - Free Flow (Low Steppa Remix)
-02. Dantiez Saunderson - Groove Machine (Gene Farris Acid Ingestion Mix)
-03. Mr. V - My House (Italobros Remix)
-04. Brett Gould - People Up Top (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208C0E44E2E51B961A3BF5CFAF3E2BB762CF40B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012257   (794351) от 30.04.2016
-
-VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 1)
-02-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 2)
-03-Gershon Jackson - Take It Easy (Sonny FoderaMat Joe remix)
-04-Sonny Fodera & Mystic Bill - Invisible (Sonny Fodera ITH edit)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 07:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387A4A0019AC3C22907C7D0510C69F8CC71B60E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386538   (794439) от 29.05.2020
-
-VA - Workout Beach 2020 Summer [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davide Colombo - Still the One
-02. Skiller - Fields of Gold
-04. Tek66 - Drum Time
-05. Supernocs - Henday(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B128973D56EF5AF78A2DDE7FB1FDCFCB583057F0
 ```
 
 

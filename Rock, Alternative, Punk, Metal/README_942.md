@@ -1,3 +1,57 @@
+###  Публикация: 1221872   (691263) от 26.04.2018
+
+God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epitaph
+02. Mortal Coil
+03. Winter Dusk / Awakening
+04. Seance Room(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9342083BD217CE76C544B5F34A837CCEE977AD13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221867   (691264) от 26.04.2018
+
+Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|320 Kbps] <Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691264.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overture (Live)
+2. Blue Morning, Blue Day (Live)
+3. Cold as Ice (Live)
+4. Waiting for a Girl Like You (Live)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE0E74D660094523CD9DCEFD6B5059316BA60D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133726   (691303) от 14.05.2017
 
 Warrant - Louder Harder Faster (2017) [FLAC|Lossless|tracks]<Hard Rock, Glam Metal>
@@ -641,60 +695,6 @@ Imelda May - Life Love Flesh Blood (Special Edition) (2017) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEEDC21BB2C7063FA7C7996953A6D040A6CF210E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221690   (692894) от 25.04.2018
-
-BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Контакты
-2. Мой друг океан
-3. Для тебя
-4. For a Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1111BDED259961B7D16FEA545E87E7AFC53EB070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027960   (692971) от 21.06.2016
-
-Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flames (02:34)
-02. Wake Up (03:38)
-03. Magical Girl (03:11)
-04. Lone Warrior (02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55CF4DA77C3B51F4CE02607B3739A8C302C8109
 ```
 
 

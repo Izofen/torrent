@@ -1,3 +1,57 @@
+###  Публикация: 1111654   (846658) от 06.03.2017
+
+Heat Exchange - Reminiscence (1972) remastered, 2017 [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog, Hard Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Those Who Listen (3:44)
+02. Inferno (3:53)
+03. Reminiscence (4:37)
+04. Can You Tell Me (3:06)(   Читать дальше...   )Жанр: Prog, Hard Rock, PsychedelicПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3AB22C800898D4D2D24A8516E29B1E51E0ED979
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111660   (846739) от 06.03.2017
+
+Strawberry Girls - Italian Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Math-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Night, Golden Circus (6:11)
+02. Vanilla Rainforest (4:38)
+03. Thank God Ft. Nic Newsham And Kathleen Delano (3:30)
+04. Welcome To The Woods (1:19)(   Читать дальше...   )Жанр: Progressive Rock, Math-RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7435E4AE2C0783998A36E80381214B39A501C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111677   (846753) от 06.03.2017
 
 Persefone - Aathma (2017) [MP3|320 Kbps] <MDM, Progressive Metal>
@@ -638,60 +692,6 @@ magnet:?xt=urn:btih:6FF858FA1D6CD64A9398EAB31B64A3F00D0071A1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499431   (847969) от 02.10.2021
-
-Evil Scapes - Sanity Of No One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:20)
-02. Bubble Dreams (04:11)
-03. Scars (03:25)
-04. Conscience (04:26)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726EBFC7DE62A31D93F38B0A254885BCD585E65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499511   (847971) от 02.10.2021
-
-Бродячий Цирк - Чтобы нас согреть (2021) EP [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Скоро наступит весна
-2. В глаза смотреть
-3. Разбитая звезда
-4. ШизофренияЖанр: Punk RockПродолжительность: 00:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB07BB978B96C880A1D1C887DB654F543BA2843
 ```
 
 

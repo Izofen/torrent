@@ -1,3 +1,30 @@
+###  Публикация: 1474970   (1012524) от 05.06.2021
+
+VA - All Out 00s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012524.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga, Colby O'Donis - Just Dance (4:02)
+002. James Blunt - You're Beautiful (3:29)
+003. Maroon 5 - This Love (3:26)
+004. David Guetta - When Love Takes Over (feat. Kelly Rowland) (3:11)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 16:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F3C64434425BB8D7E0BD73E76CB37FD0015DCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1475183   (1012527) от 05.06.2021
 
 VA - Record Super Chart 05.06.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473949   (1013402) от 31.05.2021
-
-VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Kick - All That We Do  (Original Mix)
-02. Damian Force - Where Is Your Love  (Louis Feen Remix)
-03. The Bestseller - Fly Away  (Original Mix)
-04. DJ Skywalk - Love 2 Love  (Squib Extended Mix)(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
 ```
 
 

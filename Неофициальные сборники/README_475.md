@@ -1,3 +1,30 @@
+###  Публикация: 1020242   (746829) от 25.05.2016
+
+VA - : Весенний марафон от радио Шансон 9 (2016) [MP3|256 кб/с] <Chanson, Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746829.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Владимир Тимофеев - Летний Дождь
+002. Мариан - Колхоз
+003. Алексей Прага - Мисс Расстояние
+004. Станислав Перелыгин - Любоваться(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473050AB7BC44F650DEC41ACC63E1B4F940328A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020006   (746832) от 25.05.2016
 
 VA - Acoustic Worship (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -665,33 +692,6 @@ VA - Mysterium Desert (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7486126E44F72F57486A7C3B2F4A7C1874CDDB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281888   (748281) от 10.02.2019
-
-VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elly B - Friends With Benefits
-002. Fyah Blaze - Jah Shine His Light
-003. Jah Torius - Never Believe
-004. Jahlani Muziq - Prologue(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 08:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D07F0583F70DB754B09925A5BA26AB1A08048E5
 ```
 
 

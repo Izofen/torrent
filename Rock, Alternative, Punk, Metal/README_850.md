@@ -1,3 +1,57 @@
+###  Публикация: 1549114   (593894) от 06.05.2022
+
+Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarajevo (4:45)
+02. Stormtroopers (3:53)
+03. Dreadnought (3:25)
+04. The Unkillable Soldier (3:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41555484270A5CCAA2FD0A0144B716B7E5EC7315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549217   (593897) от 06.05.2022
+
+Arcade Fire - WE (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Art.Rock, Indie Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age of Anxiety I (5:27)
+02. Age of Anxiety II (Rabbit Hole) (6:41)
+03. Prelude (0:30)
+04. End of The Empire I-III (5:23)(   Читать дальше...   )Жанр: Art.Rock, Indie Rock, SynthpopПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C72776D9A8652E3C3000F115E1C8A99DC6E019
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549133   (593901) от 06.05.2022
 
 Гран-КуражЪ - IX жизней (2022) 2xCD, Live [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -641,60 +695,6 @@ Fortune - II (2019) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B6280798B33929FE378371388680B47908651D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549041   (594732) от 05.05.2022
-
-Three Days Grace - Explosions (2022) [MP3|320 Kbps] <Post-Grunge, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. So Called Life
-2. I Am The Weapon
-3. Neurotic (feat. Lukas Rossi)
-4. Lifetime(   Читать дальше...   )Жанр: Post-Grunge, Alternative RockПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45147C665E9B95054436837ED467569F12E9B8F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548837   (594745) от 05.05.2022
-
-Conception - State of Deception (2020) Deluxe Edition, 2022, Conception Sound Factory [FLAC 2.0|44.1, 48/16, 24/|WEB-DL|tracks] <Progressive, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. in: Deception (1:46)
-02. Of Raven and Pigs (4:46)
-03. Waywardly Broken (4:38)
-04. No Rewind (3:12)(   Читать дальше...   )Жанр: Progressive, Power MetalПродолжительность: 02:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED28187A6A6491B5258DDB5EA162C6B8EF71E28
 ```
 
 

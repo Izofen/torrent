@@ -1,3 +1,36 @@
+###  Публикация: 517260   (647914) от 01.07.2012
+
+VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monodeluxe - At the Beach - Original Version
+2. Cosmic Funk - I'll Never Stop - Axel B. Sunset Mix
+3. Treasure Room - Nobody - Original Mix
+4. Stereo Mutants - I Wanna Go - Afterlife Remix
+5. Twentyeight - Hope - Original Mix
+6. Michael E - Barcelona - Original Version
+7. Marc Ozz - Bondai Beach - Original Mix
+8. Lady White - Let Me Try - Original Mix
+9. Mauro Mondello - Bamboja - After Teneriffa Mix
+10. Bang Bang - Hate Fleeting - Da Sunlounge Remix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517366   (647916) от 01.07.2012
 
 VA - Включи Погромче 50/50 Vol. 3 (2012) [MP3|256 kbps]<Pop>
@@ -677,33 +710,6 @@ VA - Night Chilled Jazz (2016) [MP3|320 Kbps] <Chill Jazz, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BE0AA2C640E0275EFDB522730CBF4794A884886
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031677   (649551) от 05.07.2016
-
-Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up
-02. Not For Sale
-03. Danger Sign
-04. Take It All Away(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67636EF639270F23E040D43A6CA342698D1F686C
 ```
 
 

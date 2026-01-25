@@ -1,3 +1,57 @@
+###  Публикация: 1438655   (1040921) от 09.01.2021
+
+Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Lossless|image + .cue] <Atmospheric Gothic/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monochrome (03:04)
+02. Inside The Maze Of Deadlock (08:48)
+03. Acontium Waters (11:27)
+04. The Astralnauts (03:08)(   Читать дальше...   )Жанр: Atmospheric Gothic/Doom MetalПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438636   (1040923) от 09.01.2021
+
+Fallen Arise - Enigma (2020) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Adentu Deorum
+02. Enigma
+03. Reborn
+04. Forsaken(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F71D5B695DF52ED137035BB784EEA62C3206FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438658   (1040926) от 09.01.2021
 
 Exodus to Infinity - Archetype Asylum (2021) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
@@ -641,60 +695,6 @@ Viral - Viral (2021) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8537DC0591B8E4A0B75CFD75C6B085D9A08BB5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438403   (1041195) от 08.01.2021
-
-Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cure for the Soul [00:04:07]
-02. Femme Fatale [00:03:30]
-03. Last Day Home [00:04:38]
-04. Every Bit of Pain [00:04:23](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438393   (1041198) от 08.01.2021
-
-Blind Ego - Preaching To The Choir (2020) [FLAC|Lossless|tracks + .cue] <Neo-Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Massive (5:25)
-2. Preaching To The Choir (6:06)
-3. Burning Alive (4:32)
-4. Line In The Sand (4:09)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04EACECE1E4335C2DF98F92A30C5146B494928E
 ```
 
 

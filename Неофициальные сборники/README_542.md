@@ -1,3 +1,30 @@
+###  Публикация: 1503924   (815860) от 21.10.2021
+
+VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W, Timmy Trumpet, R3hab - Distant Memory (2:30)
+02. Will Sparks - My Company (4:03)
+03. Virtual Riot, LeKtriQue, Leah Culver - Neon Angel (4:44)
+04. Vini Vici, Diego Miranda, Wuant - More Power (3:28)(   Читать дальше...   )Жанр: Club House, Dance, OtherПродолжительность: 05:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E2316A075FE8F16CD3B431DC239EE450D9A3BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008619   (815925) от 18.04.2016
 
 VA - Riviera Jazz Lougin (2016) [MP3|320 кб/с] <Jazz>
@@ -668,33 +695,6 @@ VA - 100-ка популярных весенних хитов на Europa Plus 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:185F879C53B0C266866033F45A1FBB52D22698CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117252   (817050) от 23.03.2017
-
-VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сандра Круглова - Сверху 3:06
-002. Dato - Если Это Не Любовь 4:27
-003. Bazhen Sysoev Feat. Dj Seat - Наркотик 3:07
-004. Милан Савич - Так И Скажи 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
 ```
 
 

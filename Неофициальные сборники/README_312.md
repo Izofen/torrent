@@ -1,3 +1,30 @@
+###  Публикация: 1240516   (524460) от 12.08.2018
+
+VA - Зарубежные Хиты-Июль (2018) [MP3|320 Kbps] <Pop, Alternative,Rap/Hip Hop, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Russo-I Jusswon
+002. A R I Z O N A-What She Wants
+003. Armin van Buuren, Vini Vici, Alok, Zafrir-United
+004. Austin Burke-One Summer(   Читать дальше...   )Жанр: Pop, Alternative,Rap/Hip Hop, BluesПродолжительность: 06:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73BEECDA882804BC0938C4F2B4ABABA7517BA32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240478   (524466) от 12.08.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 10.08.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -692,33 +719,6 @@ VA - Мегахиты Русского Радио. Ассорти Энергич
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7853A0FC33A40F5764BF3968F8880DDB21079B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156786   (526382) от 09.08.2017
-
-VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nickelback - Far Away
-002. Whitesnake - Is This Love
-003. Pierce the Veil - Dive In
-004. Saosin - The Silver String(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580987F028F325C775B9CF602B564B7F1E07602E
 ```
 
 

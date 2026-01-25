@@ -1,3 +1,36 @@
+###  Публикация: 530739   (558566) от 04.08.2012
+
+VA-Сборник нашего радио 2012 (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маврин - Мое небо
+02. Найк Борзов - Радоваться
+03. Пилот - 156-ой
+04. СерьГа - Валера, ты где
+05. Муха - Завтра начинается сейчас
+06. Смысловые галлюцинации - Демоны
+07. Plastика - Мир великолепен
+08. Е2 Знакомы - Пусть
+09. Глеб СамойлоFF & The MatriXX - Я сам
+10. Тайм Аут - Раз, 2, 3Жанр: RockПродолжительность: 06:27:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F9BEDBCBE534FB2700BAF5CFE49BAE84CA7C89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235500   (558678) от 12.07.2018
 
 VA - Courtesy Trance Euphoric (2018) [MP3|320 Kbps] <Trance>
@@ -713,33 +746,6 @@ VA - I'm Listening Now (2022) [MP3|320 Kbps] <Club, House, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E07FD7BD1E6D6ECDCD863BE2C14379C37A9CD2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045327   (559824) от 23.08.2016
-
-VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal Trance, Emotional, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ex-Driver Ft. Julie Harrington - Aurora (Original Mix) 06:45
-02. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:36
-03. Aly & Fila With Omar Sherif & Jonathan Carvajal - A New Age (Fsoe 400 Anthem) 07:20
-04. Ula - Meruem (Plutian Remix) 07:32(   Читать дальше...   )Жанр: Trance, Melodic, Vocal Trance, Emotional, Uplifting TranceПродолжительность: 06:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86079F80381A7B58ED33F49970441353306B7CE9
 ```
 
 

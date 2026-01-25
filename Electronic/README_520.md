@@ -1,3 +1,84 @@
+###  Публикация: 1446981   (1032091) от 12.02.2021
+
+Transceive - Intrigue (2001) [FLAC|Lossless|tracks + .cue] <Berlin School>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Bygone Daze 6:34
+2 Intrigue 12:43
+3 Emor Femus 10:46
+4 Tera's Secret 4:40(   Читать дальше...   )Жанр: Berlin SchoolПродолжительность: 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9C9A5845037F1722FFCBD78BED0A3DCBA1BFF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447269   (1032092) от 12.02.2021
+
+Jens Buchert - Dawnrider (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downbeat, Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shimmering Waters (4:13)
+ 02. Marvel (6:28)
+ 03. Golden Beyond (5:32)
+ 04. Orangerie (5:49)(   Читать дальше...   )Жанр: Electronic, Ambient, Downbeat, Trip-HopПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044E109E68A4AB1924836CBF1C8F0FA17C3AE331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447205   (1032127) от 12.02.2021
+
+VA - Markus Schulz - Global DJ Broadcast - Escape to Narva (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz - Escape to Narva
+01. Markus Schulz - Hanging in a Moment
+02. Kyau & Albert & Steve Brian - Candy
+03. Cosmic Gate & Andrew Bayer - The Launch(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619C1489F031F22D2B55C5E6A2607496D98EABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446932   (1032258) от 11.02.2021
 
 VA - Black Hole Recordings Presents Best Of Vocal Trance 2021 Vol 1 (2021) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -603,84 +684,6 @@ A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E648B439F75923EC913CDB5CE680EC5013DF8CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619372   (1032964) от 16.03.2023
-
-VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicagoboy - Come and Get It (4:37)
-02. Mr Brackets - Spate (5:33)
-03. Roxy Dawn - Who'll Stop the Rain (Midnight Rework) (4:51)
-04. Plastic Thomas Orchestra - Hungabunga List Nr. 2 (Pto Remix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4D7433D6B6EB8443DC04073891175E3CFF33E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446365   (1032991) от 08.02.2021
-
-David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (2021-02-06) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-02. CamelPhat & Will Easton - Witching Hour (David Guetta 2020 Rework)
-03. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix)
-04. David Guetta & Sia - Let's Love (David Guetta & MORTEN Future Rave Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D613D4E7ABF2EBAA82A24DA554C2216C07180BD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446290   (1032995) от 08.02.2021
-
-Tim Schaufert - Have My Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Future Garage>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have My Soul (03:00)Жанр: Chillwave, Ambient, Future GarageПродолжительность: 00:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDB06B06126803C49E87BBE0A42517A1E74AB3C
 ```
 
 

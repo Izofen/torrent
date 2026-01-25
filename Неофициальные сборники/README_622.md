@@ -1,3 +1,30 @@
+###  Публикация: 1364037   (939199) от 01.03.2020
+
+VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939199.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Tokio - Кто Я Без Тебя 4:09
+002 Lumen - Три Пути 4:36
+003 Агата Кристи - Как На Войне 4:05
+004 Би-2 - Полковнику Никто Не Пишет 4:52(   Читать дальше...   )Жанр: RockПродолжительность: 16:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363985   (939322) от 01.03.2020
 
 VA - Beatport Bassline: Electro Sound Pack #17 (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
@@ -668,33 +695,6 @@ VA - 155 DJ Sound Music World Tunes (2017) [MP3|96-320 Kbps] <Club, Bigroom, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB7A4C35CA3726022A0EE13CBBDBFB9136506E0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092015   (941036) от 10.01.2017
-
-VA - Deep House Collection Vol. 103 (2017) [MP3|320 Kbps] <House , Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.4Tek - Fat Omerta (Original Mix)
-02.4Tek - Friday (Original Mix)
-03.Ace of Base - The Sign (Marcus Brodowski Edit)
-04.Alexandr Rassevich - Oblivion (Original Mix)(   Читать дальше...   )Жанр: House , Deep HouseПродолжительность: 10:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407CD1B16424590A7C7F52F7C3F2794E746754C5
 ```
 
 

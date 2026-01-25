@@ -1,3 +1,84 @@
+###  Публикация: 1233936   (576026) от 02.07.2018
+
+VA - The Best Of Critical Overload 001 (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Drop The Pain - Side Effects (Original Mix)
+02.Sam Laxton - Antithesis (Original Mix)
+03.Ra Djan - Ra Maayan (Effective Remix)
+04.Ido Shoam - Feeling Lucky (Altered State Remix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 03:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F74EB028788F8DB846C9A7C0D68C5A8CD36D37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233794   (576226) от 02.07.2018
+
+Kristine - Kristine (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Love (4:50)
+02. The Danger (3:40)
+03. Summer Long Gone (4:17)
+04. The Rhythm of Love (3:40)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Synth-popПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A8D54F4CA0E5E9AF33D5625C6B2FD41B41B8B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303151   (576329) от 19.05.2019
+
+Mark Sherry - Confirm Humanity (2019) [FLAC|Lossless|WEB-DL|tracks] <Tech Trance, Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Sherry & Mallorca Lee – The End Is The Beginning (04:52)
+02. Mark Sherry & Joey V – Chopperchunk 2.0 (03:50)
+03. Mark Sherry – I'm Not A Robot (05:18)
+04. Mark Sherry & Tempo Giusto – Celestial Body (04:51)(   Читать дальше...   )Жанр: Tech Trance, Trance, Uplifting TranceПродолжительность: 01:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C613C38C959FF180F645442A25B8E7976BB3A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233945   (576341) от 02.07.2018
 
 VA - 32 Summer Of Trance Multibundle (2018) [MP3|320 Kbps] <Trance>
@@ -612,86 +693,6 @@ VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042726   (578400) от 13.08.2016
-
-VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolsch & Michael Mayer - Dogma 1 [09:56]
-02. Paul Woolford - Mother & Child [07:25]
-03. Matador - The Enemy (feat Felix Da Housecat - Hot Since 82 remix)[06:05]
-04. Joris Voorn - Looks Fake Obviously [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 11:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BE33988F00A24BE68CDE851185B4D0A3CF34FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042569   (578444) от 13.08.2016
-
-Somerville & Wilson - Red Wasps EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Wasps
-02. Slippery As Sin
-03.Жанр: Tech House, Deep HouseПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1998E74FDCC0411807D6B359715393BC58F516B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042677   (578449) от 13.08.2016
-
-VA - Toolroom Ibiza Vol.2 (2016) [MP3|320 Kbps] <House,  Tech, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kolsch & Michael Mayer  -  Dogma 1  9:57
-02. Paul Woolford  -  Mother & Child  7:26
-03. Matador  -  The Enemy (feat Felix Da Housecat - Hot Since 82 remix)  6:06
-04. Joris Voorn  -  Looks Fake Obviously  6:38(   Читать дальше...   )Жанр: House,  Tech, Deep HouseПродолжительность: 11:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B4FD77AA725168F65F095AE1245EBFBED04115
 ```
 
 

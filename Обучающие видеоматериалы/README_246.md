@@ -1,3 +1,28 @@
+###  Публикация: 1493483   (895281) от 03.09.2021
+
+Михаил Сатченко | Etsy 101: Как настроить магазин и продвинуть его (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте как продавать на Etsy и какие маркетинговые стратегии необходимы для успеха на площадке. Этот курс расскажет вам, как оптимизировать ваш список листингов и оптимизировать удобный поиск для любого товара.
+В этом видео вы научитесь, как продавать с помощью Etsy начиная с начального уровня, заканчивая продвинутым! Вы сможете оптимизировать свои листинги для (   Читать дальше...   )Жанр: Продажи в интернетеПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2498858C9FAC08AFAF03D6EF8F2C79477787F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493428   (895321) от 03.09.2021
 
 Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
@@ -618,31 +643,6 @@ React Query стал идеальным решением для управлен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5A4BF9B5BF51586657B37DD10E0CFF3415733E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992456   (898652) от 03.03.2016
-
-Udemy | Ultimate AngularJS: Build a Real-World App from Scratch (2016) [EN] [H.264/720p]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Build a Single Page App with AngularJS, Angular Material, UI Router, and Firebase. Includes Angular 2 preview!
-This course will show you--from start to finish--how to build a real-life application with AngularJS. Angular is awesome, but it can be tricky to learn, especially if you are newer to web development. This is especially true if you're trying to figure out (   Читать дальше...   )Жанр: AngularJS, JavaScriptПродолжительность: 05:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB4E40A379DEA36DC818FAAD063115D83D94412
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1039227   (597629) от 31.07.2016
+
+VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker -  Sing Me To Sleep 3:09
+002. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42
+003. Robin Schulz feat. Akon -  Heatwave 3:07
+004. Alle Farben feat. YOUNOTUS -  Please Tell Rosie 2:53(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5814F2EA12E866547CA8241295BFADF90DC5DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039119   (597635) от 31.07.2016
 
 VA - Ballads for Lovers Vol.4 (2016) [MP3|320 Kbps] <Pop>
@@ -698,30 +725,6 @@ magnet:?xt=urn:btih:BF3E03257D724C995AAA5280E60D418B8B270A45
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906B80B206E0806E67179E91FFD417F888C157AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356431   (599024) от 28.06.2011
-
-VA - В ритме танца (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E992887ED5A0E01AEF58D3FDBB6150AAD2B739
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1391301   (781415) от 19.06.2020
+
+Burn in Noise - We Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_781415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Burn in Noise; Altruism - Boom (8:00)
+2. Utopia (6:46)
+3. Burn in Noise; Electric Universe - The Future (7:38)
+4. A New Dawn (7:45)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6594F802B89354F790C6A1CFFAAF66A9BEEFF7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823672   (781690) от 15.02.2018
+
+Scrap.edx | Scrape[dx] - Discography 7 Releases (2001-2009) DTA Records, Hands Productions [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, IDM, Drum n Bass, Breakcore, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Not Listen To These Messages (09:28)
+ 02. Orbital Strike Weapon (08:28)
+ 03. The Gospel According To Cranium (05:38)
+ 04. Where Are You Hiding? (05:35)(   Читать дальше...   )Тип издания: CD, VinylЖанр: Rhythmic Noise/IDM/Drum & Bass/Breakcore/IndustrialПродолжительность: 01:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30E34A4950A63F4E362803E6FA2F86CEF9F8289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206676   (781694) от 15.02.2018
+
+Propellerheads - Decksandrumsandrockandroll (Delux) (1998) Virgin [FLAC|Lossless|tracks+.cue] <Breakbeat, Big Beat, Jungle>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Want It Back (feat. Jungle Brothers) (06:02)
+ 02. 360° (Oh Yeah?) (feat. De La Soul) (04:30)
+ 03. Go Faster (06:12)
+ 04. Ron's Theory (06:39)(   Читать дальше...   )Жанр: Breakbeat, Big Beat, Jungle •Продолжительность: 00:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1D8DE7CDAA50193B5F16F796B8E9DB7A2B6F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206716   (781705) от 15.02.2018
 
 Physical Dreams - Ambient Sounds (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Downtempo>
@@ -612,87 +693,6 @@ James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390802   (782261) от 17.06.2020
-
-VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyranix And Firman JP - Megapolis (Original Mix)
-02. Roman Hayez - Take Over (Original Mix)
-03. Mike Zaloxx - Voltage (Original Mix)
-04. Mat1ne - High Bounce (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB028B8423BB710AD6D7E21A58788999B81EB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390805   (782262) от 17.06.2020
-
-VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabloo - Make Me Complete (Original Mix)
-02. Amos Dj - Popcorn (Remix)
-03. Dj Marco Marzo - Open for Lunch
-04. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5149FD5AAA418E0A83B50958748CCB1496CAE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390869   (782271) от 17.06.2020
-
-J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Deep House, Dub>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Radio (08:22)
- 02. Inward (05:20)
- 03. Peripheral (08:22)
- 04. Woo (06:09)(   Читать дальше...   )Жанр: Techno, Tech House, Deep House, DubПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
 ```
 
 

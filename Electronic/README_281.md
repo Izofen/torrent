@@ -1,3 +1,84 @@
+###  Публикация: 1046787   (551179) от 28.08.2016
+
+VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RD Project - Qotto [04:03]
+02. Beta Ensemble - Room Five Room [03:13]
+03. Cafe Ibiza - Your Everything [04:15]
+04. Leo & Roby Ruini - La Suite [05:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C322E403396525764E79604B4D9509F7D41CB69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046767   (551180) от 28.08.2016
+
+VA - Caribbean Beach Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemongrass - Akari (04:16)
+02. Michael E - Peace (06:05)
+03. Lo Tide - Yello Brick (04:12)
+04. Camiel - El Alba (04:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFCCFCD80C592A4C3C383F0D770C5FE1639B9F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046788   (551181) от 28.08.2016
+
+VA - Advanced Modern Mood Music Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scar - Fazer [04:51]
+02. Early Gold - Loudente [04:52]
+03. Deco' - Take a Deep Breath [02:41]
+04. Re Vera - Pensiero Leggero [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92183086DD1B1E8610C9261D07C333B6EEE5C379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046772   (551183) от 28.08.2016
 
 VA - Come Easy Tunes, Vol. 1 (Easy Jazzy Sunny Music) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ AstroPilot - Lost and Found The Organic Remixes (2015) [MP3|320 Kbps] <Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4998D4C03231BBC09BC96A14E5D8EA6000636E45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046413   (552127) от 27.08.2016
-
-Astropilot - Solar Walk IV. Youniverse (2016) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Second Sun (7:58)
- 02. Balance (7:46)
- 03. Desolate Spaces (7:41)
- 04. Permanent Impermanence (7:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FD1A21117C312F40474BAADC9CDE420C1A929E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046102   (552130) от 27.08.2016
-
-VA - MOMENTS - Chill-Out & Lounge Series, Vol. 3 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja-Move - Spaceman (6:12)
-02. Mo'jardo - Tequila Days (4:47)
-03. Weathertunes - Morning Sun (4:32)
-04. Marcus Koch - Imagine (6:25)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183C496936B9BE535A5CFF16558D9B33148A8770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046504   (552195) от 27.08.2016
-
-VA - Dream City Lounge, Vol. 5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Z Man - Loto (Original Mix) 03:02
-02. Man Drake - Trinity Soft (Original Mix) 05:33
-03. Midtempo Lovers - Neutral Wonder (Original Mix) 03:09
-04. Sand Rhythm - Lonely Moon Walk (Original Mix) 04:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A1E52B1BFC0A1917524DFC6387EA1C565B175E
 ```
 
 

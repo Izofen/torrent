@@ -1,3 +1,57 @@
+###  Публикация: 1568238   (464100) от 07.08.2022
+
+Tempest - Tempest / Living In Fear (1990) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tempest
+01. Gorgon (5:45)
+02. Foyers Of Fun (3:45)
+03. Dark House (5:07)(   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D80BA96C3905696323D1DB0D18F49C17897B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568266   (464106) от 07.08.2022
+
+Champlin Williams Friestedt - CWF (2015) Reissue, 2021, Sony Records Int'l, Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (3:57)
+02. Nightfly (3:35)
+03. Aria (4:38)
+04. Two Hearts At War (4:09)(   Читать дальше...   )Жанр: Melodic Rock, Westcoast, AORПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4398501FBAA6BF948A738B4A47D7B9064641408F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568216   (464111) от 07.08.2022
 
 Altaria - Wisdom (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal, Hard Rock>
@@ -675,60 +729,6 @@ Heavens Edge - Heavens Edge (1990) Remastered /2010, Rock Candy Records/[FLAC|Lo
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161768   (465368) от 29.08.2017
-
-СМЕТАНА band - Всё очень плохо (2017) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465368.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Клуб п***ец
-2. Дима не будет с тобоой
-3. Конструкторы
-4. Некрасивая и пошлая музыка(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF2974A2B47ED6A2A73137350ED001B85CA148E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320869   (465389) от 21.08.2019
-
-Killswitch Engage - Atonement (2019) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unleashed (04:36)
-02. The Signal Fire (03:05)
-03. Us Against the World (03:19)
-04. The Crownless King (03:10)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA3D181EDCDD6DF287BC5064CAD80FE105E5831
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 903655   (658172) от 31.05.2015
+
+VA - My Day (Chillout & Lounge) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Chill Out - Parapa Pa [04:24]
+02. M. Vitoria - Spain [03:29]
+03. Paco Flores - Andalucia [05:33]
+04. M. Vitoria - Love Devotion Surrender [05:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:14:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6014463770B2CF3B7713701EC1955890F6251C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903691   (658174) от 31.05.2015
+
+VA - Lounge Culture (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Wave - Diving Delights [05:50]
+02. Aqua Mundi - South River [05:59]
+03. The Magical Corner - Laguna [06:04]
+04. El Nicoya - Andando [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31AB33EC394F2174D179000AB524E6574AC0171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139913   (658209) от 04.06.2017
+
+VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKLYN – Heart Of The City (Myon Signature Remix) (3:21)
+02. Ryos – Discover Love (Original Mix) (3:45)
+03. Cuebrick – Smoke & Fire (Original Mix) (3:17)
+04. Tritonal – Running Into Me (Original Mix) (4:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140010   (658272) от 04.06.2017
 
 VA - Monaco Night Tales - The Best Of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - Living For Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6C7971853857F7409387B4D81C741D1D2F958F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139659   (659367) от 03.06.2017
-
-VA - Taste My Lipstik (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essence Lovetrip - I Saw You There (Cool Emeralds Mix Mix) 05:39
-02. Lalo Narciso - In My System (Long Dinner Mix) 05:44
-03. Ambience Soul - Body Bizarre (Chillout Republic's Gold Mix) 03:36
-04. Woody Fran - Oh My Own (A Night In Venice Mix) 07:13(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 06:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A37D46CAF5BCF86E63AECCD7619422C3E82541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139792   (659371) от 03.06.2017
-
-Lobe - 2 Albums (1996-1999) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Downtempo>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nude (05:59)
- 02. Hatching (05:44)
- 03. Red Spaces (06:20)
- 04. Kulfi (06:28)(   Читать дальше...   )Тип издания: CD |Жанр: IDM, Ambient, Downtempo •Продолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D77E6E58E6D959C45302DD9695F1609F6A97334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139731   (659372) от 03.06.2017
-
-VA - Lounge & Cookies Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marco Del Giudice - Vuelvo Al Sur (D-Soriani Bandoneon Remix) 3:28
-02.  Antonio Ocasio - Mocha Latina 8:32
-03.  Surfer - South Beach 5:06
-04.  Stefano Carpi - Magic (Acoustic Version) 3:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC8DEC9B1B00135FAD430A96E806AEA49B2537D
 ```
 
 

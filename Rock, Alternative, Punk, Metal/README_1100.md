@@ -1,3 +1,57 @@
+###  Публикация: 1498075   (859772) от 25.09.2021
+
+Brothers In Arms - Sunset And Clark (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bitch Is Crazy
+02. Last To Know
+03. The City Never Sleeps
+04. Feel The Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4710ADC489E2346B7E3BF30D58C634A791086A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498077   (859777) от 25.09.2021
+
+Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare (Intro)
+02. Dark Miracles
+03. Pendulum Of Time
+04. The Great Silence(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FD0ABF57AFFD55833653DE1E6BBA2F1D3B5F1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498078   (859778) от 25.09.2021
 
 John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -633,60 +687,6 @@ Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:607022F06B77653D7EE7556C64B25A7C55ABD758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376393   (860699) от 17.04.2020
-
-Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Sludge, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den Tredje Dagen [09:55]
-02. Hyllningen [11:59]
-03. Domd [15:39]
-04. Den Sista Resan [07:00](   Читать дальше...   )Жанр: Doom Metal, Sludge, Space Rock, StonerПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376363   (860701) от 17.04.2020
-
-Crusher - Unleashed (2020) [FLAC|Lossless|tracks] <Melodic Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violence Stays Violent (5:06)
-02. The Others (4:26)
-03. Time-Leap Pit (6:32)
-04. Downfall (6:15)(   Читать дальше...   )Жанр: Melodic Thrash MetalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF240688610CD1758418A5A471932FD41353826F
 ```
 
 

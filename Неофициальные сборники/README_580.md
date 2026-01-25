@@ -1,3 +1,30 @@
+###  Публикация: 1374169   (874565) от 09.04.2020
+
+VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even Midnight - Man O Tu
+02. Trace7000 - Want (Original Mix)
+03. Rafa Alcantara - Continental
+04. Red Led - About You(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 08:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496157   (874631) от 16.09.2021
 
 VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -661,33 +688,6 @@ VA - Старый дом. Академия хитов шансона (2017) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373961   (876480) от 08.04.2020
-
-Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Shack
-02. Bad Woman Blues
-03. War In My Mind
-04. Caught Out In The Rain(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 02:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
 ```
 
 

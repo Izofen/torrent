@@ -1,3 +1,82 @@
+###  Публикация: 1441239   (1037994) от 20.01.2021
+
+VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Keeley – A Sort of Homecoming (Michael Cassette Extended Mix) (07:24)
+02. ALPHA 9 – Before the Dawn (feat. Kameron Alexander)Жанр: Progressive House, TranceПродолжительность: 01:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615140   (1038095) от 24.02.2023
+
+Diary of Dreams - Melancholin (2023) [MP3|320 Kbps] <Darkwave, Goth Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mein Werk aus Zement [00:06:37]
+02 - The Secret [00:04:56]
+03 - Viva la Bestia [00:05:07]
+04 - Gedeih & Verderb [00:04:37](   Читать дальше...   )Жанр: Darkwave, Goth IndustrialПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0958E63E8CE4398E4B7916A8695366723C372CF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440934   (1038258) от 19.01.2021
+
+VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spacesynth.ru - Introduction (1:03)
+02. Amandi - Forgotten Spaceship (5:15)
+03. Kresikov & TDHDriver - Take Off! (4:48)
+04. Syst3m Failure - Fly Sputnik (7:22)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC2EED720FDEE05BBC228CD013004B3E74B7C64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614785   (1038274) от 23.02.2023
 
 Yello - Yell40 Years — Non-Album Songs & Remixes (2022) 2 x CD, Compilation [FLAC|Lossless|image + .cue] <Synth-pop, Progressive House>
@@ -613,87 +692,6 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [MP3|320 Kbps] <House, Nu-Disco, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DCE20E95297953FF675A45F4983FF1C93D54C48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439966   (1039340) от 15.01.2021
-
-VA - Abora Progressive: Best Of 2019-2020 (Mixed by Tycoos) (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kometillo & Alaera - Imagine Me Here (Progressive Dub Mix)
-02. Illitheas & Pedro Del Mar feat. Tiff Lacey - Lightning (Extended Mix)
-03. INCI3ION feat. Zara Taylor - Holding On (Original Mix)
-04. Algiz - Until The Last Moment (Mhammed El Alami Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C60C23163688C770D85204BD73140D51C25FEA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613731   (1039349) от 19.02.2023
-
-V.A. - Cafe Del Mar Ibiza Chillout Mix I (DJ Mix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039349.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Eric Hilton - Spiral Aura (Mixed)
-02. Groove Armada,Bryan Ferry,Tim Love Lee - Shameless Dub (Mixed)
-03. Craig Bratley,Amy Douglas - No In Between (Ashigaru Dub Mixed)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo |Продолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56159C6EA47798C5FD4037A8844D664D0F8DD2D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439699   (1039564) от 14.01.2021
-
-Shingo Nakamura - Silk Digital Pres. Shingo Nakamura 01 (2014) Compilation, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundprank - Burner (Shingo Nakamura remix) 08:23
-02. PROFF - Starstruck (Shingo Nakamura remix) 08:06
-03. Dan & Sam - Breaking The Illusion (Shingo Nakamura remix) 07:23
-04. Jacob Henry & Approaching Black - Yesterday's Tears (Shingo Nakamura remix) 08:41(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564F7D4EC9A28B158D5640FC4C3E4D19DBFE630A
 ```
 
 

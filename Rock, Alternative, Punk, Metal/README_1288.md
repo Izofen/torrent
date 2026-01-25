@@ -1,3 +1,54 @@
+###  Публикация: 1438895   (1040575) от 10.01.2021
+
+Павел Смеян - Коллекция  2CD, (2017-2020)   [FLAC|Lossless|tracks] <Рок, Рок-опера>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Рок, Рок-операПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F67BD9D7F06436BEA62537DE5A176B4E4031B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438915   (1040583) от 10.01.2021
+
+VA - Millennium Hits, 1970 -1979, Rock (1999) The Unique Collection [FLAC|Lossless|tracks + .cue] <Rock, Dance>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нидерландский лейбл Disky выпустил в конце девяностых целую серию боксетов на тему Millennium Hits. В данном случае представляем вашему вниманию один CD из четырех-сидишного бокса "De Unieke Collectie" Millennium Hits 1970-1979 "De Top 10 Hits". Кроме этого диска в боксе ещё Pop, Love и Eigen Bodem диски (их нет у меня). Первые пяток треков наверняка (   Читать дальше...   )01. Deep Purple - Child In Time  (10:16)
+02. The Hollies - The Day That Curly Billy Shot Crazy Sam McGee  (3:44)
+03. Ike & Tina Turner - Proud Mary  (4:52)
+04. The Guess Who - American Woman  (5:02)(   Читать дальше...   )Жанр: Rock, DanceПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF14BD71646FE253689019A242852271C255660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612074   (1040593) от 14.02.2023
 
 Strange Omen - Marasma (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -637,60 +688,6 @@ Interloper - A Revenant Legacy (2021) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB74F6B2D2C25D8CCB182847A5B40CB45ED6FDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438788   (1040657) от 10.01.2021
-
-Revel in Flesh - Death Kult Legions (2014) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Name of the Flesh 	03:56
-	02. When Glory Turns to Ruin 	04:38
-	03. Black Oath Impurity 		03:42
-	04. Graveyard Procession 		04:30(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F5EAF067D28FD01ADF52D0E8B03EA55D69A5335
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438959   (1040658) от 10.01.2021
-
-PAL - Prime (2018) [FLAC|Lossless|image + .cue] <Melodic Rock,  AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heads or Tails (3:00)
-02. Carry On (4:13)
-03. Hiding Away from Love (3:49)
-04. Double Nature (3:57)(   Читать дальше...   )Жанр: Melodic Rock,  AORПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4634EADE0849048E9AE405F1B83C98D99F5766C1
 ```
 
 

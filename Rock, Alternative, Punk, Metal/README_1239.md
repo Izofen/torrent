@@ -1,3 +1,57 @@
+###  Публикация: 1461417   (1021819) от 10.04.2021
+
+Marianas Rest - Fаtа Моrgаnа (2021) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacrificial
+02. Glow From The Edge
+03. Pointless Tale
+04. The Weight(   Читать дальше...   )Жанр: Melodic Doom Metal, Melodic Death MetalПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94F8352BB811FE9BE94C6B3DFF63F1E4F9CEEB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461501   (1021822) от 10.04.2021
+
+Marianas Rest - Ruins (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kairos (8:00)
+02. The Spiral (6:44)
+03. Hole In Nothing (6:38)
+04. The Defiant (6:57)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BC5DF7F4B02C9D3A0C4552B8140DD061260E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461262   (1021944) от 09.04.2021
 
 Cheap Trick - In Another World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -640,60 +694,6 @@ Arion - Life Is Not Beautiful (2018) [FLAC|Lossless|image + .cue] <Symphonic Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7EC97C5BA64F38A170631918EEDFEBCCDE72AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460951   (1022271) от 07.04.2021
-
-Нервы - 7 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На вынос
-2. Камень
-3. Твоим морем
-4. Сбитые кулаки(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A5A879A6ABBC7C61D6AF8046973A43C8F2E554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460977   (1022275) от 07.04.2021
-
-65daysofstatic - Under The Summs (2021) EP [FLAC 2.0|24/44.1|tracks|WEB-DL] <Post-rock, Experimental, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Summs [00:04:48]
-02. Move Quickly [00:04:34]
-03. NiteTimeUses [00:05:04]
-04. Dawn of the Red [00:04:44]Жанр: Post-rock, Experimental, ElectronicПродолжительность: 00:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9E372DC0D392C722F48BC1714F12C1435E5FBA
 ```
 
 

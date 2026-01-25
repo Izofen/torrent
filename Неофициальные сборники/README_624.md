@@ -1,3 +1,30 @@
+###  Публикация: 1363541   (942524) от 28.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #16 (2020) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942524.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lyam Mathew - U.N.D.S
+002. Mcan - Roll
+003. Jeff Jackson - Watcha Gonna Do (Original Mix)
+004. Robert T. Master - Arachnoid Space(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13C55739802C72AAC1899F3591066F245810F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 626200   (942763) от 06.03.2013
 
 VA - Атака танцевальной клубной музыки (2013) [MP3|320 кб/с]<Dance>
@@ -674,33 +701,6 @@ VA - Инструментальное и оркестровое исполнен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2ADD8BA051975951D7E0A19CCCDE4E6A2713948
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983496   (943694) от 06.02.2016
-
-VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eurotix - Life As It Slips Away (04:33)
-02. The Sweeps - Love Shines (03:50)
-03. Lichtenfels - Sounds Like A Melody (08:01)
-04. Fancy - Forever Magic (02:25)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 06:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA7B706B5758C7761E1D3F9ADC543DB210A4BBC
 ```
 
 

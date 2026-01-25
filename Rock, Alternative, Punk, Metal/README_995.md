@@ -1,3 +1,57 @@
+###  Публикация: 1395283   (755662) от 10.07.2020
+
+Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift of Fire (07:59)
+ 02. Sediment (05:15)
+ 03. Drone (09:27)
+ 04. ~Hypnocurrents~ (00:50)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A8005368F4DDC1D9061439955767F6DC50FCB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018515   (755735) от 20.05.2016
+
+Destruction - Under Attack (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Attack
+02. Generation Nevermore
+03. Dethroned
+04. Getting Used to the Evil(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D39187B9C3BF58B1439E174A45AB5F6C8B21D028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018329   (755812) от 20.05.2016
 
 Iron Savior - Titancraft (2016) [MP3|320 кб/с] <Power Metal>
@@ -642,60 +696,6 @@ Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2C9C6AA69B96489EAD28089210D5956D3EB7670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018323   (757461) от 19.05.2016
-
-Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young At Heart
-02. Maybe You'll Be There
-03. Polka Dots And Moonbeams
-04. All The Way(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A334DB2837883C8EF971C98B32DCD4288E6D77F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018041   (757551) от 19.05.2016
-
-Rialto - Night On Earth (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Crawling
-02. Anything Could Happen
-03. Anyone Out There?
-04. Catherine's Wheel(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13BF7A70ECFBC89E6B5AF1BA0FA9356165EC9402
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1454738   (1026154) от 16.03.2021
+
+Crystal Eyes - Vengeance Descending (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vengeance Descending
+02. Highland Revenge
+03. Child Of Rock
+04. Mr. Failure(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A350C185121EEFF88FC8841B236F9BD08FF44D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454735   (1026155) от 16.03.2021
+
+Crystal Eyes - Confessions Of The Maker (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Charioteer
+02. Confessions Of The Maker
+03. Northern Rage
+04. The Fools' Ballet(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAE3ABEE6D5F31F2DC0822B9DB451577FAA9877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454709   (1026156) от 16.03.2021
 
 Crystal Eyes - Chained (2008) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -638,60 +692,6 @@ magnet:?xt=urn:btih:E33C6810D0380D900D1BCDAF7D9EE6FB156B5936
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8367F96F894718B36E21F8DBA7181EB2506F974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454416   (1026445) от 14.03.2021
-
-Medea - А Fаtе Sуmрhоnу (2020) А Rосk Ореrа bу Неnrу Mееuws [FLAC|Lossless|image + .cue] <Symphonic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seizures
-02. Traces Of A Fate Symphony
-03. To Change History
-04. Regression(   Читать дальше...   )Жанр: Symphonic Rock, Progressive RockПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC0DDA4EAD80C862FE1BBB4AC378503DCB8C8A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454226   (1026446) от 14.03.2021
-
-Starmen - Kiss The Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stealer
-02. Dangerous
-03. All Along The Watchtower {Bob Dylan cover}
-04. Gravity(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E5CB2C69F1F1685D8CC8E0CB7CCC51E10E27D55
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1107622   (866478) от 23.02.2017
+
+VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Disco Gettin' Jacked (Original Mix) (6:15)
+02. Audio Jacker - It's So Funky (Original Mix) (5:07)
+03. Boogie Freaks - Bring The Old Skool Back (Original Mix) (5:04)
+04. Martello - Give It To Me (Original Mix) (7:08)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7A708BC3D061B160A702A71C9B2247CD5E27AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107831   (866486) от 23.02.2017
+
+VA - Smooth & Smart Vol. 1 Some Perfect Summer Relaxing Tunes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Sol, Ines Prados - Nube De Agua (Extended Mix) (04:55)
+02. Sunyata Project - The Journey Begins (Extended Mix) (03:55)
+03. Wilton de Grey - All-Seeing Power Of The Mind (Short Mix) (04:02)
+04. Sami Sivananda - Inner Peace (04:24)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C316C3C2FC36E2C8B2546C4C025F43992729D21D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107923   (866488) от 23.02.2017
+
+VA - A Deep and Soulful House Selection Vol.1 (2017) [MP3|320 Kbps] <Deep House, Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866488.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mousse T. - Summerdays - Soledrifter's In Sand Mix 6:30
+002. Hans Thalau - North Light - Nekes Remix 7:21
+003. Duererstuben - Geschlossenheit schldgt Ndhe 4:20
+004. Nico Stojan - Princess of the Night - Mira & Chris Schwarzwaelder 7:16(   Читать дальше...   )Жанр: Deep House, Soulful HouseПродолжительность: 01:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E67F48B6D33F191E40D4567138A32E4DD3D61C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997922   (866507) от 21.03.2016
 
 Manufacture - 2 Albums (1988, 1990) [MP3|320 кб/с] <Electronic, EBM, Techno>
@@ -614,87 +695,6 @@ VA - Fantastic Lounge (Deep And Chillhouse Hit's) (2017) [MP3|320 Kbps] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10C3AEEAF86D2899E4DEFD1A4D0CEB14B93FA31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107608   (868332) от 22.02.2017
-
-VA - Harmony Lounge: Music for Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wagu - Illume
-02. Dragonfly - Wiggle
-03. Amakipkip - Birds in Synths
-04. Wagu - Longing for Winter(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CB29D34FEE6786A088CAEED38DD0F0EC89930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106897   (868335) от 22.02.2017
-
-VA - Calm Down (Chill Out & Lounge Moods) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bryan Milton - Sunny Day  5:01
-02.  Dominik Pointvogl - Nova Bossa  5:09
-03.  Pharaon - Patented (Extended Mix)  2:51
-04.  Kobes - On The Sun (Extended Mix)  5:31(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF71666881C0CE1360C4E4AA4C77FDE336F4054F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107309   (868337) от 22.02.2017
-
-VA - Winter Trend Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project – Dreamscape (06:11)
-02. Enrico Donner – Untouched Ground (05:28)
-03. Cane Garden Quartet – Stay Strong (05:36)
-04. Zero Feedback – Deep in the Rain Forest (06:34)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08858EB238F237612CE33A537880119C3DD7EDCC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1364226   (937958) от 02.03.2020
+
+VA - EDM International Techno Dance (2020) [MP3|320 Kbps] <Techno, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rafael Dutra - Let's Make Love
+002. Taptune - Apollo (Original Mix)
+003. Crowd & Norah B. - In The Middle
+004. Joyhauser - Rtrig(   Читать дальше...   )Жанр: Techno, Dance, ElectroПродолжительность: 10:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F3A03D71EEF1F3D0955913ABFCEFDBDE8CFB50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092586   (938418) от 12.01.2017
 
 Чи-Ли - Все хиты (2016) [MP3|192-320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Не за горами весна Vol.2 (2020) [MP3|320 Kbps] <Шансон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C630D5657F93BAC610B8BFABBD05A77F3FC70C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364037   (939199) от 01.03.2020
-
-VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939199.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Tokio - Кто Я Без Тебя 4:09
-002 Lumen - Три Пути 4:36
-003 Агата Кристи - Как На Войне 4:05
-004 Би-2 - Полковнику Никто Не Пишет 4:52(   Читать дальше...   )Жанр: RockПродолжительность: 16:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
 ```
 
 

@@ -1,3 +1,63 @@
+###  Публикация: 165738   (974844) от 16.01.2010
+
+Farcry - High Gear (2009) [MP3|320 kbps]<Melodic Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have It All (5:19)
+02. Talk To Me (3:49)
+03. Love Won't Wait (3:55)
+04. Fine Line (3:55)
+05. Kick Me Down (3:52)
+06. Heaven (4:37)
+07. Nowhere Fast (5:34)
+08. Out Of Reach (3:15)
+09. She's Crazy (5:29)
+10. The Same Mistake (4:02)(   Дальше...)Жанр: Melodic Rock/AOR
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356631   (977836) от 31.01.2020
+
+Malone Sibun - Come Together (2020) [MP3|320 Kbps] <Blues, Rock, R'n'B>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Together
+02. Let Me Love You
+03. I Want You Back
+04. Taste of Your Love(   Читать дальше...   )Жанр: Blues, Rock, R'n'BПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AE9EA1C6C730A3CBA43073D1E9D4D5D0EA87017
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742488   (978083) от 06.01.2014
 
 Rainbow - Since You Been Gone - The Best Of Rainbow (2014) [MP3|320 кб/с]<Rock>
@@ -700,65 +760,6 @@ The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603685   (997048) от 15.01.2013
-
-DIIV - Oshin (2012) [MP3|320 кб/с]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - (Druun) 2:08
-02 - Past Lives 2:21
-03 - Human 2:57
-04 - Air Conditioning 4:30
-05 - How Long Have You Known 3:33
-06 - Wait 3:16
-07 - Earthboy 3:15
-08 - (Druun Pt.II) 2:46
-09 - Follow 2:46
-10 - Sometime 3:05(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA15CB833395AB81D2C03F9E07F4A70F0629FC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603246   (997058) от 15.01.2013
-
-Puzzle - Nothing But The Rain (2012) [MP3|320 кб/с]<Post-Rock, Experimental, Sludge>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piece V
-02. Piece VI
-03. Piece IVЖанр: Post-Rock, Experimental, SludgeПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACD7BBC8F06AB309F21519C60E068AC0743276A
 ```
 
 

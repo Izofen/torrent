@@ -1,3 +1,84 @@
+###  Публикация: 1017537   (761233) от 17.05.2016
+
+VA - Bali Chill Out Groove (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Le Blanc & Florito - Time to Go (Revisited Mix) (04:33)
+02. Dave Ross - Break the Silence (08:01)
+03. Christos Fourkis - La Vida Es Una Siesta (05:10)
+04. De Vega feat. Garnik - Open Your Eyes (03:28)(   Читать дальше...   )Производство: Casa Del SilencioЖанр: Lounge, Chill Out, Easy ListeningПродолжительность: 02:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36753A060657A8B9B8172BABD8AED38418A68D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017363   (761235) от 17.05.2016
+
+VA - Dance Party - Ready For The Summer (2016) [MP3|320 кб/с] <House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alain Chavez - Private Area 5:43
+02. Danny Better & Roger Slato - Higher (feat. Nenna Yvonne) (Stereo Palma Mix) 4:36
+03. D T S & Double G - Respect (D T S vs. Double G) (Max V. Remix) 4:39
+04. Vince Neel - Roccit 4:24(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 02:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C5F57418087171650B0A4729436A349F33E0F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215062   (761548) от 24.03.2018
+
+VA - Future Vocal Trance Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Shift feat. Senia  -  Reach Out For Love (Rene Ablaze Radio Edit)  3:26
+02.  Kayan Code feat. Juha V  -  Control  7:35
+03.  Yodis feat. Christina Maria  -  While Angels Pass  8:07
+04.  Deepuniverse & Blue Wings  -  Bring Back Your Sun (Dima Krasnik Remix)  8:40(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:489F894B9BACB0D7EE91EABAFC00E2516975D994
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214921   (761688) от 24.03.2018
 
 VA - Chill Out/La Noche (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280072   (763652) от 01.02.2019
-
-Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First World Problems 05:57
-02. Black Roses 02:38
-03. Breathe And Breathe Easy (The Everness Of Now) 03:27
-04. The Dream And The Dreamer 05:37(   Читать дальше...   )Жанр: Indie, AlternativeПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DD3CE4884AD5CEB23CE7934A15879C908EEEE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667746   (763672) от 05.07.2020
-
-Rygar - The Album (2001) [FLAC|Lossless]<Synthpop, Italo Disco, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introx
-02. Marsian Attack
-03. Startracks (Original Mix)
-04. Cosmic Choir(   Читать дальше...   )Жанр: Synthpop, Italo Disco, SpacesynthФормат: Album, PromoПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65A374B9D4D11759DAD02AB79CEDFC4BF5B18B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280029   (763692) от 01.02.2019
-
-VA - Markus Schulz - Solis & Sean Truby - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz:
-01. Dave Neven - Lethal (World Premiere)
-02. Arkham Knights - Another Dimension
-03. Jason Ross - East of Eden(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A64D19E61B6585194697DE71A7934BD37BBE724
 ```
 
 

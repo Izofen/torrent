@@ -1,3 +1,57 @@
+###  Публикация: 1438403   (1041195) от 08.01.2021
+
+Season - Sangvis (2021) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cure for the Soul [00:04:07]
+02. Femme Fatale [00:03:30]
+03. Last Day Home [00:04:38]
+04. Every Bit of Pain [00:04:23](   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF89032DBD4274FFF3DA753119D23C74AB2D25F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438393   (1041198) от 08.01.2021
+
+Blind Ego - Preaching To The Choir (2020) [FLAC|Lossless|tracks + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041198.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Massive (5:25)
+2. Preaching To The Choir (6:06)
+3. Burning Alive (4:32)
+4. Line In The Sand (4:09)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04EACECE1E4335C2DF98F92A30C5146B494928E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438407   (1041201) от 08.01.2021
 
 Zac Leaser - The Arising / Ostiarius (2019, 2021) [FLAC|Lossless|tracks + .cue] <Technical Melodic Death Metal>
@@ -643,60 +697,6 @@ Klone - Meanwhile (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Progressive-Groove-Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8264944B11B576DB5007427342875009707A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611101   (1041676) от 10.02.2023
-
-Khymera - Hold Your Ground (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Wait for Love
-02. Firestarter
-03. Hear Me Calling
-04. Sail on Forever(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A730945E0864128912228CB28250872C936119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610984   (1041678) от 10.02.2023
-
-eMolecule - The Architect (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Progressive-Rock-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emolecule (10:43)
-02. The Architect (6:05)
-03. Prison Planet (4:59)
-04. Mastermind (8:39)(   Читать дальше...   )Жанр: Progressive-Rock-MetalПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7028F48045AED1BF95D0C7DFFFA2A496A77D70CB
 ```
 
 

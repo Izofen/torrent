@@ -1,3 +1,83 @@
+###  Публикация: 1042726   (578400) от 13.08.2016
+
+VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolsch & Michael Mayer - Dogma 1 [09:56]
+02. Paul Woolford - Mother & Child [07:25]
+03. Matador - The Enemy (feat Felix Da Housecat - Hot Since 82 remix)[06:05]
+04. Joris Voorn - Looks Fake Obviously [06:38](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 11:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BE33988F00A24BE68CDE851185B4D0A3CF34FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042569   (578444) от 13.08.2016
+
+Somerville & Wilson - Red Wasps EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Wasps
+02. Slippery As Sin
+03.Жанр: Tech House, Deep HouseПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1998E74FDCC0411807D6B359715393BC58F516B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042677   (578449) от 13.08.2016
+
+VA - Toolroom Ibiza Vol.2 (2016) [MP3|320 Kbps] <House,  Tech, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolsch & Michael Mayer  -  Dogma 1  9:57
+02. Paul Woolford  -  Mother & Child  7:26
+03. Matador  -  The Enemy (feat Felix Da Housecat - Hot Since 82 remix)  6:06
+04. Joris Voorn  -  Looks Fake Obviously  6:38(   Читать дальше...   )Жанр: House,  Tech, Deep HouseПродолжительность: 11:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B4FD77AA725168F65F095AE1245EBFBED04115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042750   (578452) от 13.08.2016
 
 VA - Run for Fun - 20 Rhythmic Heartbeats Vol.1 (2016) [MP3|320 Kbps] <House>
@@ -610,88 +690,6 @@ VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9E242FE1009579B14BAD1E22FB0D3EF118FBBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041928   (580592) от 11.08.2016
-
-VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Mar y carino (Eivizzards Mix) (6:22)
-02. Hein+Klein - Sylt (7:03)
-03. Mark Oakland - Something Beautiful (5:27)
-04. Aandra - Sunset Deep (5:34)(   Читать дальше...   )Производство: KarmawhiteЖанр: Deep House, Chill HouseПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95A045825AE33341034C8490AF890BDAFE575D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360100   (580827) от 07.07.2011
-
-VA - Sensation Innerspace (02.07.2011) [FLAC|Lossless]<House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580827.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Sensation Innerspace (02.07.2011)
-Год: 02.07.2011
-Жанр: House
-Продолжительность: 02:29:33Кодек: FLAC
-Битрейт: Lossless
-Тип рипа : tracks+.cueТрек лист:
-CD1: Mixed by Fedde Le Grand
-Продолжительность: 01:12:29(   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360412   (580953) от 07.07.2011
-
-Solar Fields - Unreleased (2001-2009) [MP3|192-320 kbps]<Psybient, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psybient, AmbientПродолжительность: 03:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04C855570F65C29419B5C9A343F0DD767BF0497
 ```
 
 

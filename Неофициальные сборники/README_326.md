@@ -1,3 +1,30 @@
+###  Публикация: 1047389   (550256) от 29.08.2016
+
+VA - Body Control: Fitness Mix (2016) [MP3|320 Kbps] <Dance, Club, Pop, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550256.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelino Loren - Plus de maquillage (Radio Mix)
+002. Ttoo - Be Free (Enfortro's Free Anthem Edit)
+003. DJ X Face & Pi Base - Rays of Sunshine (Power Jet Remix)
+004. Lori Glori - You Know What (Randy Norton Edit)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 07:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C2DA29921986CA5CB27EC9E9ABFE82531E6D3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309453   (550347) от 20.06.2019
 
 VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
@@ -668,33 +695,6 @@ VA - Club Dance Ambience Vol.157 (2018) [MP3|320 Kbps] <Dance, Club, House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D87918721DFF3BFBA1A049A318DBE3404C456DA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237113   (552227) от 23.07.2018
-
-Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Outlaw Torn (Unencumbered By Restrictions)
-02. Bass Solo
-03. Killing Time
-04. Guitar Solo(   Читать дальше...   )Жанр: Thrach Metal, HeavyПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
 ```
 
 

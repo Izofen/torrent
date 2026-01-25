@@ -1,3 +1,57 @@
+###  Публикация: 1439835   (1039559) от 14.01.2021
+
+Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh & Bone (04:01)
+ 02. Wasting Time (05:47)
+ 03. Magic Woman Chile (06:17)
+ 04. Locked & Loaded (03:35)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439769   (1039572) от 14.01.2021
+
+Leaving Eden - Fable (2021) [MP3|320 Kbps] <Hard Rock, Male & Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Inside of Me (04:18)
+ 02. The Eyes of a Curious Man (03:49)
+ 03. Broken (03:53)
+ 04. Detached (03:59)(   Читать дальше...   )Жанр: Hard Rock, Male & Female VocalsПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BBAE53306BC54FF660199690633CCF9D9054E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613457   (1039579) от 18.02.2023
 
 Shocking Blue - The Blue Box (2017) 13CD (2017) [MP3|320 Kbps] <Classic Rock, Pop Rock>
@@ -644,60 +698,6 @@ ProAge - 4. Wymiar (2021) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6CFF7917C0BD6C0130129F393D79EC12C61269A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439577   (1039954) от 13.01.2021
-
-Brad Wallace - Slow Worm (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Alone (04:47)
- 02. The Armorer (04:18)
- 03. Slow Worm (03:41)
- 04. Hail and Fire (04:16)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BA171499C8DF0F2FBD8F35CBF8E2A323488BB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428322   (1040026) от 12.01.2021
-
-Кипелов - Концерт с симфоническим оркестром (2020) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дыхание тьмы
-02. Безумие
-03. Свет дневной иссяк
-04. Мёртвая зона(   Читать дальше...   )Жанр: Heavy MetalФормат: 2CD + DVDПродолжительность: 01;08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB9B784E2FA7EA6FF27EE2BA53ECDFCBCEF795
 ```
 
 

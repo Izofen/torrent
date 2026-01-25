@@ -1,3 +1,84 @@
+###  Публикация: 1099907   (903285) от 02.02.2017
+
+VA - Vocal Chillout 2017. Chill Out Songs  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunbird - They Accept Paradise - R.I.B & Seven24 Vocal Chillout Remix
+02. Soty - Thoughts of you - Chillout Vocal Mix
+03. Stonebird - Ice Walls - Vocal Chillout Mix
+04. CJ RcM - Ai-Ai Bopem - Cj RcM Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A656A830367F0CF40D3DC905FA7E2281D1AC18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099487   (903518) от 02.02.2017
+
+VA - Ibiza Soundset 2017: Beach Lounge and Chill Out  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Wilson - Back Seat
+02. Hamilton Bates - Last Flight
+03. Joey Connor - Rooftop Bar
+04. Sean Woodby - Acoustic Mood(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21CA4CF05325DFD8FD0AA11535E985383ABE671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099633   (903551) от 02.02.2017
+
+VA - Universal Language Lounge Anthems Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Port Grimaud - Feel So Much  4:27
+02.  Quattro Groove Foundation - In Touch  3:26
+03.  Rino Ellis - The Sound  5:34
+04.  Jazzatune - The Bass  7:17(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ACE5EE109AB023F149EA5C6343B3EAAC6F1123D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368672   (903662) от 23.03.2020
 
 VA - KID Recordings presents: Compilations Collection - 6 Releases (2016-2019) [MP3|320 Kbps] <Downtempo, Deep House, Chillout, Future Disco>
@@ -602,87 +683,6 @@ VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369135   (905646) от 22.03.2020
-
-VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome - Take My Hand (Extended Mix) 3:33
-02. Dimitri Vegas & Like Mike vs. Timmy Trumpet - The Anthem (Der Alte) (Extended Mix) 3:50
-03. W&W x Timmy Trumpet & Will Sparks feat. Sequenza - Tricky Tricky (Extended Mix) 3:37
-04. Armin van Buuren feat. Ne-Yo - Unlove You (Nicky Romero Extended Remix) 4:22(   Читать дальше...   )Жанр: House, Club House, Progressive, Hardstyle, ElectronicПродолжительность: 07:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38F271A98F0789AED0B8B953FC80C097EA36EB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369247   (905651) от 22.03.2020
-
-Phanatic - Bounce Showcase (Phanatic) (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mind Control (6:46)
-2. Phanatic; Delirious - Lucid Dreaming (7:15)
-3. Phanatic; Electro Sun; Bizzare Contact - Trilodyne (8:10)
-4. Phanatic; Spade - Mandala (7:18)(   Читать дальше...   )Жанр: Psy/Goa TranceПродолжительность: 02:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:154BBE9445CADC6D312E56F37C6802A1B2F6D8D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369129   (905698) от 22.03.2020
-
-Dj Бинокль - Rafinad (2007) [MP3|320 Kbps] <Trance, Techno, Electro>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acos CoolKAs Feat. Metropoliz - Miracle (Original Mix) (9:01)
-02. Dos Buratinos - Deep Into You (4:42)
-03. Playone - Your Summer (6:43)
-04. SNG - Morning (6:40)(   Читать дальше...   )Жанр: Trance, Techno, ElectroПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C568A194F2F9764442BB4E049260678A5537C210
 ```
 
 

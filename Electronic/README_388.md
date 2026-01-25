@@ -1,3 +1,84 @@
+###  Публикация: 1278209   (773296) от 24.01.2019
+
+VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressive Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khnum & Hequet - Segment 4 (Original Mix)
+02. Hans Zimmer - Time (Magdelayna Remake)
+03. BLANCAh - Apneia (Glenn Morrison's Warehouse Dub Mix)
+04. BLANCAh - Apneia (Binaryh Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance,Uplifting TranceПродолжительность: 06:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4EA53E514A3F3CC3362441C91B03CFE19F6BC65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278210   (773299) от 24.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Christina Novelli - Symphony Of Stars (Solis & Sean Truby Remix) (World Premiere)
+02. Ferry Corsten & Ilan Bluestone - We’re Not Going Home
+03. Gareth Emery & Emma Hewitt - Take Everything (STANDERWICK Remix)
+04. Harry Square - Sands(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A598163F4286AD6F1C4ED0E3A689ED61975E01D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125047   (773317) от 13.04.2017
+
+VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - I Live For That Energy (ASOT 800 Anthem) (3:35)
+02. Aly & Fila meets Roger Shah & Susana - Unbreakable (3:20)
+03. MaRLo - You and Me (feat. Chloe) (3:01)
+04. Orjan Nilsen - Iconic (3:52)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, Uplifting TranceПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212944   (773348) от 15.03.2018
 
 VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club House>
@@ -613,87 +694,6 @@ VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C298530DD87A3D188483E887314FD291A0BE5A1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015092   (775077) от 10.05.2016
-
-VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serg - Drums (Club Edit) (feat. Mikel Romero) 5:34
-02. DJ Miller - Virgin's Back (Radio Version) 3:51
-03. DJ Crazy-I-Li - Want the Summer Back (Extended Mix) (feat. Theodora) 5:09
-04. Solidshark - Dirty Talk (Radio Edit) 3:04(   Читать дальше...   )Жанр: House, Electro House, ClubПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E2089C845AB0A556B7C486945D6AD7EF5896B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015069   (775081) от 10.05.2016
-
-VA - 3 Years 3rd Avenue (2016) [MP3|320 кб/с] <House, Progressve House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomas Gagliardo - Empress Quena (Original Mix) 7:33
-02. Alex Villanueva & David Salazar - Wannabe (Original Mix) 8:00
-03. OMB & Ogawa - Zipangu (Napalm & D-Phrag Remix) 7:04
-04. Marcelo Paladini - Cigarette Smoker (Matt Black Remix) 8:36(   Читать дальше...   )Жанр: House, Progressve House, Deep HouseПродолжительность: 04:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AE1693EE6EB62FC24A2F2D4CF1A46042281DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277857   (775085) от 22.01.2019
-
-VA - Sports Megamix 2019.1 (2019) [FLAC|Lossless|tracks] <Funky, Club House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775085.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Klaas - Get Down
-02. DeeJay A.N.D.Y. Feat. Pit Bailay - Only You 2K18 (Trash Gordon Remix Edit)
-03. Marc Kiss, Sawo & Crystal Rock - Feels Good (Original Radio Edit)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 03:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302BD394B6B936D1BA1619BFD44F3DEE1E8CF030
 ```
 
 

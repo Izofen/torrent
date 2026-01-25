@@ -1,3 +1,80 @@
+###  Публикация: 1355337   (983439) от 26.01.2020
+
+Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983439.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 Pet Shop Boys - Leaving (Promotional Video)
+2020 Pet Shop Boys - Monkey business (Official video)
+2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354626   (983443) от 26.01.2020
+
+In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983443.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 In This Moment - Beautiful Tragedy (Official Video)
+2007 In This Moment - Prayers (Official Video)
+2008 In This Moment - Forever (Official Video)
+2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612580   (983877) от 03.02.2013
+
+DJ Smash & Семён Слепаков/Откат (2013).HDTV
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971477   (984280) от 04.01.2016
 
 Stromae - Racine Carree Live (2015) BDRip
@@ -575,100 +652,6 @@ magnet:?xt=urn:btih:A242F5EC317420C8070193A5384A5F98594FEEF1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E43A184F862D10BE8957B14B5A2C71D427CD5B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 434668   (986587) от 10.01.2012
-
-Slipknot - Disasterpieces (2002) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Они носят маски. Не всегда, но мало кто видел их лица... Бывший сварщик, продавец из порно-магазина, DJ и компьютерщик, на досуге они любят поиграть в Quake и порассуждать о серийных убийцах... А ещё они собирают стадионы поклонников. И поверьте мне, там творится такое!
-Концертное выступление группы Slipknot в Лондоне - это видео не для слабых нервов! Здесь хватает всего - пугающие вычурные костюмы, злобные маски, сценические спецэффекты. Но самое главное - музыка и мощнейший драйв!01. People = Shit
-02. Liberate
-03. Left Behind
-04. Eeyore
-05. Disasterpiece
-06. Purity
-07. Gently
-08. Eyeless
-09. My Plague
-10. New Abortion(   Читать дальше...   )Жанр: Концерт, Nu metalПродолжительность: 01:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC752A60E72EBC9B03727469396CE2F2C675F57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610289   (986610) от 01.02.2013
-
-Ария - Нашествие (2001) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мания величия
-02. Химера
-03. Герой асфальта
-04. Небо тебя найдет(   Читать дальше...   )Жанр: MetalПродолжительность: 1:03:14
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610049   (986613) от 01.02.2013
-
-Лучшие клипы / The best videos of all time (R'n'B) [720p] (2012) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Лучшие клипы, лучшие исполнители для вашего внимания!01. Britney Spears, Beyonce & Pink - We Will Rock You
-02. Alicia Keys - Girl On Fire
-03. Babyface - The Loneliness
-04. Baibe & Mya - Maro
-05. Beyonce - Listen
-06. Black Eyed Peas- Meet me Halfway (Victoria's Secret show)
-07. Boyz II Men - Silent Night
-08. David Guetta - Sexy Chick
-09. Chris Brown - Sweet Love
-10. David Guetta Feat. Kid Cudi - Memories(   Читать дальше...   )Жанр: Музыка, Pop, R'n'BПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4173642FED1C7538A4BB32325025119B063FAFC6
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1465470   (1019157) от 26.04.2021
+
+Jeff Carlson Band - Yesterday's Gone (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reckoning (01:10)
+02. Guilt Is Your Weapon (03:39)
+03. Yesterdays Gone (04:06)
+04. Promise The Moon (03:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4461BB2AE862E7B233426631570FB36C0CC05EBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465386   (1019158) от 26.04.2021
+
+Reach - The Promise Of A Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Frontier
+02. The Law
+03. Young Again
+04. Satellite(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF953F32B375599B4426B0AD2FBD6C1110805FFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465346   (1019159) от 26.04.2021
 
 The Mono LPs - Shuffle/Play (2021) [MP3|320 Kbps] <Indie Rock>
@@ -641,60 +695,6 @@ Velvet Viper - Cosmic Healer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF5F449BA98F594AF47EFDACD29A2CDBF26255F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464751   (1019671) от 23.04.2021
-
-Vexillum - When Good Men Go To War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlight The Bivouac
-02. Sons Of A Wolf
-03. Voluntary Slaves Army
-04. When A Good Man Goes To War(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998261C59E2477F1B405D85D741BFED3D3FF3A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464655   (1019675) от 23.04.2021
-
-Instant Curtain - Let Tear Us Apart (2020) [FLAC|Lossless|image + .cue] <Eclectic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverse in the Sand (6:20)
-02. Tell the Tales, May I (5:07)
-03. The Beginning (4:15)
-04. All White (4:26)(   Читать дальше...   )Жанр: Eclectic Progressive RockПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED27CBB0D3BF72904785ABE224CA00EB6A3C2D8F
 ```
 
 

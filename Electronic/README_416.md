@@ -1,3 +1,84 @@
+###  Публикация: 1274282   (794169) от 06.01.2019
+
+VA - Cratediggers (2019) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KRS-One - Free Flow (Low Steppa Remix)
+02. Dantiez Saunderson - Groove Machine (Gene Farris Acid Ingestion Mix)
+03. Mr. V - My House (Italobros Remix)
+04. Brett Gould - People Up Top (Original Mix)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 03:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208C0E44E2E51B961A3BF5CFAF3E2BB762CF40B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012257   (794351) от 30.04.2016
+
+VA - Defected Presents Sonny Fodera In The House (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 1)
+02-Sonny Fodera - Defected Presents Sonny Fodera In The House (continuous DJ mix 2)
+03-Gershon Jackson - Take It Easy (Sonny FoderaMat Joe remix)
+04-Sonny Fodera & Mystic Bill - Invisible (Sonny Fodera ITH edit)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 07:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387A4A0019AC3C22907C7D0510C69F8CC71B60E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386538   (794439) от 29.05.2020
+
+VA - Workout Beach 2020 Summer [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davide Colombo - Still the One
+02. Skiller - Fields of Gold
+04. Tek66 - Drum Time
+05. Supernocs - Henday(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B128973D56EF5AF78A2DDE7FB1FDCFCB583057F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386423   (794554) от 29.05.2020
 
 Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
@@ -607,86 +688,6 @@ Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031490   (795108) от 28.05.2020
-
-Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventeen Zero Four (05:36)
- 02. One Zero Five (04:49)
- 03. Twenty Zero Two (06:31)Тип издания: CD, Web, VinylЖанр: Experimental/Techno/Ambient/AcidПродолжительность: 31:36:39 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29C7D86AF8C4DC27E0D2C35053CB63B3FAD7091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386188   (795224) от 28.05.2020
-
-Robert Rich - Offering To The Morning Fog (2020) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Traveler (13:13)
-02. Cantus for Hospitality (09:34)
-03. Oneiric Cocoon (11:03)
-04. Awake When Shadows Walk (11:06)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0EE08A029AAB10E96F985B458C68B58E4A2EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880429   (795232) от 28.05.2020
-
-Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub Techno, Ambient, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absent Presence (11:12)
- 02. Adorable Reality (07:02)
- 03. Blurred Trip (10:07)
- 04. Waiting Of Landing (15:58)Тип издания: WebЖанр: Dub TechnoПродолжительность: 04:15:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
 ```
 
 

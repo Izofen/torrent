@@ -1,3 +1,84 @@
+###  Публикация: 1237824   (549642) от 26.07.2018
+
+VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Soulstar - My Love Is Everlasting (Radio Edit) 3:40
+02. Ariane Blank - Becarec (Deep Spelle Remix) 7:02
+03. Dee C'rell - Whodoo (Berlin Beach Mix) 5:22
+04. Florito & Roberto Sol - Loveflow (Florito Mix) 4:52(   Читать дальше...   )Жанр: Deep House, ProgressiveПродолжительность: 05:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FBF621C57DBEE115DBBB6099FD3C9CD0F0ECB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237793   (549739) от 26.07.2018
+
+Spin Artes - Elementis (2018) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Restless (07:26)
+ 02. Silhouettes (10:40)
+ 03. Nocturnal (07:43)
+ 04. Introspection (09:19)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4701D60D10B3CF47CEF6A86EE041298F2FEF9CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237795   (549766) от 26.07.2018
+
+The Weathermonger - The Ephemeral City (2018) Twoism Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Swimmer (03:16)
+ 02. An Equal Reaction (05:19)
+ 03. Fourier (04:10)
+ 04. Through The Honeycomb Window (02:26)(   Читать дальше...   )Жанр: Downtempo, IDM, AmbientПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EEA53E93F39FB55CCF5C03ED8CB0BF73376585
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047099   (550254) от 29.08.2016
 
 VA - Bikini Grooves (20 Pool Party Beats Vol 1) (2016) [MP3|320 Kbps] <House, Deep House>
@@ -614,87 +695,6 @@ VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96A2730CC2FEDB35C8B6F491612B1C5A7CDEC48F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046787   (551179) от 28.08.2016
-
-VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RD Project - Qotto [04:03]
-02. Beta Ensemble - Room Five Room [03:13]
-03. Cafe Ibiza - Your Everything [04:15]
-04. Leo & Roby Ruini - La Suite [05:26](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C322E403396525764E79604B4D9509F7D41CB69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046767   (551180) от 28.08.2016
-
-VA - Caribbean Beach Lounge Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass - Akari (04:16)
-02. Michael E - Peace (06:05)
-03. Lo Tide - Yello Brick (04:12)
-04. Camiel - El Alba (04:42)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFCCFCD80C592A4C3C383F0D770C5FE1639B9F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046788   (551181) от 28.08.2016
-
-VA - Advanced Modern Mood Music Vol.4 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scar - Fazer [04:51]
-02. Early Gold - Loudente [04:52]
-03. Deco' - Take a Deep Breath [02:41]
-04. Re Vera - Pensiero Leggero [03:35](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92183086DD1B1E8610C9261D07C333B6EEE5C379
 ```
 
 

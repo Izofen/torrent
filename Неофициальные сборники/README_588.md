@@ -1,3 +1,30 @@
+###  Публикация: 1494638   (887735) от 08.09.2021
+
+VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887735.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Moy - Dirty Buzz
+002. Lisa Hill - I Am On The Real Side
+003. Mark Ashley - Brother Louie
+004. Lo Greco Bros - Why Can't We Live Together(   Читать дальше...   )Жанр: Disco, Dance, RemixПродолжительность: 09:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13DD2E0F6FBD5D3E80A9885287B54F38990C827
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494611   (887743) от 08.09.2021
 
 VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient>
@@ -668,33 +695,6 @@ VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1555D63575E009953E90C192E709224BA32A6A90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102795   (889218) от 10.02.2017
-
-VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dr. Alban & Yamboo ft. Cuzzins - Sing Hallelujah (Melbourne Bounce Project Remix)  6:32
-02.  Global Deejays - Hardcore Vibes (Feeling Beat Bootleg)  5:06
-03.  Adoel Smidt - Show Me Space (Original Mix)  4:15
-04.  Onur Aktemur - Bass (Original Mix)  3:19(   Читать дальше...   )Жанр: House, Melbourne Bounce, Dutch, Electro House, Club, DanceПродолжительность: 06:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
 ```
 
 

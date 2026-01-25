@@ -1,3 +1,83 @@
+###  Публикация: 1095591   (922879) от 22.01.2017
+
+VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  UDM - Omega (Extended Mix)  6:10
+02.  TrancEye - Yearning (Original Mix)  7:10
+03.  Symon & Jay - Aerify (Extended Mix)  6:57
+04.  Asteroid - Gravitation (Extended Mix)  6:44(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA3E0C93CF32B1FFB82ABC2F136541127ECC630F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197642   (923476) от 11.03.2020
+
+Bionika Records | Deepfono Ground - Label-Pack 18 Releases (2017-2020) Parent: Tehnofonika Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Acid, Deep House>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trash (05:52)
+ 02. Puzzler (07:25)
+ 03. Carrier (06:28)Тип издания: WEBЖанр: Dub TechnoПродолжительность: 07:44:42 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6E535FF37CCF3D1742B3C0B3430CEAE418F307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365579   (923578) от 17.08.2021
+
+pl8 - Discography 7 Releases (2019-2021) opn g8s [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Once (08:59)
+ 02. Wet White Lumps (04:53)
+ 03. Missed Opportunities (04:19)
+ 04. Causing Sensual Revelations (05:38)(   Читать дальше...   )Тип издания: WebЖанр: IDM, Abstract, Downtempo, Ambient •Продолжительность: 07:47:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6156BD954CB1082DD968CE658719EEB0C26660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340010   (923675) от 17.08.2021
 
 As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, Clear, ART, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Downtempo, Future Jazz>
@@ -613,87 +693,6 @@ VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722C88F19461B4FB28FF53E2E62E24B9125AA7BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095720   (924570) от 21.01.2017
-
-VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Rivas & Supersonic Lizards - Aww Shit (instrumental mix) 04:55
-02. Jason Rivas & Creeperfunk - Sayonara (vocal edit) 03:08
-03. Jenny & Her Microhouse Band - Orbit 03 (extended Club mix) 05:41
-04. Jason Rivas & The Creeperfunk Project - Funky Soup 03:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5EFBAD55F6CF1C315A8D28D6A66D616295F2DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095536   (924572) от 21.01.2017
-
-VA - Wind In The Field (Downtempo Series)  Vol.008 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Golden Light Orchestra - Around The World (G-Rays Remix)  5:45
-02.  TheMiffy - Breakthrough (Original Mix)  3:01
-03.  Valefim Planet - Circles (Original Mix)  4:50
-04.  PumpiQ - Follow (Vocal Mix)  4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3E67B1DE44131093BE7FFFE05940618BF790C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154882   (924951) от 16.08.2021
-
-Proem - Discography 28 Releases (1999-2021) n5MD, Merck, The 1056 [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Ambient, Glitch, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Path To The Drone God (03:00)
- 02. Another Dull Moment (02:44)
- 03. DBL Field1 (03:16)
- 04. Ysheb Req (05:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Ambient, Glitch, Downtempo, Experimental •Продолжительность: 19:32:19 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E538224F8E9FA901D148C3116F6B1B724C4A39A
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 602693   (997582) от 13.01.2013
+
+VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
+002. Cara Lee - The Sax Man (Radio Edit)
+003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
+004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
+005. Modana & Carlprit - Hot Spot (Radio Edit)
+006. Gummibar - Gummy Style
+007. Kelly Clarkson - Catch My Breath
+008. Shockolady Feat. Mr. Smith - I Like It Like That
+009. Basto - I Rave You (Original Mix)
+010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602269   (997854) от 12.01.2013
 
 VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
@@ -808,39 +841,6 @@ VA - Happy New Year! Инструментальная музыка 2013 [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807B7304C24797B81A625E286905069E1C78D51F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595757   (1000460) от 02.01.2013
-
-VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Jim & Greysound - Песенка деда мороза и снегурочки 2013 (Radio Edit) [03:48]
- 02. 5sta Family - Без Ума (prod. by Speen Beatz & BeatMagik) [03:28]
- 03. Damon Paul feat. Patricia Banks - Last Christmas (Radio Edit) [03:46]
- 04. Бьянка - Заснеженные [02:53]
- 05. Kindervater - Heartbeat (Radio Edit) [03:14]
- 06. DJ Smash feat. Asti - Атом [03:40]
- 07. Manuel Lauren - DJ Aflame (Radio Edit) [04:07]
- 08. Niloo - Ola Ola (LaTrack Radio Mix) [03:28]
- 09. L.A.R.5 feat. Jai Matt - All The Girls (Radio Edit) [03:11]
- 10. Лера Туманова (Электра) - Новогодняя [03:06](   Читать дальше...   )Жанр: PopПродолжительность: 04:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AD70716829AA9BECB735210539094BE5E15F51
 ```
 
 

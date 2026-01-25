@@ -1,3 +1,57 @@
+###  Публикация: 1538577   (661373) от 22.03.2022
+
+Airacobra - Midwestern Steel (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Midwestern Steel
+2.Nailed to the Thieves Cross
+3. Airacobra
+4. You Belong to the Earth(   Читать дальше...   )Жанр: Blackened Heavy MetalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9AB73FBD8426B0C4D87054E0BB2D1E51EC43A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538638   (661380) от 22.03.2022
+
+Antonio Giorgio - Between Light & Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gothic Church (Chambers of Gold) (00:05:39)
+02 - Gates of Doom (00:01:57)
+03 - Hell on Earth (Land of the Dead) (00:06:01)
+04 - Brutal Planet (00:04:51)(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F29B6874411ACAB1AA1BDD78534A17A2D17FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538634   (661381) от 22.03.2022
 
 Achelous - The Icewind Chronicles (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy Metal>
@@ -643,66 +697,6 @@ Arctic Monkeys - Tranquility Base Hotel & Casino (2018) [MP3|320 Kbps] CD <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB983DE51F612A5FF37F0034B0E96D69270FFC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225120   (662756) от 13.05.2018
-
-RSO (Richie Sambora & Orianthi) - Radio Free America (2018) [MP3|320 Kbps] <Rock, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making History [04:30]
-02. We Are Magic [04:13]
-03. Rise [03:29]
-04. Take Me [04:36](   Читать дальше...   )Жанр: Rock, GuitarПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83009B25D58FBFAC02101AA928371AED0A5B85A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340404   (662781) от 24.05.2011
-
-Zero Degree - Surreal World (2011) [MP3|320 kbps]<Melodic death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door to the Unknown (0:52)
-02. Tomorrow Dies Today (5:11)
-03. Frozen Alive (5:03)
-04. The Storm and the Silence (5:16)
-05. Grapes of Wrath (5:40)
-06. Whispering Age (3:54)
-07. Virus (5:09)
-08. Disease (5:08)
-09. Surreal World (5:03)
-10. Where Angels Die (4:08)(   Читать дальше...)Жанр: Melodic death metalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9495AAEC97B7EDCBA591A2795165821C1E1BC499
 ```
 
 

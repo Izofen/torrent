@@ -1,3 +1,30 @@
+###  Публикация: 987324   (925899) от 17.02.2016
+
+VA - I Put A Spell On You — Mesmerising Jazz (2014) [MP3|320 кб/с] <Jazz,Jazz Fusion,Smooth Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nina Simone - I Put a Spell on You (2:38)
+02. Ella Fitzgerald - Cry Me a River (4:15)
+03. Chet Baker, Kenny Burrell - You're Mine, You (feat. Kenny Burrell) (3:08)
+04. Stan Getz - Body and Soul (3:19)(   Читать дальше...   )Жанр: Jazz Fusion, Smooth Jazz, Vocal JazzПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A938E77FC5CD2A1C573A11DA744A19F4F472002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987375   (925904) от 17.02.2016
 
 VA - Jazz Electro Swing (2016) [MP3|320 kbps] <Electro Swing Jazz>
@@ -665,33 +692,6 @@ VA - 80s Smash Healing Hits (2017) [MP3|320 Kbps] <New Wave, Dance-Rock, Blue-Ey
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1DCFDE739E9E2FEFED7066861AC55E98CE2319E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987006   (927702) от 16.02.2016
-
-VA - Lounge Barroom Music (2016) [MP3|320 kbps] <Lounge, Downtempo, Relax, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927702.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Thermodynamics - A Strange Planet (Drunken Loops Cut)
-002. Baghira - A Thrill of Anticipation
-003. Sofa Sweeper - Broken Romance (Beachtrip Mix)
-004. Stiopa & Angel Falls - Heartbeat(   Читать дальше...   )Жанр: Lounge, Downtempo, Relax, ChilloutПродолжительность: 13:11:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31B63291F4350BBE40A0CEC35D36D08D5528FE6
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1124610   (785790) от 11.04.2017
+
+Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape Of Sense (6:02)
+ 02. Love Without The Self (5:35)
+ 03. Cold Days (6:05)
+ 04. Bridge Of Sighs (5:04)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36397E0683DB54BCE8162CA879BCCC93E36F275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124415   (785809) от 11.04.2017
+
+VA - Armada - The Remixes 2017 Vol.2 (The Future House Edition) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Low Steppa - Runnin' (feat. Kelli-Leigh) (Scott Diaz Extended Remix)  4:58
+02.  MOWE & Daniel Nitt - Lovers Friends (Adventurer Extended Remix)  4:03
+03.  Showtek vs. Technoboy & Tuneboy - Mellow (Calvo Remix)  4:26
+04.  Armin van Buuren - Another You (feat. Mr. Probz) (CID Remix)  4:36(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF28B2DA3ABC430E7D2FAD66FB952E7749A8E4BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124318   (785825) от 11.04.2017
+
+VA - Ibiza Night Tales: The Best of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ambient Grooves - Sunset Beach Cruise  7:04
+02.  Exit Gravity - Late Night Fever  5:22
+03.  Wagu - Forms & Colours  4:45
+04.  Skye Dream - Ocean's 66  7:49(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D420B8CC9ED108A5C230D72F3CCE092859A81DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124475   (785827) от 11.04.2017
 
 VA - Summer Dream Chill Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -614,87 +695,6 @@ VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123493   (785979) от 10.04.2017
-
-VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Low Steppa feat. Geneva White - Can't Lie  3:12
-02.  Paige feat. Pipo Fernandez - Push It Back  2:38
-03.  TAI - Found Out  2:52
-04.  Felon - Coming Up (Main Mix)  3:43(   Читать дальше...   )Жанр: HouseПродолжительность: 00:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124154   (785980) от 10.04.2017
-
-VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetadelic – Aguas Claras
-02. Rey Salinero – Recuerdos
-03. Jay Jay & The Snakes – Walking In The Sunshine
-04. Diario – Transhumance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D42975432044E979A190E01AFCE2F0718090059
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123890   (785981) от 10.04.2017
-
-VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zean Ma - Sunset And You  3:51
-02.  Chill Out Waves - With You  3:57
-03.  Tomas Flari - Ocean Transit (Sunset Lounge Edit)  4:57
-04.  Adam Story - Moments In Love  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
 ```
 
 

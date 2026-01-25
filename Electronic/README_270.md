@@ -1,3 +1,84 @@
+###  Публикация: 1156962   (526444) от 09.08.2017
+
+VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York – What are we waiting for
+02. Goose Bumps , Jason Caesar – This Life (Funkerman Remix)
+03. HP Vince – Shut Up
+04. Andy B. Jones, Matty Menck – World To Life (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156913   (526455) от 09.08.2017
+
+VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
+02. Max Lean - Dreamer (PROMI5E Remix)
+03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
+04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053118   (526610) от 16.09.2016
+
+VA - Best Of Chill Out Vocal Trance 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Vocal Trance>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia, Ana Criado - Ever True (Chill Out Mix) [04:47]
+02. Chris Metcalfe, Jo Cartwright - Winter Sun (Moonnight Remix) [04:00]
+03. Kaimo K, Cathy Burton - You Deserve Life (Moonnight Remix) [05:15]
+04. Tenishia, Sue McLaren - Strong (Chill Out Mix) [04:02](   Читать дальше...   )Жанр: Chillout, Vocal TranceПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D2359F8716D08B96C69B910B29481D2CEF20ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052968   (526688) от 16.09.2016
 
 Michael E - Piano Pieces (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -613,87 +694,6 @@ VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E51CE3AC53BBAF539208530BC371A41AFC57CB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926712   (528502) от 13.08.2015
-
-Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amplifier (03:35)
-02. Converter (04:18)
-03. Park Avenue 1989 (04:25)
-04. Controlled Faith (04:27)(   Читать дальше...   )Жанр: Electronic, Electro, Disco, Synth-popПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9259A7E3899B7F7DC954E40E08DED9A5CF9979C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156153   (528556) от 06.08.2017
-
-Alter Nature - Chillout Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clouds Of Inspiration (Original Mix)  9:47
-02.  You Were Always Too Far Away (Original Mix)  8:21
-03.  They Never Spoke Again (Original Mix)  8:48
-04.  Beauty Lies (Original Mix)  6:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E170B6C28324605FC36AB17BDB4B19E8E736EF6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156198   (528558) от 06.08.2017
-
-VA - Delicious Deep House Collection Vol.3 (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  PulpTalks - When She Smiles  5:22
-02.  JR from Dallas - Yokohama Ghetto  8:04
-03.  Erkan Kara - New Life  5:47
-04.  Marco Madia - Thaliacea  6:51(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F30AA045235D70CC643C6409646075D68DB2B8
 ```
 
 

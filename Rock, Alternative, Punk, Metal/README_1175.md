@@ -1,3 +1,57 @@
+###  Публикация: 784737   (959334) от 16.02.2020
+
+Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Success [03:20]
+02. Modern Day God [03:59]
+03. Heaven's Door [03:02]
+04. Agoraphobia [04:37](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D252A59BFF516525CE08205C8583DB4A6710F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089738   (959393) от 16.02.2020
+
+Inevitable End - The Oculus (2011) [FLAC|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tell Us, Parasites  (02:36)
+02. Escaping The Black Hole  (02:28)
+03. Zen  (01:50)
+04. Dogmaties Paralies (02:39)(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53EFCC879384862A9A62BB7FD8F72B3C386D7B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355950   (959396) от 16.02.2020
 
 Psychotic Waltz - 5 Albums, 1 Live, 1 Compilation (1990-2020) 15CD [FLAC|Lossless|image + .cue|tracks + .cue] <Progressive Metal, Progressive Rock, Heavy Metal>
@@ -660,57 +714,6 @@ magnet:?xt=urn:btih:6E81DAFCF61A4539E60338CB74F7837BA121EFC3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B82E8FA0745FD20C6B27F0657AAA126A830925E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360123   (961841) от 14.02.2020
-
-Монгол Шуудан - Гуляй Поле Реанимация (2020) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Гуляй Поле
-3. На Белом Коне
-4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C1BE93620038B6E0E971BECF3BF3C1B7106DED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360010   (961849) от 14.02.2020
-
-Ночные Снайперы - эксперимент (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961849.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. экспериментЖанр: RockПродолжительность: 00:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1365C130B4BC3449619A074A666FDD1D44FBDC8
 ```
 
 

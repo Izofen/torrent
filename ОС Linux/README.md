@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1818548   (2390) от 17.09.2025
 
 Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD

@@ -1,3 +1,57 @@
+###  Публикация: 1011795   (796398) от 28.04.2016
+
+Devil’s Gun - Dirty ‘n’ Damned (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Rock City
+ 02. Spitfire
+ 03. Let em Ride
+ 04. Run Through the Night(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70EABAE4296480471572CBF3014AB3903825EEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011353   (796399) от 28.04.2016
+
+Step Rockets - Future Nature (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Coast    03:09
+02. Kisser    03:51
+03. Love Is Just A Chemical    04:00
+04. Turning Tides (By Your Side)    03:13(   Читать дальше...   )Жанр: Pop, Alternative, Indie RockПродолжительность: 00:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3543AE561C9C78AABC5F882B136443D768C0F9D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011334   (796405) от 28.04.2016
 
 SIG:AR:TYR - Northen (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
@@ -640,60 +694,6 @@ Hammer Fight - Profound And Profane (2016) [MP3|320 кб/с] <Heavy Metal,Thrash
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3F373D050B89DB4BEF3924D5AF6EA6A71582D6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199906   (797380) от 18.01.2018
-
-VA - Classic Rock: The Ultimate Collection (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797380.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Status Quo  -  Rocking All Over The World  4:04
-02.  Thin Lizzy  -  The Boys Are Back in Town  4:54
-03.  Rainbow  -  Long Live Rock 'N' Roll  4:23(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DB053F5CBDF608A0BE09337179D7189E46C7E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508408   (797382) от 08.11.2021
-
-Smokie - Gold (2020) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они не стали рок-звездами первой величины, но их мелодичные песни, отмеченные высоким исполнительским профессионализмом, пришлись по душе меломанам второй половины 70-х. Тогда, в конце 1970-х их песни звучали почти на каждой дискотеке, редкий самодеятельный ансамбль (ВИА), коих в те времена было множество (при каждой школе, каждом ДК), не пели, старательно копируя (   Читать дальше...   )CD - 1:
-01. Pass It Around (3:07)
-02. Couldn't Live (2:25)
-03. Goin' Tomorrow (3:44)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE744A98CF2CF18137C7CC279592FCA4F91CF82
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1369889   (900425) от 25.03.2020
+
+VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madison Mcferrin - No Room
+02. Cupid - Whats Your Flava
+03. Otis Mcdonald - Had Enough
+04. Emotional Oranges - Iconic(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 04:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC45238A6F7073308F794BFC286211A471A91E9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100287   (900643) от 03.02.2017
 
 VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro House, Trance>
@@ -671,33 +698,6 @@ VA - Beatport Electro House: Sound Pack #36 (2020) [MP3|257-320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCB13CC9F5788CA79A47CF9E32FE5FC8A1329C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369553   (901729) от 24.03.2020
-
-VA - Mystic Adventures (2020) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Enya - White Is In The Winter Night
-002. Secret Garden - Always There
-003. Sex Of Insects - All I Have A Know
-004. Alena Nice - You're My Soul(   Читать дальше...   )Жанр: New Age, Ambient, EnigmaticПродолжительность: 10:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B8229CBD2C078DFB3E6A4E6E2E49E2A29A6A7F
 ```
 
 

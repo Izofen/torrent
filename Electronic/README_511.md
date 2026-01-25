@@ -1,3 +1,84 @@
+###  Публикация: 1457702   (1024436) от 26.03.2021
+
+VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malandra Jr. - Illusion
+02. Deckert, Studio Apartment, Like Lovers - In the Unknown
+03. Julian Wassermann - Doppler
+04. Le Croque, Robert Owens - The Need(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D1CB5049C3AAB1CEB6E26FF7DA693FB13FB734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012749   (1024512) от 25.03.2021
+
+James Church (Lucidstatic, Pandora's Black Book, Static Logic) - Discography 41 Releases (2005-2021) CRL Studios, Tympanik [FLAC|Lossless|tracks, tracks+.cue] <Industrial, IDM, Experimental, Amb ...
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking In My Sleep (03:27)
+ 02. Phantom Limbs (03:57)
+ 03. Playing With My Weariness (01:43)
+ 04. Swelling Plaster (05:09)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, IDM, Experimental, Ambient •Продолжительность: 41:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626FC2A2F103E65ACFF97C800646BD3B5506ABCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203722   (1024591) от 25.03.2021
+
+John Lemke - Discography 6 Releases (2012-2018) Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Experimental, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grand Designs (01:40)
+ 02. Below Ground (01:54)
+ 03. Delicate Balance (02:09)
+ 04. Burning The Candle (01:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Experimental, Abstract •Продолжительность: 02:52:09 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE8F7604EB203C820D2ECB56BC4EAB675EA1D67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457187   (1024604) от 25.03.2021
 
 VA - A Call Too Close (2021) Brokntoys [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electro, Experimental>
@@ -606,87 +687,6 @@ Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1448D363B5E137D587D514A49198A5322FF012A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202479   (1025738) от 18.03.2021
-
-Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Woods (03:41)
- 02. Putrefactio (04:49)
- 03. Heart Of The Wilderness (08:15)
- 04. There Is Nothing Left (06:00)(   Читать дальше...   )Тип издания: WebЖанр: Ambient, Dub Techno, Field Recording, Dub, Drone •Продолжительность: 21:37:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44F189709009BC9D215BF477571EA9B372E6F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454890   (1025784) от 18.03.2021
-
-Jay-Jay Johanson - Rorschach Test (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Trip Hop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romeo (05:32)
-02. Why Wait Until Tomorrow (04:24)
-03. Vertigo (04:29)
-04. Amen (03:24)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D552760018F4613556EA188C89673C0C4B95BB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455182   (1025801) от 18.03.2021
-
-VA - Chillout Retreat: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Bliss of Water - Original Mix (6:00)
-02. Matt Sour - Unknown Future - Original Mix (3:50)
-03. Beamy - Reflections (4:06)
-04. Gary B - Afterglow - Original Mix (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6B620AA50ECEA64186BA336C634BC03DE2CC65
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1119785   (805253) от 29.03.2017
+
+VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Classic Rock, British Beat>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Helene Dixon - Roll Over Beethoven  2:38
+02.  The Swinging Blue Jeans - Around And Around  2:11
+03.  Ken Colyer's Skiffle Group - Down Bound Train  2:42
+04.  Marty Robbins - Maybelline  2:31(   Читать дальше...   )Жанр: Rock'n'Roll, Classic Rock, British BeatПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EB2F5793A1C78D0D7FD38E274EB6961EC29413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120008   (805257) от 29.03.2017
+
+Jethro Tull - The String Quartets (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Past (Living In the Past) (4:07)
+02. Sossity Waiting (Sossity: You're a Woman / Reasons For Waiting) (4:45)
+03. Bungle (Bungle In the Jungle) (3:49)
+04. We Used to Bach (We Used to Know / Bach Prelude C Major) (4:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6611ABC57ECC47ADE17C387B229C1841B76F07AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119776   (805377) от 29.03.2017
 
 VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [MP3|320 Kbps] <Rock-n-Roll, Classic Rock, British Beat>
@@ -637,60 +691,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C34D6BAF4C221E52766A9AC839059ABFD90A5FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504947   (806307) от 26.10.2021
-
-Pink Floyd - Meddle (1971) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One of These Days (5:55)
-02. A Pillow of Winds (5:13)
-03. Fearless (6:08)
-04. San Tropez (3:43)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE4C4D058D6A3F2DEF92C10C073CA3C884325C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504957   (806316) от 26.10.2021
-
-Pink Floyd - Obscured by Clouds (1972) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obscured by Clouds (3:05)
-02. When You're In (2:31)
-03. Burning Bridges (3:30)
-04. The Gold It's in the... (3:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4900EB1031912199A27E5ED836A6B8114FC7478
 ```
 
 

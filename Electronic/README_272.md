@@ -1,3 +1,84 @@
+###  Публикация: 1558560   (530074) от 21.06.2022
+
+Melanohelios - Дискография (9 альбомов) (2017-2021) [FLAC 2.0|24/44,1|tracks|WEB-DL] <Dark ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+2017 - Void Acoustics
+2017 - Void Acoustics II
+2017 - III(   Читать дальше...   )Жанр: Dark ambientПродолжительность: 09:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D47BE6348A46C74D8F4D62BBB2FE340C773FB4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558482   (530081) от 21.06.2022
+
+David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix) (Intro Edit)
+02. Shouse - Love Tonight (David Guetta Remix)
+03. Eurythmics - Sweet Dreams (David Guetta Remix)
+04. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix) w/ Tiësto - The Business (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558658   (530184) от 21.06.2022
+
+39 Kingdom - Live @ Curonian Spit, Russia (2022-05-29) [MP3|320 Kbps] <Progressive House, Deep House, Indie Dance, Nu Disco>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goom Gum - Aposch
+02. Anturage & DJ Skif & Ira Ange - La Cassette
+03. Anturage & Alar - Singapore
+04. Airsand & TuraniQa - Take You Home(   Читать дальше...   )Жанр: Progressive House, Deep House, Indie Dance, Nu DiscoПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EEFD7E8A9B052F304525CC88BDA21BD530702B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312734   (530538) от 05.07.2019
 
 VA - Dream Dance Vol.87 (2019) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
@@ -612,84 +693,6 @@ VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3264C83C3E3409A66281AFC106E588379DEC52F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312419   (532563) от 04.07.2019
-
-Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Or Nothing (03:57)
- 02. 2500 Racing (04:36)
- 03. Miami Fever (03:50)
- 04. Rising Dragon Fist (04:08)(   Читать дальше...   )Тип издания: WEBЖанр: SynthwaveПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F75081C328C5502CA253BA495454839743E03DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051315   (532692) от 11.09.2016
-
-VA - Only Silk 04 (Mixed by Shingo Nakamura & Max Flyant) - 2016 [MP3|~245 Kbps (V0)] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Flyant - Only Silk 04 (Part One)Жанр: Progressive HouseПродолжительность: 05:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C460C5A580A4E520DFF415424F67CB0BA4391FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051578   (532693) от 11.09.2016
-
-VA - Cafe Deluxe Chillout Nu Ibiza Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) [04:19]
-02. Soundset City - From Bar to Bar (Cafe Lounge Groove Mix) [05:10]
-03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) [04:43]
-04. Dave Neville - Funny Sky (Cosmic Space Mix) [05:48](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EE3ABEC954C417DBD6E020CAC2B986CB75AFA9
 ```
 
 

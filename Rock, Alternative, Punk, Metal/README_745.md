@@ -1,3 +1,57 @@
+###  Публикация: 1405281   (483679) от 30.08.2020
+
+Manticora - To Live to Kill to Live (2020) [MP3|320 Kbps] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katana - the Moths and the Dragonflies/Katana - Mud (14:39)
+02. To Nanjing (1:57)
+03. The Farmer's Tale, Pt. 3 - Eaten by the Beasts (4:23)
+04. Slaughter in the Desert Room (6:11)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5031B9ABD6C481E7C062AFBE4174D5632F8FA039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405375   (483681) от 30.08.2020
+
+Laaz Rockit (Lääz Rockit) - No Stranger To Danger (1985) Reissue, Remastered, 2009, Massacre [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Below (5:53)
+02. I Lose Hope (4:44)
+03. Observe The Train (5:08 )
+04. By My Throne (5:45)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5869B62B70DA2A034061EDB7D6BE2B1F93286251
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405662   (483683) от 30.08.2020
 
 Devon Murray - Dedicated, Resistant, Minute. (2020) [MP3|320 Kbps] <Progressive Metal>
@@ -641,66 +695,6 @@ Tomb Mold - Planetary Clairvoyance (2019) [FLAC|Lossless|tracks + .cue] <Death M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8BAC298793AE92D41860DE2CA7922F3770E4086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319417   (484727) от 11.08.2019
-
-Hapax - Monade (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creature Of Distance (04:55)
-02. Elegy (04:44)
-03. Parallel Words (04:16)
-04. Shining Lover (04:23)(   Читать дальше...   )Жанр: Synthwave, Gothic RockПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3AFD348D82A5E408726758ACB23371DF45B50A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543593   (484753) от 10.09.2012
-
-Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Industrial Rock, Alternative RockПродолжительность: 00:44:40
-1. So Far Away (4:10)
-2. Perfect (3:46)
-3. I Remember (5:43)
-4. Wasted (4:45)
-5. Happy (4:03)
-6. The Only Thing (5:38)
-7. Angel (4:22)
-8. Breathe You In (4:00)
-9. High (3:21)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66179C24EA105B549525F60B69B0D232AB19215B
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1046096   (556914) от 25.08.2016
+
+Decembre Noir - Forsaken Earth (2016) [MP3|320 Kbps] <Melodic Metal, Doom-Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In This Greenhouse Of Loneliness And Clouds
+2. Small. Town. Depression
+3. Ghost Dirge
+4. The Vast Darkness(   Читать дальше...   )Жанр: Melodic Metal, Doom-Death MetalПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414374B41FFA3D3C5F9DA8FF46CACD07192CC6E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376249   (557003) от 11.06.2022
+
+Ignea (ex-Parallax) - 7 Relises (2013-2020) [MP3|320 Kbps] <Oriental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Dies [00:03:58]
+02. Чорне Полум'я [00:05:24]
+03. Out of My Head [00:03:53]
+04. Í Tokuni [00:03:49](   Читать дальше...   )Жанр: Oriental Progressive MetalПродолжительность: 7 CD, 02:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569FBB1549C487245E321A5DDB8C0C10D38F461C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153930   (557024) от 28.07.2017
 
 Evadne - The 13-th Condition (2007) [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
@@ -640,60 +694,6 @@ magnet:?xt=urn:btih:F7B5514E034DBD9812F3E10B5ADC101AE364545E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7939FABFF684D972A0CE552A24A641875E7A8019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924830   (557538) от 04.08.2015
-
-Cattle Decapitation - The Anthropocene Extinction (2015) [MP3|~281 кб/с]<Progressive Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557538.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Manufactured Extinct
-2. The Prophets Of Loss
-3. Plagueborne
-4. Clandestine Ways (Krokodil Rot)(   Читать дальше...   )Жанр: Progressive Death Metal, GrindcoreПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093AF90B00864F2F10F65B0714FDA68B5EFB7E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924644   (557614) от 04.08.2015
-
-Gus G. - Brand New Revolution (2015) Japanese Edition [FLAC|image+.cue]<Heavy Metal/Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quest
-02. Brand New Revolution
-03. Burn
-04. We Are One(   Читать дальше...   )Жанр: Heavy Metal/ShredПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A73BB5184834612E03426096E7D9252C09CFFA
 ```
 
 

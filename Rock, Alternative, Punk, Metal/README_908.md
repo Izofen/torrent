@@ -1,3 +1,55 @@
+###  Публикация: 1031416   (651806) от 04.07.2016
+
+Симптом - С новым утром! (2016) Single [MP3|320 Kbps] <Gothic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. С Новым Утром!
+2. Твои Слёзы (Goth'n'Roll version)Жанр: Gothic Hard RockПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9B320D262148C1A61B51D1DD4229C8917BE84F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905286   (651915) от 05.06.2015
+
+Mojo Waves - All The Right Parts Fit The Wrong Way (2015) [MP3|320 кб/с]<Hard Rock, Garage, Heavy Psychedelic, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7x7
+02. Heartquake
+03. Lioneyes
+04. Counting Backwards(   Читать дальше...   )Жанр: Hard Rock, Garage, Heavy Psychedelic, StonerПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29CFBDD4F01A8DE2D3A4D578A9CE2251DC20F82E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905163   (651916) от 05.06.2015
 
 S.A.Y - Orion (2015) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -656,58 +708,6 @@ Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3311940A4586C40F5AF47DBC5990DBD82713B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141196   (652129) от 09.06.2017
-
-Anathema - The Optimist (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 32.63N 117.14W (1:17)
-02. Leaving It Behind (4:28)
-03. Endless Ways (5:50)
-04. The Optimist (5:37)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4382F88C9221FE774FA3BCD06B135C5BDDF4F8AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141351   (652138) от 09.06.2017
-
-Alice Cooper - Paranoiac Personality (2017) Single [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652138.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Paranoiac Personality
-2. I'm EighteenЖанр: Hard RockПродолжительность: 00:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779E3A750DF92FB1CDF5388E0062BD0CAEB44DD3
 ```
 
 

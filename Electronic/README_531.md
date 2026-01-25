@@ -1,3 +1,84 @@
+###  Публикация: 1438795   (1040333) от 11.01.2021
+
+Нейромонах Феофан (Neuromonakh Feofan) - Акустика (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под Драм Легко (Акустическая Версия) [00:02:43]
+02. Пойдём Со Мной (Акустическая Версия) [00:03:34]
+03. Сияние (Акустическая Версия) [00:03:49]
+04. Камыш (Акустическая Версия) [00:02:53](   Читать дальше...   )Жанр: Russian Folk RockПродолжительность: 01:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F2D23EE5E6E1510AA28F9384A7C8C034E4650A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612448   (1040347) от 15.02.2023
+
+VA - Chill & Relax: Chillout Your Mind (2023) [FLAC|Lossless|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - All Is Still (Original Mix) (6:44)
+02. Michael E - All That We Are (7:45)
+03. Jane Maximova - Open Seas (4:06)
+04. Matt Sour - Confession (4:09)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9E632336071F93C3A24B47AA24AE26F244D3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612289   (1040360) от 15.02.2023
+
+Orax - Crash (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash (3:54)
+02. Chairoplane (3:50)
+03. A Giant Puppet (4:32)
+04. Black Mustang (4:52)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F20F2D94E8DA739DC4643EC0F9682A3A2B4EE152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438777   (1040369) от 11.01.2021
 
 Bob Moses - Коллекция [3 Albums] (2020-2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Deep-House, Synthpop>
@@ -612,87 +693,6 @@ VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610968   (1041173) от 12.02.2023
-
-VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Allusive Alive (Original Mix) [6:00]
-02. Gabriel Carminatti & Abel Mezzomo - Ignition (Original Mix) [4:19]
-03. Vladislav Maximov & 3-YA - Heartbeat (Original Mix) [3:52]
-04. DatabassЖанр: Trance, Progressive, ElectronicПродолжительность: 03:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438518   (1041178) от 08.01.2021
-
-VA - NaHiM Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khoa Tran - Reality Somewhere (SounEmot Intro Mix)
-02. David Surok - South Beach (Original Mix)
-03. Dawid Jurzyk - Waiting For Sunrise (Original Mix)
-04. KBK feat. Mary Syll - Moments Of Life (Marco MC Neil Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD25B6F1F9A63AD65838596B967689A4BAC3AA8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438464   (1041189) от 08.01.2021
-
-VA - Menno De Jong - Collected Works (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menno de Jong - Sunleaf (Intro)
-02. Menno de Jong & Kristina Sky - Signals (Original Mix)
-03. Menno de Jong & Kristina Sky & Fiora - The Sun (Extended Mix)
-04. Menno de Jong - Everything (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D7E7E8B3DEDEED2BF0635AE7BF2A6116EF6870
 ```
 
 

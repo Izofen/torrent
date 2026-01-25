@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820917   (54) от 29.09.2025
 
 Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack Let'sРlay

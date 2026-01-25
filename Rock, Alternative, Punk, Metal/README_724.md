@@ -1,3 +1,57 @@
+###  Публикация: 1246937   (457129) от 13.09.2018
+
+Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Whisperer
+02.Hellfire
+03.Chapel Of Abhorrence
+04.The Unconquerable Sun(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BBBB79568405AC3CF88CF7CE22468CBF3939B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060262   (457153) от 06.10.2016
+
+OneRepublic - Oh my my (2016) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let’s Hurt Tonight
+02. Future Looks Good
+03. Oh My My
+04. Kids(   Читать дальше...   )Жанр: Pop-Rock, Alternative RockПродолжительность: 01:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679037C2AA5CF7B03EC9A15F26AEC0F2D5DF3A60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060084   (457253) от 06.10.2016
 
 Meshuggah - The Violent Sleep of Reason (2016) [MP3|320 Kbps] <Math Metal>
@@ -647,60 +701,6 @@ Arcana XXII - This Burning Darkness (2002) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18A7EB1D5C6B7DB78B7CA6966DAEA798C94564CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568878   (458049) от 10.08.2022
-
-Arcana XXII - Anthems of Adversity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Adversity (Intro) (00:01:27)
-02 - Gehenna (00:05:11)
-03 - The Masque (00:06:01)
-04 - Sacrifice (00:06:20)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B480A1907AAE36BCD4AB2936EA18D745DFA88B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568889   (458050) от 10.08.2022
-
-Massacra - 3 Albums (1990 - 1992) Reissue, Remastered 2014 [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-1990 - Final Holocaust
-1991 - Enjoy the Violence
-1992 - Signs of the DeclineЖанр: Death, Thrash MetalПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4538CC4ED4AE2167C1A5739083AB7C0C4945A11
 ```
 
 

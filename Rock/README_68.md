@@ -1,3 +1,57 @@
+###  Публикация: 1139202   (658271) от 04.06.2017
+
+Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salmon Song
+2. On My Way To Heaven
+3. Helper
+4. Listen To The Morning Sunshine(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999DF1833B02C3FC91A18662F45F053BE61B0613
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903081   (659061) от 30.05.2015
+
+Witchwood - Litanies From The Woods (2015) [MP3|320 кб/с]<70's Vintage Hard Rock, Blues Rock, Progressive, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude / Liar
+02. A Place For The Sun
+03. Rainbow Highway
+04. The Golden King(   Читать дальше...   )Жанр: 70's Vintage Hard Rock, Blues Rock, Progressive, PsychedelicПродолжительность: 01:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9E231B82DE013A32BF8C493DCF8EBDCF9F0966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514440   (659274) от 23.06.2012
 
 Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
@@ -646,61 +700,6 @@ Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414154   (674775) от 12.03.2022
-
-Шмели (Shulov'e, Antivirus, Клочья) - 31 Альбом / 6 Сборников / 7 Проектов & etc. (1998-2022) [MP3|256-320 Kbps] <Folk Rock, Industrial Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674775.jpg" />
-</div>
-
-
-###  Подробнее
-
-История группы началась в 1993 году в Украине, в городе Ровно. Когда к Александру Шмелёву (гитара, вокал), писавшему панковские песни присоединилась Лёля (вокал, гитара), учившаяся в педагогическом институте.
-Первоначальное группа называлась «Rubbish Chute Road». Ранее, с 1989, Александр Шмелёв играл в молодёжной группе, существовавшей в среде учеников ровенской (   Читать дальше...   )1998 - Тротиловые сказки
-1998 - Дурацкие книжки
-1998 - Пурга
-1999 - Злорадостная опухоль (Переиздание, 2016)(   Читать дальше...   )Жанр: Folk Rock, Industrial Metal, MetalПродолжительность: 41:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71108C904370F66FA7B723D095816E93A305D1B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214693   (674939) от 30.06.2010
-
-The Rolling Stones - Discography (1964-2008) [MP3|320 kbps] <Classic Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674939.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Brown Sugar (3:50)
-02. Street Fighting Man (3:43)
-03. Paint It, Black (3:45)(   Читать дальше...   )Жанр: Classic Rock |Продолжительность: Треклист:
-
-## Скачать торент
-```bash
-нет
 ```
 
 

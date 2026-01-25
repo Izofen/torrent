@@ -1,3 +1,56 @@
+###  Публикация: 1569098   (455831) от 11.08.2022
+
+Askog - Varg (Demo) (2020) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Varg
+02. Korp
+03. VattenЖанр: Black MetalПродолжительность: 00:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E7217BF79FAD1484717E34492FE710E10CF6BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408439   (455908) от 12.09.2020
+
+KYPCK - Черно (2008) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гидролокатор (1:48)
+02. Рождество в Мурманске (4:52)
+03. Предатель (5:39)
+04. 1917 (5:00)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98405C1F9AD23AE0AE8B21B0217C48B78C553642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408350   (456000) от 12.09.2020
 
 Doves - The Universal Want (2020) [MP3|320 Kbps] <Indie Rock>
@@ -639,60 +692,6 @@ CD3 - 00:53:33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3AF831B1A79E2682726C791C28508C00ECCA2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246937   (457129) от 13.09.2018
-
-Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Whisperer
-02.Hellfire
-03.Chapel Of Abhorrence
-04.The Unconquerable Sun(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BBBB79568405AC3CF88CF7CE22468CBF3939B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060262   (457153) от 06.10.2016
-
-OneRepublic - Oh my my (2016) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let’s Hurt Tonight
-02. Future Looks Good
-03. Oh My My
-04. Kids(   Читать дальше...   )Жанр: Pop-Rock, Alternative RockПродолжительность: 01:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679037C2AA5CF7B03EC9A15F26AEC0F2D5DF3A60
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1289324   (686749) от 16.03.2019
+
+Myles Kennedy - Year Of The Tiger (2018) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year of the Tiger (3:41)
+02. The Great Beyond (4:50)
+03. Blind Faith (4:29)
+04. Devil on the Wall (3:44)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD9211D31FED457534B77350323C50844D045EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289664   (686751) от 16.03.2019
+
+Serdce - Timelessness (2014) [MP3|320 Kbps] <Technical Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into Shambhala (3:33)
+ 02. Samadhi (6:43)
+ 03. Omens (9:07)
+ 04. Last Faith (9:39)(   Читать дальше...   )Жанр: Technical Progressive Death MetalПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2C61D75585232A8C3C2B3EFC4C0F99032C1329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289599   (686753) от 16.03.2019
 
 Black Therapy - Echoes Of Dying Memories (2019) [MP3|320 Kbps] <Melodic Death Metal>
@@ -650,58 +704,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC3BDA2C39473DAEBA9B1F092F59773F41A5DDAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806641   (688268) от 15.03.2019
-
-Fallujah - 4 Альбома + 1 EP (2011-2019) [MP3|320 кб/с]<Technical Deathcore, Progressive Death Metal, Atmospheric>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688268.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - The Harvest Wombs
-2013 - Nomadic (EP)
-2014 - The Flesh Prevails
-2016 - Dreamless(   Читать дальше...   )Жанр: Technical Deathcore, Progressive Death Metal, AtmosphericПродолжительность: 03:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877E9D7A26545EBC21B55DF43F4C4BB74D25B4BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289262   (688282) от 15.03.2019
-
-Сурганова и Оркестр - Мир-лабиринт (2019) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная премьера песни состоялась минувшей осенью в рамках большого юбилейного тура, рассчитанного на два года. В сопровождении эстрадно-симфонического оркестра композиция прозвучала и на столичных концертах в конце прошлого года, и на фестивале «Чартова Дюжина» в нынешнем феврале. Теперь мы можем познакомиться со студийным вариантом.
-«Набросок мелодии родился (   Читать дальше...   )1. Мир-лабиринтЖанр: RockПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C84F1DBF1552A3B9BAEE1B59BC9B3369420AA88
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1362567   (948321) от 24.02.2020
+
+Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Ask
+02. Capital Letters
+03. Cut Up
+04. Grey Cell Green(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362734   (948322) от 24.02.2020
+
+VA - Radio Gold Volume 4 (2001) [FLAC|Lossless|image + .cue] <Doo Wop, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948322.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 –The Contours Do You Love Me
+2 –The Drifters Up On The Roof
+3 –Chuck Berry The Promised Land
+4 –Dion & The Belmonts A Teenager In Love(   Читать дальше...   )Жанр: Doo Wop, Rock & RollПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A790471236A8A5942021616DB3BA3F08A6D38A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982197   (948329) от 03.02.2016
 
 Thousand Foot Krutch - The Millennium Collection: The Best of (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -633,59 +687,6 @@ Beneath the Massacre - Fearmonger (2020) [MP3|320 Kbps] <Technical Death Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829591110B2F5FA336729F2FCDAD22DE34731679
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362195   (949669) от 23.02.2020
-
-Ильин - EP. Кровь (2020) [MP3|320 Kbps] <Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949669.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Заплатки
-2. Слово
-3. ТопольЖанр: Metal, RockПродолжительность: 00:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20D02520051F44CEC8D9F7CD86941A6036CC2F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362249   (949675) от 23.02.2020
-
-Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Un)Drowned
-02. Catalyst
-03. False Shepherds
-04. Resurrection of Wrath(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96782FD26CD3491C6D8E9FC6852778C21718EA6A
 ```
 
 

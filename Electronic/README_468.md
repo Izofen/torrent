@@ -1,3 +1,78 @@
+###  Публикация: 990619   (910113) от 26.02.2016
+
+VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Righi & Dan - Havana Loca (4:59)
+02. Unisono fx - Rain (latin club) (5:20)
+03. Asia Teck - Medioriente (6:39)
+04. Friday Tribe - King Chop (5:16)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8073D8036C1B92E828AFCFEF0CAF536CA39A7F63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880486   (910174) от 29.01.2017
+
+Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless]<Dub Techno, Ambient, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return To AuratiaЖанр: Dub Techno, Ambient, Experimental |Продолжительность: 02:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E955C33CEBAB4D82FD6486DC13EA411904C234C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144185   (910227) от 19.03.2020
+
+Pensees (Pensées) - Discography 23 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Future Garage, Bass, Downtempo>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden Hills (03:33)Тип издания: WEBЖанр: Future Garage/AmbientПродолжительность: 09:12:04 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC0CF9DC24D42ED94EF11018770648F65E3E617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098403   (910305) от 29.01.2017
 
 Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [FLAC|Lossless|WEB|tracks] <Trance, Progressive Trance, Progressive House>
@@ -608,87 +683,6 @@ VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D517AF5D27C490F032CEB1BAB96D31648DE4E193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368140   (912279) от 18.03.2020
-
-VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriatique - Faze DJ-Set 28 (Continuous DJ Mix) [01:15:54]
-02. Mattheis - Klrnoe [09:06]
-03. Adriatique - Lophobia [06:53]
-04. David August - Epikur [08:08](   Читать дальше...   )Жанр: EDM, Deep House, Tech House, MinimalПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2688D3A0CDD8ADFE0D874E39F06812464056851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990371   (912283) от 25.02.2016
-
-VA - Carnaval House (2016) [MP3|320 кб/с] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autosky - Beyond The Sea (Original Mix) [07:35]
-02. Dmitrii G - Stronger (Original Mix) [06:15]
-03. J_ZeuS - Grand Bay (Original Mix) [06:34]
-04. Z-Dopamine - Pumping (Original Mix) [05:08](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A96F80C6DBB8DB5BD424D4FBCD264A31C99DBF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491318   (912355) от 24.08.2021
-
-Olaf Wempe - Anomaliac (+) (2021) L50 [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Septium (03:44)
- 02. Phosphor (03:44)
- 03. Bitch Mirror (03:32)
- 04. Ednaloy (02:46)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, ExperimentalПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B7DDCC07BEB2292A763D653C50A4BBC31D163F
 ```
 
 

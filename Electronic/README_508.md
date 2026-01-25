@@ -1,3 +1,81 @@
+###  Публикация: 1462439   (1021227) от 14.04.2021
+
+VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Drone, Experimental, IDM, Techno>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: WebЖанр: Ambient, Drone, Experimental, IDM, Techno •Продолжительность: 08:12:04 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037383   (1021247) от 13.04.2021
+
+Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handstitched* [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Ambient, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. w48-7 (05:33)
+ 02. FstRs (05:30)
+ 03. UYoJ (04:14)
+ 04. fC_45 (03:08)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: Abstract, IDM, Ambient, Glitch, Experimental •Продолжительность: 30:49:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE850A2202A39CC4BBB8D91DBD9F86B0CD99770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263653   (1021280) от 13.04.2021
+
+Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Experimental, Industrial>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plague Of People (04:50)
+ 02. Alcohole (05:44)
+ 03. Euphoricore (05:31)
+ 04. Harshlands (05:32)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/IDM/ExperimentalПродолжительность: 03:52:55 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:355DC28C1B15AE8822EE312060B80C290E352986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462243   (1021317) от 13.04.2021
 
 Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -610,87 +688,6 @@ Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346757   (1022053) от 08.04.2021
-
-Thierry David - Discography 32 Releases (1988-2021) [MP3|320 Kbps] <New Age, Lounge, Ambient, World>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022053.jpg" />
-</div>
-
-
-###  Подробнее
-
-1988 - Moonstorm (Reissue '98)
-1991 - Humaninhuman
-1992 - Tales Of Sand (Reissue '93)
-1993 - Tones & Colours (Reissue '98)(   Читать дальше...   )Жанр: New Age, Lounge, Ambient, World, Electronic, Tribal, Space & Relaxing MusicПродолжительность: 32:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B108C1115E99A887962329414999093AB99AC4F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461048   (1022085) от 08.04.2021
-
-Roberto Sol - Discography 9 Releases (2012-2020) [MP3|320 Kbps] <Chillout, Nu Jazz, Deep House, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022085.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Loveflow (EP)
-2013 - Playback Rewind (EP)
-2013 - Electrified Emotions (10 Years Of Ibiza Flavored Tunes)
-2015 - Hotel Aurora(   Читать дальше...   )Жанр: Chillout, Nu Jazz, Deep House, Downtempo, Lounge, Tribal, World, BreakbeatПродолжительность: 08:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98320413362E8137C6C3C2350C9B4487F77E770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461232   (1022091) от 08.04.2021
-
-Roberto Bronco - Discography 7 Releases (2013-2020) [MP3|320 Kbps] <Lounge, Nu Jazz, Chillout, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022091.jpg" />
-</div>
-
-
-###  Подробнее
-
-2013 - Welcome To The Broncolounge
-2015 - At The Broncolounge
-2017 - Promise
-2018 - Move In Silence(   Читать дальше...   )Жанр: Lounge, Nu Jazz, Chillout, AmbientПродолжительность: 06:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA7FF518B1077CDD0EFA7FFADEFB4E9555DBB7A
 ```
 
 

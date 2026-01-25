@@ -1,3 +1,57 @@
+###  Публикация: 1453373   (1027075) от 10.03.2021
+
+Андрей Лефлер - Свобода (2021) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Двоичный код [00:03:44]
+02 - Правда, Надежда и Ложь [00:05:22]
+03 - Не медлить и не ждать [00:05:26]
+04 - Четыре зверя [00:04:35](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7E6060BBF2EB66B4968C62E79A041532E81CB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453372   (1027078) от 10.03.2021
+
+Год Змеи - Перегруз (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выбираю
+2. Паучок
+3. Капли
+4. Против или за(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3701E67AFBF865C5F83E2EB912C65016223D3D99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453207   (1027082) от 10.03.2021
 
 Fortune - Fortune (1985) Remastered, 2004, Gypsy Rock [MP3|320 Kbps] <AOR, Melodic Rock>
@@ -641,60 +695,6 @@ Joel Hoekstra's 13 - Running Games (2021) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE983955B501F71CE9F63A3A8E5891A0B6E3A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452862   (1027399) от 08.03.2021
-
-Loot The Body - The Barrier Peaks Songbook (2020) [MP3|320 Kbps] <Psychedelic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Expedition To The Barrier Peaks [00:04:22]
-02. The Labyrinth Of Evermore [00:01:40]
-03. We're The Vegepygmies [00:03:36]
-04. Robot Police [00:04:09](   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865DB29F1EA005F7F0C40D37755DCEC4067048E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452880   (1027408) от 08.03.2021
-
-Empire - Empire (1994) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who's There?
-02. Shadowking
-03. Above And Below
-04. I Want It Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D798282AFB9548423CC54E5F726E66009ED6C719
 ```
 
 

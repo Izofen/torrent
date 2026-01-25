@@ -1,3 +1,57 @@
+###  Публикация: 1150205   (595151) от 14.07.2017
+
+Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Caroline  5:28
+02.  The Wanderer  2:46
+03.  Something 'Bout You Baby I Like  2:17
+04.  Rain  4:36(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E015DB5D75C98CB2ED78624EF9B3A5FFB07299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915188   (595192) от 04.07.2015
+
+Glowsun - Beyond The Wall Of Time (2015) [MP3|320 кб/с]<Stoner Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrow of Time
+02. Last Watchmaker's Grave
+03. Behind the Moon
+04. Flower of Mist(   Читать дальше...   )Жанр: Stoner Psychedelic RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E6AA5AF047AA1DDA54AEFA77BA7CEEF0A5D9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039425   (596065) от 01.08.2016
 
 Terry Reid - Bang, Bang You're Terry Reid (1968) 2000, Repertoire Records [MP3|320 Kbps] <Rock>
@@ -648,60 +702,6 @@ Fuse - Fuse (2010) [MP3|320 Kbps] <Rock, Electric Violin Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EF9FAB33EDD6CB018182AF80DB81D8990156A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913270   (605359) от 29.06.2015
-
-Stone The Crows - Teenage Licks (1971) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605359.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Big Jim Salter
-2. Faces
-3. Mr Wizard
-4. Don't Think Twice(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8954EEA67852CC3B0004415642EB4FC054E2F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297141   (606451) от 20.04.2019
-
-The Rolling Stones - Honk (2019) Deluxe [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up (Remastered) 3:33
-02. Doom And Gloom 3:59
-03. Brown Sugar 3:50
-04. Beast Of Burden 4:25(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011FBB0DB218A37252125F11016057942F7EBA77
 ```
 
 

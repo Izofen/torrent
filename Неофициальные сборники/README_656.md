@@ -1,3 +1,30 @@
+###  Публикация: 1483236   (1006955) от 12.07.2021
+
+VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анатолий Жемаев - Неспетая [04:15]
+02. Андрей Козловский и группа 'ГрассМейстер' - Нужно взять себя в руки [03:24]
+03. Декабрь - Одесса-Мама [04:11]
+04. Борис Булкин - Одиночество и блюз [04:47](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 09:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6747E071A9A4126CCB49F8C1FA1DC78931717AB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483100   (1006977) от 12.07.2021
 
 VA - Love Liberates: Romantic Compilation (2021) 2CD [MP3|320 Kbps] <Jazz, Soul, Blues, Funk>
@@ -668,33 +695,6 @@ VA - Music News vol.113 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ED2D856A06FC57A2C7CB0EB9FB7756B5883FAEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481734   (1007999) от 05.07.2021
-
-VA - Record Super Chart 03.07.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (3:20)
-02. Nessa Barrett feat. jxdn - la di die (3:15)
-03. Inna - Flashbacks (2:57)
-04. Markul, Джарахов - Я в моменте (2:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E03BE929205C5E56B12368B66CF0EDAAC9A20CB
 ```
 
 

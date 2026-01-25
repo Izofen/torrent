@@ -1,3 +1,81 @@
+###  Публикация: 1218879   (717670) от 12.04.2018
+
+Bradley Sean Alexander - Lowered Expectations (2018) Polar Sea Recordings [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Once Was, Gone Forever (14:31)
+ 02. Decline, Of Everything (10:40)
+ 03. Requiem For A New Year (07:47)Жанр: AmbientПродолжительность: 00:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B184F55BD1DD2C64C8E7A05E37E6BBAE1A9B6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219089   (717673) от 12.04.2018
+
+VA - Alter Ego Trance Vol. 22 (Compiled & Mixed By Jonas Hornblad) - (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simon Latham & Espen Lorentzen – Heart (Temple One Pres. Tu Casa Dub)
+02. Audien & Decolita – Behind Our Thoughts (Original Mix)
+03. Jonas Hornblad – Paraglider (Original Mix)
+04. Andy Tau – Static (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0E6855E72A3197B4C66997716A2E152D967894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218938   (717674) от 12.04.2018
+
+Nørbak (Norbak) - Macula (2017) Warok Music [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Macula (05:33)
+ 02. MaculaЖанр: TechnoПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7906888634EEB74DF6C6057D2ADC315975DA94A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024333   (718160) от 08.06.2016
 
 VA - Crush House Dreamin (2016) [MP3|320 кб/с] <Dance, Electro House, Progressive House>
@@ -611,87 +689,6 @@ Voin Oruwu - Etudes From A Starship (2019) Kvitnu [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:753B54A9A3B0D45A9B903DFE41093DBF76A2D2A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285833   (719063) от 27.02.2019
-
-VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Chloe Langley - Bring You Home (Ronski Speed Remix Edit)
-02. Nektarios with Kirsty Hawkshaw - Dawn (Cold Blue Remix Edit)
-03. Trance Arts & Hysteria! - Heaven In Disguise (Progressive Edit)
-04. Kirsty Hawkshaw & One Vision - Nostra Terra (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D190448CD3C6E6F9F0345CA3C6C9088A5B67988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285854   (719065) от 27.02.2019
-
-VA - Digi Beat Ltd - Love Electronic Music (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Amnesia - Maasi 03:18
-02. Dj President - Henderson 02:06
-03. Dj Amnesia - Mina 03:10
-04. Dj Amnesia - Mukuru 03:02(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CCEBBD86CEC003339FB136AF5B6F9A9FA85354
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399983   (719134) от 05.08.2020
-
-VA - This Is Deep House, Vol. 6 (2020) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sublime Sound - Hands Of Time [06:12]
-02. Uriel Lange - Low Move [07:03]
-03. Sublime Sound - Symphonous (Nouveau Mix) [06:15]
-04. Vicvicvic - Vouge [07:24](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 04:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE97D8EF443555EADE3CC9D4D8236910D693189
 ```
 
 

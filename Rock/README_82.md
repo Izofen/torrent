@@ -1,3 +1,57 @@
+###  Публикация: 1198479   (808395) от 11.01.2018
+
+Amy Lee - Recover, Vol. 1 (2016) EP [MP3|320 Kbps] <Rock, Synth-Pop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Fire (03:38)
+02. With or Without You (04:08)
+03. Going to California (03:23)
+04. Baby Did a Bad Bad Thing (02:45)Жанр: Rock, Synth-Pop, ElectronicПродолжительность: 00:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA0B3F863767BD2200A3A43B7894CE829C85F32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198307   (808401) от 11.01.2018
+
+Crack The Sky - Animal Notes / Safety In Numbers (1976-1977) Reissue, 1989, Lifesong [MP3, 320 Kbps] <Prog Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808401.jpg" />
+</div>
+
+
+###  Подробнее
+
+ANIMAL NOTES (1976)
+1. We Want Mine
+2. Animal Skins
+3. Wet Teenager(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ED48B24D54362B0B867E0A9986533BBE012541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657794   (809754) от 18.05.2013
 
 VA - Rock Hearts Collection (2011) 4CD, Box Set [MP3|320 кб/с]<Rock ballads>
@@ -635,60 +689,6 @@ Halestorm - Into The Wild Life (2015) Atlantic, WPCR-16417, Japan [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8219AE50ECE0418007EA77CB0FB9B4DDCDF2CDB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196642   (822412) от 03.01.2018
-
-Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Bites (So Do I) 3:39
-02. Mz. Hyde 4:03
-03. It's Not You 3:23
-04. Freak Like Me 4:45(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C56130304DECE8ACDEFC3ECAFBAC724F1C5F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196605   (822545) от 03.01.2018
-
-Renia - First Offenders (1973) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822545.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You'd Best Believe It
-2. Friend Out On The Road
-3. Breakneck
-4. Shelter(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8A8BF80F3F9C850020D0317A8033009AE5A4AA
 ```
 
 

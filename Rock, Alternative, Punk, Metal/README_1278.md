@@ -1,3 +1,57 @@
+###  Публикация: 1615601   (1037303) от 27.02.2023
+
+Inverna - Inverna, Pt. 1 (2023) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Il Giardino Degli Incensi [00:06:32]
+02 - Il Nemico Allo Specchio [00:04:18]
+03 - Dove [00:01:17]
+04 - Domanda Alla Vita [00:04:39](   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14AB7617C38DEF6E255377491DB83AC3C6C04FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615644   (1037304) от 27.02.2023
+
+Tierra Santa - Gillman Fest 2018 (2018) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Quinto Elemento
+02 Caín
+03 Nerón
+04 Juana De Arco(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0387CCB576147EA3E398F787C3A784CB77AB925
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615628   (1037305) от 27.02.2023
 
 Doomas - R'lyeh (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -641,60 +695,6 @@ Wig Wam - Never Say Die (2021) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72CF24C8D782C8CA7ABD181D52C47CCEC9B3236B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441435   (1037749) от 21.01.2021
-
-Alkonost - Ведомые Ветром (2021) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037749.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро (Гимн Ветру)
-2. Там, Где Живут Ветра
-3. Лента На Ветру
-4. Долгая Ночь(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8CD70C04BADD630F8A83B64533257C00815B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441436   (1037785) от 21.01.2021
-
-Human Fortress - Epic Tales & Untold Stories (2021) 2xCD [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037785.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Grimoire (Remastered) (feat. Michael Bormann) (04:49)
- 02. Disappear in Dark Shadows (Remastered) (feat. Tommy Newton) (03:37)
- 03. Vain Endeavour (Remastered) (04:11)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656D3CF11B740469441E94237A6B4F546B8B54AB
 ```
 
 

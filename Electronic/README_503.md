@@ -1,3 +1,84 @@
+###  Публикация: 1477585   (1011002) от 15.06.2021
+
+Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grown Weary Of Their Kindness (03:58)
+ 02. Awaken Old Memories From Their Slumber (03:39)
+ 03. Angels Can Still Feel Fear (03:40)
+ 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063922   (1011074) от 14.06.2021
+
+Boris Divider - Discography 20 Releases (2004-2021) Artificial Domain [FLAC|Lossless|tracks+.cue, tracks] <Electro, Techno, Experimental, Glitch, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ликвидаторы (05:25)
+ 02. Припять (06:45)
+ 03. Цезий-137 (06:30)
+ 04. РБМК (05:46)Тип издания: CD, WEB, VinylЖанр: Electro, Techno, Experimental, Ambient •Продолжительность: 11:11:15 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CD42D27ADCDCC173B564354DAD9D4CEFAC27A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962860   (1011238) от 13.06.2021
+
+Syntech | Greyhound - Discography (2006-2019) Hands Productions  [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, Industrial, Experimental, IDM, Tribal, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Signs Are Everywhere (05:12)
+ 02. What Are You Waiting For (06:05)
+ 03. Uncertainty (05:09)
+ 04. As If Paralyzed (05:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Industrial, Experimental, IDM, Tribal, Ambient •Продолжительность: 17:03:00 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8C723A09B88F7F50A11DC53761D61367C546FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285895   (1011259) от 13.06.2021
 
 Umwelt - Discography 45 Releases (1998-2021) Shelter, New Flesh, Rave Or Die, Fundata [FLAC|Lossless|tracks+.cue, tracks] <Electro, Acid, Techno, Industrial>
@@ -613,87 +694,6 @@ Steen Thottrup - Diversities (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A64AD68AC7D97D94EBB4F05696711835636425
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475102   (1012568) от 05.06.2021
-
-Shingo Nakamura - Best of Shingo Nakamura 03 (2019) Mixed [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakodate (Denis Laurent Remix) (Mixed) (6:15)
- 02. Tribute, Chapter II (Terry Da Libra Remix) (Mixed) (5:46)
- 03. Hakodate (Digital Sixable Remix) (Mixed) (5:38)
- 04. Move On (ft. Kazusa) (Matao Remix) (Mixed) (6:13)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01EF5A938F17DAF35D1415D0D506D36BB6FDD07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188616   (1012665) от 04.06.2021
-
-] interstice [ - Discography 4 Releases (2014-2021) Innovative Sonic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existentia (08:39)
- 02. Against The Tide (06:35)
- 03. Convalescence (03:05)
- 04. Lethe (09:45)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/Industrial/Electro/AmbientПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085BF518954B0E3DBA818C05D22F0C9F3743089F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333362   (1012668) от 04.06.2021
-
-Saphileaum - Collection 16 Releases (2016-2021) Controlled Violence, Norite, Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Tribal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saphileaum - Blue Statue (06:33)
- 02. Saphileaum - Subtropical (06:38)
- 03. Sinnertia - Convulse (06:08)
- 04. Sinnertia - Erosion Surface (06:41)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Techno, Tribal •Продолжительность: 10:24:15 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C9E344634DE391266AA9C311D3B2829C176BA1
 ```
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 358740   (583768) от 04.07.2011
+
+Lab's Cloud - Organic Mathematics (2011) [FLAC|image+.cue, Lossless]<Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi Dulce Nu
+ 02. In Deepest
+ 03. Fibonacci Progression (Feat. Keemiyo)
+ 04. Esmeralda 2011
+ 05. A Journey With Your Angel
+ 06. Increasing Up To Positive
+ 07. In A Digital World
+ 08. Evolving Natural Forms
+ 09. Dani’s Guitar
+ 10. A Piece Of The Immensity(   Читать дальше...)Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919339   (584018) от 18.07.2015
+
+VA - Late Night Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco Flores - Andalucia [05:33]
+02. Relaxea - Sunshine Delight [07:19]
+03. Chill Bill - Harlem Chillout [04:56]
+04. Heavenly Light - Guardian Angel [05:27](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2AA809030B6B216E76D83F5BA9C3726130B550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919051   (584023) от 18.07.2015
+
+New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantom Ships & Strange Voices (5:22)
+02. Invisible Assailants (4:25)
+03. Encounters With Aliens (4:59)
+04. Spantaneous Human Combustion (7:06)(   Читать дальше...   )Жанр: Ethno Chill, DowntempoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A880705BCDB8CC274992317B6A9EE8E058A8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301641   (584092) от 12.05.2019
 
 Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
@@ -628,87 +715,6 @@ VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F9671C5CEC7AD70FC705E27CCFA2E935D2FF4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357933   (586282) от 02.07.2011
-
-VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, Electro, Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Electro, TranceПродолжительность: 03:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834AEE9481E635DB18A0D5FAA9B36DDB74D6967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039271   (586441) от 05.08.2016
-
-Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Электронно-атмосферный музыкальный веб-дуэт Insove, исполняющий инструментальную музыку без привязки к определённому жанру, сочетающий в себе электронику, эмбиент, бесконечные эксперименты и немного тяжёлых гитар.
-Существует с 2011 года.
-
-Альбом01 - Turn the Key
-02 - Darkness, Decay, Tenderness & Lightness
-03 - Slumber
-04 - Peace of Mind(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398B6316F992B15D16A1346D0D39393E2961A58D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040580   (586492) от 05.08.2016
-
-VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
-02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
-03. Third Son - Atonal Impression (original mix) [06:11]
-04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
 ```
 
 

@@ -1,3 +1,69 @@
+###  Публикация: 607240   (994491) от 23.01.2013
+
+Geordie - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 101. House Of The Rising Sun 05:00
+02. Geordie Stomp 02:42
+03. Light In My Window 02:59
+04. Treat Her Like A Lady 03:37
+05. Ten Feet Tall 06:43
+06. So You Lose Again 03:31
+07. Give You 'till Monday 04:00
+08. Ride On Baby 02:37
+09. Ain't It A Shame 03:48
+10. Electric Lady 02:57(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20B2960BE5B8DE1BE17E072C8DD271ADB3876B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607195   (994539) от 23.01.2013
+
+Razorlight - Razorlight (2006) [MP3|320 кб/с]<Инди-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994539.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  In The Morning (3:42)
+2.  Who Needs Love? (3:32)
+3.  Back To The Start (3:12)
+4.  Hold On (3:26)
+5.  In The Morning (3:42)
+6.  Before I Fall To Pieces (3:22)
+7.  Kirby's House (2:51)
+8.  America (4:10)
+9.  Los Angeles Waltz (4:39)
+10. Pop Song 2006 (2:41)Жанр: Инди-рокПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C90054432BE66944C24A7015B68905483DCAB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607514   (994559) от 23.01.2013
 
 Fall Of Mankind - Frolic Among Remnants (2012) [MP3|320 кб/с]<Brutal Death>
@@ -753,70 +819,6 @@ Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|32
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604708   (996242) от 18.01.2013
-
-Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consequence (07:56)
-02. Hands Of Dust (11:38)
-03. Spectre (10:21)
-04. Reflections (01:49)
-05. Wolf Sun (07:10)
-06. The Black Sound (10:08)
-07. Walking The Crowpath (13:16)
-08. Epilogue (Bonus Track) (04:22)Жанр: Black MetalПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4BC166FAA4F97FB00F26B75E9B3ACCC22B9000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604192   (996485) от 17.01.2013
-
-Villagers - Awayland (2013) [MP3|320 кб/с]<Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996485.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.My Lighthouse
-2.Earthly Pleasure
-3.The Waves
-4.Judgement Call
-5.Nothing Arrived
-6.The Bell
-7.{Awayland}
-8.Passing a Message
-9.Grateful Song
-10.In a Newfound Land You Are Free(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A24A1BE2C0EC72011049AB1B6FDD0DBB0F1F8D4
 ```
 
 

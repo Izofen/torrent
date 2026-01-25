@@ -1,3 +1,83 @@
+###  Публикация: 1366701   (1023101) от 02.04.2021
+
+nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, Mörk [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It (04:22)
+ 02. Above The Clouds (04:40)
+ 03. Mad About You (05:53)Тип издания: WebЖанр: Techno, Ambient, Dub Techno •Продолжительность: 07:33:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E85CBA5DF2CD55E5AFC5CC0619C543118D9B4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459586   (1023134) от 02.04.2021
+
+Robert Rich - Soundquest 2021 (2021) Live Album [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sentience of Touch (04:51)
+ 02. A Skein for Skin (04:42)
+ 03. Fabric Improvisations (13:30)
+ 04. Transpiration (04:52)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36113857D9E96AB19BC495BEACEDB9126E48262E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459655   (1023138) от 02.04.2021
+
+Frank Steiner, Jr. - Discography: 6 Releases (1998-2021) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023138.jpg" />
+</div>
+
+
+###  Подробнее
+
+1998 - I Ching Symphony
+2004 - Touching Silk
+2011 - Calma
+2012 - Into Forever(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 06:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4225006543E4561ABB6F71FE8799A7D9D725AA2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459553   (1023165) от 02.04.2021
 
 Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Minimal, Ambient>
@@ -604,87 +684,6 @@ VA - Midnight Walk: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ACCE35ADAC6FB496B2E3D9B1A3148C912B63D71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457702   (1024436) от 26.03.2021
-
-VA - Schneeweiss 12 (Presented by Oliver Koletzki) - 2021 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malandra Jr. - Illusion
-02. Deckert, Studio Apartment, Like Lovers - In the Unknown
-03. Julian Wassermann - Doppler
-04. Le Croque, Robert Owens - The Need(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D1CB5049C3AAB1CEB6E26FF7DA693FB13FB734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012749   (1024512) от 25.03.2021
-
-James Church (Lucidstatic, Pandora's Black Book, Static Logic) - Discography 41 Releases (2005-2021) CRL Studios, Tympanik [FLAC|Lossless|tracks, tracks+.cue] <Industrial, IDM, Experimental, Amb ...
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking In My Sleep (03:27)
- 02. Phantom Limbs (03:57)
- 03. Playing With My Weariness (01:43)
- 04. Swelling Plaster (05:09)(   Читать дальше...   )Тип издания: CD, WebЖанр: Industrial, IDM, Experimental, Ambient •Продолжительность: 41:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626FC2A2F103E65ACFF97C800646BD3B5506ABCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203722   (1024591) от 25.03.2021
-
-John Lemke - Discography 6 Releases (2012-2018) Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Experimental, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grand Designs (01:40)
- 02. Below Ground (01:54)
- 03. Delicate Balance (02:09)
- 04. Burning The Candle (01:56)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Ambient, Experimental, Abstract •Продолжительность: 02:52:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CE8F7604EB203C820D2ECB56BC4EAB675EA1D67
 ```
 
 

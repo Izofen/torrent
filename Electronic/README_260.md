@@ -1,3 +1,84 @@
+###  Публикация: 1565642   (492435) от 24.07.2022
+
+Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doctor In My Room (Original Mix) (6:49)
+ 02. The Freaks (Original Mix) (5:34)
+ 03. Terrible Mine (Original Mix) (6:30)
+ 04. New Сonstruction Options (Original Mix) (6:32)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DABCCBC3B20E9C75CA3BFFC19A6B36FEB4D0E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565591   (492461) от 24.07.2022
+
+Denner (FR) - Shades & Parasols (2022) [MP3|320 Kbps] <French Coldwave, New Wave, Post-Punk>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Kelp (04:21)
+02. Low Life (03:44)
+03. Turbulence (03:48)
+04. Tranquility (02:58)(   Читать дальше...   )Жанр: French Coldwave, New Wave, Post-PunkПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E661EB34AF98A45446E315A9D6BF2709AD4DDCB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318257   (492833) от 07.08.2019
+
+Mexico City Blondes - Blush (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492833.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Out to Dry (03:56)
+2. Addio (04:03)
+3. Road Noise (04:25)
+4. Thick as Thieves (03:07)(   Читать дальше...   )Жанр: Indie Pop, Trip-Hop, DowntempoПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE3FB3E5E56B55430DD015EFAF7CCE2B134CD24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317899   (492849) от 07.08.2019
 
 Paul Denton - Live @ Trance Room, Bahrein Club Buenos Aires, Argentina 2019-06-22 [MP3|320 Kbps] <Trance>
@@ -616,87 +697,6 @@ VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242897   (496106) от 25.08.2018
-
-VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonic Dreams - Blanche (Coco's Deep Mix)
-02. Mischa Miller - Black & White (Original Mix)
-03. Liam Day - Walk On The Beach (Mark's Deep Mix)
-04. Mandrágora - Playing With Fun (Sunset Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2B9B50E1375CE28E388BEEDC1F85934497A694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242988   (496108) от 25.08.2018
-
-VA - Waehlscheibe Compilation X (2018) Waehlscheibe [FLAC|Lossless|tracks|Vinyl] <Dub Techno, House, Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novio Dub Tribe - Faraday Uncaged (07:14)
- 02. Patrizio Gabrielli - Beyond The Bassline (06:32)
- 03. Mend - Diary (07:23)
- 04. Anton Kubikov - Inner Flashing (08:22)(   Читать дальше...   )Жанр: Dub Techno, House, Techno, Deep HouseПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA6E616CBF7D521839AF96FFB11D605EAB1E9C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243022   (496114) от 25.08.2018
-
-VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inkfish - Size One (Indepth Remix) 7:39
-02. Nicholas Bennison - Alter Rain (Original Mix) 8:01
-03. Ctrl Shift Defeat - Eternal Paradox (Original Mix) 7:36
-04. Igor Zaharov - Schatten (Original Mix) 7:14(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD899C27488861EF3D3A723AADDE170BA1F2DE3C
 ```
 
 

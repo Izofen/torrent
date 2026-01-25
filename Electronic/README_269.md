@@ -1,3 +1,84 @@
+###  Публикация: 1240720   (523701) от 13.08.2018
+
+Anne Guthrie - Brass Orchids (2018) Students Of Decay [FLAC|Lossless|WEB-DL|tracks] <Experimental, Field Recording, Ambient, Industrial>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bellona (07:05)
+ 02. Serious Water (08:51)
+ 03. Red Wolf (05:12)
+ 04. Spider (11:21)(   Читать дальше...   )Жанр: Experimental, Field Recording, Ambient, IndustrialПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3FD69BDDC503EBB94008E30DE7942A92DA02FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313461   (523749) от 09.07.2019
+
+VA - Tour De Traum XVII (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emde & Clock - Time
+02. Tas Kessler - Maitage
+03. Davidovitch - Digital Moon
+04. Room Service - Never Ending Story(   Читать дальше...   )Жанр: HouseПродолжительность: 10:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3744535F1CA10928ECD839776E3516BE0C522168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240547   (524251) от 12.08.2018
+
+VA - Ibiza Deep House Essentials (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KVPV - Star (Club Mix) 4:16
+02. Jozeph - Black Christmas (Original Mix) 8:40
+03. TAKIRU - The Nazz (Original Mix) 7:04
+04. FAT V - Wake Me (Original Mix) 10:09(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1EB2AFF928817671C029315AB52E970F4C43FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558863   (524322) от 25.06.2022
 
 VA - Live @ The Indy 500 Snake Pit, United States (2022-05-29) [MP3|~245 Kbps (V0)] <Electro House, Electro Pop, Big Room>
@@ -613,87 +694,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F70196E0D00F8CCDE07AEE7C6D0431CBCCCF91F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156962   (526444) от 09.08.2017
-
-VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York – What are we waiting for
-02. Goose Bumps , Jason Caesar – This Life (Funkerman Remix)
-03. HP Vince – Shut Up
-04. Andy B. Jones, Matty Menck – World To Life (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E03C325AB1C4F1243DC8373877FC20E5D9E57C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156913   (526455) от 09.08.2017
-
-VA - Vibes Del Mar (50 Progressive House Tunes) (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcelos Pi, Swooney - Live (Alex Greed Remix)
-02. Max Lean - Dreamer (PROMI5E Remix)
-03. POINT BLVNK, TAAMY - Full Smash (Original Mix)
-04. Mark Bale, Lost Identity - Get Ready (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27B1228CA3C9322A8B0C60834CA5990DE2E8ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053118   (526610) от 16.09.2016
-
-VA - Best Of Chill Out Vocal Trance 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Vocal Trance>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia, Ana Criado - Ever True (Chill Out Mix) [04:47]
-02. Chris Metcalfe, Jo Cartwright - Winter Sun (Moonnight Remix) [04:00]
-03. Kaimo K, Cathy Burton - You Deserve Life (Moonnight Remix) [05:15]
-04. Tenishia, Sue McLaren - Strong (Chill Out Mix) [04:02](   Читать дальше...   )Жанр: Chillout, Vocal TranceПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D2359F8716D08B96C69B910B29481D2CEF20ED
 ```
 
 

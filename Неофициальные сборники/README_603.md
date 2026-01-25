@@ -1,3 +1,30 @@
+###  Публикация: 990965   (907921) от 27.02.2016
+
+VA - Праздничный хитовичок 1 (2016) [MP3|256 кб/с] <Поп, Танцевальная>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907921.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Animal Джаz - Всё Пройдёт
+002. Анжелика Начесова - Разорву
+003. Джиган feat. Стас Михайлов - Любовь-Наркоз
+004. Рэй - Солнце(   Читать дальше...   )Жанр: Поп, ТанцевальнаяПродолжительность: 05:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE741066986F5D78FC0B7575C0D5B10231FD8E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990132   (908010) от 27.02.2016
 
 VA - Super Dance Party vol.6 (2016) [MP3|320 кб/с] <Club , Dance , House>
@@ -665,33 +692,6 @@ VA - Trance Elegance On This Year 008 (2017) [MP3|320 Kbps] <Trance, Melodic, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FA928DEDD7B55E33C465ED6F3B5052950891EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098758   (908824) от 30.01.2017
-
-VA - Rush Funky - Essential Deep House (2017) [MP3|320 Kbps] <Tech House, Soulful, Club, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seryi - Ray Of Sun (Original Mix) 06:05
-02. Marcus Schossow - Raw (Extended Mix) 05:30
-03. 3Lau Ft. Neonheart - Fire (Price & Takis Remix) 03:06
-04. Mauro Oliveira - Statick Wave Soul 07:42(   Читать дальше...   )Жанр: Tech House, Soulful, Club, Nu DiscoПродолжительность: 03:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D08B906818776D6D15B5FF362AAEEB0787DDCBA
 ```
 
 

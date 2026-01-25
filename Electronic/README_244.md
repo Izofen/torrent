@@ -241,6 +241,72 @@ magnet:?xt=urn:btih:42FA12BC5BE765CC96862BDE621989FDE2BE813E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552018   (449860) от 25.09.2012
+
+Группа Технология - 4 Альбома (1991 - 1996) /2003, JAM Group/ [FLAC|Lossless]<Synth Pop, Techno Pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Телефон небес
+02. Королева дорог
+03. Яд
+04. Скорая помощь
+05. Экран
+06. Не последний танец
+07. Это война
+08. Хранитель тишины
+09. Тайга
+10. Вспоминай(   Читать дальше...   )Жанр: Synth Pop, Techno PopПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551881   (449864) от 25.09.2012
+
+The Prodigy - The Dirtchamber Sessions, Volume One (1999) [FLAC|Lossless]<Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, Breakbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449864.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Dirtchamber Sessions Volume One - альбом, состоящий из диджейских ремиксов различных исполнителей от лидера электронного коллектива The Prodigy Лиама Хоулетта.01. Section 1: Intro Beats / Punk Shock / Untitled / Chemical Beats / Kool Keith ... :: 07:18
+02. Section 2: Bug Powder Dust / Pump Me Up / How High / Poison / Been Caught Ste... :: 06:44
+03. Section 3: The Mexican / Rock the House / The Best Part of Breaking Up / King... :: 06:03
+04. Section 4: Hey Can You Relate / What Time Is Love / Funky Acid Makossa / Shaf... :: 07:52
+05. Section 5: New York / Punk to Funk / I'm Sick :: 04:57
+06. Section 6: The Home of Hip-Hop / Strong Island / Kowalski / Time to Get Ill /... :: 05:48
+07. Section 7: Get Down / Humpty Dance / Dope On Plastic / Beats and Pieces :: 03:59
+08. Section 8: Sure Shot / Breakdance Electric Boogie / Doomsday of Rap / Ozone B... :: 08:40
+Section 1 - 7:18
+ 1. Intro Beats - taken from Run-D.M.C.’s «Here We GoЖанр: Alternative Rock, Breaks, Punk, Big Beat, Hip Hop, BreakbeatФормат: CD, Compilation, MixedПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163489   (450230) от 05.09.2017
 
 Cosmic Gate - Materia Chapter.Two (2017) [FLAC|Lossless|tracks] <Trance, Progressive Trance>
@@ -430,6 +496,39 @@ magnet:?xt=urn:btih:9AFCCE01E42F8AA5717D74A50FA519101EC9BBA8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551884   (451106) от 25.09.2012
+
+Vista Le Vie - A Futuristic Family Film (2005) [FLAC|Lossless]<Downtempo, Future Jazz, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_451106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский дуэт VISTA LE VIE не изобрел в музыке ничего нового. Его участники попали в причудливый мир парижского техно, но одновременно были очарованы джазом. Из сочетания мягкого и безупречного чувства ритма перкуссиониста и мелодической фантазии пианиста родился этот проект. По последней французской моде они складывают в одну корзину все, что любят, все, чем заинтересовались, все, что способно пробудить чувства или напомнить о них. Микс клавишных Rhodes, гитарных риффов, джаза, трип-хопа, цитат из футуристических ретро-фильмов, скетчей, построковых ритмов, резких звуковых эффектов. Сквозь неторопливый тягучий бит сочатся звуки трубы, гитар и голоса приглашенных гостей, среди которых Barbara Silverstone и GENERAL ELECTRICS. В итоге слушатель отправляется в кинематографическое путешествие, которое не поддается никакой жанровой классификации. AIR встречают Бертрана Бургала - почему бы и нет?01. That Strange Rhythm (feat. Barbara Silverstone) :: 04:22
+02. Beauty for Ashes :: 02:39
+03. First Class - (Black Joy version) (feat. General Electrics) :: 05:17
+04. Refuse, Resist :: 05:08
+05. Seven Thousand and Three Hundred Days (feat. Grand National) :: 04:22
+06. A Curse She Cannot Win (feat. Barbara Silverstone) :: 07:03
+07. Kids With Gloves :: 03:45
+08. For You and You (feat. Ishmael Reed) :: 06:31
+09. Tanzanite :: 05:08
+10. Crime in Stereo (feat. Black Sifichi) :: 03:53(   Читать дальше...   )Жанр: Downtempo, Future Jazz, AbstractФормат: CD, Album, DigipakПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 827037   (451173) от 01.10.2014
 
 Scooter - The Fifth Chapter (Limited Edition) (2014) 2CD [FLAC|Lossless]<Big Room, Dubstep, Electro House, Trance>
@@ -613,87 +712,6 @@ David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB4F69D75B4E4DACF52E922B14B27D755EA946A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247676   (451390) от 16.09.2018
-
-VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand - The Air I Breathe (Original Mix)
-02. Giuseppe Ottaviani feat. Thea Riley - On The Way You Go (Ruben De Ronde Remix)
-03. Sied Van Riel - On A Trip (Original Mix)
-04. Cosmic Gate & Super8 & Tab - Noom (Estiva Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D044E925A7E1582DE2AD3ED491EF37206541A553
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408796   (451459) от 14.09.2020
-
-PRIZM - All Night (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night [00:03:48]
-02. Disco Biscuit [00:04:00]
-03. Lose You [00:03:18]
-04. Mine [00:03:51](   Читать дальше...   )Жанр: Electro, SynthpopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481AF625365E58FC24FB546A035565BA9A16A747
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569614   (451521) от 13.08.2022
-
-VA - AFTER DARK 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electropop, Nu Disco, Disco, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wolfram, Desire -  Sad Ibiza Song  (3:39)
-02.  Orion -  Call a Psychic  (3:34)
-03.  MOTHERMARY -  Coming for You (NICOLAAS Remix)  (3:55)
-04.  Double Mixte -  Chateau D'eau  (3:34)(   Читать дальше...   )Жанр: EDM, Electropop, Nu Disco, Disco, RetrowaveПродолжительность: 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B28877B7BF0A1CD37C8292A8F46065CCF82174
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1617476   (1035048) от 07.03.2023
+
+Milking the Goatmachine - Greatest Hits - Covered in Milk (2014) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ma Baker (Жанр: Death Metal, GrindcoreПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19764BC36073915EA4C67AC4A7659E13A06F52F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617537   (1035049) от 07.03.2023
+
+Ожог - Электростанция Z (2004) [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Висяк [00:05:48]
+02. Машина [00:04:31]
+03. Песня рабочего-литейщика [00:04:28]
+04. Смерть в кредит, Ч. 5 [00:04:16](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67899B546831608F1604B277DDDD98CC24998EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617439   (1035050) от 07.03.2023
 
 Hemisphaerium - Thagirion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -640,60 +691,6 @@ magnet:?xt=urn:btih:EA01C484EF2EF5C90FA6ADDE694910F8F4974B60
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A04191DC8D42A6EE1E150398F258774683B10485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443522   (1035447) от 29.01.2021
-
-Michael Schenker Group - Immortal (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drilled to Kill (4:32)
-02. Don't Die on Me Now (4:53)
-03. Knight of the Dead (4:05)
-04. After the Rain (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA9BD8313B3C595998F9A1DD166C1003033B7B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443526   (1035469) от 29.01.2021
-
-Art Of Illusion - X Marks The Spot (2021) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild and Free (04:44)
- 02. Run (04:49)
- 03. My Loveless Lullaby (05:04)
- 04. Waltz for the Movies (01:43)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7808B8D21B55F0061B90B8A7D11842BD4770DA0
 ```
 
 

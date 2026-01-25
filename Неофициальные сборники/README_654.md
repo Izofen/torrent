@@ -1,3 +1,30 @@
+###  Публикация: 1349375   (1003664) от 04.01.2020
+
+The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock & RollПродолжительность: 00:38:26
+05-01 - In Spite Of All The Danger (Feat. The Quarrymen) (1958) (02:44)
+05-02 - That'll Be The Day (Feat. The Quarrymen) (1958) (02:08)
+05-03 - Cayenne (Feat. The Quarrymen) (1960) (02:30)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350013   (1003674) от 04.01.2020
 
 Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
@@ -668,33 +695,6 @@ VA - German Top 100 Single Charts 30.07.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC37B59ECF8FE2955DA845BACE92E49D20F98958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486601   (1004573) от 01.08.2021
-
-VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004573.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sketchy Trench - Greater
-002. Kolossus Däächt - Fast Food
-003. Lice - R.D.C.
-004. Tocotronic - Stürmt Das Schloss(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 08:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4042E3F56BBC8A680F5BA2BDB0AF4C339D2CB2
 ```
 
 

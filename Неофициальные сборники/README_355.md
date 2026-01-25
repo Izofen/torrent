@@ -1,3 +1,30 @@
+###  Публикация: 1040365   (587054) от 04.08.2016
+
+VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Vs Speedy J -  Pull Over 2:26
+002. Dash Berlin & DBSTF Feat. Jake Reese, Waka Flocka & DJ Whoo Kid -  Gold (Club Mix) 3:34
+003. Bob Sinclar Feat. Vybrate, Queen Ifrica, Makedah -  New New New (Nico De Andrea 2016 Remix) 5:30
+004. NERVO feat. Child Of Lov -  People Grinnin' (feat. The Chi 4:16(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 15:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040321   (587057) от 04.08.2016
 
 VA - Дискотека 80-90 х По-Новому Зарубежный выпуск 36 (2016) [MP3|192 Kbps] <Disco, Eurodance>
@@ -665,33 +692,6 @@ Al Bano & Romina Power - Migliori Canzoni (2019) [MP3|320 Kbps] <Italo Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D648C83495A20D313E60AD75191FDFA0D320C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300625   (587952) от 08.05.2019
-
-Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Rising
-02. Jawbreaker
-03. Love Zone
-04. Leather Rebel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE3372A8C36E97233879ABEF9E7F6CBD0D699263
 ```
 
 

@@ -1,3 +1,85 @@
+###  Публикация: 436333   (981266) от 14.01.2012
+
+IU - Good Day (2010) HDTVRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Клип на композицию Good Day был выпущен в самом конце 2010 года. И песня тут же прочно засела на первых позициях музыкальных чартов Корейской попсы!
+Сладкое конфетное видео в зимнюю пору сейчас столь же актуально. Если вам понравились другие работы певицы, то это видео вас не должно разочаровать.Жанр: МузыкаРежиссер: N/AПеревод: ОтсутствуетПродолжительность: 00:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64EC3905C7E6A877E2546892BD682C5FE02A5B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613426   (981297) от 05.02.2013
+
+Shakira ft. Pitbull - Rabiosa (2011) [1080i] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8336C235BB66D421489CBD1E7DF463A872F79CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614433   (981328) от 05.02.2013
+
+Bob Marley And The Wailers - Live at The Rainbow (1977 (Video 1991)) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный концерт великого Боба Марли в Лондоне.01. Trenchtown Rock
+02. Them Belly Full
+03. I Shot The Sheriff
+04. Rebel Music
+05. Lively Up Yourself
+06. Crazy Baldhead
+07. War
+08. No More Trouble
+09. The Heathen
+10. No Woman No Cry(   Читать дальше...   )Жанр: Концерт, ReggaeПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD6FF26D613E477895FE6345B60CFEE6EB4DEB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613728   (981335) от 05.02.2013
 
 Концерт Примадонн VH1 / VH1 Divas Live (2009) HDTVRip
@@ -628,83 +710,6 @@ John Fogerty- Comin down The Road The Concert At Royal Albert Hall (2009) DVD-9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83F21B5B1E1AD92B5F387FEA3AAABC27F7B0AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355337   (983439) от 26.01.2020
-
-Pet Shop Boys - 3 Music Videos (2012-2020) WEB-DL [H.264/720p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983439.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 Pet Shop Boys - Leaving (Promotional Video)
-2020 Pet Shop Boys - Monkey business (Official video)
-2020 Pet Shop Boys (feat. Years & Years) - Dreamland (Official lyric video)Жанр: Synthpop, Dance-PopПродолжительность: 00:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF33B513B67039B76F766F99CC9E630CC97647DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354626   (983443) от 26.01.2020
-
-In This Moments - 17 Music Videos (2007-2020) WEB-DL [H.264/1080p/720p/480p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983443.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 In This Moment - Beautiful Tragedy (Official Video)
-2007 In This Moment - Prayers (Official Video)
-2008 In This Moment - Forever (Official Video)
-2009 In This Moment - Call Me (Official Video)(   Читать дальше...   )Производство: Atlantic RecordsЖанр: MetalcoreПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04FC5DBB42616289FDE5C7C4E0B508C4A52045E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612580   (983877) от 03.02.2013
-
-DJ Smash & Семён Слепаков/Откат (2013).HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE78A467A99BFE5B90341158B8335E76EFB4411
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1457548   (1024416) от 26.03.2021
+
+Mother Road - II (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fools Gold
+02. Sticks And Stones
+03. Spread It All Around
+04. Matter Of Time(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7155DE43DC625017BDA8BDFF38349B4F09B36DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457380   (1024420) от 26.03.2021
+
+Adrian Smith, Ritchie Kotzen - Smith-Kotzen (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taking My Chances
+02. Running
+03. Scars
+04. Some People(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498CEDC9A4A26D8F089C919B84D4304E6C58D2DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457532   (1024421) от 26.03.2021
 
 Distemper - Чистые души (2021) [MP3|320 Kbps] <Ska Punk, Rock>
@@ -644,60 +698,6 @@ Zarpa - Imperia (2021) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EAF5D93A19680DB8BCE6D77241F6E7ACBB4875F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456793   (1024890) от 23.03.2021
-
-Suzi Quatro - The Devil in Me (2021) Japanese Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil In Me
-02. Hey Queenie
-03. Betty Who? (feat. Cherie Currie)
-04. You Can't Dream It(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2563971CEC8A33080034010792B04F5E3869D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456789   (1024913) от 23.03.2021
-
-Metalite - A Virtual World (2021) Japan Edition [MP3|320 Kbps] <Melodic Modern Metal. Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 A Virtual World [00:03:58]
-02 Cloud Connected [00:03:48]
-03 Talisman [00:04:57]
-04 Beyond the Horizon [00:04:54](   Читать дальше...   )Жанр: Melodic Modern Metal. Female VocalПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4066A6F87517850D766A3FD39A2F910B7D7FE46
 ```
 
 

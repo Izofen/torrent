@@ -1,3 +1,30 @@
+###  Публикация: 1006909   (825476) от 13.04.2016
+
+VA - Popular Dance Boy And Girl (2016) [MP3|64-320 кб/с] <Pop, Dance, Eurodance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ro-MINA & Christiano Jordano - Insane (Dave Aude Remix)
+002. Coldplay - Adventure Of A Lifetime (Audien Extended Remix)
+003. Acim - All My Life (Original Mix)
+004. Lenny Kravitz & Merk & Kremont - Are You Gonna Go My Way(   Читать дальше...   )Жанр: Pop, Dance, Eurodance, HouseПродолжительность: 08:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF3D905F5C759887389763F0724AC16A46F8F56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006904   (825481) от 13.04.2016
 
 VA - Junodownload DJs Most Charted March (2016) [MP3|320 кб/с] <Deep House, Nu-Disco, Club House, Tech House, Techno>
@@ -665,33 +692,6 @@ VA - Ресторан Кураж на радио Шансон. Выпуск №8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E53FE8F86B6A1458D43C9BE3F3E443799C6891B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115489   (826655) от 18.03.2017
-
-VA - Touch You Dream: Relax Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Above & Beyond - No One On Earth
-002. Lamar Ensemble - Zero Hour
-003. VEKY - Here Without You
-004. Aqua Mundi - Mezcal Shadows(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8E45B45C6345160EF892E14D58A3913D2D8B12
 ```
 
 

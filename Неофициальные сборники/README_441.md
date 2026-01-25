@@ -1,3 +1,30 @@
+###  Публикация: 1026738   (702513) от 16.06.2016
+
+VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mari Ferrari - Hello, Hello (Extended Mix) 4:00
+02. Oxidyon - I Want to Say (Radio Edit) 3:36
+03. Martin Garrix Vs Matisse & Sadko - Break Through the Silence (Original Mix) 4:43
+04. Pulsedriver - I Want Your Soul (Club Mix) 4:33(   Читать дальше...   )Жанр: House, Future House, BigroomПродолжительность: 04:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF9A0F234190462331A50AFA4CAB38AA851E64F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 793589   (702564) от 06.06.2014
 
 VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
@@ -670,33 +697,6 @@ VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026266   (703958) от 15.06.2016
-
-VA - Instrumental Chill Sound (2016) [MP3|320 кб/с] <Instrumental, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Javier Fioramonti - Aire De Zamba
-02. Polyopia - In My Mind - Beach Bar Instrumental
-03. Toni Verde - Heroes of Galaxy - Main Theme
-04. David Garcia - Tu Me Sientas Bien - Florito Remix(   Читать дальше...   )Жанр: Instrumental, Downtempo, ChilloutПродолжительность: 06:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3559FE6051B390BBDACB9C05F5AC69FB016F5A0E
 ```
 
 

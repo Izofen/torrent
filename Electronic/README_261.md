@@ -1,3 +1,84 @@
+###  Публикация: 1242897   (496106) от 25.08.2018
+
+VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonic Dreams - Blanche (Coco's Deep Mix)
+02. Mischa Miller - Black & White (Original Mix)
+03. Liam Day - Walk On The Beach (Mark's Deep Mix)
+04. Mandrágora - Playing With Fun (Sunset Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2B9B50E1375CE28E388BEEDC1F85934497A694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242988   (496108) от 25.08.2018
+
+VA - Waehlscheibe Compilation X (2018) Waehlscheibe [FLAC|Lossless|tracks|Vinyl] <Dub Techno, House, Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novio Dub Tribe - Faraday Uncaged (07:14)
+ 02. Patrizio Gabrielli - Beyond The Bassline (06:32)
+ 03. Mend - Diary (07:23)
+ 04. Anton Kubikov - Inner Flashing (08:22)(   Читать дальше...   )Жанр: Dub Techno, House, Techno, Deep HouseПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA6E616CBF7D521839AF96FFB11D605EAB1E9C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243022   (496114) от 25.08.2018
+
+VA - Progressive Cuts (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inkfish - Size One (Indepth Remix) 7:39
+02. Nicholas Bennison - Alter Rain (Original Mix) 8:01
+03. Ctrl Shift Defeat - Eternal Paradox (Original Mix) 7:36
+04. Igor Zaharov - Schatten (Original Mix) 7:14(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD899C27488861EF3D3A723AADDE170BA1F2DE3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243015   (496203) от 25.08.2018
 
 VA - Progressive Daylight (2018) [MP3|320 Kbps] <House, Progressive House>
@@ -638,93 +719,6 @@ Sexy Chillout Music Cafe, Chillout Music Ensemble - Sexy Exotic Music (2019) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EE5B2585A2D2501897023421A39188E4C7FD022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317546   (500416) от 01.08.2019
-
-VA - Summertour (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mm&t - Sunshine House (Club Mix) 4:59
-02. Nick Solid & Jake - Versace Girl (Paul Vain Future House Mix) 4:55
-03. Vegas House feat. Keisha - All About (Club House Remix) 3:32
-04. Ibiza Ltd. feat. Ronnie Sherman - Show Me Love (House Mix) 6:37(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC943E4089A694A25AFE25E3C3D2BA2357681B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541906   (500523) от 01.09.2012
-
-VA - Erotic Summer Chill House Vol. 2 (2012) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrojas - Perceiving the World Around
-02. Don Gorda Project - Count the Clouds
-03. Enrico Donner - Catch a Glimpse
-04. Diario - A Tear and a Smile
-05. Kusuma Orchestra - Can of Worms
-06. The Sura Quintet - Hermosa
-07. Cesar Martinez Ensemble - Everynight
-08. Solanos - Funkadocious
-09. Shivana faction - Future Dance
-10. Melting Plastic - Jocking(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3869387C770C56916E1028C12F69834ED74AD2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934873   (500542) от 07.09.2015
-
-VA - Summer Gold Chill Out (Relaxing Music For A Wonderful Dawn On The Beach) (2015) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davide Tognini - Indians Chimes (03:12)
-02. Renato Pezzano - Enjoy the Pain (03:55)
-03. Fabrizio Marioni - Mari incantati (03:22)
-04. Gysnoize - I Need You (04:19)(   Читать дальше...   )Производство: Lounge Music CocktailЖанр: Downtempo, Lounge, Chill OutПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAA16838AC9964F36265782B8292E766BF46E09
 ```
 
 

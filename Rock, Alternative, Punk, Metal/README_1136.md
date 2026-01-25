@@ -1,3 +1,57 @@
+###  Публикация: 991973   (902038) от 01.03.2016
+
+Pink Floyd - Delicate Sound Of Thunder (1988) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pink Floyd - One of These Days (6:16)
+02. Time (5:16)
+03. Wish You Were Here (4:49)
+04. Us and Them (7:22)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892407FD3EDCEA8BA6BC1853E1F4F58EDDAD3F05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369472   (902108) от 24.03.2020
+
+Killswitch Engage - Killswitch Engage (2000) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple From The Within (3:46)
+02. Vide Infra (3:34)
+03. Irreversal (4:17)
+04. Rusted Embrace (4:25)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B735395241BE305D072782A8FDCB895FB6635E3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369461   (902110) от 24.03.2020
 
 Arctic Rain - Point of no return / Точка невозврата (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
@@ -644,60 +698,6 @@ Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099744   (903592) от 02.02.2017
-
-Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Home (4:57)
-02. Ruined By Them (4:23)
-03. Blue Bird (4:42)
-04. All I Am (4:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41768A801743AF770407187FB1516F0A88D496E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099643   (903685) от 02.02.2017
-
-Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Power, Neoclassical, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Earth Dies Screaming 01:11
-02. Angel Of Chaos 05:08
-03. Lost In The Dark 05:18
-04. Right Here, Right Now 04:39(   Читать дальше...   )Жанр: Power, Neoclassical, Heavy MetalПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4861A20DBD76A8082055AA7D1A6B9B5F4C6835DB
 ```
 
 

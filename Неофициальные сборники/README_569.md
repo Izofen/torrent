@@ -1,3 +1,30 @@
+###  Публикация: 1109190   (857349) от 28.02.2017
+
+VA - Deep House Collection Vol.110 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abbi - The Things We Had (Original Mix) 3:43
+002. Aberton - Pictures In My Mind (Original Mix) 4:55
+003. Abriviatura IV - Live Me (Original Mix) 5:34
+004. Alesso - Falling (Lisitsyn Remix) 4:16(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB5828CADF278520B7FED3CF1906B25FA9E9B2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000809   (857358) от 26.03.2016
 
 VA - Club Dance Hits DFM (2016) [MP3|320 кб/с] <Dance, Club>
@@ -663,30 +690,6 @@ VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88077E53657D22850FDE326FACCF2442241E2125
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109415   (858896) от 27.02.2017
-
-Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farewell SongЖанр: Blues, Blues RockПродолжительность: 02:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A932503CC3AC26CC11420C662E7FA2896CC5AD7
 ```
 
 

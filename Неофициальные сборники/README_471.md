@@ -1,3 +1,30 @@
+###  Публикация: 1021113   (742188) от 28.05.2016
+
+VA - Позитивный заряд радио Шансон 2 (2016) [MP3|256 кб/с] <Chanson, Pop>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Новиков - Виолетта
+002. Сергей Тимофеев - Медсестричка
+003. Александр Удача - 18 Лет
+004. Сборная Союза - В Архаре(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 06:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A0A3D9B14AB26D132184830121B2BF8FD349CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021043   (742195) от 28.05.2016
 
 VA - Come Down: Relaxing Lounge (2016) [MP3|320 кб/с] <Relaxing, Lounge, Chillout, Instrumental>
@@ -670,33 +697,6 @@ VA - Deep Inspirational Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A09690B5EFEFE26FD8946F70F7B6A5A70E2A55F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020575   (743570) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amadeus Liszt - Win The Race ( 1987 )
-02. C. C. Catch - I Can Lose My Heart Tonight ( 1986 )
-03. Dr. Alban - Groove Machine II ( 1990 )
-04. Ken Laszlo - Tonight ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEB94CCB75DE5737647CC1E13B327083A19E2AC
 ```
 
 

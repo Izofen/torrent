@@ -1,3 +1,30 @@
+###  Публикация: 905065   (651347) от 05.06.2015
+
+VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adamwah - Departure (Original Mix)
+2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
+3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
+4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031533   (651361) от 04.07.2016
 
 Ronnie James Dio - We Rock (2016) (Compilation) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
@@ -695,33 +722,6 @@ VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031548   (651805) от 04.07.2016
-
-VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иванов Александр - Боже, Какой Пустяк ( 1994 )
-02. Дуэт - Домик У Моря ( 1989 )
-03. Земфира - Непошлое ( 1998 )
-04. Кузнецов Алексей - Обманщица ( 1996 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA66F76E8D25E3E757B8044335DCAD881F4A061
 ```
 
 

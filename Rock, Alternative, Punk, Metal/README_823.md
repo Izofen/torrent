@@ -1,3 +1,57 @@
+###  Публикация: 1304055   (567448) от 24.05.2019
+
+Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smashed Into Pieces (3:40)
+02. Smile In Your Sleep (3:16)
+03. American Dream (3:10)
+04. Bleeds No More (3:16)(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304138   (567451) от 24.05.2019
+
+Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grudge 04:41
+02. Lay Down And Love Me 04:29
+03. Whose Heart Here Is Breaking 04:11
+04. Coming Home 04:05(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADC0A9F87E3F1221FF85E32B55ECED88ACE0C87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044241   (567456) от 19.08.2016
 
 Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Blues Rock>
@@ -641,60 +695,6 @@ High on Fire - Luminiferous (2015) [FLAC|tracks+.cue]<Stoner Metal/Sludge Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0E55D5C20480C09BDA5D26539472B8639142F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922760   (568215) от 29.07.2015
-
-Big Talk - Straight In No Kissin’ (2015) [OGG| 492-540 кб/с]<Alternative, Indie Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold That Line
-02. Animal Husband
-03. What Happened To Delisa?
-04. La Rue D’Awakening(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77BAEEEFAA2E08A6518955C0A94CFDC0855B366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922205   (568225) от 29.07.2015
-
-Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got A Right (3:10)
-02.  Some Weird Sin (3:36)
-03.  Real Wild Child (3:13)
-04.  Five Foot One (4:07)(   Читать дальше...   )Жанр: Punk, Garage RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
 ```
 
 

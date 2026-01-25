@@ -1,3 +1,30 @@
+###  Публикация: 1119020   (809465) от 27.03.2017
+
+VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. София Куценко - Луна 3:34
+002. Виталий Козловский - Мое Желание 3:31
+003. Зара - Забыть О Тебе 3:32
+004. Bubble Gum - Вытворяют Чудеса 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504187   (809480) от 24.10.2021
 
 VA - Beatport Synth Electronic: Sound Pack #358 (2021) [MP3|320 Kbps] <Synthwave, Synthpop, Electronic>
@@ -668,33 +695,6 @@ VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009547   (810173) от 21.04.2016
-
-VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2nd Phase - Short Circuit (Original Mix) 07:23
-002. Above & Beyond - A.I. (OM) 06:29
-003. Airbase - Lachrymose (Original Mix) 06:59
-004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
 ```
 
 

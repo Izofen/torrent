@@ -1,3 +1,60 @@
+###  Публикация: 1484385   (1006165) от 19.07.2021
+
+Rhabstallion - Back In The Saddle (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересная реинкарнация. Начинали в 80-х, выступали с Саксонцами, Алмазоголовыми и проч. Записали в 81-ом сингл на виниле и распались. Собственно это, их первый альбом, не считая издания демок в 1994-ом.
+Andy Wood - Guitars, Vocals
+David Thompson - Guitars
+Stuart Toddington - Guitars(   Читать дальше...   )01. Never Say Never
+02. Driving Seat
+03. Working Nights
+04. Nowhere Left To Fall(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B0B15C99F08497D6E1F856EE4EF6A8A96286BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484386   (1006168) от 19.07.2021
+
+Gravestone - ARS Arcana (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lumen et Umbra
+02. Santa Militia
+03. Terra
+04. Ignis(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F51D3D7530766FA1E6C94391E977784D4ABC0E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484382   (1006170) от 19.07.2021
 
 Vandor - On A Moonlit Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
@@ -642,60 +699,6 @@ Powerwolf - Call Of The Wild (2021) 3xCD [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36B3A8CDEBAEF5C9759811E016E7200FE9397A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483702   (1006663) от 15.07.2021
-
-Tom Petty and the Heartbreakers - Angel Dream (2021) Songs and Music From The Motion Picture "She’s The One" [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия, посвященная 25-ой годовщине выхода альбома-саундтрека к фильму "She's the One" 1996 года.1. Angel Dream (No.2)
-2. Grew Up Fast
-3. Change The Locks (Lucinda Williams cover)
-4. Zero From Outer Space(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0D2F367C9827DD39BAAF5AD023C79DD6141AF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483696   (1006672) от 15.07.2021
-
-Appice - Sinister (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinister
-02. Monsters And Heroes
-03. Killing Floor
-04. Danger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7A259A2C9427B6E680908FBF6A940C9EE1D5D6
 ```
 
 

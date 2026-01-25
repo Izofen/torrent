@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820894   (46) от 29.09.2025
 
 Немного кунг-фу / Yi zhao ban shi chuang jiang hu / Half a Loaf of Kung Fu (1978) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]

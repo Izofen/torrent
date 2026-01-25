@@ -1,3 +1,57 @@
+###  Публикация: 1201747   (791566) от 26.01.2018
+
+Ладушка - Солнцеворот (2018) [MP3|320 Kbps] <Folk Metal, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Масленица
+02. Горсти серебра
+03. Усладов пир
+04. Русалья ночь(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F8DFD0B9A14A9E68D658E30EB5F2063DD0FDD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274947   (791607) от 09.01.2019
+
+Roger Waters - Greatest Hits (2018) 2CD [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4.41 AM (Sexual Revolution)
+02. 4.50 AM (Go Fishing)
+03. 5.01 AM (The Pros And Cons Of Hitch Hiking Part 10)
+04. Radio Waves(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 02:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1088AD635816EEBC118F769028FB38247CC7C070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201773   (791626) от 26.01.2018
 
 Sniff'n'the Tears - Random Elements (2017) [FLAC|Lossless|image + .cue]<Pop-Rock & Soft Rock>
@@ -641,60 +695,6 @@ Dennis DeYoung (ex-Styx) - 26 East: vol.2 (2021) Japanese Edition [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6183A2ABFA5C9892EB07247380188EB5E391CCB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510210   (792143) от 15.11.2021
-
-Atomic Love Reactor - The Arrival (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Of Life 03:23
-02. Atomic Love Reactor 04:00
-03. Everything Is Dead 03:28
-04. Mr. Hyde 04:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B7052B2D6889B8EA3EB0C001955E239A3075B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510103   (792149) от 15.11.2021
-
-Atomic Love Reactor - Creation of a Masterpeace (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyranny of the King
-02. Cool Down
-03. Water in the Sky
-04. Universal Peace(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB201576E445F65F33ED6C9E4A5DCC299F629920
 ```
 
 

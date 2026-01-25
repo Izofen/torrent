@@ -1,3 +1,57 @@
+###  Публикация: 1562750   (507132) от 11.07.2022
+
+CAKE - Fashion Nugget (1996) Deluxe Edition, 2022 [FLAC 2.0|44/24|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Sinatra (4:00)
+02. The Distance (3:01)
+03. Friend Is a Four Letter Word (3:22)
+04. Open Book (3:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44295A90246885249C3CDC0649ED0D54AB596F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562739   (507134) от 11.07.2022
+
+Edguy - Mandrake (2001) AFM Records, 2022, Anniversary Edition, Remastered [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Speed Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears of a Mandrake (Remastered 2021) (7:14)
+02. Golden Dawn (Remastered 2021) (6:09)
+03. Jerusalem (Remastered 2021) (5:29)
+04. All the Clowns (Remastered 2021) (4:49)(   Читать дальше...   )Жанр: Power Metal, Speed Metal, Symphonic MetalПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772AB42413BBDC9279D9FDC1569E4CE348B68490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562608   (507222) от 11.07.2022
 
 Виагра Boys - Cave World (2022) [MP3|320 Kbps] <Post-Punk, Art Punk>
@@ -649,71 +703,6 @@ CD 1 (Finnish Version):
 06. Synkka (5:26)
 07. Ievan Polkka (3:08)
 08. Husky-Sledge (1:49)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231915   (507504) от 02.09.2010
-
-Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Who Have Nothing (3:11)
-02. Lookin' For Tomorrow (4:32)
-03. Hard To Handel (3:46)
-04. Reflection (3:54)
-05. Warm Touch (3:34)
-06. Shelter Of Your Arms (4:03)
-07. Set Me Free (4:54)
-08. It's A Mans World (5:12)
-09. Let Me Do (4:29)Жанр: Psychedelic Hard RockПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539392   (507591) от 25.08.2012
-
-Dark Princess - The World I've Lost (2012) [FLAC|Lossless]<Gothic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fight With Myself
-2. We Can Not Fly So High
-3. Fields Of Youth
-4. The Key
-5. Everlasting Pain
-6. Paradise Land
-7. Point Of No Return
-8. The Temple Of Darkness
-9. The Last Page
-10. The Way Of PassionЖанр: Gothic Metal, Female VocalПродолжительность: 00:41:30
 
 ## Скачать торент
 ```bash

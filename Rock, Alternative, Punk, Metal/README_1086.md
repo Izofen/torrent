@@ -1,3 +1,57 @@
+###  Публикация: 1003971   (841705) от 04.04.2016
+
+Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Res Er Mina Söner
+2. Eldhjärta
+3. Nordmännens Raseri
+4. Enhärjarkväde(   Читать дальше...   )Жанр: Folk Metal, Viking MetalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3BFF75F6B480F7E2118422CC23EAFF547F01C2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112486   (841731) от 09.03.2017
+
+Trinacria - Travel Now Journey Infinitely (2008) [FLAC|Lossless|image + .cue] <Experimental Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn-Away 09:14
+02. The Silence 07:40
+03. Make No Mistake 06:20
+04. Endless Roads 10:00(   Читать дальше...   )Жанр: Experimental Black MetalПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C8F04DC248EC5AD0D623239DF6ACFCF76E5869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112521   (841734) от 09.03.2017
 
 Unlight - Death Consecrates with Blood (2009) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -626,63 +680,6 @@ magnet:?xt=urn:btih:A0579DA936257FA1C59640F4A8401C532201E74F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DA108A85AAC063489012ECB6D8F9C20DC636E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500173   (842716) от 05.10.2021
-
-Crystal Viper - Tales Of Fire And Ice (2019) Japanese Edition, 2020, Rubicon [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз cедьмого полноформатника вокалистки Марты Габриэль и ее команды получил название “Tales Of Fire And Ice” и издан лейблом AFM на CD, лимитированном виниле и в цифровом виде осенью 2019 года. Альбом содержит бонус-трек – кавер-версию "Dream Warriors" DOKKEN, которая была изначально записана для фильма "Кошмар на улице Вязов 3".
-
-Credits:
-Bass (   Читать дальше...   )01. Prelude (1:31)
-02. Still Alive (3:42)
-03. Crystal Sphere (5:02)
-04. Bright Lights (3:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249A939BF14E16AE4F28660299D3479E4CA85049
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500050   (842717) от 05.10.2021
-
-Martin Hall - Stranger In The Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart & Soul (03:31)
-02. Don't Be A Fool Again (03:18)
-03. Angels Betrayed (03:29)
-04. Somewhere Tonight (04:31)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC733B746852B0EE1BF1A47D90B29F38D7EF1B4
 ```
 
 

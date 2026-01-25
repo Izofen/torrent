@@ -1,3 +1,57 @@
+###  Публикация: 1613764   (1039097) от 20.02.2023
+
+Прохор и Пузо - 5 Albums (2008-2020) [MP3|320 Kbps] <Experimental, Industrial Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2008 - Водка
+2010 - Алла
+2013 - Тлен(   Читать дальше...   )Жанр: Experimental, Industrial ChansonПродолжительность: 5 CD, 03:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75390456F82A5FE43A5CDE28D8A1C7E01A713BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613923   (1039098) от 20.02.2023
+
+Borssch (Борщ) - 4 Albums (2021-2023) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - В глухие дни..
+2021 - Сегодня ночью будет день
+2022 - Запустение(   Читать дальше...   )Жанр: PunkПродолжительность: 4 CD, 02:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FADEAEF7B28BC6D35660BC0CAACDA986C317EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613951   (1039099) от 20.02.2023
 
 Steve Hughes - 3 Albums (2022-2023) [MP3|320 Kbps] <Neo Progressive Rock>
@@ -641,60 +695,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449533FA64BC75370039424B9C1089C0938CA851
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439987   (1039297) от 15.01.2021
-
-Humanity Gone - The Seven Deadly Sins (2021) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pride (07:30)
- 02. Wrath (05:57)
- 03. Gluttony (07:20)
- 04. Lust (07:50)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F3BBD26B4F710F19513007DBC375F5B2A332A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439944   (1039300) от 15.01.2021
-
-Ruins of Elysium - Amphitrite: Ancient Sanctuary in the Sea (2021) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexiel: An Epic Lovestory (08:24)
- 02. Queen of the Seven Seas (05:22)
- 03. Belladonna (05:10)
- 04. Leviathan (07:42)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7273B2498B45E707CB0524DC6F7586E304B1940
 ```
 
 

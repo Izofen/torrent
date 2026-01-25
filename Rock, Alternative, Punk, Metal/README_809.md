@@ -1,3 +1,57 @@
+###  Публикация: 1237338   (552357) от 23.07.2018
+
+Bring Me The Horizon - 2004-2013 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traitors Never Play Hangman (3:37)
+ 02. Pray For Plagues (4:22)
+ 03. Diamond Aren't Forever (3:48)
+ 04. The Sadness Will Never End (Feat. Sam Carter) (5:22)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1094B05668DBF6A6D72D9C4E2B5699690E2E3E8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692031   (552366) от 23.08.2013
+
+The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin'
+02. Go Where You Wanna Go
+03. Monday, Monday
+04. I Call Your Name(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3392D108805F6822C19BE02F7202620D99C508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237229   (552460) от 23.07.2018
 
 Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, Blues>
@@ -640,60 +694,6 @@ Reptaliens - Valis (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Lo-Fi>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6FDE0032ECCA1BE6FF3408878DACE4D3248FDEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308457   (553910) от 14.06.2019
-
-ZZ Top - Goin' 50 (2019) Compilation, RM. [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Grange (2019 Remaster) (3:53)
- 02. Sharp Dressed Man (2019 Remaster) (4:13)
- 03. Gimme All Your Lovin' (2019 Remaster) (4:00)
- 04. Tush (2019 Remaster) (2:17)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Southern RockПродолжительность: 03:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF40346A6C4FAFAF5DF5D16FD8A28192DF8F3469
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308397   (553926) от 14.06.2019
-
-Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitch Hikin' (03:37)
-02. The Wayfarer (04:18)
-03. Tucson Train (03:31)
-04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B777E99099BE1365CBC01227A9425F399CCE009
 ```
 
 

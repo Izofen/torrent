@@ -1,3 +1,84 @@
+###  Публикация: 1109944   (855680) от 01.03.2017
+
+VA - Ibiza Beach House Club Royale (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mojety - First Nations [00:06:22]
+02. Tony Mirianda - Mbira [00:04:57]
+03. Punch and Glue - Scoop [00:04:32]
+04. Belize - Caribbean Cocktail [00:05:22](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560E4E26A8612585591B2A3FF3321AECCA4029BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110016   (855685) от 01.03.2017
+
+VA - Ibiza Local The Winter Lounge Compilation 2017  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillelektro - Kap Arkona [00:05:52]
+02. Acoustic Novels - Everybody's Got To Learn Sometime [00:03:53]
+03. Crypton - Outside Solar [00:08:57]
+04. LuzeCor - You [00:05:14](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB273D397CD014787EFDAF15AE09B26CB8C6F411
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110184   (855753) от 01.03.2017
+
+VA - Is This Lounge Enough (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Don Gorda Project - Symbolic Interaction [00:06:24]
+02. Enrico Donner - Lasting Memories [00:05:57]
+03. Baghira - Synapses [00:05:55]
+04. Cane Garden Quartet - Arotisme [00:05:36](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9BC72F8BD3FBA17AFD94F279691FD7974D9591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110171   (855755) от 01.03.2017
 
 VA - Metropolitan Lounge Selection London (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -610,87 +691,6 @@ VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109645   (857447) от 28.02.2017
-
-VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Elements - Young Rebel (Sunrise Mix) [00:03:33]
-02. Soul Frequency - On The Job (Vocal Mix) [00:03:33]
-03. Gt 55 - Red Color (Gray Clouds Mix) [00:03:12]
-04. Moon System - Make The Pitch [00:03:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56DB225075DF7DDA6CDCBD3E3320CFC13FE3EEF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109554   (857449) от 28.02.2017
-
-VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857449.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mighty Real - Little by Little 5:59
-002. Performative Mode - Pixelated 6:46
-003. Circuito Zeta - Step Down 7:18
-004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109587   (857451) от 28.02.2017
-
-VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito - Shirabyoshi Love  4:22
-02.  Dembora - Sunderland  3:01
-03.  Chin Chiller - Moussique Au Chocolat (feat. Conny)  4:27
-04.  Roberto Sol - My Soul  4:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
 ```
 
 

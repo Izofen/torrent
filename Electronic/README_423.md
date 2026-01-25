@@ -1,3 +1,84 @@
+###  Публикация: 1199325   (800411) от 17.01.2018
+
+VA - Hed Kandi - Twisted Disco (2007) [FLAC|Lossless|tracks] <House, Disco, Hard House, Deep House, Progressive House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mason Vs Princess Superstar - Perfect (Exceeder) (Martijn Ten Velden Vocal Remix)
+02.Spektrum - Kinda New (Dirty South Remix)
+03.Sharam - PATT (Party All The Time) (Dennis Christopher Dirty Edit)
+04.Camille Jones - The Creeps (Fedde Le Grand Remix)(   Читать дальше...   )Жанр: House, Disco, Hard House, Deep House, Progressive House, ElectroПродолжительность: 02:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31989CD21EAD0FD2A7D720F6C3D922D8D320F6AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199186   (800413) от 17.01.2018
+
+VA - Hed Kandi - Beach House (2009) [FLAC|Lossless|tracks] <House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Marcella Feat. I-Fan - Believe In Us (Robbie Taylor Classic Vocal Mix)
+02.Torvill & Deen Feat. Tyree Cooper - Keep It Poppin' (The SoundDiggers Raunchy Re-Rub)
+03.Wez Clarke & Maxine Hardcastle - Bringing Me Back
+04.Daniel Bovie & Roy Rox Feat. Nelson - Love Me(   Читать дальше...   )Жанр: House, Deep House, DiscoПродолжительность: 02:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08A397D29FFA540682C368E5F420BA0C5894F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199361   (800415) от 17.01.2018
+
+VA - Hed Kandi - The Mix: Summer (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basement Jaxx - Raindrops
+  02. Freemasons Feat. Sophie Ellis-Bextor - Heartbreak (Make Me A Dancer)
+  03. Booty Luv - Say It (Warren Clarke Vocal Mix)
+  04. Chicane - Poppiholla(   Читать дальше...   )Жанр: Progressive House, House, Electro, Deep House, DiscoПродолжительность: 03:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11742E6A185B59CD3828D906495381D13B3967B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199735   (800417) от 17.01.2018
 
 VA - Electronic Bliss (25 Beautiful Relaxed Anthems) Vol.4 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -612,87 +693,6 @@ magnet:?xt=urn:btih:D5CA1896F2966E343DA577CA4C27186BFA257928
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CDD89AEC831A7F0C19F18F86788605D8506BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199606   (801137) от 16.01.2018
-
-VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Vintage & Morelli - While The Earth Sleeps (Extended Mix)
-02.Mango - Here We Go (Original Mix)
-03.Johan Vilborg - Seashells (Original Mix)
-04.The Midnight - Memories (Sundriver Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:352DBC1A9C7D62285041E0E703792C87AD28E9A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199506   (801139) от 16.01.2018
-
-Atragun - Younity (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Atragun - The Long Journey (Original Mix)
-02.Atragun -  Sunrise Boulevard (Original Mix)
-03.Atragun -  Haven (Original Mix)
-04.Atragun & Tom Bro -  Lost In Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6ED602BEEF930771F90DE25C45D0B0D6448F5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199517   (801143) от 16.01.2018
-
-VA - Embedded Audio EA presents: Best Of 2017 (Mixed by Sebastian Montano) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nygma - See The Sea (Remaster) (Seif & Paula Remix)
-02. DJ Geri - All The Way (Original Mix)
-03. Highforcer - Dark Knight (Jens Jakob Remix)
-04. Robert Reazon - My October (Sebastian Montano pres. Scherzo Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19C48D010C5BBD86841E56C1820B11560243DED
 ```
 
 

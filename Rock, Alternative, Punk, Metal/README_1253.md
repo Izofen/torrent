@@ -1,3 +1,57 @@
+###  Публикация: 1452127   (1027775) от 06.03.2021
+
+White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait (Extended Remix) (06:28)
+02. Tell Me (04:31)
+03. Broken Heart (Live) (03:53)
+04. Wait (Live) (04:00)Жанр: Hard RockПродолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147B49FAD49806405DD4966E55E1BC48DFDF99BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452144   (1027778) от 06.03.2021
+
+Texel - Metropolitan (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludo Mentis
+02. Metropolitan
+03. Syncopia
+04. Sweynssons Slumber(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Rock, InstrumentalПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69DAC4F953E6EDA00F79CEDB7EAD5648D79EE290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452522   (1027779) от 06.03.2021
 
 Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaze>
@@ -641,60 +695,6 @@ Tabasco Band - Песни свободного племени (2021) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580E9B0378787B56500458B59DFE10FB615193A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451538   (1028229) от 03.03.2021
-
-Ртуть79 - 2 Albums (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мотыльки [00:02:54]
-02. Пассажир [00:03:36]
-03. Последний герой [00:04:00]
-04. Ртуть [00:03:45](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455B6D2D8CC66E0869F13D3DCC8E3DA238674BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451779   (1028232) от 03.03.2021
-
-Long Distance Calling - How Do We Want To Live? (2020) [FLAC|Lossless|tracks + .cue] <Post-Rock, Math Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Curiosity, Pt. 1 (2:56)
-02. Curiosity, Pt. 2 (4:26)
-03. Hazard (6:09)
-04. Voices (7:54)(   Читать дальше...   )Жанр: Post-Rock, Math RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A3E17CA21C78BEF5B322AD8683F368FEDB55C1
 ```
 
 

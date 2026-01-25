@@ -1,3 +1,30 @@
+###  Публикация: 1443369   (1035753) от 28.01.2021
+
+VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный сборник лучшей музыки линейки BassLine зимнего сезона от Beatport. В подборку вошли сто десять потрясающих композиций, каждая из которых выполнена в своем уникальном звучании, отличном от общей массы музыкальных треков жанра. Более восьми часов молодежной музыки, которая явно сможет поднять вам настроение, даже в самый унылый день.001. Mikal - Scrapyard Dub
+002. Gevolgen - Tortilla Moon
+003. DJ Jann - Lightworks
+004. Hadiex - Lonely(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844358A00CCFB82609E04600864132F3162096EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443378   (1035763) от 28.01.2021
 
 VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Min
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B30F62BE2B98CE75DA44F6B3A7219D1F70F0A734
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442075   (1036956) от 24.01.2021
-
-VA - Beatport Progressive Trance: Sound pack #224 (2021) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня нас порадует своей музыкой свежий 224-й транс сборник прогрессивной тематики от известного лейбла. Ритмичные и стремительные с перетекающими переходами композиции олицетворяют современный мегаполис как мифическую одушевлённую сущность с разнообразием его проявления к человеку.001. Armin Van Buuren - In And Out Of Love
-002. Sun - Mind Is The Limit
-003. Astrancer - Maelstrom Of Time
-004. The Infonaut - Neural Implant(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D02E78000EB93DF364E448EF4BB6FEFC97170F
 ```
 
 

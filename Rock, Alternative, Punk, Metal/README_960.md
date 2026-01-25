@@ -1,3 +1,57 @@
+###  Публикация: 1025313   (712129) от 11.06.2016
+
+Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative-Rock, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dull Times/The Moon (7:00)
+02. Solemn Oath (4:00)
+03. Hag (4:33)
+04. Casual Party (3:54)(   Читать дальше...   )Жанр: Alternative-Rock, Indie-RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B5275B158EB16ED686FE5DB1BBA7EF87329E21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025303   (712131) от 11.06.2016
+
+Thundercats - The Covenant (2016) [MP3|320 кб/с]<Progressive Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712131.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:26] 01. Open The Door
+[04:05] 02. GG WP
+[03:57] 03. Zombie Pigman From The Nether
+[02:53] 04. Watching Through The Mirror(   Читать дальше...   )Жанр: Progressive DeathcoreПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932ABE8FF17FD346986288BA831767C5735F2696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025051   (712207) от 11.06.2016
 
 Albany Down - The Outer Reach (2016) [MP3|320 кб/с] <Rock>
@@ -641,60 +695,6 @@ Tribal Ink - Surrounded By Freaks (2003) [FLAC|Lossless|tracks + .cue] <Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A38ADF9F251145B2C9AE248A95466A49E0EBC959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400980   (713140) от 08.08.2020
-
-Avatar - Hunter Gatherer (2020) [MP3|320 Kbps] <Modern Metal, Melodic Death Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence In The Age Of Apes
-02. Colossus
-03. A Secret Door
-04. God Of Sick Dreams(   Читать дальше...   )Жанр: Modern Metal, Melodic Death Metal, Nu MetalПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE2682811AB4C9A22584B041421F0AB20C1A7DD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286425   (713187) от 02.03.2019
-
-Marianas Trench - Phantoms (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eleonora (01:08)
-02. Only the Lonely Survive (03:43)
-03. Echoes of You (feat. Roger Joseph Manning Jr.) (05:18)
-04. Don’t Miss Me? (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C7239FDBE8954D2296D19665DCBAE4DAA32307
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 939085   (475799) от 21.09.2015
+
+Metal Allegiance - Metal Allegiance (2015) [FLAC|Lossless|WEB-DL]<Thrash / Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gift Of Pain (Feat. Randy Blythe, Alex Skolnick, David Ellefson, Mike Portnoy, Gary Holt)
+02. Let Darkness Fall (Feat. Troy Sanders, Alex Skolnick, David Ellefson, Mike Portnoy, Mark Menghi, Rex Brown, Randy Blythe)
+03. Dying Song (Feat. Phil Anselmo, Alex Skolnick, Mark Menghi, Mike Portnoy)
+04. Can’t Kill The Devil (Feat. Chuck Billy, Alex Skolnick, David Ellefson, (   Читать дальше...   )Жанр: Thrash / Heavy MetalПродолжительность: 01:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E84E9A492643B0905E169E2E17EF81C362AB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160478   (475862) от 24.08.2017
+
+Blue Stahli - Antisleep Vol. 04 (2017) [MP3|320 Kbps] <Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Neon
+02. Headshot
+03. Secret Agent Business
+04. Red Carpet Rush(   Читать дальше...   )Жанр: Industrial RockПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C81CB47D9266E74AD6C0C8F5320AE4A136680E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547100   (475893) от 14.09.2012
 
 Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
@@ -658,60 +712,6 @@ HammerFall - Dominion (2019) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B624B867625CD3CBC483AFFBE9BAAC37253FD1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057032   (477384) от 27.09.2016
-
-Opeth - Sorceress (2016) [MP3|320 Kbps] 2CD <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477384.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Persephone
-02. Sorceress
-03. The Wilde Flowers(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E379C8B0CF653178CB6042C21F96B0B7E35816FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406304   (477480) от 02.09.2020
-
-Tanna - Storm in Paradise (2020) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477480.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Storm in Paradise [5:38]
-2. Silhouettes [4:26]
-3. Run Like Hell Tonight [5:03]
-4. Like Kim Kardashian [4:04](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D0327CE0B2E2D3E5D38D15389ACB1CA063F6C3
 ```
 
 

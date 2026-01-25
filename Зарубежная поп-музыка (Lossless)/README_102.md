@@ -160,7 +160,7 @@ magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846452   (1051515) от 
+###  Публикация: 1846452   (1051515) от 08.01.2026
 
 Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft rock>
 
@@ -187,7 +187,7 @@ magnet:?xt=urn:btih:72DC63C2432B8962EB1A4D6D7B6B0AB5549A9CE4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846477   (1051517) от 
+###  Публикация: 1846477   (1051517) от 08.01.2026
 
 VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
 
@@ -214,7 +214,7 @@ magnet:?xt=urn:btih:1B73DD12AC1169FE10C5C8255A85A66772270E7C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847813   (1052293) от 
+###  Публикация: 1847813   (1052293) от 14.01.2026
 
 Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 
@@ -236,6 +236,222 @@ Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848796   (1053084) от 18.01.2026
+
+VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
+02. Company B - Fascinated (Re-Recorded) (4:43)
+03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
+04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848799   (1053096) от 18.01.2026
+
+VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (3:06)
+02. Ed Sheeran - Sapphire (2:59)
+03. ROSÉ - APT. (2:49)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848975   (1053182) от 20.01.2026
+
+Christina Aguilera - Stripped (2002) [FLAC|Lossless|image + .cue] <Pop, Soul, R'n'B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stripped - четвёртый студийный альбом американской певицы Christinы Aguilerы, вышедший 22 октября 2002 года лейблом RCA Records. Стремясь отойти от подросткового поп-стиля своего дебютного альбома (1999), Aguilera взяла на себя полный творческий контроль над Stripped, как в музыкальном, так и в лирическом плане, она также создала свой новый публичный имидж. В музыкальном (   Читать дальше...   )01. Stripped (intro) (1:39)
+02. feat. Lil’ Kim - Can’t Hold Us Down (4:15)
+03. Walk Away (5:47)
+04. Fighter (4:05)(   Читать дальше...   )Жанр: Pop, Soul, R'n'BПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23B6E37434FB2524A906626A9D69CDD37AFBBB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849194   (1053220) от 21.01.2026
+
+VA - Summer Hits of the 70's (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seals and Crofts - Summer Breeze (3:26)
+02. Rod Stewart - Da Ya Think I'm Sexy (5:31)
+03. The Doobie Brothers - What a Fool Believes (3:40)
+04. Frankie Valli & The Four Seasons - Who Loves You (4:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365E31416428424B17A4BD0FFA7395ADE54698DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848946   (1053356) от 20.01.2026
+
+VA - 80s: 100 Remixes (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Hip Hop, Soul, Disco, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cyndi Lauper - Girls Just Want to Have Fun (12_ Version) - (06:02)
+ 002. Dead or Alive - You Spin Me Round (Like a Record) (Performance Mix) - (07:26)
+ 003. Wham! - Freedom (Long Mix) - (07:06)
+ 004. Rick Astley - Never Gonna Give You Up (Cake Mix) - (05:47)(   Читать дальше...   )Жанр: House, Hip Hop, Soul, Disco, Soft RockПродолжительность: 10:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EB8793DCA31CE54C0C1A3FD29872D12B5CA2C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848945   (1053357) от 20.01.2026
+
+VA - Hit Parade - From the 70s, 80s & 90s (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreams (2018 Remaster) - Fleetwood Mac  - (04:17)
+ 002. Iris - THE GOO GOO DOLLS  - (04:50)
+ 003. La Isla Bonita - Madonna  - (04:02)
+ 004. Right down the Line - Gerry Rafferty  - (04:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0CFA845DF9F0866532500994646CC6109FED2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849238   (1053538) от 22.01.2026
+
+VA - Beyond The Pale Horizon - The British Progressive Pop Sounds Of 1972 (2021) [3CD Box Set] [FLAC|Lossless|tracks + .cue] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thin Lizzy - Whiskey In The Jar (5:46)
+02. Status Quo - Paper Plane (2:56)
+03. Hello - The Wench (2:53)
+04. Curtiss Maldoon - One Way Ticket (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D1D3E54753E3F958B1E118C7678AFAFF96FF96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849397   (1053768) от 23.01.2026
+
+VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Wave - Boogie Nights (3:42)
+02. Atlanta Rhythm Section - So Into You (6:53)
+03. Taste of Honey - Boogie Oogie Oogie (5:24)
+04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
 ```
 
 

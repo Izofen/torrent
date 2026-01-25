@@ -1,3 +1,84 @@
+###  Публикация: 1227901   (641077) от 29.05.2018
+
+VA - Sexy Ibiza Summer - Chillout Beach Cafe Lounge (2018) [MP3|320 Kbps] <Lounge, ChillOut, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Binary Dreamer - My Island Of Ibiza 4:18
+02. Substrata - Mofix (Ibiza Chill Mix) 4:51
+03. Atrium - Praise For The Beach 6:36
+04. Mea Culpa - A Door Into Yesterday (Gregorian Extended Mix) 8:40(   Читать дальше...   )Жанр: Lounge, ChillOut, DowntempoПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAFE78B60433AA21150C065FDDF339352B297CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228007   (641083) от 29.05.2018
+
+VA - Vocal House Essentials 2018 (Mixed by Vin Veli) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inaky Garcia - La Musica 6:44
+02. Kid Massive Feat. Yota - Just Want You (Roul And Doors Vocal Mix) 7:03
+03. Carlos Pardo - You'll Feel Better 5:44
+04. The Vooz Brothers - Going Down 7:22(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B1C70329AC81761BD3ECF0BFB1DEC87128B54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142450   (641170) от 15.06.2017
+
+VA - Santorini Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kusuma Orchestra - Down The Path  5:48
+02.  Chillelektro - Pag  5:53
+03.  Earthspaces - Jazz In The House  3:26
+04.  Lamar Ensemble - Stay Sharp  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E450945E9300DBACFA0593E6D65DCF6DF21308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142451   (641173) от 15.06.2017
 
 Relaxed - Relaxed (2017) [MP3|320 Kbps] <Ambient, Drone>
@@ -611,87 +692,6 @@ Junior Bourcier - Mystic Rain (2018) [MP3|320 Kbps] <Piano, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F20B9EA84F5F091AC999C61B768A61CED789E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292000   (643181) от 31.03.2019
-
-Merlin & Lydia Delay - Infinity (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643181.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Merlin & Lydia DeLay - Sindarian Light 03:55
-2. Merlin & Lydia DeLay - Excalibur 05:10
-3. Merlin & Lydia DeLay - Volcano Beach 06:58
-4. Merlin & Lydia DeLay - Air on the Strings 06:30(   Читать дальше...   )Жанр: Psychill, Psybient, Chillgressive, DowntempoПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1640BB7AE179AFE85F5A838F4EEB518C6AEE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292756   (643186) от 31.03.2019
-
-VA - Deephouse Top 100 Vol.8 (2019) 2CD [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643186.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01: (03:20:59)
-
-01. Andrey Exx - A Deeper Love (Original Mix) (Feat. Karmen Moxie)
-02. Ben Delay - To Be Free (Superdope Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF3645306E87B287E4686AF5CB23997E196E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291955   (643193) от 31.03.2019
-
-Kayatma - Ambivalence (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kayatma feat. Pasha Bochkarev & Argishty - Hjarta [05:58]
-02. Kayatma & Daya - Choiсe [06:03]
-03. Kayatma feat. Daliya - Ikigai [03:17]
-04. Kayatma - Crazy Morning [05:30](   Читать дальше...   )Жанр: Psychill, Psybient, DowntempoПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EA5019C9BFAC3F732DD9853136B2EBA2CEA112C
 ```
 
 

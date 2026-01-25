@@ -1,3 +1,57 @@
+###  Публикация: 616355   (975718) от 09.02.2013
+
+Арктида - Мой Друг (2012) EP [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клятва
+02. Истины свет
+03. Мой друг
+04. Дождь(   Читать дальше...   )Жанр: Power Metal |Продолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150F73AB9B974561B933F3A39697AE7856F8CBA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974161   (975745) от 12.01.2016
+
+Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angst (Pride and Fall) 05:43
+02. Archer (Sun of the Sleepless) 04:29
+03. Game Over (Germ) 06:02
+04. Warp (Encephalon) 05:12(   Читать дальше...   )Жанр: Avant-Garde Black MetalПродолжительность: 01:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BC68B15B7B9A79A5D63455D3D157CF3D886E92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 271370   (975774) от 09.02.2013
 
 Phil Collins - 4 Albums (1981-1989) Audio Fidelity Remaster Collection /2010-2012, Audio Fidelity/[FLAC|Lossless]<Pop-Rock>
@@ -675,63 +729,6 @@ Eleventh Hour - Memory Of A Lifetime Journey (2016) [MP3|320 кб/с] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFAC809E05C5AE48BE020C6E61574012AFD9BFC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 166148   (977153) от 14.01.2010
-
-Echoterra - The Law of One (2009) [MP3|~224 kbps]<Symphonic/Operatic Progressive/Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Symphonic/Operatic Progressive/Heavy MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615439   (977168) от 08.02.2013
-
-Красная плесень - 21.12.2012 (2012) [MP3|320 кб/с]<Панк-рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Письмо Обаме
-02 Если имя Ваше Лера
-03 Милиция
-04 Дусю (remix 2012)
-05 Инзе Рихтер
-06 Меня зовут Шклява
-07 Сын к отцу пришел
-08 Запорожец
-09 Тихо в лесу 999
-10 Спит человечество (КП & Master Lee)(   Читать дальше...   )Жанр: Панк-рокПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699F9D79E99997E330A6ED71919AD31E5C588A46
 ```
 
 

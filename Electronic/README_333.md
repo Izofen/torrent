@@ -1,3 +1,84 @@
+###  Публикация: 1140250   (656996) от 05.06.2017
+
+VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Sbert - Autodestroyers (Original Mix) 06:50
+02. Dani Sbert - Big Bang 07:44
+03. Dani Sbert - Filter 07:37
+04. Dani Sbert - Obsession 08:15(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED51907371FE178A5A8C02F8A6A8016F76137F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140130   (657001) от 05.06.2017
+
+VA - Leisure Zone Vol.1 (The Beauty of Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kevin Place - Dottoressa Payot 4:21
+02.  351 Lake Shore Drive - You Don't Know 4:45
+03.  Inventors Of The Sun - Agua Of Life 5:42
+04.  Smooth Deluxe - Solaris Aqualux 5:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93369F38C932DE8B00B996E87B675C8DE35FA1BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140264   (657002) от 05.06.2017
+
+VA - Best Of Atec - Summer (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick.Sal - Dark Road (original mix) (06:31)
+02. Ben Polzin - Desire For Freedom (original mix) (08:11)
+03. Patrick Tijssen, Maickel Telussa - Gods House (Ultraverse Remis) (06:45)
+04. Nightbob, Wesper - Groove 59 (Nightbob dub) (12:07)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5497AACDFBEE1DD586BFAEE597AEF7C0669C54C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226222   (657072) от 19.05.2018
 
 VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
@@ -621,87 +702,6 @@ VA - Cala Gracioneta (Pop Lounge Ibiza 2015) (2015) [MP3|320 кб/с]<Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB31FE6ED78EAC89F4197253A2788B40377ECB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903655   (658172) от 31.05.2015
-
-VA - My Day (Chillout & Lounge) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Chill Out - Parapa Pa [04:24]
-02. M. Vitoria - Spain [03:29]
-03. Paco Flores - Andalucia [05:33]
-04. M. Vitoria - Love Devotion Surrender [05:05](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6014463770B2CF3B7713701EC1955890F6251C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903691   (658174) от 31.05.2015
-
-VA - Lounge Culture (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Wave - Diving Delights [05:50]
-02. Aqua Mundi - South River [05:59]
-03. The Magical Corner - Laguna [06:04]
-04. El Nicoya - Andando [05:42](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31AB33EC394F2174D179000AB524E6574AC0171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139913   (658209) от 04.06.2017
-
-VA - Ibiza Vocal Hits 2017 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BRKLYN – Heart Of The City (Myon Signature Remix) (3:21)
-02. Ryos – Discover Love (Original Mix) (3:45)
-03. Cuebrick – Smoke & Fire (Original Mix) (3:17)
-04. Tritonal – Running Into Me (Original Mix) (4:27)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90E20D96276730839E6C86DC5FE3C893481A20F
 ```
 
 

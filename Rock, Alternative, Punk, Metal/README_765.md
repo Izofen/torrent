@@ -1,3 +1,57 @@
+###  Публикация: 1563226   (505386) от 13.07.2022
+
+Protector - 4 Studio Album (1988-1993) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Mental Malaria
+2.Scars Bleed Life Long
+3.The Heritage
+4.Lost Properties(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 02:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90AC3FBFB5ABBBAD36143E487D7773F53878A149
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563129   (505390) от 13.07.2022
+
+Dovorian - Kneel and Follow (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Falling Down (00:04:56)
+02 - Hopeless (00:04:07)
+03 - Kneel and Follow (00:03:44)
+04 - Raise My Glass (00:06:40)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B31F4D41ABD1DEC018067008CA7FDF9CB37A4E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933597   (505434) от 02.09.2015
 
 Act Of Defiance - Birth and the Burial (2015) [FLAC|image+.cue]<Thrash Metal>
@@ -645,60 +699,6 @@ Vanquisher - An Age Undreamed Of (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E3D7C232167BE2299BA469A073268715C9CDB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563179   (506312) от 12.07.2022
-
-Mothercow - Death Before Defeat (2022) [MP3|320 Kbps] <Southern, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Death Before Defeat [00:01:40]
-02 Job for a Cowboy [00:02:49]
-03 Shotgun and Bullets [00:06:21]
-04 Unstoppable [00:04:22](   Читать дальше...   )Жанр: Southern, Stoner MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF06C8070406025618EF24DAC91D804D320AC8FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563014   (506314) от 12.07.2022
-
-Буерак - Голд 2 (2022) Remastered [MP3|320 Kbps] <Post Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Неважно [00:02:32]
-02 - Бесконтактное общение [00:02:36]
-03 - Культ тела [00:02:24]
-04 - Грустно с тобой [00:01:41](   Читать дальше...   )Жанр: Post Punk, New WaveПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF2C01FB0E3B35D755B938754148D27AA8260B1
 ```
 
 

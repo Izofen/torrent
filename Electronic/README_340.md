@@ -1,3 +1,83 @@
+###  Публикация: 1291432   (670573) от 24.03.2019
+
+VA - Miami Sessions 2019 (Mixed by Milk & Sugar) (2019) [MP3|320 Kbps] <House, Progressive House, Afro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk & Sugar - That Body (Original Mix) 5:16
+02. Sugarstarr & GOH feat. Redman & Method Man - I Used To Be (Milk & Sugar Club Edit) 4:48
+03. Seductive Souls feat. Onita Boone - Ain't Nobody (Mousse T.'s Ain't No Good Man Mix) 5:17
+04. Purple Disco Machine - Walls (Original Mix) 6:39(   Читать дальше...   )Жанр: House, Progressive House, Afro House, Electronica, DowntempoПродолжительность: 05:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66902193100372D04D778D7C6F5D5CD2B53DD61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536884   (670612) от 14.03.2022
+
+Rammstein - Zeit (2022) Single [FLAC|Lossless|image + .cue] <Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zeit (5:22)
+02. Zeit (RMX by Olafur Arnalds) (3:55)
+03. Zeit (RMX by Robot Koch) (4:44)Жанр: IndustrialПродолжительность: 00:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3FD77AAD35EA3813506872E78CE4F22C89109E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291424   (670700) от 24.03.2019
+
+VA - Miami Deep House (2019) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archi Nova - Disco Dancer (Original Mix) 8:23
+02. Cole P - Down (Original Mix) 6:09
+03. Gaten - Abstract Illusion (Original Mix) 8:04
+04. Kevin Beard - Zulu Choir (Original Mix) 4:36(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CED4BC7494E6723722D177880B83D4A4A353985
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291429   (670702) от 24.03.2019
 
 VA - Miami Dance & Trance: WMC (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
@@ -613,86 +693,6 @@ Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536856   (672785) от 13.03.2022
-
-Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 Kbps] <Trance, Various>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Neon & Forces - Stardust (Johnny de City Intro Version) w/Johnny de City - ID w/Joel Corry & RAYE & David Guetta - BED (Acapella)
-02. Richard Durand vs. David Guetta & Anne-Marie vs. Magnificence & Seth Hills vs. Steve Aoki & Will Sparks - Don't Send Fire Perseverance (Johnny de City Mashup)
-03. Seven Lions & Blastoyz & Fiora (   Читать дальше...   )Жанр: Trance, VariousПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D93266479D6D37A58C2E3EBB9406F5D24E2100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128626   (673121) от 23.05.2017
-
-Danger - 09/14 2007 (2007) EP [MP3|320 Kbps] <Electronic, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11h30 (3:40)
-02. 11h30 (DatA Remix) (4:32)
-03. 14h54 (4:51)
-04. 19h11 (5:55)Жанр: Electronic, HouseПродолжительность: 00:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E31C0A9C6EB32BAE615A6CDF0D393CDF7C59D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136650   (673134) от 23.05.2017
-
-VA - Best Of Chillout Vol.03 (2017) [MP3|320 Kbps] <Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puremusic - Closer (original mix) (05:10)
-02. DjSaint - Souls (Harold-Alexis remix) (06:05)
-03. State Azure - Process (original mix) (07:26)
-04. Quarrel - Walking On The Moon (original mix) (03:39)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A97D115A76DD5BFBA47DD562D73BE783A72319B
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1101791   (893130) от 08.02.2017
+
+Lucas Sideras - One Day (1972) Remaster 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893130.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. And I Cry 4:02
+2. Lady 3:35
+3. Rising Sun 5:00
+4. I Was About To Die 4:05(   Читать дальше...   )Жанр: Classic Rock, PsychedelicПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A6B594ACC48912D71B3B907AA735EA0007902E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101774   (893135) от 08.02.2017
+
+Baby Miss Julia - Room of Gardenia (1995) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. November (4:11)
+02. Room of Gardenia (4:10)
+03. Dreamer (3:58)
+04. Set Me Aflame (3:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE20AD2B971F14AA2EC15A53A9E54DBF81BC6EBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101828   (893139) от 08.02.2017
 
 Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Latin>
@@ -638,57 +692,6 @@ Cyranoi - Exist (2016) EP [MP3|320 кб/с] <Modern Metal, Metalcore, Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79D71BE10EFCC44F9D108C67C0D96FE3D2F15C96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101493   (894407) от 07.02.2017
-
-Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FLAC|Lossless|image + .cue, track] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Machine (5:03)Жанр: Hard Rock, Alternative RockПродолжительность: 00:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA9CAA3021E36FE3DC10C8F5089FA3780C36C98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751670   (894521) от 07.02.2017
-
-Bad Company - Holy Water (1990) [FLAC|Lossless|image + .cue]<Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Water (4:08)
-02. Walk Through Fire (4:49)
-03. Stranger stranger (4:52)
-04. If You Needed Somebody (4:21)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BB80ABF62F4DB5D7FF204378EE211606CEA532
 ```
 
 

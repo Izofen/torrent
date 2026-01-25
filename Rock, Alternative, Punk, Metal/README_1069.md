@@ -1,3 +1,57 @@
+###  Публикация: 1503532   (819400) от 19.10.2021
+
+Гарин и Гиперболоиды - Экстрада (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сооснователь группы "Кино" Алексей Рыбин выпустил альбом проекта "Гарин и Гиперболоиды" "Экстрада". Рыбин возродил группу "Гарин и Гиперболоиды" в 2019 году. Именно такое название имела группа Рыбина и Цоя в начале 80-х годов, пока не была переименована в "Кино". Репертуар ГиГ состоит из собственных песен, а также (   Читать дальше...   )01 - Движение (04:30)
+ 02 - Работа не волк (05:01)
+ 03 - Песни восточных славян (03:33)
+ 04 - Бездельник (03:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E956EDDF2274A948DD86D7EFA3258B77731E41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382352   (819403) от 11.05.2020
+
+Catamenia - Morning Crimson (1999) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Aurora Borealis 03:15
+02 Talviyon Varjot 02:40
+03 ...And Winter Descends 03:16
+04 In Blood They Lay 03:17(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81ED3DE6296A9B7332702B544F5D87D4BD2F0DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382353   (819406) от 11.05.2020
 
 Catamenia - Eternal Winter's Prophecy (2000) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -641,60 +695,6 @@ Slade - Discography+ (1969-2003)[MP3|320 kbps]<Glam>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196664   (820742) от 04.01.2018
-
-Halestorm - Live In Philly (2010) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Not You 5:56
-02. Innocence 4:14
-03. Bet U Wish U Had Me Back 3:34
-04. Love\Hate Heartbreak 5:24(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C221EFB8FC642E89691955896DB0D0B8E02D3D37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116968   (820796) от 21.03.2017
-
-bAbA yAgA - 3 альбома (1992-1999) [MP3|320 Kbps] <Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The U.S.S.R.
-02. Side To Side
-03. Red Bird
-04. Where Will You Go(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 02:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540C8F5AA96CAD8E35890F450FE5CBA191D00B23
 ```
 
 

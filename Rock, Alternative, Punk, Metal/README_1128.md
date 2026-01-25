@@ -1,3 +1,57 @@
+###  Публикация: 1493794   (892412) от 05.09.2021
+
+At Vance - 9 Studio Albums (1999-2012) 9xCD [FLAC|Lossless|image + .cue] <Power Metal, Neo-Classical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892412.jpg" />
+</div>
+
+
+###  Подробнее
+
+At Vance – немецкая метал-группа, основанная в 1998 году гитаристом-виртуозом Олафом Ленком (Olaf Lenk) и вокалистом группы Centers Оливером Хартманном (Oliver Hartmann). Уже весной следующего года новоиспечённый коллектив подписал контракт с лейблом Shark Records, а в сентябре - выпустил дебютный альбом под названием «No Escape».1999 - No Escape
+2000 - Heart Of Steel
+2001 - Dragonchaser
+2002 - Only Human(   Читать дальше...   )Жанр: Power Metal, Neo-Classical MetalПродолжительность: 08:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493839   (892424) от 05.09.2021
+
+Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный сольный альбом гитариста Nazareth!01. Baby Come Back
+02. Rip it Up
+03. Think I'm In Love
+04. Where Are You Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E90773856AC0F457EB6B5B6CCB2D292E692541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493982   (892438) от 05.09.2021
 
 Kill the Kong - 4 Albums, 2 Singles (2016-2021) [MP3|320 Kbps] <Nu-Metal, Metalcore, Modern Metal>
@@ -643,60 +697,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A62AEE1C1F2BD1CBC1E595989EFEC48AB9D037
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101791   (893130) от 08.02.2017
-
-Lucas Sideras - One Day (1972) Remaster 2014 [FLAC|Lossless|tracks + .cue] <Classic Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. And I Cry 4:02
-2. Lady 3:35
-3. Rising Sun 5:00
-4. I Was About To Die 4:05(   Читать дальше...   )Жанр: Classic Rock, PsychedelicПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6B594ACC48912D71B3B907AA735EA0007902E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101774   (893135) от 08.02.2017
-
-Baby Miss Julia - Room of Gardenia (1995) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. November (4:11)
-02. Room of Gardenia (4:10)
-03. Dreamer (3:58)
-04. Set Me Aflame (3:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE20AD2B971F14AA2EC15A53A9E54DBF81BC6EBB
 ```
 
 

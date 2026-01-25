@@ -1,3 +1,57 @@
+###  Публикация: 1556025   (563236) от 07.06.2022
+
+Silverstein - Misery Made Me (2022) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Song
+02. Die Alone (feat. Andrew Neufeld of Comeback Kid)
+03. Ultraviolet
+04. Cold Blood (feat. Trevor Daniel)(   Читать дальше...   )Жанр: Post-Hardcore, Alt. RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC43C126C6BA54AD373E60F7635F706EA849F75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556126   (563237) от 07.06.2022
+
+Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Foot In The Grave 04:13
+02. The Battle Of Locust 03:22
+03. Bluebird 04:05
+04. S.O.S. 03:12(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21251C44DB3D3CFBE1BFFB600D56CC97625B4891
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555990   (563238) от 07.06.2022
 
 Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
@@ -636,66 +690,6 @@ U.D.O. - Navy Metal Night (2015) Live [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:549179E21A03BE11E147611EB890AB9EC20C298C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529883   (564523) от 01.08.2012
-
-KISS - Destroyer (Resurrected) (2012) [MP3|320 kbps] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detroit Rock City (2012 Remix) (05:15)
-02. King of the Night Time World (2012 Remix) (03:21)
-03. God of Thunder (2012 Remix) (04:17)
-04. Great Expectations (2012 Remix) (04:24)
-05. Flaming Youth (2012 Remix) (02:59)
-06. Sweet Pain (2012 Remix) (03:21)
-07. Shout It Out Loud (2012 Remix) (02:51)
-08. Beth (2012 Remix) (02:49)
-09. Do You Love Me (2012 Remix) (03:40)
-10. Rock and Roll Party (2012 Remix) (01:26)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D91B586978CE43B1E71E887D9D5D362A089B52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923371   (564531) от 31.07.2015
-
-Oomph! - XXV (2015) [FLAC|Lossless|WEB-DL]<Neue Deutsche Harte / Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dein Retter (2:54)
-02. Alles Aus Liebe (3:38)
-03. Jetzt Oder Nie (3:44)
-04. Als Wärs Das Letzte Mal (3:31)(   Читать дальше...   )Жанр: Neue Deutsche Harte / Industrial MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BC8B52F35AEB0F54CDDBC3A0CEEB3A2EB6B2E3
 ```
 
 

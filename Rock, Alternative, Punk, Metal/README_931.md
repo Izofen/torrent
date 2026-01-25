@@ -1,3 +1,54 @@
+###  Публикация: 1535649   (676577) от 11.03.2022
+
+T. Rex - Cosmic Dancer Vol. 1 & Vol. 2 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elemental Child (Live) (13:30)
+ 02. Live Jam Session (Live) (05:10)
+ 03. Jewel (Live) (12:20)
+ 04. Honey Don't (Live) (04:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B75AE75351979EECD9DA1501AAB9D1EF0680B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290658   (676581) от 21.03.2019
+
+Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black HolesЖанр: Progressive Rock, Psychedelic, Space RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77999CF56738BC662A4F18F75C59DFB57832EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290798   (676586) от 21.03.2019
 
 Stahlmann - Kinder der Sehnsucht (2019) [MP3|320 Kbps] <Neue Deutsche Harte>
@@ -649,66 +700,6 @@ Shrinebuilder ‎– Shrinebuilder (2009) [FLAC|Lossless] <Stoner / Doom Metal, 
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508302   (677184) от 11.06.2012
-
-VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coldplay - Paradise
-2. Nickelback - Lullaby
-3. Dead By April - Mystery
-4. Takida - You Learn
-5. Walk Off The Earth - Somebody That I Used To Know
-6. Sons Of Midnight - The Fire
-7. Train - Drive By
-8. Daughtry - Crawling Back To You
-9. The Fray - Heartbeat
-10. Seether - Tonight(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223274   (677287) от 03.05.2018
-
-No One Is Innocent - Frankenstein (2018) [MP3|320 kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A La Gloire Du Marche (03:05)
-02. Ali (King Of The Ring) (03:23)
-03. Desperado (03:12)
-04. Frankenstein (03:49)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C55334C61BF4A72A00BE942421BC93EC2403DF
 ```
 
 

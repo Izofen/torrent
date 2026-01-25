@@ -1,3 +1,84 @@
+###  Публикация: 1403693   (688567) от 21.08.2020
+
+Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Number (Hot Chip Remix) (9:54)
+ 02. Give It All (Lxury Remix) (6:20)
+ 03. Mountain at My Gates (Alex Metric Remix) (6:45)
+ 04. Into the Surf (Hot Since 82 Remix) (8:10)(   Читать дальше...   )Жанр: Electro House, Disco, Funky, Indie RockПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBF19A9875A017A285AFC4183C2A7959F593A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403669   (688568) от 21.08.2020
+
+Cut Copy - Freeze, Melt (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Dance Punk, Indie>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Water (05:11)
+02. Like Breaking Glass (04:51)
+03. Love Is All We Share (06:01)
+04. Stop, Horizon (05:28)(   Читать дальше...   )Жанр: Electropop, Dance Punk, IndieПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E9D077A1ADF33FB3B612F08BE18BF950B6A573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028482   (688760) от 23.06.2016
+
+Public Service Broadcasting - The Race For Space / Remixes (2016) [MP3|320 кб/с] <Electronic, Pop, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E.V.A. (Vessels) (5:52)
+02. Tomorrow (Copy Paste Soul) (6:44)
+03. Go! (Kauf) (4:27)
+04. The Other Side (Maps) (5:24)(   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE5284E37FF828907D8ECD57DC9A467547E393D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028675   (688762) от 23.06.2016
 
 GusGus vs. T-World - GusGus vs. T-World (2000) [FLAC|Lossless|tracks+.cue] <Techno, Progressive House, Trance, Breaks, Downtempo>
@@ -612,87 +693,6 @@ VA - Solitudine / Faces / Atlantide / Oak Tree (2018) EP [MP3|320 Kbps] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BC11B98A17E8ADB29E888A7DF3D04D71B040CCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221711   (691532) от 26.04.2018
-
-Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klajoja (04:48)
- 02. Perkunas (03:56)
- 03. Gentis (03:56)
- 04. Buk (07:12)(   Читать дальше...   )Жанр: Dub TechnoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291D5B88B4DE5C7B49CE79C1869FE130E1262FDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221792   (691533) от 26.04.2018
-
-Marcus Meinhardt - 20 Years Best Of Marcus Meinhardt (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcus Meinhardt - Endjoy (Original Mix) (6:55)
-02. Marcus Meinhardt - Trouble (Original Mix) (7:53)
-03. Uone - Connections (Marcus Meinhardt Remix) (6:50)
-04. Marcus Meinhardt - For Her & For Him (Original Mix) (6:48)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E066A459179CD100BF3B8188174D43CF65CF6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134133   (691543) от 14.05.2017
-
-VA - Mykonos Deep House Session (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andres Newman – It’s Always Summer Somewhere
-02. Merrick Lowell – Lady – Mojito Deep Remix
-03. Twang Chung – Running in Circles – Dreamland Edit
-04. Michael Ribeira – La Luna – Gypsetter Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A25D6ECBDB97B2A4720528566015E6816FD9F8E
 ```
 
 

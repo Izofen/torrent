@@ -1,3 +1,57 @@
+###  Публикация: 915203   (591993) от 06.07.2015
+
+Tanagra - None Of This Is Real (2015) [MP3|320 кб/с]<Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undying Light
+02. Tyranny Of Time
+03. Eliana
+04. Antietam(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5B6F0590F75FDE77BA58436BBD737D227049A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915182   (591994) от 06.07.2015
+
+Thessa - The Other Side MMXV (2015) [MP3|320 кб/с]<Instrumental Progressive Metal, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origins
+02. Intentional Neglect
+03. Medusa
+04. Dot Exe(   Читать дальше...   )Жанр: Instrumental Progressive Metal, DjentПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B34EC7E9C53FB3C37A1EE090D80C794EA0B068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550584   (592107) от 11.05.2022
 
 Brian Harold May - 2 Albums (2021-2022) Deluxe Version, Remastered, Expanded and Reissued [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Mötley Crüe - американская глэм-метал группа, ос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF305F6CAC9986C2A90F766490244DF9A608E3ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300650   (592747) от 07.05.2019
-
-Manowar - The Final Battle I (2019) EP [WV|lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March Of The Heroes Into Valhalla (02:39)
-02. Blood And Steel (04:42)
-03. Sword Of The Highlands (05:59)
-04. You Shall Die Before I Die (06:08)Жанр: Heavy MetalПродолжительность: 00:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8E57552AB4022393C5FEDF9B2C003ACCE58026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300638   (592750) от 07.05.2019
-
-Rosetta Stone - Seems Like Forever (2019) [FLAC|Lossless|tracks + .cue] <Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Be There Tomorrow
-02. Children Of The Poor
-03. People
-04. Dark Times(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0E840A661683B6A2EF4165AD13F30FB31CACAD
 ```
 
 

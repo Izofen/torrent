@@ -1,3 +1,30 @@
+###  Публикация: 1355137   (984925) от 25.01.2020
+
+VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem - Godzilla (feat. Juice WRLD)
+02. Roddy Ricch - The Box
+03. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
+04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535127353A48CDA4F4653F7A2F5D4D51F8E9900
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873020   (985231) от 03.01.2016
 
 VA - Pioneer Studio 33,5 (2015) 6 сборников [MP3|320 кб/с]<Dance, Disco, Italo Disco, Trance, House>
@@ -683,33 +710,6 @@ VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354405   (987631) от 22.01.2020
-
-VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Myoho - Mandrem
-002. Blackliquid - Diversification
-003. Dj Mnx - In My Mind (Original Mix)
-004. Distant People - Elements(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 12:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5438A29BE5F522DAAA5AC46B9199A7567775BDF
 ```
 
 

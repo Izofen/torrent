@@ -1,3 +1,84 @@
+###  Публикация: 1119305   (807599) от 28.03.2017
+
+VA - Turn It Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Recurring Events 06:16
+02. Enrico Donner - Quote of the Day 05:45
+03. Cane Garden Quartet - Shine a Light On Me (Feat. DJ Riquo) 05:22
+04. Solanos - Childish Freedom 05:37(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D9619768CA0194A0D96BB12935234BA86B8FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119571   (807600) от 28.03.2017
+
+VA - Lazy Weekend: Kick Back to the Coolest and Most Chilled-Out Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bentley - Huge Love
+02. Guti Baratto - Stay Dancing
+03. Jose Y Mar - Green Lake
+04. Vincente Panach - Wind Bender(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30ECF3F5EADAFDC6261F57B080EE2105A2E71091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009766   (807702) от 22.04.2016
+
+Mr.Kitty - Time (2014) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XIII (03:34)
+02. Rats (03:27)
+03. Glow (03:42)
+04. Hollow (04:10)(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0592DC29264157267DBAE38C5ADC2297E908DE34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942641   (807722) от 17.05.2020
 
 Riz Maslen (Neotropic, Small Fish with Spine) - Discography 20 Releases (1996-2019) [FLAC|Lossless]<Leftfield, IDM, Breaks, Downtempo, Ambient, Acoustic, Folk, Experimental>
@@ -612,84 +693,6 @@ Atrium Carceri, Cities Last Broadcast, God Body Disconnect - Miles To Midnight (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B10D8214441406B8FBA2F6DF9C34FF0AD1CE5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383694   (809969) от 16.05.2020
-
-Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House, House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Is A Dancer (feat. Mabel) (2:48)
-02. Nothing Really Matters (feat. Becky Hill) (2:37)
-03. Ride (feat. The Kid Daytona & Roe) (3:23)
-04. Ritual (feat. Jonas Blue & RITA ORA) (3:19)(   Читать дальше...   )Жанр: Future House, House, DanceПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F0AD56CBAE755982F8FAEC07E77AF0EB180495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009512   (810034) от 21.04.2016
-
-VA - Escapism 3 (Liquicity Presents) (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pogo - No Worries (Hybrid Minds Remix)
- 02. Makoto - YGMYC
- 03. Championdnb - Stratos
- 04. Dualistic & Subsequent - Sunrise (feat. Ella)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B1199131473B5539BD93BE8EC7F89E8CBB4D6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317589   (810094) от 02.04.2011
-
-Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A145F54F1A059761D42C95EE0A16899387603C0
 ```
 
 

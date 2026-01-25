@@ -1,3 +1,57 @@
+###  Публикация: 1004350   (834578) от 08.04.2016
+
+Devour The Day - S.O.A.R. (2016) [FLAC|Lossless|tracks + .cue] <Hard-rock, Alternative-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.A.R. (3:07)
+02. Step Aside (3:02)
+03. The Bottom (3:03)
+04. Heaven? (3:56)(   Читать дальше...   )Жанр: Hard-rock, Alternative-metalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299B0F6D64B4A50B268D420F6B005BC8D0EA5063
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005339   (834697) от 08.04.2016
+
+I Am Revenge - Red Gold (2014) [MP3|320 кб/с] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer (01:02)
+02. Instinct (02:33)
+03. Dark Passenger (03:00)
+04. Bleed (03:37)(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C072F32680984E36EE6F5D402E201AB42F176A5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 879356   (834710) от 19.03.2015
 
 Green Day - 25 Albums (1989-2014) [MP3|320 кб/с]<Punk Rock, Altenative Rock, Pop Punk>
@@ -640,60 +694,6 @@ Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490B865C48ACD3D3077E9885F0816EF0EB6ADE80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501443   (835265) от 10.10.2021
-
-Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glass Prison (13:53)
-02. Blind Faith (10:22)
-03. Misunderstood (9:33)
-04. The Great Debate (13:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622020ACD291551AC1C52289BA48D05E80AB3A82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114087   (835289) от 13.03.2017
-
-Road To Ruin - Road To Ruin (2007) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда гитарист Ларс Крисс (Lion`s Share) и басист-клавишник Сампо Аксельссон (Glenn Hughes) встретились в 2005-м году, то решили основать команду, играющую классическиий хард-рок в духе Rainbow, Thin Lizzy, Whitesnake, Deep Purple, Led Zeppelin, Black Sabbath и так далее. Когда в 2006-м к ним присоединились барабанщик Томас Броман (Electric Boys, Glenn Hughes, Audiovision, (   Читать дальше...   )01. The Only One (3:53)
-02. Pale Rider (5:12)
-03. Face Of An Angel (4:28)
-04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF4887FFC919578D7E19135DE6D9F753EBBF303
 ```
 
 

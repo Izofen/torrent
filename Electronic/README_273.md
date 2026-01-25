@@ -1,3 +1,81 @@
+###  Публикация: 1312419   (532563) от 04.07.2019
+
+Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Or Nothing (03:57)
+ 02. 2500 Racing (04:36)
+ 03. Miami Fever (03:50)
+ 04. Rising Dragon Fist (04:08)(   Читать дальше...   )Тип издания: WEBЖанр: SynthwaveПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F75081C328C5502CA253BA495454839743E03DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051315   (532692) от 11.09.2016
+
+VA - Only Silk 04 (Mixed by Shingo Nakamura & Max Flyant) - 2016 [MP3|~245 Kbps (V0)] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Flyant - Only Silk 04 (Part One)Жанр: Progressive HouseПродолжительность: 05:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C460C5A580A4E520DFF415424F67CB0BA4391FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051578   (532693) от 11.09.2016
+
+VA - Cafe Deluxe Chillout Nu Ibiza Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) [04:19]
+02. Soundset City - From Bar to Bar (Cafe Lounge Groove Mix) [05:10]
+03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) [04:43]
+04. Dave Neville - Funny Sky (Cosmic Space Mix) [05:48](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EE3ABEC954C417DBD6E020CAC2B986CB75AFA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051311   (532698) от 11.09.2016
 
 VA - A State Of Trance Radio Top 20 - August / September (2016) [MP3|320 Kbps] <Trance>
@@ -610,87 +688,6 @@ VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4A6A4569039B1B3B92C270DAC6CA8D8846202E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239791   (535249) от 07.08.2018
-
-VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kristina Mailana - Make It Right (Original Mix) 4:13
-02. Momentums - Love By You (Original Mix) 3:45
-03. Kid Williams - Shimmy Yam, Shimmy Yay (Original Mix) 4:13
-04. Justin Berger - Ohh My (Original Mix) 3:44(   Читать дальше...   )Жанр: House, Future House, FunkyПродолжительность: 03:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CC91C56AE01CB79CFEEE08E67EA5CB444968DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155250   (535304) от 02.08.2017
-
-VA - The Swampilation: Volume II (2017) [MP3|320 Kbps] <Neuro Psychedelic, Psystep, Trap>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alejo & Vusive – Nocturnivore (04:01)
-02. 5AM – Vernation (04:44)
-03. MantisMash – Deep Float (07:01)
-04. Droplitz – Swimming Deep (05:50)(   Читать дальше...   )Жанр: Neuro Psychedelic, Psystep, TrapПродолжительность: 03:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA314FD7455FF79AF8A1AD9C4D11CB95AE80773
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155236   (535306) от 02.08.2017
-
-Martian Love - 5 Albums (2009-2014) Discography [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Happening (2:54)
-02. On The Hills (4:46)
-03. In Your Eyes (4:22)
-04. Escape (4:00)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 03:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1AC75BCD30316BE95588EAF5F6010B2CB96729
 ```
 
 

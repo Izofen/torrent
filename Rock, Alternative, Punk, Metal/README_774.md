@@ -1,3 +1,57 @@
+###  Публикация: 931269   (513015) от 25.08.2015
+
+The New Regime - Exhibit B (2015) [OGG| 441-540 кб/с]<Alternative Rock, Modern Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where I’ve Headed All Along
+02. Smokescreen
+03. We Rise, We Fall
+04. The Longing(   Читать дальше...   )Жанр: Alternative Rock, Modern Rock, ElectronicПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52FB8DB71D57C5C0816E07DA7657016394DC51E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242727   (513104) от 24.08.2018
+
+HER - Chain Reaction (2017) [FLAC|Lossless|tracks] <Alternative Rock, Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock With Me
+02. Chain Reaction
+03. Taking Up Space
+04. Say What Ya Mean(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Female VocalПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34EDB47B7A6E571C6E0C1A2AB175B6FA0031B05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536115   (513308) от 19.08.2012
 
 Rage - 25Albums+7EP (1984-2012) [FLAC|Lossless]<Heavy Metal/Power Metal>
@@ -657,63 +711,6 @@ Oomph! - XXV (2015) [FLAC|image+.cue]<Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BBA363FEAEB7C87591E67736CFD4A617DB13389
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315342   (513893) от 19.07.2019
-
-The Flaming Lips - King's Mouth (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Don't Know How and We Don't Know Why (feat. Mick Jones) (01:10)
-02. The Sparrow (05:38)
-03. Giant Baby (feat. Mick Jones) (03:50)
-04. Mother Universe (01:51)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9F2D9FFF22E992DAFB3B262096D845856D0221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242121   (513924) от 23.08.2018
-
-VA - Mod - The Ultimate Collection (5CD) (2018) [MP3|320 Kbps] <Punk, Mod Revival, Garage Rock, Rhythm & Blues, Reggae>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513924.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. The Jam - Town Called Malice
-02. Madness - The Prince(   Читать дальше...   )Жанр: Punk, Mod Revival, Garage Rock, Rhythm & BluesПродолжительность: 00:55:06
-
-01. Dave & Ansel Collins - Double Barrel
-02. The Pioneers - Let Your Yeah Be Yeah(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5ED2AC853611D80AA283028FA1BA18E6956ABE2
 ```
 
 

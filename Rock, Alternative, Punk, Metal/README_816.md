@@ -1,3 +1,57 @@
+###  Публикация: 1235483   (558680) от 12.07.2018
+
+Temperance - Of Jupiter and Moons (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Hope in a World of Hopes
+02. Broken Promises
+03. Of Jupiter and Moons
+04. Everything That I Am(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA91A957E3C449F1C0B33DE659A6C1E206B41C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1235480   (558746) от 12.07.2018
+
+Stryper - God Damn Evil (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take It To The Cross 4:56
+Sorry 3:56
+Lost 3:44
+God Damn Evil 4:06(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D4EC40216EADCB0651622DFB16736555AE6F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235474   (558747) от 12.07.2018
 
 Gruesome - Twisted Prayers (2018) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -638,60 +692,6 @@ VA - Rock 'N' Roll Britannia (2016) Box Set, 3CD [FLAC|Lossless|image + .cue] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D84A9A8FAB8173F1FDDA3E036CE00535052C39D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556364   (559722) от 09.06.2022
-
-Ronni Le Tekro - Bigfoot TV (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On Long Island (05:08)
-02. Demons (04:35)
-03. Moving Like a Cat (04:14)
-04. The Black Rose (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A558E22C60BB100A9E3B0FE129AB8AC31087171E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556445   (559727) от 09.06.2022
-
-Nekonomicon - Nekonomicon (2022) [FLAC|Lossless|WEB-DL|tracks] <Nintendocore, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559727.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Those Creatures from Ganon are Pretty Bad
-2. Ghost Maze Project
-3. Dismantled
-4. One-Winged Angel of Death(   Читать дальше...   )Жанр: Nintendocore, Metalcore, ElectronicПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D843C9E786ED60363B4107F8F4321E0FA0EC57DA
 ```
 
 

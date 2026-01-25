@@ -1,3 +1,84 @@
+###  Публикация: 1292713   (645185) от 30.03.2019
+
+Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpology (4:19)
+02. Tierra Del Fuego (4:33)
+03. No Escape (6:08)
+04. Realism (4:12)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:840D0E6868104B0A266ECD07F6BC90FC344984E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292525   (645193) от 30.03.2019
+
+Wolf and Raven - Lair of the Dragon (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lair of the Dragon (6:43)
+02. Spirit Warriors (6:33)
+03. Shadow Dancer (5:58)
+04. Lunar Festival (4:52)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 01:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD6964D76CB771D20CE89CB0EB0B432984A1F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292521   (645194) от 30.03.2019
+
+Wolf and Raven - Renegades (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassette Prelude (1:38)
+02. Neon Nights (4:30)
+03. Renegades (3:55)
+04. The Heist (4:19)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Retrowave, OutrunПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336AC9EFD3DB11DE2B4E5ADE6C54240925514374
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292523   (645195) от 30.03.2019
 
 Wolf and Raven - Ace of Space (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave, Retrowave, Outrun>
@@ -614,87 +695,6 @@ VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141906   (646730) от 12.06.2017
-
-VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cheapers - Autumn Blues [06:52]
-02. Elekfantz - Diggin' On You (Solomun remix) [06:40]
-03. David Glass - Gimme Love (feat Moji - Mihalis Safras remix)[06:15]
-04. Danniel Selfmade - And On And On [06:26](   Читать дальше...   )Жанр: Deep House, Tech House |Продолжительность: 05:32:38 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705E34B253C7BF60D6D6244C368672A0B138C693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141866   (646732) от 12.06.2017
-
-VA - Discotech - The Sound of Nu Disco Vol 1 (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirco Berti - The Groove 05:24
-02. Soldera & Poligamyk - Get It Up ! 05:42
-03. Boomerang - Bang Bang 04:21
-04. Anzzor - Hemmm 05:42(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C5425164BC95B6639293F45083DF8F8A6CD2B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141779   (646734) от 12.06.2017
-
-VA - Yogamatte Vol.1 Yoga Meditation Chill Out Tunes (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guna Nada Das - Krishna Trance
-02. Alexander S. Karlov - Fish Brother
-03. Emotive - Street Waves
-04. Ucp Berlin - Arrival In Sechet-Hetep(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61C88858283332691C33132CE28C65EE049F123
 ```
 
 

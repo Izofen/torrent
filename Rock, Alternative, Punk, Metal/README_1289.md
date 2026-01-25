@@ -1,3 +1,57 @@
+###  Публикация: 1438788   (1040657) от 10.01.2021
+
+Revel in Flesh - Death Kult Legions (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Name of the Flesh 	03:56
+	02. When Glory Turns to Ruin 	04:38
+	03. Black Oath Impurity 		03:42
+	04. Graveyard Procession 		04:30(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5EAF067D28FD01ADF52D0E8B03EA55D69A5335
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438959   (1040658) от 10.01.2021
+
+PAL - Prime (2018) [FLAC|Lossless|image + .cue] <Melodic Rock,  AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heads or Tails (3:00)
+02. Carry On (4:13)
+03. Hiding Away from Love (3:49)
+04. Double Nature (3:57)(   Читать дальше...   )Жанр: Melodic Rock,  AORПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4634EADE0849048E9AE405F1B83C98D99F5766C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611540   (1040749) от 13.02.2023
 
 Fast Food - Collapsing Babylon (2023) [MP3|320 Kbps] <Pop Rock, Thrash Metal>
@@ -640,60 +694,6 @@ Hearts & Hand Grenades - Turning To Ashes (2021) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:427C66796F16697E5DEB9F17553337F9FEDC78A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438655   (1040921) от 09.01.2021
-
-Mirror Morionis - Mirror Morionis (-The Afterdeath Connection) (2020) [FLAC|Lossless|image + .cue] <Atmospheric Gothic/Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monochrome (03:04)
-02. Inside The Maze Of Deadlock (08:48)
-03. Acontium Waters (11:27)
-04. The Astralnauts (03:08)(   Читать дальше...   )Жанр: Atmospheric Gothic/Doom MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37CAB5D5AC154DC2445CD0BA99E3D6E5AAC65AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438636   (1040923) от 09.01.2021
-
-Fallen Arise - Enigma (2020) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Adentu Deorum
-02. Enigma
-03. Reborn
-04. Forsaken(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F71D5B695DF52ED137035BB784EEA62C3206FA
 ```
 
 

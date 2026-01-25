@@ -1,3 +1,57 @@
+###  Публикация: 234278   (501756) от 08.09.2010
+
+Honkeyfinger - 2 Albums (1 Full-length, 1 EP) (2008 - 2009) [MP3|320 kbps]<One Man Band, Dirty Blues, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_501756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: One Man Band, Dirty Blues, Country RockПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 222400   (502108) от 30.08.2012
+
+Романов Сапунов Кобзон (экс Воскресение) - Семь вещей (1995) [APE|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502108.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Светлая горница (7:15)
+2. Расскажи это всем (5:25)
+3. Искушение (5:52)
+4. Последняя любовь (5:02)
+5. Утешить нечем (4:13)
+6. Кости и золото (Сон Израиля) (7:04)
+7. Цыганская (Ещё не конец) (8:26)Жанр: RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541156   (502358) от 30.08.2012
 
 Animal Collective - Centipede Hz (2012) [FLAC|Lossless]<Indie/Experimental rock>
@@ -654,60 +708,6 @@ Mirage - The Sequel (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A530D6CA29B8663B92CFFD1F4D4D08E22FA99134
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563846   (502764) от 16.07.2022
-
-Josiah - We Lay On Cold Stone (2022) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rats (To The Bitter End)
-02 Saltwater
-03 Let The Lambs See The Knife
-04 Cut Them Free(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ED94A9C42ABD02918758CC5EDA2814DA8BB45F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563849   (502765) от 16.07.2022
-
-Lucid Grave - Cosmic Mountain (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom, Dark>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cosmic Mountain
-02 Old Spirit
-03 I'm Still High
-04 I Feel the Fire(   Читать дальше...   )Жанр: Heavy Psych, Stoner, Doom, DarkПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D98D8023038E196D2F48872C6999203A0A74C4
 ```
 
 

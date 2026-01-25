@@ -1,3 +1,27 @@
+###  Публикация: 1109415   (858896) от 27.02.2017
+
+Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farewell SongЖанр: Blues, Blues RockПродолжительность: 02:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A932503CC3AC26CC11420C662E7FA2896CC5AD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376524   (858913) от 18.04.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 17.04.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +692,6 @@ VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497908   (859649) от 25.09.2021
-
-VA - Music News vol.134 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Beliy - Поцелуи (02:08)
- 002. Adventure Club - Here (03:14)
- 003. Alan Walker feat. K-391 & Boy In Space - Paradise (03:05)
- 004. Alex Velea - Balerina (03:10)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFBD801A4186CF2E9D48E6FFE6C1EE9EC0E3F7C5
 ```
 
 

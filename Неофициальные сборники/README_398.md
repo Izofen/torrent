@@ -1,3 +1,36 @@
+###  Публикация: 517503   (647625) от 01.07.2012
+
+VA - Радио Energy - NRJ HOT30 (30.06.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BEL SUONO  Dj Magic Finger - Te Quiero 2012
+02. Michel Telo - Ai Se Eu Te Pego
+03. Flo Rida - Whistle
+04. DJ Bobo - Everybody's Gonna Dance (Bryce rmx)
+05. Michael Mind Project feat. Bobby Anthony amp Rozette - Rio De Janeiro
+06. Chris Garcia feat. Sherry - I rock alone
+07. Oceana - Endless Summer (Bodybangers rmx)
+08. Far East Movement - Lights Out (Go Crazy) (Feat. Junior Caldera  Natalia Kills)
+09. Global Deejays - Hardcore Vibes (Original Mix)
+10. Example - Changed the way you kiss me (Mike Candys rmx)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2681240A9022783E03061C223CFA3BDABD93FBA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032078   (647640) от 06.07.2016
 
 VA - Реальные Песни В Крутую Тачку (2016) [MP3|256 Kbps] <Шансон>
@@ -684,39 +717,6 @@ VA - Самые сливки: Летний спецвыпуск (2012) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C226B342664260A0FB83CC27989A28B0494CD34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517260   (647914) от 01.07.2012
-
-VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monodeluxe - At the Beach - Original Version
-2. Cosmic Funk - I'll Never Stop - Axel B. Sunset Mix
-3. Treasure Room - Nobody - Original Mix
-4. Stereo Mutants - I Wanna Go - Afterlife Remix
-5. Twentyeight - Hope - Original Mix
-6. Michael E - Barcelona - Original Version
-7. Marc Ozz - Bondai Beach - Original Mix
-8. Lady White - Let Me Try - Original Mix
-9. Mauro Mondello - Bamboja - After Teneriffa Mix
-10. Bang Bang - Hate Fleeting - Da Sunlounge Remix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
 ```
 
 

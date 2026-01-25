@@ -1,3 +1,54 @@
+###  Публикация: 1101493   (894407) от 07.02.2017
+
+Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FLAC|Lossless|image + .cue, track] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Machine (5:03)Жанр: Hard Rock, Alternative RockПродолжительность: 00:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA9CAA3021E36FE3DC10C8F5089FA3780C36C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 751670   (894521) от 07.02.2017
+
+Bad Company - Holy Water (1990) [FLAC|Lossless|image + .cue]<Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Water (4:08)
+02. Walk Through Fire (4:49)
+03. Stranger stranger (4:52)
+04. If You Needed Somebody (4:21)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BB80ABF62F4DB5D7FF204378EE211606CEA532
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101543   (894552) от 07.02.2017
 
 Elvis Presley - Elvis: The Complete 1954-62 U.S.A. Singles (2015) 4CD [FLAC|Lossless|image + .cue] <Rock'N'Roll, Pop, R&B, Soul>
@@ -637,60 +688,6 @@ Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39CD8C826F7AE3A822AFE5B120792DBBF7080674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493457   (895567) от 03.09.2021
-
-BlackOwl - Fly Away (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoking Rock'n'Roll
-02. Napoli Street
-03. Easy Job
-04. Deep Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9584BDF0E7A46E146FC1D75A950BDDDD1EF28F62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493444   (895583) от 03.09.2021
-
-Crowned In Sorrow - In Memoriam (2021) [FLAC|Lossless|image + .cue] <Melodic Doom Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Beyond Death
-02. Ending It All
-03. Slipping Away
-04. Ashes(   Читать дальше...   )Жанр: Melodic Doom Metal, Melodic Death MetalПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBC4EBB12DA8A6626C8E5898E7EBF64A159C3CF
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1609671   (1043175) от 04.02.2023
+
+Слот - XX лет (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бой!
+02 - Доска
+03 - 200 кВт
+04 - На Марс!(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30A2140D4BD59D71E5CEFA7422F1EA9DF367ACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609384   (1043176) от 04.02.2023
+
+Виталий Дубинин - Бал-Маскарад. Постскриптум (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Evil In Your Eyes [00:05:28]
+02 - Здесь и сейчас [00:05:44]
+03 - Следуй за мной [00:04:20]
+04 - Наполеон (No Orchestra Version) [00:08:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43155CF3B59C3671327D0BDBB8B73C8CA2CA2D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609576   (1043177) от 04.02.2023
 
 Mod Sun - God Save The Teen (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pop-Punk, Pop-Rock>
@@ -640,60 +694,6 @@ The Smashing Pumpkins - Atum: Act I-II (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:360365827CCDF81E7908D3CAC77D27071BB4C9E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608672   (1043563) от 31.01.2023
-
-Electric Mob - 4 Albums (2017-2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Leave a Scar - (EP)
-2022 - Discharge (Bonus Track Edition)
-2022 - Better Live Than Never (Official Bootleg)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 4CD, 02:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50761D750E8EC33912229418263660B4FE5C10C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608667   (1043564) от 31.01.2023
-
-Arctic Rain - 2 Albums (2020-2023) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One World
-02. Unity
-03. Fire In My Eyes
-04. Peace Of Mind(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00.53.25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27753FB1A255C1F7873BA3B1B3746D4D48615A90
 ```
 
 

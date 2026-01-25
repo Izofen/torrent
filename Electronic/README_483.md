@@ -1,3 +1,81 @@
+###  Публикация: 1089398   (950228) от 04.01.2017
+
+VA - Dubstep 2017 (30 Top Best Of Hits) (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K Theory - The Tower (Trap Remix) [00:03:21]
+02. Spank0 - Drop That Bass [00:02:29]
+03. Vulture - Pumpin' Blood [00:03:33]
+04. PlanetaryChild - Space Gas [00:03:29](   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A7E739F88A69E0275351507794540B8D8F85F74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 171720   (950358) от 07.02.2010
+
+VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House / Vocal House / Disco House
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089541   (950631) от 04.01.2017
+
+VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_950631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven24 - Behind the Sky - Chillout Mix
+02. Sad radio on Cassini - Clear Sky - Chillout Mix
+03. Georgy Om - Path - Chillout Mix
+04. S.A.T - Dream Of The Sea - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6405919F8465EFB740E7B9661B149D110C7F4358
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089468   (950700) от 04.01.2017
 
 VA - Electro House Hits January Top 10  2017  [MP3|320 Kbps] <Electro House>
@@ -611,87 +689,6 @@ Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, C
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361733   (952301) от 21.02.2020
-
-Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952301.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Feinbild	4:37
-2	Kampfbereit	4:26
-3	Liebst Du Mich	4:02
-4	Krieg Und Frieden	3:51(   Читать дальше...   )Жанр: EBM, NeofolkПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979737   (953020) от 31.01.2016
-
-Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Japan [6:00]
- 02. Wicked Mess [4:36]
- 03. Run (feat. Chapeau Claque) [3:15]
- 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089142   (953702) от 02.01.2017
-
-Pete Shelley - 3 Albums (1981-1986) CD, Reissue [MP3|320 Kbps] <Electronic,  New Wave, Synth-pop, Pop-Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя - Peter Campbell McNeish - английский певец, песенник и гитарист. Помимо предлагаемых сольных альбомов, принимал участие в записях с группами: Buzzcocks, ShelleyDevoto, Strange Men In Sheds With Spanners, The Tiller Boys, Zip.Список альбомов:
-1981 - Homosapien
-1983 - XL-1
-1986 - Heaven And The SeaЖанр: Electronic,  New Wave, Synth-pop, Pop-RockПродолжительность: 02:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEEA6984CC4F1C8871D900594DE8A44F6BD6968
 ```
 
 

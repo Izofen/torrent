@@ -1,3 +1,90 @@
+###  Публикация: 1150030   (596626) от 13.07.2017
+
+VA - Euphoric House Anthems 2017 [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Million Colours - I Hold On (Club Mix) 05:16
+02. Cheap Sunglasses - Till The End (Million Colours Remix) 04:55
+03. Pearls Of Ibiza - I Live My Life (Mykel Mars Remix) 05:27
+04. Eddy Chrome - Feel It In Your Soul (Dub Mix) 05:30(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED35B50EB42155811AF43202CB7EBBAA65C8957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 117407   (596866) от 24.07.2012
+
+Deadmau5 - It Sounds Like (2009) [MP3|320kbps]<House / Progressive House / Tech House / Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596866.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01] alone with you_original mix [08:12]
+[02] arguru_edxs 5un5hine remix [07:11]
+[03] bye friend_original mix [05:40]
+[04] clockwork_original mix [06:41]
+[05] complications_original mix [09:51]
+[06] everything after_original mix [06:07]
+[07] everything before_original mix [06:35]
+[08] faxing berlin_original mix [08:38]
+[09] ghosts n stuff_original mix [06:10]
+[10] hi friend feat mc flipside_instrumental mix [06:34](   Читать дальше...   )Жанр: House / Progressive House / Tech House / Electro HouseПродолжительность: 02:29:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914457   (597560) от 02.07.2015
+
+Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wave, Dreamwave .>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597560.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Robeast
+3. Blind
+4. Fracture(   Читать дальше...   )Жанр: Electronic, Retro Wave, Dreamwave .Продолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8F2662894DDFA197E5711E82CE0DD67C0C363E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039421   (597626) от 31.07.2016
 
 Moby - The Remixes (Go, Porcelain, Natural Blues) (2016) [MP3|320 Kbps] <Progressive House, Electronic>
@@ -609,87 +696,6 @@ MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97EB4B6EAEBFF88F68AA73F4AB2984039A9D504
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913742   (599974) от 01.07.2015
-
-Dance With the Dead - Into the Abyss (2014) [MP3|320 кб/с]<Electronic, Dreamwave>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The descent (Intro) 01:04
-02. Battle 04:15
-03. Moon runner 03:40
-04. Mask 04:15(   Читать дальше...   )Жанр: Electronic, Dreamwave,New Retro Wave.Продолжительность: 00:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658BD06A4B07493FEDD6AF4714CB5865071EBB8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299422   (600025) от 01.05.2019
-
-Monolith - Falling Dreams (2018) Sleepless Records / Hands Productions [FLAC|Lossless|WEB-DL|tracks] <Industrial, Techno, Rhythmic Noise>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Travel (01:10)
- 02. Sleeping Sun (04:59)
- 03. Corpus (04:29)
- 04. Outer Space (01:37)(   Читать дальше...   )Жанр: Industrial, Techno, Rhythmic NoiseПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061984BBD3DAFD2EE5BF7B04743D23FF2E9148F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299005   (600028) от 01.05.2019
-
-Aly & Fila - Future Sound Of Egypt 595 (2019-04-24) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600028.jpg" />
-</div>
-
-
-###  Подробнее
-
-1st hour with John 00 Fleming b2b Paul Thomas
-01. Darin Epsilon – Golden Triangle (Jerome Isma-Ae & Alastor Remix)
-02. Paul Thomas – Allegro
-03. Stereo Underground – Mind Hunter(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF0DF22F14807AB031E6C588975408B90F8B482
 ```
 
 

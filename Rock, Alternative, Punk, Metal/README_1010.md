@@ -1,3 +1,57 @@
+###  Публикация: 1014869   (774691) от 10.05.2016
+
+Bring Me The Horizon - Sempiternal (2013) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks|24/44.1] <Metalcore / Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Feel My Heart
+02. The House of Wolves
+03. Empire (Let Them Sing)
+04. Sleepwalking(   Читать дальше...   )Жанр: Metalcore / Post-HardcoreПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361F2250A7EB1A284B74CF38D0FB41DC8740EB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015109   (774932) от 10.05.2016
+
+Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First We Take Manhattan
+02. Different Roads
+03. My Father’s Son
+04. While You See a Chance(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06996C3BA305FF7253FE8754A3F900A44F43DE4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277711   (775000) от 22.01.2019
 
 Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <Jazz-Rock>
@@ -639,60 +693,6 @@ VA - антиАрмия: Нам не нужна война (2018) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6C010924E2C58D2DBB34277A0FFD3E509D358E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212638   (775812) от 12.03.2018
-
-СМЕТАНА band - Вилка новости 18 (2018) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775812.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лучший друг
-2. Олех
-3. Мы не подружимся
-4. Ля-Ля(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB53D898D1FAFB43FADAD337BC6CE12187CF64FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212412   (775813) от 12.03.2018
-
-Riverside - Reality Dream Trilogy (2011) 6CD Box-Set [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind The Eyelids (6:18)
-02. Lucid Dream IV (4:33)
-03. 02 Panic Room (Remix) (3:24)
-04. Rainbow Trip (O2 Panic Room Single) (6:13)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 05:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49463F37CAD195D3BA93D365FC6C95A52CCA607
 ```
 
 

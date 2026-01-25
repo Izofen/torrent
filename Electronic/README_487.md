@@ -1,3 +1,84 @@
+###  Публикация: 1358450   (967309) от 09.02.2020
+
+VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967309.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Candy Winterfeld - Tonestar 4:01
+2. Brian Chesnik - Butch 4:01
+3. Bouks - Lifeform 4:01
+4. Bollen - Tiptop 4:01(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 06:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1EDED43A70B0108172D4F522FBD9E4097A90C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358657   (967312) от 09.02.2020
+
+VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - So True (Original Mix) 03:50
+02. Aldous - Control (Original Mix) 03:31
+03. Kyau & Albert - Meteorite (Em Kole Remix) 04:29
+04. Francesco Sambero - Chekaty (Original Mix) 03:30(   Читать дальше...   )Жанр: Progressive Trance, TranceПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15B5BCBD96114FE8DB402038C28807B5EEB7AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358527   (967316) от 09.02.2020
+
+La Roux - Supervision (2020) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21st Century (04:15)
+02. Do You Feel (05:00)
+03. Automatic Driver (05:05)
+04. International Woman of Leisure (04:18)(   Читать дальше...   )Жанр: Electropop, SynthpopПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB24DDAD9CF4AE5EDAE1B8EF6291AB3CB885BA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358836   (967417) от 09.02.2020
 
 P. Laoss | P.Laoss - Discography 7 Releases (2009-2014) Hizou, Somnia, Pronounce, Instabil [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Tech House>
@@ -625,94 +706,6 @@ Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617300   (969884) от 14.02.2013
-
-VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Offshore (Hayley Parsons & Future Disciple Remix) - Futuristic Polar Bears
-02. Sweet Dreams (Timo Juuti & Hector 87 Remix) - Avicii
-03. Rock That Beat (Original Mix) - Duher
-04. Armada (Luke Tolosan & Max Tiger Dirty Remix) - Luke Tolosan
-05. Bingo (Frankox Remix)Жанр: HouseПродолжительность: 03:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652E1FE58740E3BB8B707B5BFAAE85A5BD2DA474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744896   (970121) от 12.01.2014
-
-Howard Jones - Celebration (30th Anniversary) (2013) [FLAC|Lossless]<SynthPop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Touch (Prototype)
-02. Respected
-03. The Prisoner
-04. I’ve Said Too Much(   Читать дальше...   )Жанр: SynthPop, New WaveПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5695E28BCD1C6D3A0CED341B0E5D1605104ADA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 168010   (970144) от 20.01.2010
-
-VA - HouseVip (12.01.2010) [MP3|320 kbps]<Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Danger - 4h30 (F.O.O.L Remix) (5:42)
-2. Danny Soundz - Jack It Up (Original Mix) (5:09)
-3. Defunct! Feat. Mr Eyez - Drop the Bomb (Original Mix) (6:11)
-4. DJ Fenix feat. Supafly - Reason to live (Original rmx) (7:37)
-5. Foundation - Boogie Wonderland (Noll & Kliwer Travolta Remix) (5:39)
-6. Franklin & Navaro - I Need Love (Electro Banger Remix) (4:30)
-7. John Revox vs EasyTech - Sexy Ole (Disco Fanatics Bootleg) (5:26)
-8. Michael Feiner - The Feeling (Jean Elan Remix) (6:16)
-9. Ray Guarano - Killing Me (Original Club Mix) (7:55)
-10. Re-Deux - Another Lonely Night (Rev-Players Extended Remix) (6:06)(   Дальше...)Жанр: Electro House
-
-## Скачать торент
-```bash
-нет
 ```
 
 

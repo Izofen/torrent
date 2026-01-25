@@ -1,3 +1,30 @@
+###  Публикация: 985918   (931044) от 14.02.2016
+
+Город 312 - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Интервью>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931044.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вне зоны доступа
+2. Павел Воля и Город 312 - Мама, мы все стареем
+3. Город 312 - Невидимка
+4. Не теряй меня, Москва(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA0D631E7D41F3DC0D66C2F3DF7272E7ACC24D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986476   (931046) от 14.02.2016
 
 VA - Шансон: состояние души 74 (2013) [MP3|256 кб/с] <Шансон>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFB762F6ED4372BDE1253B233760194A1C81AFC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364886   (933804) от 05.03.2020
-
-VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Phace & Misanthrop - Super Low
-002. Emperor - Calypso
-003. Low_Radar101 - End Full (Original Mix)
-004. No Concept - Electrify (Kerizma Mc Remix)(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 08:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38340B16BD62F3E03A33F07663576ECAF3CAE55
 ```
 
 

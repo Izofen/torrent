@@ -1,3 +1,84 @@
+###  Публикация: 1011084   (797665) от 26.04.2016
+
+VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fisherman & Hawkins ft Sir Adrian -  Never the Same (Original Mix)  6:50
+02. Arkham Knights -  Legacy (Original Mix)  7:38
+03. Yuri Kane & Ana Criado -  Running Wild (Radio Edit)  3:35
+04. Markus Schulz Presents Dakota -  Cathedral (Montreal) (Mr. Pit Remix)  7:14(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE2F0D1853B43833EEE99D5B2DD6D28E62175BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011088   (797666) от 26.04.2016
+
+VA - The Finest 30 Chill Out Multibundle (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LastEDEN - Foundation (Original Mix) [03:33]
+02. Lazy Hammock - Lost In Dreams (Original Mix) [05:15]
+03. Paranoja - Sleeplees (Original Mix) [04:06]
+04. Mazelo Nostra - Walk Through The Streets (Original Mix) [04:41](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7CCBC8D8E96284F39B674EB198F37B4AF944A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011052   (797701) от 26.04.2016
+
+VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darmon -  Reaper  6:00
+02. Leventina -  Cameltoe  5:23
+03. Marco V -  We Will Be (O.B Remix)  5:16
+04. Anero -  Gigeri  4:56(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385131   (797763) от 24.05.2020
 
 Deep Erotica - Love is in the Air. Making Love Music Background (2020) [MP3|320 Kbps] <Ambient, Easy Listening, Relax>
@@ -613,86 +694,6 @@ VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122234   (798796) от 05.04.2017
-
-Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undertow (Tuff City Kids Remix) (8:11)
- 02. Left To My Own Devices (Super Version) (5:31)
- 03. Burn (Baba Stiltz Remix) (10:22)Жанр: House, Tech HouseПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026AF669D11A7C686CDA3758EB4CE7D677883E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122274   (798810) от 05.04.2017
-
-VA - Jazz Mood Cocktail 25 Instrumental Jazz Music Soundtrack for Bar Restaurant Cafe (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo'jardo - Let's Party
-02. Ivan Rodionov - Street Cafe
-03. Marc Hartman - Crushing Waves
-04. Velvet Dreamer - Oasis(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E67BFA57E9EAA272241DAE3C89004A156649B0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122327   (798829) от 05.04.2017
-
-VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
-02.  Wolkenlos - You Can (Vocal Deep House Mix)  7:35
-03.  Cheap Sunglasses - Till The End (Million Colours Remix)  4:55
-04.  Filtercut - Time Won't Wait (Club Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 05:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
 ```
 
 

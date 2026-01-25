@@ -1,3 +1,84 @@
+###  Публикация: 1053196   (476540) от 02.09.2020
+
+Carsten Nicolai (Alva Noto, ANBB, Aleph-1, Noto, Diamond Version) - Discography (1996-2020) Raster-Noton [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Minimal, Glitch, Ambient, Experimental, Te ...
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1 C A a 01x (07:47)
+ 02. 1 C A b 05 (02:24)
+ 03. 1 C A c 08.2.2 (07:57)
+ 04. 1 C A d 04 (03:36)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Abstract, Minimal, Glitch, IDM, Ambient, Experimental, Techno, Drone •Продолжительность: 44:26:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9FF6F4CC87D27A18EAF1109926C09E483C58C5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390932   (476824) от 02.09.2020
+
+Takayuki Shiraishi (白石隆之) - Collection 4 Releases (2002-2020) Studio Mule [FLAC|Lossless|tracks] <Experimental, IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Thunder (04:41)
+ 02. Birds In Paradise (05:09)
+ 03. Flicker (06:10)
+ 04. Lapis Lazuli (05:43)(   Читать дальше...   )Тип издания: Vinyl, Web, CassetteЖанр: Experimental, IDM, Ambient •Продолжительность: 02:08:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A4101B19B2337C927AB9C5F37D690229BE58B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194407   (476850) от 02.09.2020
+
+Steffi - Discography 18 Releases (2009-2020) Ostgut Ton [FLAC|Lossless|tracks+.cue, tracks] <Techno, Electro, House, Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.u.c.a. - Echo 1 (02:31)
+ 02. Voiski - Sound Of Distance (05:00)
+ 03. STFSHD - 1.5 (04:29)
+ 04. Unbalance - Freedom (05:53)(   Читать дальше...   )Тип издания: CD, WebЖанр: Techno, Electro, House, Tech House, Deep House •Продолжительность: 09:06:06 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0BC5452811D9679EC5F79DE19C4C5E736F6851
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298287   (477003) от 02.09.2020
 
 Groundwork Recordings - Label Pack 12 Releases (2017-2020) [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Abstract>
@@ -617,87 +698,6 @@ VA - Easy Listening Injection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21EA18298FAB157797A0231C0EDD8F618D5C524C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244655   (480236) от 02.09.2018
-
-Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow (04:58)
- 02. Second Encounter (04:47)
- 03. Oslo House Sunrise 4K (02:46)
- 04. Unreachable Feeling (05:03)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6077DAF00B760D6E98905F1829A0E7E4FDFBBCCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405727   (481249) от 31.08.2020
-
-Sevdaliza - Shabrang (2020) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Art Pop, Experimental, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joanna [00:04:20]
-02 - Shabrang [00:03:04]
-03 - Lamp Lady [00:03:31]
-04 - All Rivers at Once [00:04:45](   Читать дальше...   )Жанр: Trip Hop, Art Pop, Experimental, DowntempoПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9AE95D2FE9F78626DDC2F8C6BC956CD9E32FBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405751   (481260) от 31.08.2020
-
-VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk & KINETICA - First Contact (Extended Mix)
-02. Talla 2XLC - Acideria (Original Mix)
-03. Tiësto feat. JES - Everything (STANDERWICK Extended Remix)
-04. Andrew Rayel & Robbie Seed feat. That Girl - Stars Collide (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47ED1C242B0BC48DD0C45EB014277258774E865A
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1016239   (771730) от 13.05.2016
+
+VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tritonal - Blackout (Madison Mars Radio Mix ft Steph Jones) 3:55
+02. BRKLYN - Cant Get Enough (Radio Edit ft Mariah McManus) 3:28
+03. Cuebrick - Safe (Breathe Carolina Edit ft Linney) 3:26
+04. SCHALA - Night Sky (Radio Edit) 3:24(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E58AAA44EE6A8DDF7DA74FCCB1BA8A3E4142B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213432   (771739) от 16.03.2018
+
+Nina - Sleepwalking (2018) Deluxe Edition [MP3|320 Kbps] <Synthpop, Synthwave, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Memory (Extended Version) (5:08)
+ 02. Born To Live (Original Mix) (4:11)
+ 03. Sleepwalking (Original Mix) (4:52)
+ 04. It Kills Me (Original Mix) (4:36)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Nu-DiscoПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D0061F23F8694A2A728016A6D067C89D05501D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016204   (771740) от 13.05.2016
+
+VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paschalis K - Balloons (Original Mix) 4:55
+02. Shashaf - Yo Its Me (Original Mix) 5:21
+03. Gruber - Night Time (Original Mix) 5:25
+04. Dykane - Never Enough (Original Mix) 3:42(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28F9199E7AEFDA6265417081C9801E2439FEE94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213297   (771926) от 16.03.2018
 
 VA - Buddha Luxury Vol.2 (Esoteric World Music) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -602,87 +683,6 @@ VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278209   (773296) от 24.01.2019
-
-VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressive Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khnum & Hequet - Segment 4 (Original Mix)
-02. Hans Zimmer - Time (Magdelayna Remake)
-03. BLANCAh - Apneia (Glenn Morrison's Warehouse Dub Mix)
-04. BLANCAh - Apneia (Binaryh Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance,Uplifting TranceПродолжительность: 06:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EA53E514A3F3CC3362441C91B03CFE19F6BC65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278210   (773299) от 24.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Christina Novelli - Symphony Of Stars (Solis & Sean Truby Remix) (World Premiere)
-02. Ferry Corsten & Ilan Bluestone - We’re Not Going Home
-03. Gareth Emery & Emma Hewitt - Take Everything (STANDERWICK Remix)
-04. Harry Square - Sands(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A598163F4286AD6F1C4ED0E3A689ED61975E01D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125047   (773317) от 13.04.2017
-
-VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) [FLAC|Lossless|tracks+.cue] <Trance, Psy-Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - I Live For That Energy (ASOT 800 Anthem) (3:35)
-02. Aly & Fila meets Roger Shah & Susana - Unbreakable (3:20)
-03. MaRLo - You and Me (feat. Chloe) (3:01)
-04. Orjan Nilsen - Iconic (3:52)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive Trance, Uplifting TranceПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
 ```
 
 

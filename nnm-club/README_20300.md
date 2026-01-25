@@ -1,667 +1,681 @@
-###  Публикация: 1011247   (797031) от 27.04.2016
+###  Публикация: 1275280   (790521) от 11.01.2019
 
-Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797031.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Magnetik Fluid
-03. Breath
-04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
+01. Double Down
+02. Head Honcho
+03. Yes, And?
+04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
+magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011416   (797032) от 27.04.2016
+###  Публикация: 1275479   (790522) от 11.01.2019
 
-Skyforest - Unity (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Post-Black Metal>
+David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From the World
+02. Tokyo
+03. Lost Among Ghosts
+04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275349   (790523) от 11.01.2019
+
+Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797032.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790523.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. A Graceful Spirit
-2. Cosmic Drifter
-3. Autumnal Embrace
-4. Fading Glow(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:43:03
+01 - A Song Of Plague
+02 - Inglorious Fever Of Antonius
+03 - Mahapaatra
+04 - Brethren Of The Weeping Corpses(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F57422A561DB70D73F7486780C5CCF64977B1D72
+magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011219   (797033) от 27.04.2016
+###  Публикация: 1275452   (790524) от 11.01.2019
 
-Л. С. Мерзон | Проблемы научного факта (1972) [PDF]
+Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797033.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Проблема научного факта является точкой пересечения ряда фундаментальных вопросов научно-философского спектра, то есть по своей природе является комплексной. Так, детерминация научного факта как компонента эпистемолого-организационных схем науки напрямую соприкасается с проблемой объективности и истинности результатов научного познания действительности, поскольку (   Читать дальше...   )Жанр: История, философия, науковедение, социология, психологияФормат: PDF
+01. When You're Smiling [2:49]
+02. I Lost My Gal From Memphis [2:27]
+03. On Revival Day [2:34]
+04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B34181244B48976DB5720933FF39C037B5D39392
+magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011297   (797034) от 27.04.2016
+###  Публикация: 1202221   (790525) от 28.01.2018
 
-Наталья Черных | Остров любви. Рассказы о Церкви (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797034.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Остров любви» — это повествование о святых местах и священниках-старцах, которые в труднейшие годы были настоящей опорой страждущим. В книге органично переплетены рассказы о Троице-Сергиевой лавре, Почаевской лавре, священниках, переживших годы гонений, и древние православные предания. Они раздвигают рамки современности и помогают постичь вечность и святость Церкви. (   Читать дальше...   )Жанр: ПрозаПродолжительность: 13:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85832C8B081AE5D37ADDCEC07FBE221E016153DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011345   (797035) от 27.04.2016
-
-Cookie 5.0.6 [Multi]
+Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797035.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790525.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
-
-•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
-•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 апреля 2016Разработчик: SweetP Productions.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68C160BD06B6FE85796A9F1C65D425C9945C8327
+magnet:?xt=urn:btih:E3B57E737369C41DAD9B7388C67CC471EC46E441
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011390   (797036) от 27.04.2016
+###  Публикация: 1202304   (790526) от 28.01.2018
 
-Право голоса. "Место для дискуссий" (27.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797036.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: 110 лет назад начала работу первая Государственная Дума Российской империи. В 90-е она находилась в постоянном противостоянии с правительством. Ситуация изменилась в 2003-м году с приходом в Думу партии "Единая Россия". С тех пор в отношениях законодательной и исполнительной властей наметились тенденции к сотрудничеству. Насколько продуктивна была работа (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D06B24766AFD9962FAABA7F07D4ABA3BE9DF34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011283   (797037) от 27.04.2016
-
-Ebia - Wavedancer (2008) [MP3|320 кб/с] <Traditional Electronic, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H₃O [10:40]
-02. Halo [06:44]
-03. Mare Imbrium [11:53]
-04. Wavedancer [12:19](   Читать дальше...   )Жанр: Traditional Electronic, AmbientПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A357F07BB9168AB1C05D5154896032C87F5A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011355   (797038) от 27.04.2016
-
-BlogTouch for Blogger 2.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797038.jpg" />
-</div>
-
-
-###  Подробнее
-
-# 1 редактор Blogger для вашего Mac, iPhone и IPad!
-BlogTouch является самым мощным Blogger / Blogspot десктоптным редактором.
-Он оснащен всем необходимым, чтобы управлять своими блогами: писать, публиковать, обновлять или обмениваться сообщениями и комментариями.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 апреля 2016Разработчик: Denk AlexandruПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B3340C0E23920881914C3540C3C192DDD4C003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011420   (797039) от 27.04.2016
-
-The Blues Experience - Coming Your Way (2005) [MP3|320 кб/с] <Blues Rock>
+Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143 Records, 83192-2, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797039.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Can't Loose What You Never Had (06:20)
-02. My Credit Didn't Go Through (04:53)
-03. Stand Back (04:01)
-04. The Way It Goes (03:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
+01. Just a Little Hole 5:16
+02. Delicious Surprise 3:48
+03. L.A. Song 3:56
+04. Is That Too Much To Ask 3:33(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:00:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C78FE8628545EE9751234093BF305F3528E249
+magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011231   (797040) от 27.04.2016
+###  Публикация: 1202163   (790527) от 28.01.2018
 
-VA - Melodic Progressive House Vol. 05 (2016) [MP3|320 кб/с] <House, Progressve House>
+Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
 
->>Electronic
->>House
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797040.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790527.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LTN,Kokai, Arielle Maren -  Just Believe (Blood Groove & Kikis Remix)  6:40
-02. Schodt -  You're Brighter Than The Sun (Original Mix)  6:15
-03. Blugazer -  Feel Me Wondering (Dub Mix)  7:30
-04. Universal Solution -  Pressure Point (Original Mix)  7:25(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:31:07
+01/11. IRM (2:41)
+02/11. Set Yourself On Fire (3:53)
+03/11. Jamais (4:02)
+04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35129F39BF96B270E1FC098E4E547E536EDD42C7
+magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011250   (797041) от 27.04.2016
+###  Публикация: 1202342   (790528) от 28.01.2018
 
-VA - Wow House Inspiration Reserve (2016) [MP3|240-320 кб/с] <Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget House>
+VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797041.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Klik Klak - Get Down (Original Mix) 04:27
-002. Eric Chase Feat. Michelle Hord - I Can't Wait (Extended Mix) 04:35
-003. Lisa Stansfield - Junk (Electro Swing Remix) 06:41
-004. Turbotronic - To The Party (Extended Mix) 04:46(   Читать дальше...   )Жанр: Electronic, House, Soulful, Tech, Funky, Electro, Club, Fidget HouseПродолжительность: 17:00:27
+01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
+02. Mykel Mars - L.A. Nights (Eddy Chrome Hollywood Remix Edit)
+03. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
+04. Secret Ibiza - Eye Contact (Edit)(   Читать дальше...   )Жанр: Lounge,Deep HouseПродолжительность: 04:08:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4CE166446E36AD2F9A8FDC23C32C0BAA4277182
+magnet:?xt=urn:btih:C64D9D8635EE8DDF3087381DBE50BA678EC9CECB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011189   (797042) от 27.04.2016
+###  Публикация: 1202181   (790529) от 28.01.2018
 
-Hammer Fight - Profound And Profane (2016) [MP3|320 кб/с] <Heavy Metal,Thrash Metal>
+Векторный клипарт - Donuts Set 4 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор пончиков
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFBEC60C7159CA0B47D136B259E1979B2B4BE1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202114   (790530) от 28.01.2018
+
+Dio - Master Of The Moon (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More For The Road (3:18)
+02. Master Of The Moon (4:19)
+03. The End Of The World (4:39)
+04. Shivers (4:16)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E199CBD0B88AF63D00AC60D01021801F41BB96C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202423   (790531) от 28.01.2018
+
+Azure Striker Gunvolt | Armed Blue: Gunvolt | Лазурный воин Ганвольт [2017, ONA, 1 ep.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790531.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшем будущем появились люди со спецспособностями, называемые Семёрки. Япония благополучно живёт под контролем корпорации Сумераги, которая втайне занимается поиском и отловом Семёрок, для проведения над ними различных экспериментов. Злобной корпорации противостоит небольшая группа, называющаяся Перья. К этой группе и примыкает главный герой овашки Ганвольт.Производство: студия LandQ Studios / ランドック・スタジオЖанр: приключенияРежиссер: Одака ЁсинориПеревод: extvolЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 1 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E300F67D7362295A65C24313E8A0B6D184AB841A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202154   (790532) от 28.01.2018
+
+Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz, New Age, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude (6:19)
+02. Fly Me To The Moon (5:34)
+03. Going Home (6:10)
+04. Menuetii (3:51)(   Читать дальше...   )Жанр: Jazz, New Age, GuitarПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19BB2222E71DE937AF8008F4FE6B3D631B0720B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202369   (790533) от 28.01.2018
+
+VA - Club House Hits Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790533.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Felguk feat. Sporty-O - 2nite (FENK & PRINSH Remix)
+002. Anton Ishutin feat. Note U - Be My Lover (Nu Gianni Remix)
+003. Pump Gorilla, Voltech - By Your Side (Original Mix)
+004. Years & Years - Desire (Murat Ozturk Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE91EA31185B527240658A6F622496A8CBD066DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202353   (790534) от 28.01.2018
+
+DNCE - DNCE (2016) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNCE
+02. Body Moves
+03. Cake by the Ocean
+04. Doctor You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E4584019AA1669DD33A4D9E7ADAF16680B18F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202284   (790535) от 28.01.2018
+
+Журнал | Всему свету по совету №3 (254) (февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6367ACB21CE3768F47CBFDAD1CE222FA2BEB0EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202295   (790536) от 28.01.2018
+
+VA - Diskoteka 2018 - Winter Weekend (2018) [MP3|320 Kbps] <House, Latino, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John Emil  -  Rewind Replay  3:36
+02.  Elysa  -  Green Light  3:37
+03.  Klaas  -  Close To You  3:10
+04.  Enrique Iglesias & Bad Bunny  -  El Bano  3:48(   Читать дальше...   )Жанр: House, Latino, DanceПродолжительность: 04:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7454D77158F8DD828C6A637B431162278A20695B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202234   (790537) от 28.01.2018
+
+Первая передача на НТВ. Автомобильная передача (2018.01.21) SATRip
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790537.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F79C2D7A6AC6FFA7DF36AF99779EA2052ECA865
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202245   (790538) от 28.01.2018
+
+VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leila Pinheiro - Chega De Saudade [2:36]
+02. Marcos Valle - Samba De Verao [2:30]
+03. Pery Ribeiro - Garota De Ipanema [2:13]
+04. Joyce With Gilson Peranzzetta - Corcovado [3:38](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202329   (790539) от 28.01.2018
+
+VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Electro House, Bigroom House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Amfree, Trash Gordon - Shimmy Shake (Again) (Extended)
+ 02-Raf Marchesini - Pull Over (Original Mix)
+ 03-Mercer & Mystique - Here Comes That Sound (Original Mix)
+ 04-Reel 2 real, Kolya Funk - Move it Song (DJ Che Mash Up)(   Читать дальше...   )Жанр: Club House, Electro House, Bigroom HouseПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202367   (790540) от 28.01.2018
+
+Томас Мертон | Одинокие думы (2003) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Томас Мертон (1915-1968), монах Ордена траппистов, - один из самых значительных духовных писателей XX века. Знаменитым его сделала вышедшая в 1947 году автобиография под названием «Семиярусная гора». Затем последовали ставшие духовной классикой сборники эссе о духовной жизни - «Семена созерцания», «Человек - не остров», дневник «Знамение Ионы», сборники статей «Спорные (   Читать дальше...   )Жанр: Духовная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DC81A35BF023D2593CF8D0D5A54534A4C61049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202247   (790541) от 28.01.2018
+
+Macgo Mac Blu-ray Player Pro 3.2.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2018Разработчик: MacgoПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Ангийский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3DAB4C8B72163D79757738C29502DEDB0E6677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202287   (790542) от 28.01.2018
+
+Stranger - The Bell (1985) Hot Blood Records [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797042.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Picking Up Change
-02. Target Acquired
-03. Into The Dark
-04. Good Times In Dark Ages(   Читать дальше...   )Жанр: Heavy Metal,Thrash MetalПродолжительность: 00:45:54
+1. The Bell
+2. Wheels
+3. Midnight Angel
+4. Woman(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3F373D050B89DB4BEF3924D5AF6EA6A71582D6B
+magnet:?xt=urn:btih:73ADBA9164E7DDD2C6B197A31B3916D6D7468455
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011178   (797043) от 27.04.2016
+###  Публикация: 1202179   (790543) от 28.01.2018
 
-Структура Момента (26.04.2016) SATRip
+VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797043.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельное общественно-политическое ток-шоу "Структура момента", участники которого в формате "круглого стола" будут обсуждать самые острые темы, с которыми сталкивается сегодня Россия. Предлагать на суд общественности возможные варианты их решений.Телекомпания: Первый каналЖанр: Информационно-аналитическая программа, политикаПродолжительность: 01:08:17
+01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
+04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DAE6C235B3452901E6C45DCF0106BBBD5E7E2ED
+magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011242   (797044) от 27.04.2016
+###  Публикация: 1202318   (790544) от 28.01.2018
 
-Dave Weckl Band - Perpetual Motion (2002) [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Up
-02. Child's Play
-03. Mesmer-Eyes
-04. Skipper(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8F9C7DDA1A4F88596E6BDC38ACB0ECC4F2A252
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011365   (797045) от 27.04.2016
-
-Время покажет с Петром Толстым (27.04.2016) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797045.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973CFA861EC87ED865022BB220645D0EEF557E70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011237   (797046) от 27.04.2016
-
-А. Мирлес, В. Шурко | В зверинце Дурова (1931) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего  школьного возраста.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D6F1CAADB18A229708A8A9716C34472BAA1209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011162   (797047) от 27.04.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (26.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797047.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46C495A039D40E666F3616FE5031F43E86125B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011412   (797048) от 27.04.2016
-
-Русский вопрос (27.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797048.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Русский вопрос" – еженедельная авторская программа директора Института стран СНГ Константина Затулина.В этом выпуске: 1. Страсти по капремонту. 2. Сочи: в поисках формулы Евразии. Город зимней Олимпиады и Формулы-1 принимает сторонников евразийской интеграции.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаРежиссер: Александр ДавыдовПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD5DBA92C28F448458667938AA2ACE4E7FB6B6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011351   (797049) от 27.04.2016
-
-Место встречи. Кому нужна была перестройка? (27.04.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE3C51CDFDE5A6625207FB20A0114C20FF2DCEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011260   (797050) от 27.04.2016
-
-Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Tech House>
+VA - The Ultimate Lounge Collection Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797050.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	For Some Time Past
-02.	Dizoxin
-03.	Caliphone
-04.	Piko(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:17:00
+01.  Stuce The Sketch  -  Silver Days (feat. Wenawedwa) (Original Mix)  4:15
+02.  Maximus & Trilogy  -  Du Ar (Original Mix)  4:06
+03.  Alexandra Hampton  -  Love (feat. Ahbee) (Original Mix)  3:32
+04.  Praful  -  One Day Deep (Original Mix)  5:47(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
+magnet:?xt=urn:btih:E766F14F235CD168C4BB19FA3B3EF8AC76C4E6FB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011439   (797051) от 27.04.2016
+###  Публикация: 1202014   (790545) от 28.01.2018
 
-Нгуен Динь Тхи и др. | У подножия горы Нге (1975) [FB2]
+Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acoustic, Alternative, Surf>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В сборник входят повесть и рассказы известных современных детских писателей ДРВ и Южного Вьетнама, рисующие жизнь вьетнамских детей, их участие в пионерских делах, в борьбе народа за свою свободу. В книге читатель найдет повесть Ван Чаунга "Тайна храма Трех сестер", рассказы Фам Хо, Май Нгы, Нгуен Лая и других писателей.Жанр: Детская прозаПеревод: Инесса ЗимонинаФормат: FB2
+01. Dust Layers (04:34)
+02. Another Time (04:28)
+03. Sunlight Daze (03:09)
+04. Island Shore (04:27)(   Читать дальше...   )Жанр: Indie, Acoustic, Alternative, SurfПродолжительность: 00:42:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:011979E33ECEC4BFD24F37B3656A957FA288A25B
+magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011253   (797052) от 27.04.2016
+###  Публикация: 1202338   (790546) от 28.01.2018
 
-Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Первый матч. Манчестер Сити (Англия) - Реал (Испания). (26.04.2016) HDTVRip [H.264/720p-LQ]
+VA - RLX 16 - The Chill Out Collection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797052.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-26 апреля 2016, вторник. 21:45 МСК
-1/2 финала. 1-й матч
-
-Стадион: Этихад - Сити оф Манчестер (Манчестер, Англия) , вместимость: 55097(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Денис Казанский) / ИнтершумПродолжительность: 01:48:36
+01.  Lazy Hammock  -  Deep Sunday Bliss (Original Mix)  4:42
+02.  Marc Hartman  -  French Melody (Original Mix)  3:35
+03.  Jens Buchert  -  On The Run (Original Mix)  4:39
+04.  Lazy Hammock  -  Is This Love (Original Mix)  4:30(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CAEE82513A578D999D5A81FFAD6AD5A20C4FF98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011145   (797053) от 27.04.2016
-
-Jens Jakob - Another Dimension (2016) [MP3|320 кб/с] <Trance, Psy-Trance, Breaks>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paranoia (Original Mix) (08:31)
-02. Sphere (Original Mix) (07:23)
-03. Another Dimension (Original Mix) (07:45)
-04. Supernova (Original Mix) (09:38)(   Читать дальше...   )Жанр: Trance, Psy-Trance, BreaksПродолжительность: 02:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6496517792FA4FA080413F290D8E22025AB33EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011255   (797054) от 27.04.2016
-
-Alexey Lapin & Yury Yaremchuk (Алексей Лапин и Юрий Яремчук) - Anatomy of Sound (2010) Solyd Records[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birth [06:51]
- 02.Transformations [07:25]
- 03.Transmutations [06:03]
- 04.Transconfigurations [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC865A85A091D2A5CD5AA5BD7E5F679722E83D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010752   (797055) от 27.04.2016
-
-Футбол. Чемпионат Франции 2015-2016. 35 тур. Марсель - Нант (24.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797055.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 апреля 2016, воскресенье. 15:00 МСК
-35-й тур
-
-Стадион: Велодром (Марсель, Франция) , 19 898 зрителей (30 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Казаков)Продолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341A709DF28B644AE1A6828FA1C6AB867ED8BCDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011175   (797056) от 27.04.2016
-
-Футбол. Чемпионат России 2015-2016. 25 тур. Обзор матчей. (25.04.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 25-го тура.Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Филипп Кудрявцев)Продолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A336F11F47F3BEE0FD31D5D2375CE57DB37D05
+magnet:?xt=urn:btih:3BCD3E7932F093F0D197370590A36B273CDC3284
 ```
 
 

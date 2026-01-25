@@ -1,3 +1,54 @@
+###  Публикация: 1394410   (763755) от 05.07.2020
+
+The Wolfhounds - Electric Music (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cant' See The Light (album version) (04:56)
+ 2. Like Driftwood (04:41)
+ 3. Song Of The Afghan Shopkeeper (after Ben Judah) (04:25)
+ 4. Lightning's Going To Strike Again (05:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81480A22DEDF8E3671307A1A0DC6CCF999A28BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214586   (763970) от 22.03.2018
+
+Ночные Снайперы - инстаграм (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. инстраграмЖанр: RockПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF02BBE84A075B6BF675D0C935BD070DF2AA624F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214585   (763987) от 22.03.2018
 
 Alestorm - Captain Morgan's Revenge: 10th Anniversary Edition (Japanese Edition) 2CD (2018) [FLAC|Lossless|image + .cue] <Scottish Pirate Metal>
@@ -638,60 +689,6 @@ Carmine Appice - Carmine Appice's Guitar Heroes (2010) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868812B1A3DFA0B8AE93B5119097DDA4425C5DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126649   (764654) от 19.04.2017
-
-Kill The Romance - Logical Killing Project (2005) EP [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Filth Water  (04:55) 
-02. Countdown to Domination  (03:31) 
-03. Killers of Romance  (03:28) 
-04. Demons in Me  (04:27)Жанр: Melodic Death MetalПродолжительность: 00:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4483AC016EA5AFC9661A5CF973B0A1C787E2046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394145   (764695) от 04.07.2020
-
-Paul Weller - On Sunset (Deluxe) (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirror Ball (07:37)
- 02. Baptiste (03:06)
- 03. Old Father Tyme (03:56)
- 04. Village (03:19)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C455A95175C66DF8CAC3721D998769947354A39F
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 911885   (614490) от 24.06.2015
+
+Aaron Fink - Saint Sylvania (2015) [MP3|320 кб/с]<Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After the Afterglow
+02. Atomic Doves
+03. The Other Side
+04. Nor'easter(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73D9AC75AB61F5393E46C9093C0F3C5FA6D83C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 685185   (614529) от 31.07.2013
+
+Настя - Звездная серия. Рок Энциклопедия (2003) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снежные Волки (2:26)
+02. Ариандна (4:50)
+03. Невеста (5:08)
+04. Москва (4:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911753   (614587) от 24.06.2015
 
 District 97 - In Vaults (2015) [FLAC|tracks+.cue]<Progressive Rock, Crossover Prog>
@@ -651,60 +705,6 @@ Pianos Become The Teeth - Keep You (2015) Deluxe Edition [MP3|320 кб/с]<Screa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA94E86DF253EA90B469428C101FB2790D55304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146001   (616205) от 28.06.2017
-
-Elton John - Reg Strikes Back (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Town Of Plenty (3:38)
-02. A Word In Spanish (4:37)
-03. Mona Lisa And Mad Hatters (Part Two) (4:11)
-04. I Don't Wanna Go On With You Like That (4:33)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D663647DE883530B424ADA5C1CAC99C55E626736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911342   (616303) от 23.06.2015
-
-The Prophets Of Addiction - Reunite The Sinners (2015) [MP3|320 кб/с]<Glam Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. As We Fall
-2. Welcome to the Show
-3. Kings and Queens
-4. Razor’s Edge(   Читать дальше...   )Жанр: Glam Hard RockПродолжительность: 00:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC1073A2E58788157529A820D80CF6BB5F6FDB5
 ```
 
 

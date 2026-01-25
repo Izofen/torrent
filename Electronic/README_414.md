@@ -1,3 +1,82 @@
+###  Публикация: 1123403   (792482) от 07.04.2017
+
+VA - Jazz House Instrumental: Jazzy Soulful Tracks and Instrumental Club Tunes (2017) [MP3|320 Kbps] <Deep House, Chill House, Jazzy>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duran y Garcia — Heavy Piano
+02. Key Tronics Ensemble — Music You Got Me — Free Piano Mix
+03. Duran y Garcia — Jazz Expression
+04. Don Carlos — House of Blues — Club Mix(   Читать дальше...   )Жанр: Deep House, Chill House, JazzyПродолжительность: 02:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D7F0A4813E48681CE8EBB85AA3B58A4E428C85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123124   (792483) от 07.04.2017
+
+Freescha - Discography 12 Releases (1999-2016) Attacknine [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Leftfield, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freescha - What In The Rad (05:06)
+ 02. Black Moth Super Rainbow - Bad Fuckin Times (02:43)Тип издания: CD, Vinyl, WebЖанр: IDM, Downtempo, Ambient, Leftfield, Experimental •Продолжительность: 00:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C132C6E4F908F7D963041041170AD2126B1A611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123098   (792484) от 07.04.2017
+
+VA - Goa Culture Vol.24 (2017) [MP3|320 Kbps] <Trance, Psy-Trance, GOA>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Hypnose - Mystic India  8:00
+02.  Static Movement - Heaven  7:03
+03.  Microlin - Love One Another  8:58
+04.  Champa vs Mechanimal - Imagine (Refocus Remix)  8:00(   Читать дальше...   )Жанр: Trance, Psy-Trance, GOAПродолжительность: 02:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93519AD6ECF47CE1E7023C096863CBED12E24BD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360802   (792506) от 31.05.2020
 
 VEiiLA - Discography 16 Releases (2016-2020) Wormhole World [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Experimental, Trip Hop, Deep House, Dream-Pop>
@@ -611,87 +690,6 @@ VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B238577AFD770CFCAA7BF682F0F32F7CA4006F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386711   (793386) от 30.05.2020
-
-VA - Midnight Flight Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Midnight Flight (Original Mix)
-02. Marco Moli - Only Minutes Away (Original Mix)
-03. Marc Hartman - Emission of Love (Song for Wensi) (Original Mix)
-04. Chillson, Marc Hartman - It's Allright (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7B0D76C6E746C94BAFEF9B6520AB1890BEB1AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386769   (793473) от 30.05.2020
-
-VA - Rhythm Code 5 (2020) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psydub, Downtempo, Glitch>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ekorce - Feel Your Skin (05:57)
-02. Bumble - Desication (04:29)
-03. Beatroots - Indecisive Storms (05:13)
-04. Ecometric - Conifer (04:42)(   Читать дальше...   )Жанр: Psychill, Psydub, Downtempo, GlitchПродолжительность: 02:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B128906A33FBB2A2375FFEDD1186AD84450951C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122713   (793514) от 06.04.2017
-
-VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matt Darey & Kate Louise S - See The Sun (Original Mix)  5:35
-02.  York & Jennifer Paige - Lost Under The Sun (Max Denoise & Harnam Remix)  5:28
-03.  Asheni - Only Magic  6:26
-04.  Ayla - Angelfalls  4:24(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 02:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3634EF62FC6589D93E1475881F8D011C57883D54
 ```
 
 

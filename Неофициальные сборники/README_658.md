@@ -1,3 +1,30 @@
+###  Публикация: 1479362   (1009538) от 24.06.2021
+
+VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009538.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mundos Sutis - Something Elegant
+002. Deeperwalk - Back Home
+003. Truvor - Broken
+004. Cup & String - No Pressure(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479242   (1009547) от 24.06.2021
 
 VA - Samsara Heat (Vol.01) (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
@@ -668,33 +695,6 @@ VA - Fly Dancing: Dancehall Summer Party (2021) [MP3|320 Kbps] <Dancehall, Dub R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5645E367E4CBCE9332DD08952C0AD5ADA8770E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478157   (1010509) от 18.06.2021
-
-VA - Confessions (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bark - Malady
-002. Psychedelic - Tripolasaur
-003. Matthew Sweet - Give A Little
-004. Tomemitsu - And Now(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 07:28:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B95EA6F72EE6D38129175CB24D031503A143514
 ```
 
 

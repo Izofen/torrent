@@ -1,3 +1,30 @@
+###  Публикация: 1045327   (559824) от 23.08.2016
+
+VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal Trance, Emotional, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex-Driver Ft. Julie Harrington - Aurora (Original Mix) 06:45
+02. Adam Ellis & Katty Heath - Made It Through The Rain (Original Mix) 07:36
+03. Aly & Fila With Omar Sherif & Jonathan Carvajal - A New Age (Fsoe 400 Anthem) 07:20
+04. Ula - Meruem (Plutian Remix) 07:32(   Читать дальше...   )Жанр: Trance, Melodic, Vocal Trance, Emotional, Uplifting TranceПродолжительность: 06:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86079F80381A7B58ED33F49970441353306B7CE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045343   (559833) от 23.08.2016
 
 VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
@@ -698,33 +725,6 @@ VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045031   (561256) от 22.08.2016
-
-VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boxtops - The Letter
-02. The Beatles - We Can Work It Out
-03. The Rolling Stones - Play With Fire
-04. Zombies - She's Not There(   Читать дальше...   )Жанр: Rock, ArtRock, HardRockПродолжительность: 07:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
 ```
 
 

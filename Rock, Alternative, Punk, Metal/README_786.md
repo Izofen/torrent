@@ -1,3 +1,57 @@
+###  Публикация: 927566   (524111) от 14.08.2015
+
+Stray Cats - Les Genies du Rock - Rockabilly Live (1994) [MP3|320 кб/с]<Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blast Off (2:58)
+02.  Runaway Boys (3:34)
+03.  Stray Cat Strut (4:36)
+04.  Rockabilly Rules O.K. (3:19)(   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C33548774D36D846D5DBD9B0100DA5E0230C14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927465   (524112) от 14.08.2015
+
+Nuclear Sun - Rising (2015) EP [FLAC|Lossless|WEB-DL]<Industrial Rock | Futurepop | Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relatively Perfect
+02. Kill 'Em All
+03. Self-Immolate
+04. Invincible(   Читать дальше...   )Тип издания: АльбомЖанр: Industrial Rock | Futurepop | ElectronicПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871841BD86AF85D2E33E5DF02299F354171DE087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927782   (524113) от 14.08.2015
 
 The 13th Floor Elevators - Les Genies du Rock - You'Re Gonna Miss Me (1993) [MP3|320 кб/с]<Rock, Psychedelic Rock>
@@ -637,58 +691,6 @@ magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A24A2C2697A8DCB6D28E0127E6E21D660F054BE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927512   (524917) от 13.08.2015
-
-Soulfly - Archangel (2015) [MP3|320 кб/с]<Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Sold Our Souls To Metal
-02. Archangel
-03. Sodomites (Feat. Todd Jones Of Nails)
-04. Ishtar Rising(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE4EFD5291A71489A388FD186517D612C099898
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268736   (524931) от 17.09.2016
-
-Green Day - Green Day - 15 альбомов (1990-2014) [APE, FLAC|Lossless|image + .cue|tracks + .cue]<Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Green Day — американская панк-рок-группа, состоящая из трёх участников: Билли Джо Армстронг (вокал, гитара), Майкл Дирнт (бас гитара, бэк вокал), Тре Кул (барабаны).
-Green Day первоначально был, частью панк-рок сцены в 1994 Gilman Street, Berkeley, California. Их первые альбомы на независимом лейбле Lookout!Records, позволили группе заработать множество фанатов. (   Читать дальше...   )Жанр: Punk-RockПродолжительность: 10:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C258A52F9644F685BA9483AE2958306CA0BCAD
 ```
 
 

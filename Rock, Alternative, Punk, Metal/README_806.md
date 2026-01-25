@@ -1,3 +1,57 @@
+###  Публикация: 1044363   (548255) от 31.08.2016
+
+Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Need My Ride
+02 Southern Native
+03 Everyman
+04 Call Of A Hero(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047725   (548267) от 31.08.2016
+
+Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_548267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Is A Lie
+02. Remember My Words
+03. Elements
+04. It´s Not Over Yet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896D57C5524645FDD82BB666734C48A17E19DE01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047905   (548336) от 31.08.2016
 
 The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image + .cue] <Blues Rock, Psychedelic Rock>
@@ -635,60 +689,6 @@ magnet:?xt=urn:btih:4BF59EEA6B602028852E7D805B45A315975BA0B8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C3072ECC1184CEA9E0612B2E9D951DF231480DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047528   (549338) от 30.08.2016
-
-Viсiоus Rumоrs - Соnсussiоn Рrоtосоl (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concussion Protocol
-02. Chemical Slaves
-03. Victims Of A Digital World
-04. Chasing The Priest(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F28E724A1ED4973D9AB9FDB464368C435ADF2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047514   (549339) от 30.08.2016
-
-Неlstаr - Vаmрirо (2016) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken Into Darkness
-02. Blood Lust
-03. To Dust You Will Become
-04. Off With His Head(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB4853CC7B0EEF3B3CC2C3BDE8E44BE6677A17C
 ```
 
 

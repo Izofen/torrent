@@ -1,3 +1,57 @@
+###  Публикация: 1207383   (780782) от 17.02.2018
+
+Пилот - Пандора (2018) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гаятри (Пайлот Бабаджи)
+02. Пандора
+03. Нелюбовь
+04. 4 на 4(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E7CDBAB288EB68169577F86C5FD0B952FF0CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207395   (780784) от 17.02.2018
+
+Конец фильма - Конец фильма (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780784.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я дам тебе все
+2. На все 100роны
+3. По походке
+4. Тема любви(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AC886EB426B484635006210F639CA5E20C1229
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207288   (780846) от 17.02.2018
 
 Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
@@ -647,60 +701,6 @@ magnet:?xt=urn:btih:FC6DC32806E17090ED73ABDFC3A859C20D1F6D54
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391155   (781421) от 19.06.2020
-
-Bob Dylan - Rough and Rowdy Ways (2020) [FLAC|Lossless|tracks] <Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Contain Multitudes (04:36)
-02. False Prophet (06:00)
-03. My Own Version of You (06:41)
-04. I've Made Up My Mind to Give Myself to You (06:32)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84264F10511C282B85D116F0501E012DA20E172B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391116   (781436) от 19.06.2020
-
-Neil Young - Homegrown (2020) [MP3|320 Kbps] <Folk Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate Ways (03:33)
- 02. Try (02:49)
- 03. Mexico (01:41)
- 04. Love Is A Rose (02:17)(   Читать дальше...   )Жанр: Folk Rock, Singer-SongwriterПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A9220DFFF72C387569270C4F9C01E2CD341F0F
 ```
 
 

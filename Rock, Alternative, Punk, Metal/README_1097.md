@@ -1,3 +1,56 @@
+###  Публикация: 1376957   (855064) от 20.04.2020
+
+Nobody.one - Mercy, Please Mercy! (2020) [FLAC|Lossless|tracks] <Instrumental, rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jaguar [3:05]
+2. Tribe Solder [2:55]
+3. Sombrero [2:52]
+4. Mercy [4:28](   Читать дальше...   )Жанр: Instrumental, rockПродолжительность: 50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B55A6109BF1E5AF4CA47D2F2A411725C506F527
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376848   (855198) от 20.04.2020
+
+In Dying Arms - 3 Albums (2011-2016) [MP3|320 Kbps] <Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855198.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - In Dying Arms (Remake 2017)
+2012 - Boundaries
+2016 - Original SinЖанр: Deathcore, MetalcoreПродолжительность: 02:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84490FD0FDA9C26FE98E087C2389D45EBB0E19B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000786   (855414) от 27.03.2016
 
 The Hillbilly Moon Explosion - With Monsters and Gods (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Psychobilly, Rockabilly>
@@ -648,60 +701,6 @@ Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376761   (857024) от 19.04.2020
-
-Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyager [01:17]
-02. Luto perpetuo [02:31]
-03. Gloria al Occultismo [06:15]
-04. Chant of the Souls [03:20](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD4F4700131889A4C9A692E2094DA2A3DB7618E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000008   (857175) от 26.03.2016
-
-Scorpions - World Wide Live (2015) 50th Anniversary Deluxe [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown (00:42)
-02. Coming Home (03:18)
-03. Blackout (04:05)
-04. Bad Boys Running Wild (03:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64AA62C3F7E911ACC72D726359FBDCFA4818B773
 ```
 
 

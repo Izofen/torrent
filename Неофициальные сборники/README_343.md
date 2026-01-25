@@ -1,3 +1,30 @@
+###  Публикация: 772452   (574005) от 20.05.2019
+
+VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574005.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Sweet Emotion
+002. Led Zeppelin - Kashmir
+003. The Rolling Stones - Gimme Shelter
+004. AC/DC - Back In Black(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 07:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908663   (574145) от 20.05.2019
 
 VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D868FFFF9459F4FE10B274543F550284B48019DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233891   (575627) от 02.07.2018
-
-VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alakin Kirill - Save to memory (Extended mix)
-002. Alakin Kirill - Tarzan (Original mix)
-003. All Saints - Love Lasts Forever (Pink Panda Extended Vocal Mix)
-004. Andrey Pitkin & Alexander Gecko - Flying Emotion  (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8379B70F44BCF3434E228FF66BD2638E51C0F7
 ```
 
 

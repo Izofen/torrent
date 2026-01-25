@@ -1,3 +1,57 @@
+###  Публикация: 1530632   (728913) от 11.02.2022
+
+VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эпидемия - Мёртвые звёзды
+2. 7000$ - Бой!
+3. ПОЛ ПУНШ - Они убили Кенни
+4. Винтаж - Москва(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B61EF65958CFF6F66946301CCDAA3CF4C5D8ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022680   (728930) от 02.06.2016
+
+Derdian - Revolution Era (2016) [MP3|320 кб/с] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overture (feat. Apollo Papathanasio)
+2. Burn (feat. Henning Basse)
+3. Beyond the Gate (feat. GL Perotti)
+4. Battleplan (feat. Davide Damna Moras)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C093EF5D0D8D680F970C52F6C635B9B6E67B4220
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284357   (728959) от 21.02.2019
 
 A Pale Horse Named Death - When The World Becomes Undone (2019) [FLAC|Lossless|tracks + .cue] <Stoner, Gothic, Doom Metal>
@@ -641,60 +695,6 @@ Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714DB9C619172225FA4732D5CCB6C19FD74D5A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127897   (730072) от 23.04.2017
-
-Labyrinth - Architecture Of A God (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот прогрессив-пауэр-металлический проект горячие итальянские парни основали в 1991 году. Как водится, поначалу это была обычная гаражная банда, пытавшаяся играть андеграундный металл. Спустя несколько лет чуваки поднабрались опыта и музыкального мастерства и в 1994 году записали свою первую демку "Midnight Resistance". Эта работа получила хорошие отклики (   Читать дальше...   )01. Bullets (6:56)
-02. Still Alive (4:49)
-03. Take On My Legacy (4:05)
-04. A New Dream (5:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615A8A29FD86C1F816FAC70F89489600C4C30DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127895   (730082) от 23.04.2017
-
-Night Demon - Darkness Remains (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Night (3:53)
-02. Hallowed Ground (3:24)
-03. Maiden Hell (2:46)
-04. Stranger In The Room (4:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B63A91344598BD8088D6E8E40730859457757A0
 ```
 
 

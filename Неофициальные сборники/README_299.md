@@ -1,3 +1,30 @@
+###  Публикация: 934482   (502521) от 05.09.2015
+
+VA - For All Lovers vol. 4 (2014) [MP3|320 кб/с]<Pop, Electronic, Pop-Rock, Dancepop, Soul, House, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя этот диск присутствует у меня в формате lossless и лог извлечения есть, но ввиду моего подозрения на самопальность, выкладываю его в этом разделе. Очень мне понравился авторский набор композиций. А уж Donna Summer с её композицией 1979 года There Will Always Be a You мало кто помнит.01. Billy Cobham And Asere - Destinos  (6:11)
+02. Demis Roussos - Love Me Tender  (4:15)
+03. Donna Summer  - There Will Always Be a You  (5:08)
+04. Julio Iglesias - L-O-V-E  (2:44)(   Читать дальше...   )Жанр: Pop, Electronic, Pop-Rock, Dancepop, Soul, House, R&BПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E524DF2B205F6CBDF1BB7D9BF1DBDD919D198C43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934488   (502523) от 05.09.2015
 
 VA - Resident Advisor Top 50 Charted Tracks August 2015 (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
@@ -727,33 +754,6 @@ VA - Super Hits Of Russian Dance & Club House [Compiled by Zebyte] (2015) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51791D49C9477483C658DEA5332DFD1A67DEF8EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933841   (504602) от 03.09.2015
-
-VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave & Get Closer - The Time Before (Original Mix)
-02. Mary J. Blige - Real Love (Christofi Glenn Michaels Remix)
-03. Denis Kenzo & Kimberly Hale - Find The Light (Original Mix)
-04. Matvey Emerson - Run Away (Original Mix)(   Читать дальше...   )Жанр: Trance, Dance, House, Synthpop, ClubПродолжительность: 09:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
 ```
 
 

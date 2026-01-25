@@ -1,3 +1,82 @@
+###  Публикация: 1237070   (553317) от 22.07.2018
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani - Ozone (Markus Schulz Extended Remix)
+02. Arkham Knights - Industry (Extended Mix)
+03. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
+04. Tilt - Miracle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE343C725F21E5B101DCB19AB27A87D53CC040CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237193   (553321) от 22.07.2018
+
+VA - Blue (2016) WFMU [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannes Strobl – Yves Klein (05:23)
+02. Philip Marshall – This Is How You Disappear (04:15)
+03. Simon Wickham-Smith – Cerulean Breathing (04:35)
+04. Omit – Dark Blue Down (04:59)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73B8344988086A37D75405DBF558BC917847482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174683   (553600) от 21.07.2018
+
+ENA - Discography 21 Releases (2008-2018) Horo, Samurai Horo, 7even [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Techno, Abstract, IDM, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9th Divided (04:44)
+ 02. 10th Divided (04:41)Тип издания: CD, WebЖанр: ExperimentalПродолжительность: 00:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173F1A06EDFD0DE7050D5942727120DF174B48C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237011   (553604) от 21.07.2018
 
 Logistics - Hologram (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n Bass, Liquid Funk>
@@ -614,87 +693,6 @@ Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48D6D2C8B408585BB7332A3647055226C39ACAA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307236   (555228) от 08.06.2019
-
-Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Post Rock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Particle X (A Sudden Memory) (01:14)
- 02. Particle VI (Shadow & Light) (03:11)
- 03. Particle V (02:09)
- 04. Particle VI B (Navigators) (04:31)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Post RockПродолжительность: 00:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633E6F118A3FD2BDD4D0E78B735A32322F6EFB1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307242   (555239) от 08.06.2019
-
-Black Lung - The Great Manipulator (2019) Metropolis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Electro>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelation Of The Method (06:49)
- 02. Roth (06:00)
- 03. The Great Manipulator (05:51)
- 04. The Crown Family Theme (04:51)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, ElectroПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F4763451027C29A4DF98E439FCA943C0BFE1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307227   (555251) от 08.06.2019
-
-Ripperton - Contrails (2019) ESP Institute [FLAC|Lossless|WEB-DL|tracks] <Ambient, Leftfield>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Snow (05:33)
- 02. Pendant Qu'ils Dorment (06:34)
- 03. Ghetto Berlino (08:26)
- 04. Lonely Walk (04:32)(   Читать дальше...   )Жанр: Ambient, LeftfieldПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39EE59F4217E16F348DE4C25457E6AAD17B94AF
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 904038   (656890) от 01.06.2015
+
+Back Street Crawler - 2nd Street (1976) Remastered /2004, Wounded Bird Records/ [FLAC|image+.cue]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selfish Lover (John "Rabbit" Bundrick) 03:29
+02. Blue Soul (Terry Wilson) 03:48
+03. Stop Doing What You're Doing (Back Street Crawler) 03:29
+04. Raging River (Terry Wilson) 03:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829B0A78BF9BA66E786139810DE5153A0C68AFB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140173   (656922) от 05.06.2017
+
+Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records [MP3|320 Kbps] <Rock, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656922.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ghost Story
+2. Remember The Good Times
+3. Arabella (Oh Tell Me)
+4. Silas & Jerome(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 01:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140191   (656925) от 05.06.2017
 
 Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
@@ -653,60 +707,6 @@ Meat Loaf - Couldn't Have Said It Better (2003) 2CD, Special Edition [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F8BD85241F948499155252A6C4AABF565AB29F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539589   (657275) от 26.03.2022
-
-The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Apocalypse (00:04:51)
-02 - Smoke Alarm (00:03:17)
-03 - Silver Tongue (00:05:06)
-04 - Like a River (00:04:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E014D1BDFB29E6823FFF95FB62BF426413DD2737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539587   (657301) от 26.03.2022
-
-Spiritraiser - Ciklos (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Artificial Light (00:05:45)
-02 - Invisible Enemy (00:04:38)
-03 - Glory (00:04:30)
-04 - Stream (00:04:04)(   Читать дальше...   )Жанр: Progressive, Psychedelic RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD7C9BD130425050624DD223AB02F788F9579DE
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1196642   (822412) от 03.01.2018
+
+Halestorm - On the Heels of a Myth (2013) Live from Myth Nightclub [MP3|320 Kbps] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Bites (So Do I) 3:39
+02. Mz. Hyde 4:03
+03. It's Not You 3:23
+04. Freak Like Me 4:45(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C56130304DECE8ACDEFC3ECAFBAC724F1C5F07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196605   (822545) от 03.01.2018
+
+Renia - First Offenders (1973) Reissue, 2011, Flawed Gems [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822545.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You'd Best Believe It
+2. Friend Out On The Road
+3. Breakneck
+4. Shelter(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8A8BF80F3F9C850020D0317A8033009AE5A4AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196632   (822551) от 03.01.2018
 
 Halestorm - Apocalyptic (2015) Single, Atlantic Recording Corporation, 548818-2 [MP3|320 Kbps] <Alternative Rock, Hard Rock>
@@ -636,60 +690,6 @@ VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2561CD98BC24534B402EBC6345009A58970FC2EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005410   (832553) от 09.04.2016
-
-Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Changes
-02. Tears of December
-03. Lay Me Down
-04. Lost Prayer(   Читать дальше...   )Жанр: Southern RockПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F435E0A97DF024F01B26936C41B00978BA4247D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005649   (832627) от 09.04.2016
-
-VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-1969 (2001) [MP3|320 кб/с] <Garage Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Creation - Making Time (2:58)
- 02.  Fire - Father's Name Was Dad (2:29)
- 03.  The Move - I Can Hear The Grass Grow (3:07)
- 04.  The Smoke - My Friend Jack (3:01)(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 05:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA8981467801323C89B8A672A0686CC02F225D1
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1374350   (872984) от 10.04.2020
+
+Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempest (8:14)
+02. Departure (6:37)
+03. Godspeed (8:26)
+04. In My Mind (8:28)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E49FF20B55F3809598876FDAD15DE66CF0168C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374569   (873169) от 10.04.2020
+
+VA - One Synth (2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Synth>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4T Thieves - The North (4:17)
+02. Aaron Jasinski - Late to the party (4:00)
+03. Abyssal Plains - Salamander (6:48)
+04. Blake Casimir - Aura Ceni (3:45)(   Читать дальше...   )Жанр: IDM, Ambient, SynthПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1FD88B969EA587F8378EE04144D30ADCC4E963
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643636   (873464) от 14.04.2013
+
+David August - Times (2013) [FLAC|Lossless]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpe Through
+02. For Eternity
+03. Phenomena
+04. Anthem(   Читать дальше...   )Жанр: Tech House, Deep HouseПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106338   (873756) от 19.02.2017
 
 VA - Naked Lounge Vol.2: Erotic and Soulful Chill Out Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -612,87 +693,6 @@ VA - St Valentine Lounge and Piano Chill for Lovers (2017) [MP3|320 Kbps] <Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7C6ECE8659AD342394C8305F693458A18B73A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105189   (876543) от 17.02.2017
-
-VA - Acoustic Covers Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shannon & Keast - Umbrella - Acoustic Version
-02. Hannah Dorman - Pumped Up Kicks - Acoustic Version
-03. Ginnie - Secret Love Song
-04. Karizma Duo - Cry Me a River(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C953DFBA6BFDB8E19B23EB5EF9E363B386EE71E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373701   (876712) от 08.04.2020
-
-VA - Massive Erotic Lounge Kiss (2020) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876712.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Frank Demegni - Di Cortesia (4:41)
-2.AMS - Mo (6:33)
-3.Liquid Groove - Solar (3:09)
-4.Konnor Sullivan - When You Kiss Me (Blue Chill Mix) (4:55)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:501C49D72942187058EF7C715BA22BCFDDF9BB6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105318   (876736) от 17.02.2017
-
-VA - Lazy Hammock Sounds Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Submersion - My Little Beach (Chillout Mix)  5:18
-02.  Chris Le Blanc - El Sur  4:02
-03.  Seven24 - Hope (Vocal Mix)  4:12
-04.  Doors In The Sand - True Story  4:16(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A65D91BA74B4E55FD8E8224415B0DF9B0B19632
 ```
 
 

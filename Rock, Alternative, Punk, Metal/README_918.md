@@ -1,3 +1,63 @@
+###  Публикация: 514440   (659274) от 23.06.2012
+
+Gemini - Geminism (1987) [MP3|320 кб/с]<Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. T.L.C.
+2. Beat The Heat
+3. Mio, My Mio
+4. Ghost Town
+5. I Am The Universe
+6. Shiffin' On The Snakes
+7. I'm A Bitch When I See Red
+8. There's No Way To Fool A Heart
+9. Wild About That Girl
+10. Nearly There1987Жанр: Rock, Pop-RockПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CF0C9F38634FE2DB573B78B36D08697C278B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903024   (659304) от 30.05.2015
+
+Midriff - Doubts & Fears (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outcry (03:55)
+02. Playing a Role (04:42)
+03. Only a Pawn (In His Game) (04:28)
+04. Long Gone (05:06)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE284052FF337547CE13980EE578D83A2BD83AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903256   (659316) от 30.05.2015
 
 Nekrogoblikon - Heavy Meta (2015) [MP3|~275 кб/с]<Melodic Death Metal, Folk Metal>
@@ -656,60 +716,6 @@ Midnight Odyssey - Shards Of Silver Fade (2015) [MP3|320 кб/с]<Atmospheric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:540FA5D115356B545D1115F3C713C25CD7C6EC6F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538579   (660259) от 23.03.2022
-
-Andi The Wicked - Sexually Transmitted Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Neo-Classical Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staccato Mayhem (04:59)
-02. Just a Tale (07:02)
-03. Sexually Transmitted Mojo (04:40)
-04. The Wicked Interlude (01:04)(   Читать дальше...   )Жанр: Heavy Metal, Neo-Classical Metal, InstrumentalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979FE161ED1185C4E070200D36880D47315CB186
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139242   (660271) от 02.06.2017
-
-Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660271.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tristana (6:41)
-2. Nella Vita, Un Pianto (11:04)
-3. Viaggio Nel Tempo (6:33)
-4. La Casa del Lago (6:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
 ```
 
 

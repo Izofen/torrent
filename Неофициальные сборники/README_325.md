@@ -1,3 +1,30 @@
+###  Публикация: 1046711   (549247) от 30.08.2016
+
+VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Настасия - Если Мы С Тобой
+002. North Base Feat. Mica - Give You Up
+003. Prospektr - Окна
+004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047413   (549251) от 30.08.2016
 
 VA - 100 Dance Vol.2 (2016) [MP3|320 Kbps] <Dance, Club>
@@ -668,33 +695,6 @@ VA - 150 Cross Amsterdam: Summer Dance Party (2016) [MP3|~270-320 Kbps] <Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:877711257348CD568F2006E171E502192A1D537D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047389   (550256) от 29.08.2016
-
-VA - Body Control: Fitness Mix (2016) [MP3|320 Kbps] <Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelino Loren - Plus de maquillage (Radio Mix)
-002. Ttoo - Be Free (Enfortro's Free Anthem Edit)
-003. DJ X Face & Pi Base - Rays of Sunshine (Power Jet Remix)
-004. Lori Glori - You Know What (Randy Norton Edit)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 07:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C2DA29921986CA5CB27EC9E9ABFE82531E6D3A
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1401186   (711300) от 09.08.2020
+
+God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hindsight (Iris Remix) [00:04:10]
+02. Phenomenon (Amnestic Remix) [00:04:54]
+03. Unsound (E.S.A. Remix) [00:05:00]
+04. Grey Forces (Baby Magick "Stryker Roll Out" Remix) [00:02:46](   Читать дальше...   )Жанр: EBM, Aggrotech, Dark Electro, Synthpop, New WaveПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367CD8AA11A999D99ED3C303EB80BC81AD6A9C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401192   (711322) от 09.08.2020
+
+Cultivated Bimbo - Tunes From a High Wire (1992) [MP3|320 Kbps] <EBM, Industrial, Synthpop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up Neighbour [00:01:11]
+02. Sleeping Beauty '91 [00:03:14]
+03. One Kiss, Then Goodbye [00:00:56]
+04. Hooker in Head [00:02:48](   Читать дальше...   )Жанр: EBM, Industrial, SynthpopПродолжительность: 01:02:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378593ED0E52936FC59CED9A3B029D962E96EE0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286676   (711329) от 03.03.2019
+
+Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8-crat_frul35 (03:56)
+ 02. Polydub (06:17)
+ 03. Kaarw4-- (05:37)
+ 04. 101Arpsys3220 (02:08)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401190   (711338) от 09.08.2020
 
 Inside Treatment - Underneath My Purple Shades (1991) [MP3|320 Kbps] <EBM, Electro>
@@ -611,87 +692,6 @@ OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D516B8FEEAAF79F8E34BE75335C50E1D55857F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401029   (713200) от 08.08.2020
-
-VA - Sandwalk Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Sandwalk (Original Mix)
-02. Schwarz & Funk - Keep On (Remastered)
-03. Chillson, Marc Hartman - With You
-04. The Soul Crusaders - This City Never Sleeps(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1058D6826D33B624F035BE10A9F72FA232DA886B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401027   (713247) от 08.08.2020
-
-Washed Out - Purple Noon (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Electronic, Indie Pop, Chillwave>
-
->>Electronic
->>Downtempo, Ambient (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Late (04:12)
-02. Face Up (04:08)
-03. Time to Walk Away (04:15)
-04. Paralyzed (03:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BF346746FDD6356D88E3F27DF9107229CC1359
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401049   (713394) от 08.08.2020
-
-Kedr Livanskiy - Your Need (2019) [FLAC|Lossless|image + .cue] <House, Synth Pop >
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Need (Твоя Беда) (03:27)
-02. Sky Kisses (На Танцполе) (03:12)
-03. Why Love (Зачем Любовь) (02:37)
-04. Lugovoy (November Dub) (03:26)(   Читать дальше...   )Жанр: House, Synth PopПродолжительность: 00:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6462715EEA4A655EB15537A3C5734471BD69753
 ```
 
 

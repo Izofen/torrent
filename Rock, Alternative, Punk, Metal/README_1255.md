@@ -1,3 +1,57 @@
+###  Публикация: 1451332   (1028531) от 01.03.2021
+
+Freddie Mercury - Living on My Own (1993) CDS, Maxi-Single [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living on My Own (No More Brothers Radio Mix) (03:41)
+02. Living on My Own (No More Brothers Extended Mix) (05:17)
+03. Living on My Own (Club Mix) (04:28)
+04. Living on My Own (Julian Raymond Mix) (03:38)Жанр: Pop, Rock, ElectronicПродолжительность: 00:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDC5C58F500595275CB765EA92D63C3D3C7DBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451301   (1028535) от 01.03.2021
+
+Earthshine - My Bones Shall Rest Upon The Mountain (2021) [MP3|320 Kbps] <Atmospheric Doom Metal, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conquer Thy Mountain (07:05)
+ 02. Shadows on the Wall (06:08)
+ 03. A Warm Place with No Memory (06:30)
+ 04. Bleed With Me (08:32)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Post-MetalПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FE315ACC7DD305571CFB1CE235477465443F6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451183   (1028538) от 01.03.2021
 
 Freddie Mercury - The Great Pretender (Remix) (1993) CDS, Maxi-Single [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -639,60 +693,6 @@ Chris Norman - Baby I Miss You (2021) Remastered, Compilation [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F5667BE33788C8162AE98B87CCFA985E7C2550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450777   (1028909) от 27.02.2021
-
-E.S.T. - Electro Shock Therapy (1989) Reissue, Remastered, Special Edition, 2021,  Meat Stocks Records [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перестройка
-02. Джокер
-03. Батько, пожалей коней
-04. Knife(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BDB8748E89F37C1FFBC52202FA82707A8A7A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450593   (1028916) от 27.02.2021
-
-Grand Design - 5 Studio Albums (2009-2020) 5xCD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028916.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Design- шведская мелодик-рок группа, ориентировавшаяся на забытое музыкальное под-жанровое движение 80-х, а именно AOR и Hair Metal. Пелле Сэтер, бывший вокалист Zeelion, Zello и Schizophrenic Circus, а также продюсер / звукоинженер таких групп, как Cryonic Temple, Axenstar, Steel Attack, готовился к созданию новой группы под названием GRAND DESIGN.2009 - Time Elevation
-2011 - Idolizer
-2014 - Thrill Of The Night
-2018 - Viva La Paradise(   Читать дальше...   )Жанр: Hard RockПродолжительность: 04:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABA0E50A8EA07FC19E5C7D14058BFBA0C79814E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1147575   (609387) от 02.07.2017
+
+Don Barnes - Ride The Storm (2017) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609387.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ride the Storm (4:50)
+2. Looking for You (5:11)
+3. I Fall Back (4:15)
+4. Don't Look Down (4:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7801CF139CA5594FAD5A57B231A987A601138E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147291   (609389) от 02.07.2017
+
+Five Horse Johnson - Jake Leg Boogie (2017) [MP3|320 Kbps] <Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jake Leg Boogie (02:40)
+02. Magic Man (04:17)
+03. Cryin’ Shame (04:33)
+04. Ropes and Chains (03:40)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EABCFAF79A8D93E664820C3C3E08DD374FD82AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546021   (609484) от 22.04.2022
 
 Udo Dirkschneider - My Way (2022) Cover Album [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -638,60 +692,6 @@ Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28BCC2F75ADE05519A282CF90E716AF65A822E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912464   (610981) от 26.06.2015
-
-Scavanger - Between the Devil and the Sea (2011) [FLAC|image +cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Rebirth
-03. The Last Judgement
-04. Stalker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A770422030624572F27EBBF62229962DA2639A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912313   (610984) от 26.06.2015
-
-Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Phillips (The Formidable Bastard)
-02. Wielding the Axe
-03. Defiance
-04. Booze & Girls(   Читать дальше...   )Жанр: Southern / Thrash MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E571595358ACA91B914F1BAE4F06FBFB612DE46
 ```
 
 

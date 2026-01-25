@@ -1,3 +1,57 @@
+###  Публикация: 1364432   (936497) от 03.03.2020
+
+Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hologram (03:46)
+02. New World (02:55)
+03. Grains of Salt (03:54)
+04. The Joke of Life (03:19)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C2878171C05774C4FB9EE72E9F7FAFED100B31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364596   (936498) от 03.03.2020
+
+Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Moonlight (04:09)
+02. Ignorant Rain at the End of the World (03:29)
+03. Shining Finger (07:04)
+04. Ticking Time and String (06:28)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00: 43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753370   (936505) от 05.02.2014
 
 Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
@@ -640,60 +694,6 @@ White Widdow - Silhouette (2016) [FLAC|Lossless|tracks + .cue] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC4DD940D2A4AAF9D8B5AD528B830C65D7FC0C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092710   (938877) от 12.01.2017
-
-Crypt Of Silence - Awareness Ephemera (2016) [MP3|320 Kbps] <Doom-Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Longest Winter
-2. Insignificant Sense
-3. Life Passed By
-4. MeridianЖанр: Doom-Death MetalПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8803A230C32EAF84BB5E982D34D9C516FD147CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984619   (938936) от 09.02.2016
-
-The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defying Gravity
-02. Watch You Lose
-03. You Can't Have It All
-04. I Said(   Читать дальше...   )Тип издания: АльбомЖанр: Alternative Rock, Modern RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
 ```
 
 

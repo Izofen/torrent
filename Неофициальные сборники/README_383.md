@@ -1,3 +1,36 @@
+###  Публикация: 521229   (628873) от 10.07.2012
+
+VA - На вершинах хит-парадов 2 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алисия & Влад Корса - Здесь и сейчас
+02. Gotye feat. Kimbra - Somebody That I Used To Know (Bastian Van Shield remix)
+03. Elvira T - Все решено (Fresh Tunes remix)
+04. Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+05. Митя Фомин & Кристина Орса - Не манекен (Ural DJs Dance remix)
+06. Ledina Celo - Can you touch me baby (Edit mix)
+07. Чай Вдвоем - Улетай
+08. Kato - Never let u go (feat. Snoop Dogg & Brandon Beal)
+09. Юля Савичева - Юлия
+10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AAC0C2F24401F599FD52451F6A41E4D5A7DB9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144323   (628900) от 21.06.2017
 
 VA - Moving Dance: Summer Longplay (2017) [MP3|320 Kbps] <Pop, House, Dance>
@@ -710,33 +743,6 @@ VA - American Road Blues (2016) [MP3|192-320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF39C854959FE9497F706F0FF07A71C67138969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035071   (630057) от 15.07.2016
-
-VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-320 Kbps] <Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rihanna — Sledgehammer
-02. Hozier — Better Love (OST Тарзан. Легенда 2016)
-03. Бьянка — Никто Кроме Ты (Летняя Песня)
-04. Snoop Dogg — Eyez Closed (Feat. John Legend & Kanye West)(   Читать дальше...   )Жанр: РорПродолжительность: 03:20:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E54124452BC2A8B0B47C94886219936B0BF714
 ```
 
 

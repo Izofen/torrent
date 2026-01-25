@@ -1,3 +1,84 @@
+###  Публикация: 1314143   (521207) от 12.07.2019
+
+VA - Trance 100 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance, VocalTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521207.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Garibay - Phone Down (Club Mix) 3:13
+002. Above & Beyond - Distorted Truth (Club Mix) 4:13
+003. Gareth Emery & Ashley Wallbridge - Amber Sun 3:32
+004. ARTY - Sunshine 3:01(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTrance, VocalTranceПродолжительность: 05:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841F40FB1B09888F0ECC14E8AB10724635A51997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314140   (521415) от 12.07.2019
+
+VA - Markus Schulz-Global DJ Broadcast-Top 20 July 2019 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson – Culture Shock (extended mix) (6:29)
+02. Probspot – Blueberry (Daniel Wanrooy extended remix) (6:44)
+03. Ferry Corsten Presents Gouryella – Surga (extended mix) (8:02)
+04. Orkidea – Metta (extended mix) (7:20)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC410F3A90D8D636CF36D3EE957A5717732FD6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928710   (521794) от 17.08.2015
+
+VA - Lounge Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delbert Schneider - Viele Male besser [05:07]
+02. Aida Antonelli - Dry the River [04:27]
+03. Benigna Maier - Neuzugang Paradies [04:26]
+04. Yan Gillis - Physical Dimension [04:06](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8BBFF17A4237D9F4495C626343554E0702AFC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294250   (521800) от 28.06.2022
 
 VA - Freebeat Music Records • Compilations Collection - 214 Releases (2008-2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -611,87 +692,6 @@ VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0B51E7BCC508130988820CB1DDC25671890B0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240720   (523701) от 13.08.2018
-
-Anne Guthrie - Brass Orchids (2018) Students Of Decay [FLAC|Lossless|WEB-DL|tracks] <Experimental, Field Recording, Ambient, Industrial>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellona (07:05)
- 02. Serious Water (08:51)
- 03. Red Wolf (05:12)
- 04. Spider (11:21)(   Читать дальше...   )Жанр: Experimental, Field Recording, Ambient, IndustrialПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3FD69BDDC503EBB94008E30DE7942A92DA02FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313461   (523749) от 09.07.2019
-
-VA - Tour De Traum XVII (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emde & Clock - Time
-02. Tas Kessler - Maitage
-03. Davidovitch - Digital Moon
-04. Room Service - Never Ending Story(   Читать дальше...   )Жанр: HouseПродолжительность: 10:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3744535F1CA10928ECD839776E3516BE0C522168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240547   (524251) от 12.08.2018
-
-VA - Ibiza Deep House Essentials (2018) [MP3|320 Kbps] <House, Deep House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KVPV - Star (Club Mix) 4:16
-02. Jozeph - Black Christmas (Original Mix) 8:40
-03. TAKIRU - The Nazz (Original Mix) 7:04
-04. FAT V - Wake Me (Original Mix) 10:09(   Читать дальше...   )Жанр: House, Deep House, ProgressiveПродолжительность: 04:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1EB2AFF928817671C029315AB52E970F4C43FA
 ```
 
 

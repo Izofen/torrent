@@ -1,3 +1,57 @@
+###  Публикация: 904418   (654389) от 03.06.2015
+
+Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elizabeth (3:36)
+02. Happy In The Sorrow Key (2:56)
+03. Southern California Is Your Girlfriend (4:19)
+04. Texas Was Clean (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904301   (654391) от 03.06.2015
+
+Пони - Сами по себе (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рокобоги
+ 02. Финсбери-парк
+ 03. Сами по себе
+ 04. Где-то рядом(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E6A8025247D8061D622B99055317051EA103F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904584   (654392) от 03.06.2015
 
 From First To Last - Dead Trees (2015) [FLAC|tracks + .cue]<Post-Hardcore | Alt.Rock>
@@ -673,60 +727,6 @@ Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4D3AA08E869660DCD6DACB1B7B7D25A54A6AE3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539723   (655049) от 28.03.2022
-
-Greyborn - Leeches (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leeches (00:04:12)
-02 - Bits & Pieces (00:05:07)
-03 - Jharia (00:06:56)
-04 - After Dark (00:03:40)(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0540B19D4A951E02527603E516637D61AA140529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539620   (655053) от 28.03.2022
-
-Colder Suns - Ex-Display (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chemicals (00:04:48)
-02 - I.A.N (00:05:13)
-03 - Waiting For Red (00:02:59)
-04 - Creepers (00:03:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2C6D20149CE0DF9F5422CBEAE6870B8B2D59385
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1498286   (858071) от 26.09.2021
+
+Brainstorm - Wall Of Skulls (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chamber Thirteen
+02. Where Ravens Fly
+03. Solitude
+04. Escape The Silence(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6C52A9BD214330FEEC1104747AC7AEAFF17325
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498398   (858185) от 26.09.2021
+
+Virial - Transhumanism (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery [00:00:32]
+02. Project Cyclops [00:05:44]
+03. Interstellar Voyage [00:05:38]
+04. March of Prometheus [00:04:29](   Читать дальше...   )Жанр: Progressive Death, Melodic DeathПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD1D93EFC6EBC6C0FFF2435B2F905D2232080F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376566   (858558) от 18.04.2020
 
 No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
@@ -638,60 +692,6 @@ Steve Hackett - Surrender of Silence (2021) [FLAC|Lossless|tracks + .cue] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF38F18F38FBC8BFD48675DFE8C3DECB771D6D9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498075   (859772) от 25.09.2021
-
-Brothers In Arms - Sunset And Clark (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bitch Is Crazy
-02. Last To Know
-03. The City Never Sleeps
-04. Feel The Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4710ADC489E2346B7E3BF30D58C634A791086A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498077   (859777) от 25.09.2021
-
-Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightmare (Intro)
-02. Dark Miracles
-03. Pendulum Of Time
-04. The Great Silence(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FD0ABF57AFFD55833653DE1E6BBA2F1D3B5F1E
 ```
 
 

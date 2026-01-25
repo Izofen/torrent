@@ -1,3 +1,57 @@
+###  Публикация: 1117723   (815050) от 24.03.2017
+
+Браво - The Best (1998) Compilation [FLAC|Lossless|image + .cue] <Rock & Roll, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорога в облака (3:04)
+02. Ветер знает (3:31)
+03. Стильный оранжевый галстук (3:33)
+04. Старый отель (3:56)(   Читать дальше...   )Жанр: Rock & Roll, Soft RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6CFFF53E0F12A3671AFBE53917355950C7D8E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117900   (815063) от 24.03.2017
+
+Bonfire - Byte the Bullet (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Train
+02. Stand up 4 Rock
+03. Praying 4 A Miracle
+04. Some Kinda Evil(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F60EF4CD48119FD4D839BE49211458178E9E6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008432   (815368) от 18.04.2016
 
 Mordor - Власть (2016) [MP3|320 кб/с] <Rock, Industrial Metal>
@@ -648,58 +702,6 @@ magnet:?xt=urn:btih:787DA0BD39679D9B7CC72933FFAF134F54185484
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 197368   (816447) от 03.05.2010
-
-The Sensational Alex Harvey Band - 2 альбома (1974-1975) 2CD BoxSet /2002, Mercury/ [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351099   (816616) от 29.03.2015
-
-The Greenhornes - 4 Albums, 2 EP, 1 Compilation (1999-2010) [FLAC|Lossless]<Classic Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816616.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Greenhornes - американская группа, играющая в стиле гаражный рок, из Цинциннати, Огайо. Ясно и просто, в стиле The Rolling Stones.Список альбомов:
-1999 - Gun For You
-2001 - The Greenhornes
-2002 - Dual Mono
-2010 - Four Stars(   Читать дальше...   )Жанр: Classic Rock, Garage RockПродолжительность: 04:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18C2D4F0C550D4AB70EB18C1C9BC0D68E73827A
 ```
 
 

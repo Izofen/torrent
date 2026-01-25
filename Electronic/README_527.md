@@ -1,3 +1,84 @@
+###  Публикация: 1290651   (1036549) от 25.01.2021
+
+Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndstooth [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Immobile Air (05:51)
+ 02. Clouds (08:52)
+ 03. Black Dust (07:02)
+ 04. Sand (06:34)(   Читать дальше...   )Тип издания: WebЖанр: AmbientПродолжительность: 10:19:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221888ECDA18DB2E3DC0D25BC7B1F7B6D1375FF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442555   (1036557) от 25.01.2021
+
+The Human Voice - Silent Heart (2016) Cyclic Law [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:25)
+02. Midnight (08:52)
+03. Early Hours (08:49)
+04. Silent Heart (08:15)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582E3E6C4952C4108EF781AC4DDC47C9CD4B08EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442577   (1036576) от 25.01.2021
+
+Kelly Dean x Kwizma - Therapy EP (2017) SMOG Records [FLAC|Lossless|WEB-DL|tracks] <Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis (05:13)
+ 02. Get Wavey (05:09)
+ 03. Calamity (05:16)
+ 04. Therapy (05:39)(   Читать дальше...   )Жанр: DubstepПродолжительность: 00:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF3DF573D17D3075A0A308DCA0584495E0ACFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442574   (1036580) от 25.01.2021
 
 Lazer Station - Time Blazer (2021) [MP3|320 Kbps] <Darksynth, Cyberpunk, Synthwave>
@@ -608,81 +689,6 @@ ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442132   (1036947) от 24.01.2021
-
-VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 03:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442079   (1036955) от 24.01.2021
-
-Various Artists - Med School: Graduation (2020) Hospital Records [FLAC 2.0|24/44.1|tracks|WEB-DL] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BOP - Magic.gif (04:34)
-02. S.P.Y - Black Flag (VIP) (06:03)
-03. Villem - Stereogram (05:44)
-04. Keeno - Lost For Words (05:21)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AD9D5934D30242627B9694208016AEC50E2BFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442130   (1036960) от 24.01.2021
-
-DC Breaks - DCXV (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum 'n' Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Drum 'n' BassПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6863B094F7ED54854DFF6BA030F82B2C91B8586
 ```
 
 

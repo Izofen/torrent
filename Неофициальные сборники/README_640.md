@@ -1,3 +1,30 @@
+###  Публикация: 975120   (974465) от 13.01.2016
+
+VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. Matt Simons - Catch & Release
+003. Glasperlenspiel - Geiles Leben
+004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC3B603A77FD812156A7A7048802780F80339AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974962   (974468) от 13.01.2016
 
 VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
@@ -698,33 +725,6 @@ VA - 100 популярных супер хитов от Русского Рад
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:760AF4DBC0A34113CA977F530313BA9DE0B86EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356707   (976573) от 01.02.2020
-
-VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Nimerfro - My Heart Won't Move On - Birds in the Trap Mix
-02. Curtis McLaw - Magic Woman
-03. Burning Lipps - Near or Far - Erotic Beach Love Mix
-04. Barry White - I've Found Someone(   Читать дальше...   )Жанр: Instrumental, Easy listening, RelaxПродолжительность: 04:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C06BE20BF7E59347725186FCCBC9BD6EEB488E
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1060369   (455040) от 07.10.2016
+
+Kaiser Chiefs - Stay Together (2016) [MP3|320 Kbps] <Indie Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Stay Together (04:33)
+02. Hole In My Soul (04:28)
+03. Parachute (03:53)
+04. Good Clean Fun (05:08)(   Читать дальше...   )Жанр: Indie Rock, ElectronicПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38CCC209FEB22C0347E1D05EBEF09B277A3CD0E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163004   (455123) от 03.09.2017
+
+Gil Edwards - Celebrate (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey, Hey, Hey (04:49)
+02. Lying (05:39)
+03. You Keep Me Hangin' On (05:57)
+04. Don't Wanna Hear About It (05:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:565347169D2E1F7ADD787B4FFB2182AD1505F30E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162979   (455128) от 03.09.2017
 
 Аsсеndаnt - А Thоusаnd Eсhoes (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
@@ -641,59 +695,6 @@ Artamene - Ziggurat (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A1C2957151BB213007380C763229B50E83BB10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569098   (455831) от 11.08.2022
-
-Askog - Varg (Demo) (2020) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Varg
-02. Korp
-03. VattenЖанр: Black MetalПродолжительность: 00:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E7217BF79FAD1484717E34492FE710E10CF6BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408439   (455908) от 12.09.2020
-
-KYPCK - Черно (2008) [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гидролокатор (1:48)
-02. Рождество в Мурманске (4:52)
-03. Предатель (5:39)
-04. 1917 (5:00)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98405C1F9AD23AE0AE8B21B0217C48B78C553642
 ```
 
 

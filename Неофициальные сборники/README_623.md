@@ -1,3 +1,30 @@
+###  Публикация: 1092015   (941036) от 10.01.2017
+
+VA - Deep House Collection Vol. 103 (2017) [MP3|320 Kbps] <House , Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.4Tek - Fat Omerta (Original Mix)
+02.4Tek - Friday (Original Mix)
+03.Ace of Base - The Sign (Marcus Brodowski Edit)
+04.Alexandr Rassevich - Oblivion (Original Mix)(   Читать дальше...   )Жанр: House , Deep HouseПродолжительность: 10:21:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:407CD1B16424590A7C7F52F7C3F2794E746754C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091865   (941049) от 10.01.2017
 
 VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0EE973B4CFC58F8554BEA87B3DC6853BF5AD75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363541   (942524) от 28.02.2020
-
-VA - Beatport Techno: Electro Sound Pack #16 (2020) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942524.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lyam Mathew - U.N.D.S
-002. Mcan - Roll
-003. Jeff Jackson - Watcha Gonna Do (Original Mix)
-004. Robert T. Master - Arachnoid Space(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13C55739802C72AAC1899F3591066F245810F8D
 ```
 
 

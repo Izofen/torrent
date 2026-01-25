@@ -1,3 +1,84 @@
+###  Публикация: 1202490   (789775) от 29.01.2018
+
+VA - Winter Collective 01 (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sunlight Project  -  Tierra Del Fuego (Original Mix)  5:43
+02.  ArchX  -  Cape Mulinu'u Sunrise (Original Mix)  5:45
+03.  Firas Tarhini  -  Hanker Sore (Original Mix)  5:32
+04.  Nistad  -  Memory Lane (Original Mix)  6:27(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55430AF3B6F3330DEB460CECD42D284FA08D25F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202393   (789885) от 29.01.2018
+
+VA - Sextape 50 Chansons Pour le Sexe (2009) [FLAC|Lossless|tracks] <Electronic, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lil' Louis - French Kiss (4:06)
+02.Daft Punk - Make Love (4:51)
+03.Giorgio Moroder - Oh L'amour (3:27)
+04.Jeanne Napoli - Let's Make Love (3:34)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 03:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6685F94938A296704A5B145CBFDAAE039D6F2951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275474   (789895) от 12.01.2019
+
+VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 Releases (2015-2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789895.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Cigar Lounge Vol. 1
+2015 - Cigar Lounge Vol. 2
+2015 - Cigar Lounge Vol. 3
+2015 - Cigar Lounge Vol. 4 (A Premium Collection Of Chill-Out & Lounge Sounds)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2583C3576AF0551B1C8682229DEE23180FBD852C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275638   (789903) от 12.01.2019
 
 VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
@@ -611,87 +692,6 @@ VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202326   (790550) от 28.01.2018
-
-VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Giacomo Bondi  -  Analogic  4:09
-02.  Iffar  -  Glazed (Instrumental)  3:00
-03.  Philippe Rozes  -  Evade Business  3:18
-04.  Francesco Gazzara  -  Balearic  4:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E4B177412B0E377CFE9333422B19D4B92F490E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202385   (790554) от 28.01.2018
-
-VA - Smooth Summer Lounge And Chill House (2018) [MP3|320 Kbps] <Downtempo, Chill House, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Stringz  -  Diversity (Original Mix)  6:46
-02.  Popy Zeddil  -  All Night Long (Original Mix)  5:37
-03.  Mephia  -  Esperanto (Original Mix)  5:05
-04.  Riddle Of Monogamy  -  Crossing Boundaries (Original Mix)  6:55(   Читать дальше...   )Жанр: Downtempo, Chill House, LoungeПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C7691F5AEBEC398482FF12EF796CA8D93C4A8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202202   (790557) от 28.01.2018
-
-101 - Phatty Acids (2017) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (03:52)
- 02. Darkness Upon Beautiful Souls (04:15)
- 03. Amino Acid (04:48)
- 04. Fatty Acid (03:32)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D6F351749E5CBB2EC2A2AE81F8B46E9F8115DF
 ```
 
 

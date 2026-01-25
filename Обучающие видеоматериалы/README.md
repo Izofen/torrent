@@ -1,3 +1,4 @@
+https://t.me/izofen
 ###  Публикация: 1820679   (341) от 28.09.2025
 
 Kuptsov GameDev Academy, Данил Купцов | Industry Entry for 3D Artist - практический курс для 3D-художника (2024) PCRec [AD] [RU]

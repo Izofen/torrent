@@ -1,3 +1,59 @@
+###  Публикация: 526440   (597438) от 24.07.2012
+
+Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597438.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Skymind (9:53)
+2. Yellow Garden (7:38)
+3. Blind Child (6:10)
+4. The Purple Queen's Lips (9:48)
+5. The Egg Shapped Moon (9:07)
+6. Stratus (13:24)Жанр: Art Rock/Progressive RockПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B536A5AC750E4FEC7CD57FACB012C5E9AD32A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039260   (597624) от 31.07.2016
+
+Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole Lotta Love (5:31)
+02. What Is and What Should Never Be (4:51)
+03. The Lemon Song (6:24)
+04. Thank You (5:01)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 0:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6837C619F5B0C9D55AE5DB7EA89A7B781EF7F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039105   (597632) от 31.07.2016
 
 Vixen - Rev It Up (1990) [WavPack|Lossless|image + .cue] <Hard'n'Heavy>
@@ -646,60 +702,6 @@ The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F858D3161F602A3E275D1EF099C550B55D757EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039050   (598194) от 31.07.2016
-
-Susie Ahern - Women Are Different (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lifeboat 3:54
-2. What If I Do 3:34
-3. Missing You 4:32
-4. Women Are Different 4:17(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BFCD836E3F33183F1ACFA439C7F1B95BC501CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038909   (598197) от 31.07.2016
-
-The Great Kat - Wagner's War (2002) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Act 1: War - Wagner’s “The Ride of the Valkyries” (from the Opera “Die Walkürie) for Symphony Orchestra, Band & Opera Singers 01:34
-2. Act 1: War - War 01:25
-3. Act 1: War - Terror 01:22
-4. Act II: Revenge - Punishment 01:28(   Читать дальше...   )Жанр: Thrash Metal, ShredПродолжительность: 0:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AF4F0BA8BBB53955E86C6D5DC38C001AAA905D
 ```
 
 

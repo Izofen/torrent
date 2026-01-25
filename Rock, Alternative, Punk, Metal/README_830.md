@@ -1,3 +1,57 @@
+###  Публикация: 1303070   (576458) от 19.05.2019
+
+Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chant Of Oblivion
+02.No More Room In Hell
+03.Dominion
+04.Damned(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4665A96B05D1D9FA63699BCEEE78B78A42AF082
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042986   (576532) от 14.08.2016
+
+Andy Timmons - Ear X-tacy 2 (1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Was Then, This Is Now.flac
+02. Last One.flac
+03. Is This What You Want.flac
+04. A Night To Remember.flac(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE876C19A314A694ADB7CD9B32632BF08729724
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042948   (576546) от 14.08.2016
 
 Mark Wood - Voodoo Violince (1991) [FLAC|Lossless|image + .cue] <Hard Rock, Instrumental>
@@ -675,60 +729,6 @@ Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553460   (577625) от 30.05.2022
-
-Michael Schenker Group - Universal (2022) [MP3|320 kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 emergency [00:03:49]
-02 under attack [00:04:37]
-03 calling baal [00:00:39]
-04 a king has gone [00:04:53](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9729ECC75606E4E48D7FD018870029DC15B680C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554476   (577629) от 30.05.2022
-
-Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressive Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture (00:02:43)
-02 - Skyrover (00:03:55)
-03 - Russian Winter (00:05:05)
-04 - The Lost Prophet (00:05:52)(   Читать дальше...   )Жанр: Progressive Rock, Space RockПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
 ```
 
 

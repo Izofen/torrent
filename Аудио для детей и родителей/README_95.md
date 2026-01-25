@@ -1,3 +1,57 @@
+###  Публикация: 207761   (781756) от 18.06.2020
+
+VA - Classic Disney - 60 Years Of Musical Magic (1995-1998) 5CD [FLAC|tracks]<Soundtrack>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "A Whole New World" (Aladdin, 1992)					(02:39)
+02. "Circle of Life" (The Lion King, 1994)				(03:57)
+03. "Beauty and the Beast" (Beauty and the Beast, 1991)			(02:43)
+04. "Under the Sea" (The Little Mermaid, 1981)				(03:13)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 05:47:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390900   (782272) от 17.06.2020
+
+Литл Бэйби Бам - Детские стишки для веселых детишек (2020) [MP3|192 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо
+02. Колёса у автобуса (Части автобуса)
+03. У Мэри была овечка (Куда ушла Мэри)
+04. Лис(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43368EDB45C3D891F62EA58099C43B2CEF2ACB4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390892   (782300) от 17.06.2020
 
 Светлана Кривошлыкова | Приключения Мохнатика и Веничкина (2020) [MP3]
@@ -615,60 +669,6 @@ magnet:?xt=urn:btih:665257707B08A0040C19A3C23BE81724D080B2E9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC89FBE0E4724D5BF59F3A91C3E5BB6F36900770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388697   (786554) от 07.06.2020
-
-VA - Избранные классические произведения (2011) [MP3|128 Kbps]<Детская, Классика>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart - Symphony No.40 g-moll KV 550. Allegro molto "NBC Orchestra, Arturo Toscanini" - 256 kbps
-02. Mozart - Symphony No.40 g-moll KV 550. Andante "NBC Orchestra, Arturo Toscanini" - 256 kbps
-03. Mozart - Symphony No.40 g-moll KV 550. Menuet. Allegro "NBC Orchestra, Arturo Toscanini" - 256 kbps
-04. Mozart - Symphony No.40 g-moll (   Читать дальше...   )Жанр: Детская, КлассикаПродолжительность: 03:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0277F7E6921F7F94317FE36DBEED37A4ECCF3F50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388763   (786589) от 07.06.2020
-
-Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP3|192 Kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Home Alabama
-02.Free Bird
-03.Simple Man
-04.Gimme Three Steps(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC723821A0E51E8A9A6A1AC9AC49F218B6C310
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1200047   (796998) от 19.01.2018
+
+VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Psycho Motion  -  Supernova (Original Mix)  8:06
+02.  Naoufal Lamrani & First Sight  -  Misery (Radio Edit)  3:14
+03.  Emme  -  Hydra (Original Mix)  4:08
+04.  BarTar  -  East Direction (Original Mix)  6:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E975FE7A873E12DCEE4EA5804B65AF036076673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200097   (797003) от 19.01.2018
+
+VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Force of Nature (Original Mix)
+02. DJ T.H. - Haunting (Darren Porter Remix)
+03. Paul Webster - Hold On (Quest 4 Trance Beach Anthem 2014)
+04. Paul Denton - The Middle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0517EA8B1EEEB6A4678212B290CF0B839FAA03A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200066   (797007) от 19.01.2018
+
+VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor, Somna & Diana Leah - There Is Light
+02. Holbrook & SkyKeeper - Time Of The Long Shadows (extended mix)
+03. Somna & Melissa Loretta - Brave
+04. Fahjah & Michele C - I Choose You(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199985   (797010) от 19.01.2018
 
 VA - Street King Presents Winter 2018 [MP3|320 Kbps] <Deep House>
@@ -614,87 +695,6 @@ VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011084   (797665) от 26.04.2016
-
-VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fisherman & Hawkins ft Sir Adrian -  Never the Same (Original Mix)  6:50
-02. Arkham Knights -  Legacy (Original Mix)  7:38
-03. Yuri Kane & Ana Criado -  Running Wild (Radio Edit)  3:35
-04. Markus Schulz Presents Dakota -  Cathedral (Montreal) (Mr. Pit Remix)  7:14(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE2F0D1853B43833EEE99D5B2DD6D28E62175BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011088   (797666) от 26.04.2016
-
-VA - The Finest 30 Chill Out Multibundle (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LastEDEN - Foundation (Original Mix) [03:33]
-02. Lazy Hammock - Lost In Dreams (Original Mix) [05:15]
-03. Paranoja - Sleeplees (Original Mix) [04:06]
-04. Mazelo Nostra - Walk Through The Streets (Original Mix) [04:41](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7CCBC8D8E96284F39B674EB198F37B4AF944A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011052   (797701) от 26.04.2016
-
-VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darmon -  Reaper  6:00
-02. Leventina -  Cameltoe  5:23
-03. Marco V -  We Will Be (O.B Remix)  5:16
-04. Anero -  Gigeri  4:56(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
 ```
 
 

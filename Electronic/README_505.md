@@ -1,3 +1,84 @@
+###  Публикация: 1470655   (1015635) от 17.05.2021
+
+Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves (2021) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Midnight Hour (Zero O Clock Remastered Mix)
+02. Sleep on the Beach (The Bossa Cut)
+03. I Am Calling You (Dial My Number Mix)
+04. Just Be Here (Early Morning Mix)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470249   (1015733) от 16.05.2021
+
+Solarstone - Electronic Architecture 4 (2021) [FLAC|Lossless|tracks] <Dance, Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Super-Frog Saves Tokyo - Lament (Mixed) 3:10
+2. Nick Silvestri - Little Things (Mixed) 4:49
+3. Vincent Lewis - Pulse Train (Mixed) 6:56
+4. Xabiso - Children of the Night (Reconstruction) (Mixed) 5:51(   Читать дальше...   )Жанр: Dance, Progressive TranceПродолжительность: 2:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D878D623D20E7F214FAA5D374CF53C43CDAEDAED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470029   (1015793) от 16.05.2021
+
+Eggvn - La Era de la Bestia (2021) [MP3|320 Kbps] <Industrial Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Era de la Bestia [00:04:02]
+02 - Legion [00:03:54]
+03 - No Memories [00:03:46]
+04 - Hope [00:04:29](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509997B06D239B0585EB7402A3C03839CF87C6DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469668   (1016267) от 13.05.2021
 
 Morcheeba - Blackest Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, Downtempo>
@@ -610,87 +691,6 @@ VA - FreshTraxxx Vol.3 (Mixed by Utah Saints) - 2008 [FLAC|Lossless|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772A4F5283848D77557D63D43B81037046FD7428
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466720   (1018292) от 01.05.2021
-
-Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Nairo - Georges
-02. Greg Nairo - Kameo
-03. Greg Nairo - Vertigo
-04. Greg Nairo - Time Machine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC28385EFF35969FA742086B562FA4B7CD4C78F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466844   (1018301) от 01.05.2021
-
-Russ Gabriel - Off Centre (2021) Ferox Records [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Void (07:11)
- 02. Chronos (08:30)
- 03. Heat Shimmer (05:51)
- 04. Benno (06:28)(   Читать дальше...   )Жанр: Electro, IDM, AmbientПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F160E25F01CEF8E647840F4DBEC68EDB5019445C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466608   (1018370) от 30.04.2021
-
-Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Electropop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It (Marky P. & Teri B. Dub) (7:48)
-02. Limbo (Circle Sky Remix) (7:12)
-03. Electrified II (Carl Craig Headphone Hookup) (6:53)
-04. How How (Papa-Who-Ma-Mix) (5:50)(   Читать дальше...   )Жанр: Electronic, Synthpop, ElectropopПродолжительность: 04:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0993C27DE8E96F4E9AFDEB1D2C9FA079ABACA91E
 ```
 
 

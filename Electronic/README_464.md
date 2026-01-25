@@ -1,3 +1,84 @@
+###  Публикация: 1100397   (899928) от 04.02.2017
+
+VA - Bikini Sounds: Ibiza Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Absinth - Morning Sun (Eddy Chrome Lounge Remix) 06:53
+02. Eddy Chrome - Feel It in Your Soul (Ibiza Lounge Mix) 04:54
+03. Cheap Sunglasses - Remembering Ibiza (Radio Rework) 03:39
+04. Toca Lounge - Electric Feeling (Instrumental Version) 04:04(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0995396A77B637550569616EB04EDFA009718EDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100717   (899935) от 04.02.2017
+
+VA - Carnaval House (2017) [MP3|320 Kbps] <Tech House,Deep House,House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loouuii$ - Can't (Original Mix) 07:07
+02. Grisha - New One (Original Mix) 06:58
+03. Agents Of Destiny - Last Night (Original Mix) 06:44
+04. Bess - Personal D (Original Mix) 07:08(   Читать дальше...   )Жанр: Tech House,Deep House,HouseПродолжительность: 04:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19A1AFEAC77B81E3BFADC09E5BB043A88AF84CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100516   (899984) от 04.02.2017
+
+VA - Project Zen. Ultimate Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Don Is Back
+02. Enrico Donner - Temptalizing Me
+03. Cane Garden Quartet - Toca Me
+04. Don Gorda Project - Hand in Hand(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E7F39F64632DE3098885B57F927C37395CAFA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369979   (900162) от 25.03.2020
 
 Сергей Сиротин (Sergey Sirotin) - Эротическая музыка (3 альбома) (2001) [MP3|320 Kbps] <Chillout, Ambient, Lounge>
@@ -614,87 +695,6 @@ VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Ou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ACE67D463416B0F8A6E1BA547D1330E16C4E604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099907   (903285) от 02.02.2017
-
-VA - Vocal Chillout 2017. Chill Out Songs  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunbird - They Accept Paradise - R.I.B & Seven24 Vocal Chillout Remix
-02. Soty - Thoughts of you - Chillout Vocal Mix
-03. Stonebird - Ice Walls - Vocal Chillout Mix
-04. CJ RcM - Ai-Ai Bopem - Cj RcM Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A656A830367F0CF40D3DC905FA7E2281D1AC18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099487   (903518) от 02.02.2017
-
-VA - Ibiza Soundset 2017: Beach Lounge and Chill Out  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Wilson - Back Seat
-02. Hamilton Bates - Last Flight
-03. Joey Connor - Rooftop Bar
-04. Sean Woodby - Acoustic Mood(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21CA4CF05325DFD8FD0AA11535E985383ABE671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099633   (903551) от 02.02.2017
-
-VA - Universal Language Lounge Anthems Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Port Grimaud - Feel So Much  4:27
-02.  Quattro Groove Foundation - In Touch  3:26
-03.  Rino Ellis - The Sound  5:34
-04.  Jazzatune - The Bass  7:17(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ACE5EE109AB023F149EA5C6343B3EAAC6F1123D
 ```
 
 

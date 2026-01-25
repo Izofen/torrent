@@ -1,3 +1,57 @@
+###  Публикация: 1441435   (1037749) от 21.01.2021
+
+Alkonost - Ведомые Ветром (2021) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037749.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро (Гимн Ветру)
+2. Там, Где Живут Ветра
+3. Лента На Ветру
+4. Долгая Ночь(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8CD70C04BADD630F8A83B64533257C00815B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441436   (1037785) от 21.01.2021
+
+Human Fortress - Epic Tales & Untold Stories (2021) 2xCD [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037785.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Grimoire (Remastered) (feat. Michael Bormann) (04:49)
+ 02. Disappear in Dark Shadows (Remastered) (feat. Tommy Newton) (03:37)
+ 03. Vain Endeavour (Remastered) (04:11)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656D3CF11B740469441E94237A6B4F546B8B54AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436614   (1037786) от 21.01.2021
 
 Myrkur (feat. Chelsea Wolfe) - Mareridt (2017) Deluxe Version, Relapse Records [MP3|320 Kbps] <Atmospheric Black Metal, Folk Metal, Female Vocal>
@@ -641,60 +695,6 @@ The Defiled - Daggers (2013) [FLAC|Lossless|image + .cue] <Groove Metal, Modern 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA654F31407372257104C16454F86621101742E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614935   (1038098) от 24.02.2023
-
-Godsmack - Lighting Up The Sky (2023) [FLAC|24/48|tracks|WEB-DL] <Alternative-Metal, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You And I (5:17)
-02. Red White & Blue (4:05)
-03. Surrender (3:41)
-04. What About Me (3:55)(   Читать дальше...   )Жанр: Alternative-Metal, Hard-RockПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0F97F34BD30E82D746E0C6BB6ECB443CF23195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614920   (1038106) от 24.02.2023
-
-Host - IX (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Gothic-Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wretched Soul (4:22)
-02. Tomorrow's Sky (4:30)
-03. Divine Emotion (4:18)
-04. Hiding From Tomorrow (3:45)(   Читать дальше...   )Жанр: Gothic-Rock, DarkwaveПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7B9159BB39169E745A51B5E5F79C1F21FE8A95
 ```
 
 

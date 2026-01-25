@@ -1,3 +1,30 @@
+###  Публикация: 1012319   (793450) от 01.05.2016
+
+VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Подъём - Девчонка На Свадьбе (03:29)
+02 Бархат - Сердцеедки (03:11)
+03 Кристина Орса - Я Буду Рядом (03:45)
+04 Влад Соколовский - До Небес (02:27)(   Читать дальше...   )Жанр: ПопПродолжительность: 05:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC52D75F43AECA892E71FEEDA64DC185F11A372C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386629   (793466) от 30.05.2020
 
 VA - Late Night Vibes Playlist Spotify (2020) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Beatport Techno: Sound Pack #367 (2021) [MP3|320 Kbps] <Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F11E528B3FA0F94E84ADA6544448949D77DC94D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509609   (794028) от 13.11.2021
-
-VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794028.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vince Guidotti - Kalli
-002. Alkalino - Pizza Minelli
-003. Miko M - Round Of Bells
-004. Chris Domingo - Another Life(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395F1C5232B803DB3AEC426C92D4E397485263A3
 ```
 
 

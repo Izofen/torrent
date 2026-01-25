@@ -1,3 +1,57 @@
+###  Публикация: 1026180   (706135) от 14.06.2016
+
+UFO - The Visitor (2009) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saving Me (5:08)
+02. On the Waterfront (3:50)
+03. Hell Driver (4:26)
+04. Stop Beaking Down (4:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2909F40291821BE7D304273836F0CFF602D0FC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792931   (706137) от 04.06.2014
+
+IQ - The Road of Bones (2014) [FLAC|Lossless]<Neo Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706137.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. From The Outside In (7:25)
+02. The Road Of Bones (8:32)
+03. Without Walls (19:16)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 00:53:08+00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC51ED7934E405CA644781A840E9A56B10566CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220247   (706180) от 18.04.2018
 
 Олег Чилап (Оптимальный Вариант) и Пчела-Бэнд - Акустический Бродячий Цирк (2018) [MP3|320 Kbps] <Rock>
@@ -640,60 +694,6 @@ Simplekind - Goodbye to Yesterday (2022) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C08139CA2F1BADF9E271125C806ADEC26CDA11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532833   (707213) от 23.02.2022
-
-Velvet Volume - Nest (2022) [MP3|320 Kbps] <Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Look Like Your Father (03:27)
- 02. In The End (03:49)
- 03. Mother And Man (04:35)
- 04. Remedy (03:06)(   Читать дальше...   )Жанр: Rock, Female VocalПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4540F38F40FF4ECE4FC004F0F60AF55EA9D52DD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533256   (707215) от 23.02.2022
-
-Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <Symphonic Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Король Ольхи
-02. Дрема
-03. Сердце Королевы
-04. Руна Победы(   Читать дальше...   )Жанр: Symphonic Melodic Black MetalПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7001DC2AFEEAF5C10EC222A9F9207ECA32E3A1
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1303396   (572899) от 21.05.2019
+
+Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morena mia
+02. Aire soy (feat. Ximena Sarinana)
+03. Te amare (MTV Unplugged)
+04. Hacer Por Hacer(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 02:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FA3AF0B46DDC7CA3667BAC81E3CBFFA4760FD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043319   (572983) от 16.08.2016
 
 VA - Муз обоз №5 (2016) [MP3|256 Kbps] <Pop>
@@ -671,33 +698,6 @@ VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19BF4B3897BA218AE77CB6B39C3F7A87FFB14380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 772452   (574005) от 20.05.2019
-
-VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574005.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aerosmith - Sweet Emotion
-002. Led Zeppelin - Kashmir
-003. The Rolling Stones - Gimme Shelter
-004. AC/DC - Back In Black(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 07:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
 ```
 
 

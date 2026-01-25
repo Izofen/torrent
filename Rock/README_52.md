@@ -1,3 +1,57 @@
+###  Публикация: 1562703   (507237) от 11.07.2022
+
+Samán (Saman) - II. Montaña roja (2022) [MP3|320 Kbps] <Heavy Psych, Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montana Roja (Parte 1) (Red Mountain Pt. 1)
+02. El sueno (The dream)
+03. Camino a la piedra (Stonewalk)
+04. Alba (Dawn)(   Читать дальше...   )Жанр: Heavy Psych, Stoner Rock, Doom MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4767103CA4FE8DEF8ACCFD1B9EE0166087257B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562249   (507238) от 11.07.2022
+
+Formation Ritual - The Shifting Dust (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Occult Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 It Summons You
+02 Coming of the Tide
+03 Second Rate Gods
+04 Land of Ruin(   Читать дальше...   )Жанр: Heavy Psych, Stoner, Occult RockПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49FA6E045D98E9735E325F88A578895D42723D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562568   (507321) от 11.07.2022
 
 Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
@@ -667,60 +721,6 @@ PRINCE - ANTHOLOGY: 1995-2010 EXPLICIT (2018) [MP3|320 Kbps] <Rock, Funk, Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A57C9D4B126DF8650E3C1E7159DEDE25DF14A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930415   (516139) от 22.08.2015
-
-Rod Stewart - Greatest Hits (2012) 2CD [MP3|320 кб/с]<Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Foolish Things
-02. I've Got You Under My Skin
-03. Rod Stewart feat Dolly Parton - Baby, It's Cold Outside
-04. Time After Time(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 02:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42327191381316370A3017B86343E0B03E435D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242022   (516190) от 21.08.2018
-
-Michaelangelo - One Voice Many (1971) Reissue, 2007, Fallout [MP3|320 Kbps] <Psychedelic Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. West
-2. Come To Me
-3. Bird
-4. Son (We Kept The Room Just The Way You Left It)(   Читать дальше...   )Жанр: Psychedelic Folk RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51611B74DF1160E6EB69414A354660F48B4D646
 ```
 
 

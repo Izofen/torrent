@@ -1,3 +1,83 @@
+###  Публикация: 1031490   (795108) от 28.05.2020
+
+Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seventeen Zero Four (05:36)
+ 02. One Zero Five (04:49)
+ 03. Twenty Zero Two (06:31)Тип издания: CD, Web, VinylЖанр: Experimental/Techno/Ambient/AcidПродолжительность: 31:36:39 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29C7D86AF8C4DC27E0D2C35053CB63B3FAD7091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386188   (795224) от 28.05.2020
+
+Robert Rich - Offering To The Morning Fog (2020) Soundscape [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Traveler (13:13)
+02. Cantus for Hospitality (09:34)
+03. Oneiric Cocoon (11:03)
+04. Awake When Shadows Walk (11:06)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0EE08A029AAB10E96F985B458C68B58E4A2EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 880429   (795232) от 28.05.2020
+
+Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absent Presence (11:12)
+ 02. Adorable Reality (07:02)
+ 03. Blurred Trip (10:07)
+ 04. Waiting Of Landing (15:58)Тип издания: WebЖанр: Dub TechnoПродолжительность: 04:15:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386194   (795281) от 28.05.2020
 
 Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
@@ -615,87 +695,6 @@ magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985C670C210B2C9E39A5B8309A47E8B4C7188317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200173   (796319) от 20.01.2018
-
-VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Duke Dumont & Gorgon City - Real Life (feat Naations) (3:21)
-02.Tieks - Say A Prayer (feat Chaka Khan & Popcaan) (3:35)
-03.Zedd & Liam Payne - Get Low (3:23)
-04.Jax Jones - Instruction (feat Demi Lovato & Stefflon Don) (2:43)(   Читать дальше...   )Жанр: Electro House, Euro House, HouseПродолжительность: 02:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFC00FBC65128A2FA5DEA640C6EC7B1B9FF5B5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011822   (796357) от 28.04.2016
-
-Markus Schulz - Watch The World (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - Code 10-66 (02:41)
-02. Markus Schulz feat. Brooke Tomlinson - In The Night (03:53)
-03. Markus Schulz feat. Ethan Thompson - Love Me Like You Never Did (04:23)
-04. Markus Schulz feat. Delacey - Destiny (03:48)(   Читать дальше...   )Производство: Black Hole RecordingsЖанр: Trance, Progressive HouseПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66412A880D40C21B7D0CCAF87D0DE54AFB97F39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200470   (796387) от 20.01.2018
-
-Exist Strategy - Cold Dawn (2018) [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mend (02:19)
- 02. Closer (03:26)
- 03. Diamonds (01:25)
- 04. Mirror of Kalandra, Pt. 2 (03:47)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B8C95885927314D8F9F095EA9E8CEF66D98600
 ```
 
 

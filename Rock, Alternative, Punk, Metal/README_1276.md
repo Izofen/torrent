@@ -1,3 +1,57 @@
+###  Публикация: 1616141   (1036742) от 01.03.2023
+
+Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate Well Spent [00:01:02]
+02. Manic Vortex [00:01:56]
+03. Splendor Solis [00:00:10]
+04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615819   (1036744) от 01.03.2023
+
+Okktli - Okktli (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shaman [00:11:04]
+02. Mayahuel [00:05:49]
+03. Deny [00:07:10]
+04. Our Hope Is Gone [00:12:46]Жанр: Doom Metal, Stoner RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B35BC052498B549554A4C7F1063FE7AEDF41869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442232   (1036845) от 24.01.2021
 
 Borge Olsen - Music in the Dark (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues Rock, Instrumental Guitar Rock, Fusion>
@@ -640,60 +694,6 @@ Accept - Too Mean to Die (2021) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85F0FC08FB0F5334692EC1D4B1B9F28ED98AA267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441879   (1037109) от 23.01.2021
-
-Группа товарищей - Бараны (2021) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037109.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Бараны
-2. Свобода
-3. Враги
-4. Люди(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E1CBE337C83E929EE50A70614E8B49AD386CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441946   (1037114) от 23.01.2021
-
-The Pat McManus Band - Full Service Resumed (2020) [FLAC|Lossless|tracks + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomsday Clock (4:11)
-02. Long Haul Trucker (3:52)
-03. Bury Me (3:59)
-04. Waiting For A Friend (4:22)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5FB949BA766B81E032198EFBB08694855FAB89
 ```
 
 

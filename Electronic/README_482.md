@@ -1,3 +1,84 @@
+###  Публикация: 1090144   (947309) от 06.01.2017
+
+VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matrix & Futurebound - Fire (Feat Max Marshall) 03:02
+02. Brookes Brothers - Good To Me (Feat Majesty) 02:59
+03. Dossa & Locuzzed - Only Way (Feat Tasha Baxter) 04:59
+04. Nct - Give In (Feat Raign) 05:43(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 02:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F8C89685709927C17318FECC4F4B5FA8BFAACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858856   (947327) от 12.01.2015
+
+VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Drone>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dämmern - Liberda (03:32)
+ 02. Phon.o - Tell Me (04:39)
+ 03. Eomac - No Name (04:28)
+ 04. Bill Youngman - Resolution (05:03)(   Читать дальше...   )Жанр: Techno, Ambient, IDM, Abstract, DroneПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1F9991C1F2318642D8CB4D01FFCAF12283AA5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090244   (947427) от 06.01.2017
+
+VA - Acoustic Covers Of Popular Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hannah Dorman - Mercy 3:36
+02.  Thom Cooper - Somebody That I Used to Know 3:29
+03.  Portland UK - Heart's on Fire 3:24
+04.  Ginnie - Secret Love Song 4:46(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5589A4835FCDDEF589DEBC60BBEFA0D0806391
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 172835   (947454) от 09.02.2010
 
 DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
@@ -608,84 +689,6 @@ VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089398   (950228) от 04.01.2017
-
-VA - Dubstep 2017 (30 Top Best Of Hits) (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K Theory - The Tower (Trap Remix) [00:03:21]
-02. Spank0 - Drop That Bass [00:02:29]
-03. Vulture - Pumpin' Blood [00:03:33]
-04. PlanetaryChild - Space Gas [00:03:29](   Читать дальше...   )Жанр: Dirty Dubstep, Trap, GrimeПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A7E739F88A69E0275351507794540B8D8F85F74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 171720   (950358) от 07.02.2010
-
-VA - Hed Kandi: Nu Disco (2010) [MP3|128-192 kbps]<House / Vocal House / Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House / Vocal House / Disco House
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089541   (950631) от 04.01.2017
-
-VA - Relaxing Music for Massage: Relax Chill Out Music for Relaxation Massage (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven24 - Behind the Sky - Chillout Mix
-02. Sad radio on Cassini - Clear Sky - Chillout Mix
-03. Georgy Om - Path - Chillout Mix
-04. S.A.T - Dream Of The Sea - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6405919F8465EFB740E7B9661B149D110C7F4358
 ```
 
 

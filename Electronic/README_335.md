@@ -1,3 +1,84 @@
+###  Публикация: 1139659   (659367) от 03.06.2017
+
+VA - Taste My Lipstik (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essence Lovetrip - I Saw You There (Cool Emeralds Mix Mix) 05:39
+02. Lalo Narciso - In My System (Long Dinner Mix) 05:44
+03. Ambience Soul - Body Bizarre (Chillout Republic's Gold Mix) 03:36
+04. Woody Fran - Oh My Own (A Night In Venice Mix) 07:13(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 06:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A37D46CAF5BCF86E63AECCD7619422C3E82541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139792   (659371) от 03.06.2017
+
+Lobe - 2 Albums (1996-1999) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Downtempo>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nude (05:59)
+ 02. Hatching (05:44)
+ 03. Red Spaces (06:20)
+ 04. Kulfi (06:28)(   Читать дальше...   )Тип издания: CD |Жанр: IDM, Ambient, Downtempo •Продолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D77E6E58E6D959C45302DD9695F1609F6A97334
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139731   (659372) от 03.06.2017
+
+VA - Lounge & Cookies Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marco Del Giudice - Vuelvo Al Sur (D-Soriani Bandoneon Remix) 3:28
+02.  Antonio Ocasio - Mocha Latina 8:32
+03.  Surfer - South Beach 5:06
+04.  Stefano Carpi - Magic (Acoustic Version) 3:23(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC8DEC9B1B00135FAD430A96E806AEA49B2537D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139742   (659377) от 03.06.2017
 
 VA - Pool Service Summer Chill 4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -620,87 +701,6 @@ VA - Running Beats Vol.14 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2017) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91BE6150DDA16A5A76CD33F18C9F6DF76FAD19BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138690   (661400) от 01.06.2017
-
-VA - Sperrstunde Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bernd Filz - So Cool 5:21
-02.  Bernd Filz - Soul Wellness 4:28
-03.  Bernd Filz - No Reason To Lie, Pt. 1 6:10
-04.  Dreams Machine - Moonlight 3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BD6D6B8A9E62502804FBDE79344A50E5087FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138914   (661401) от 01.06.2017
-
-VA - Summer Bike Boot Camp 2017 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zak Oil - Class 3:06
-02. Yael Wood - Burn 3:06
-03. Xort Base - Denne 3:06
-04. Voice Output - Style 3:06(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB3A36D5D1E72B7BC548C011B2C8EA99060257E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225247   (661821) от 14.05.2018
-
-VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Deep House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nando Rodriguez, Black Of Birds - Brighter Days (Black Of Birds Interpretation) 8:01
-02. Fat V - How? (Original Mix) 5:12
-03. Nuka Abelsen - Raw And Pure (Original Mix) 4:50
-04. Otnicka - Before Sunrise (Original Mix) 4:55(   Читать дальше...   )Жанр: Deep House, Club HouseПродолжительность: 04:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
 ```
 
 

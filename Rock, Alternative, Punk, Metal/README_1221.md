@@ -1,3 +1,57 @@
+###  Публикация: 1473427   (1013710) от 29.05.2021
+
+Batushka - Царю Небесный (2021) EP [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Письмо I (4:29)
+02. Письмо II (4:20)
+03. Письмо III (3:42)
+04. Письмо IV (4:04)(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F20EBCC19656F233A9D0B2AF54F3D60A0AEAC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473513   (1013714) от 29.05.2021
+
+Манекенам - Радио (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не смейся [00:04:35]
+02 - Снег [00:03:27]
+03 - 1000 глаз [00:02:59]
+04 - Зверь [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C7CAE47FC5BA3126A32C1FBB4852F7E57A8932
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473509   (1013715) от 29.05.2021
 
 Наталья Паршина (Лепта) - Семь вёрст до небес (2021) [MP3|320 Kbps] <Rock>
@@ -641,60 +695,6 @@ Tanzwut - Die Tanzwut kehrt zuruck (2021) [MP3|320 Kbps] <Folk Metal, NDH>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6403E889F0705B2C28829F09CB15819FF80427B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472918   (1014054) от 27.05.2021
-
-Cardynal - Intro (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falso Profeta
-02. Volver
-03. Mi Camino
-04. Aquel Lugar(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D28E329F83045B9C4D56301F7E392759052528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472971   (1014059) от 27.05.2021
-
-Sacred Gate - Tides Of War (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Coming Storm
-02. The Immortal One
-03. Tides Of War
-04. Defenders (Valour Is In Our Blood)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE2390433288E8AA19AFDB15715AAD564A0760C
 ```
 
 

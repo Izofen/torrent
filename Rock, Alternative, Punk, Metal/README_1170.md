@@ -1,3 +1,56 @@
+###  Публикация: 1362195   (949669) от 23.02.2020
+
+Ильин - EP. Кровь (2020) [MP3|320 Kbps] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Заплатки
+2. Слово
+3. ТопольЖанр: Metal, RockПродолжительность: 00:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20D02520051F44CEC8D9F7CD86941A6036CC2F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362249   (949675) от 23.02.2020
+
+Neaera - Neaera (2020) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Un)Drowned
+02. Catalyst
+03. False Shepherds
+04. Resurrection of Wrath(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96782FD26CD3491C6D8E9FC6852778C21718EA6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362533   (949681) от 23.02.2020
 
 HELENGARD - Helengard (2010) [FLAC|Lossless|Web-DL|tracks] <Folk Metal, Black Metal, Post Rock>
@@ -634,60 +687,6 @@ magnet:?xt=urn:btih:2AD5EEDC6103B6860148025EB2096C7341D2BAFD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAD8B129DC2396BC1F264C79FF9D8ABCDFBDE5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362212   (951147) от 22.02.2020
-
-Enuff Z'Nuff - Strength (1991) [FLAC|Lossless|image + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Or Hell [03:45]
-02. Missing You [05:10]
-03. Strength [05:02]
-04. In Crowd [03:08](   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9721F672E0AA098D94085134CFBDC86506AE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362097   (951159) от 22.02.2020
-
-Indica - A Way Away (2010) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Islands of Light (03:02)
-02.Precious Dark (03:50)
-03.Children of Frost (05:21)
-04.Lilja's Lament (05:54)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA904FA015C61DBDB08FF6325CC850E98CAD3D8
 ```
 
 

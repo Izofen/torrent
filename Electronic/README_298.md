@@ -1,3 +1,84 @@
+###  Публикация: 357933   (586282) от 02.07.2011
+
+VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, Electro, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Electro, TranceПродолжительность: 03:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834AEE9481E635DB18A0D5FAA9B36DDB74D6967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039271   (586441) от 05.08.2016
+
+Insove - Beyond the Invisible (2016) [MP3|320 kbps] <Electronic, Ambient>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электронно-атмосферный музыкальный веб-дуэт Insove, исполняющий инструментальную музыку без привязки к определённому жанру, сочетающий в себе электронику, эмбиент, бесконечные эксперименты и немного тяжёлых гитар.
+Существует с 2011 года.
+
+Альбом01 - Turn the Key
+02 - Darkness, Decay, Tenderness & Lightness
+03 - Slumber
+04 - Peace of Mind(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398B6316F992B15D16A1346D0D39393E2961A58D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040580   (586492) от 05.08.2016
+
+VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
+02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
+03. Third Son - Atonal Impression (original mix) [06:11]
+04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040254   (586540) от 05.08.2016
 
 Bedtime Baby - Bedtime Baby Music (2016) [MP3|320 Kbps] <New Age, Easy Listening>
@@ -614,87 +695,6 @@ Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3BAE8C400F3C1CE01399B7A4F40E7598DAC5C67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551743   (589393) от 17.05.2022
-
-VA - Black Hole Trance Music 05-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor & Somna ft Natalie Major - Born to Run (Extended Mix) [05:34]
-02. Eddie Murray - Jagged Edge (Extended Mix) [06:56]
-03. Dennis Sheperd & DR. DRTY - Afterlife (Extended Mix) [06:02]
-04. Kolonie - Tenebris (Extended Mix) [06:41](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4DEDC88C5D27BDB39245FE72C937ACDA79730A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917228   (589574) от 11.07.2015
-
-VA - The Dark Room Lounge (Sexy and Smooth Easy Listening Deluxe Moments) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Lotus - Bondage Love - Sexy Jazz Beat City Remix
-02. Perrymann - Free Hugs - Deep Ocean Beat Chill Remix
-03. Jamie White Dean - Lost in a Daydream - Downbeat Relax Cafe Version
-04. Alchemists and other Liar - Fantasy Lounge - Classic Buddha Chillout Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B180AF6D8C03A4D0C286FB6997D12385039B8DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917389   (589577) от 11.07.2015
-
-VA - A State Of Trance Radio Top 20 - July (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marlo - Atlantis (Radio Edit) (02:56)
-02. Above & Beyond Feat. Zoe Johnston - Peace Of Mind (Myon & Shane 54 Summer Of Love Radio Mix) (03:13)
-03. Andrew Rayel Feat. Jonny Rose - Daylight (Radio Edit) (02:44)
-04. Cosmic Gate With Sarah Lynn - Sparks After The Sunset (Rafaеl Frost Radio Edit) (03:54)(   Читать дальше...   )Производство: Armada Music B.V.Жанр: TranceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0250E6E8FC1CB9DA49D634F2D4C0E18F512A0B52
 ```
 
 

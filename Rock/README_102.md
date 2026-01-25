@@ -1,3 +1,57 @@
+###  Публикация: 1602623   (1046050) от 06.01.2023
+
+White Cameleon - The Brain Mincer Machine (2022) [MP3| 253-269 kbps VBR (V0)] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Brain Mincer Machine [00:10:51]
+02 Wrong Envelope [00:06:40]
+03 Kamchatka [00:02:10]
+04 Jungle Spirit [00:05:08](   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6AE64A214ACB549F7CE33AF664EA5288F91108
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602077   (1046194) от 04.01.2023
+
+Elephant Groove - Annihilation (2023) [MP3|320 Kbps] <Heavy, Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sargassum [00:07:55]
+02 Kingdom [00:06:35]
+03 One More Ride [00:07:52]
+04 Walls [00:04:17](   Читать дальше...   )Жанр: Heavy, Psych, Stoner, SpaceПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061A71E8F085E722263D2D3FE847BE85AAA68341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602036   (1046260) от 03.01.2023
 
 Black Sky Giant - 5 Albums (2020-2023) [MP3|320 Kbps] <Heavy Psych, Stoner, Space>
@@ -132,7 +186,7 @@ magnet:?xt=urn:btih:39CD8A64F3438AB80BF7F27353FE7F270771EECA
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847554   (1052509) от 
+###  Публикация: 1847554   (1052509) от 14.01.2026
 
 Nicholas Knecht - Synthetic Horizon (2026) [MP3|320 Kbps] <Psychedelic Rock, Progressive-Metal, Neoclassical>
 
@@ -154,6 +208,87 @@ Nicholas Knecht - Synthetic Horizon (2026) [MP3|320 Kbps] <Psychedelic Rock, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329DAFEC42F3C2B897180F83A5E57BC11A182794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848534   (1052929) от 18.01.2026
+
+Gateway Drugs - PSA (2020) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation
+02. Wait (Medication)
+03. Bored
+04. Slumber(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53897651612706E788DCE9C001E92E1D3A076F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848801   (1053201) от 19.01.2026
+
+VA - 2000s Rock HIts (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Numb - (03:08)
+ 02. Red Hot Chili Peppers - Can’t Stop - (04:29)
+ 03. Green Day - American Idiot - (02:54)
+ 04. Disturbed - Down with the Sickness - (04:39)(   Читать дальше...   )Жанр: RockПродолжительность: 03:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE003EE806D4A93C63B817E2880A6095B30223EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849780   (1053627) от 24.01.2026
+
+Marillion - An Hour Before It's Dark (Full Suites Version) (2026) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053627.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Hard on Yourself (9:28)
+2. Reprogram the Gene (7:02)
+3. Only a Kiss (0:39)
+4. Murder Machines (4:20)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D72FA64997F7F86A4606AF5CB0B9574A2C3316
 ```
 
 

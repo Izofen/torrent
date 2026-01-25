@@ -1,3 +1,81 @@
+###  Публикация: 1382416   (1009978) от 21.06.2021
+
+Insect O. - Collection 20 Releases (1999-2021) Etui Records, Primary [colours] [FLAC|Lossless|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icebergs (05:53)
+ 02. Unrush (07:38)
+ 03. Coiba (05:37)Тип издания: Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 05:20:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE0F740AD22F212F599372F86720C173FFA94F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418591   (1009995) от 21.06.2021
+
+Echo Inspectors - Discography 11 Releases (2012-2021) Primary [colours] [FLAC|Lossless|tracks|Web, Vinyl] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad Roy (07:25)
+ 02. Mad Roy (Bluetrain Special Edition Dub) (08:16)Тип издания: Web, VinylЖанр: Dub Techno •Продолжительность: 02:59:54 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F364DC1524E372EA4452EA1AF6F127B3F7387123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478929   (1010009) от 21.06.2021
+
+Healer - Book of Clouds (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Chapter Begins (16:32)
+ 02. Some Days I Miss You So Very Much (13:10)
+ 03. Lost In Memories (06:31)
+ 04. Two Rivers (15:25)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E723F95BC9495CEF73B877B8FEE5628A4808C62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478770   (1010032) от 21.06.2021
 
 Steevio - Acatalepsy (2021) FireScope [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield>
@@ -608,87 +686,6 @@ LATE - Far North Eleven (2021) Amek Collective [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:495209F75FE7869DFB1C2DFE0B70200831637FBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477585   (1011002) от 15.06.2021
-
-Valance Drakes - A Patternless And Endless Soul (2021) YUKU Records [FLAC|Lossless|WEB-DL|tracks] <Glitch-Hop, IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grown Weary Of Their Kindness (03:58)
- 02. Awaken Old Memories From Their Slumber (03:39)
- 03. Angels Can Still Feel Fear (03:40)
- 04. Those That Tell You Winning Lies (03:50)(   Читать дальше...   )Жанр: Glitch-Hop, IDM, AmbientПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3B5DAC82DF8316786ACB65B6A8BC6740DF57B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063922   (1011074) от 14.06.2021
-
-Boris Divider - Discography 20 Releases (2004-2021) Artificial Domain [FLAC|Lossless|tracks+.cue, tracks] <Electro, Techno, Experimental, Glitch, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ликвидаторы (05:25)
- 02. Припять (06:45)
- 03. Цезий-137 (06:30)
- 04. РБМК (05:46)Тип издания: CD, WEB, VinylЖанр: Electro, Techno, Experimental, Ambient •Продолжительность: 11:11:15 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65CD42D27ADCDCC173B564354DAD9D4CEFAC27A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962860   (1011238) от 13.06.2021
-
-Syntech | Greyhound - Discography (2006-2019) Hands Productions  [FLAC|Lossless|tracks+.cue, tracks]<Rhythmic Noise, Industrial, Experimental, IDM, Tribal, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Signs Are Everywhere (05:12)
- 02. What Are You Waiting For (06:05)
- 03. Uncertainty (05:09)
- 04. As If Paralyzed (05:02)(   Читать дальше...   )Тип издания: CD, WebЖанр: Rhythmic Noise, Industrial, Experimental, IDM, Tribal, Ambient •Продолжительность: 17:03:00 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B8C723A09B88F7F50A11DC53761D61367C546FD
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 519387   (633452) от 08.07.2012
+
+VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633452.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Mike De Ville - Amada Mia Amore Mio (MD Electro Vs Eric Flow Remix Edit)
+002 Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (Djs From Mars Remix Radio)
+003 Oceana - Endless Summer (DJ Sergey Fisun Remix)
+004 Mike Indigo - Bam Baram (SnickBoy Remix Edit)
+005 Linkin Park - In The End (DJ's From Mars Radio Edit)
+006 Pulsedriver feat. Johnny Rose - Take It Home (Radio Edit)
+007 Toby DeVille - Mamma Maria (Scotty Remix)
+008 Andrew Spencer - Tease Me, Please Me (DJ TNT & Van Snyder Remix)
+009 Ben La Pompe, Pedro De Cabra - La Soupe Aux Choux (Dan Winter Radio Edit)
+010 Aligator feat. Al Agami - Trash the Club (Pulsedriver Oldschool Flavour Remix)(   Читать дальше...   )Жанр: РорПродолжительность: 05:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A547B2E274A38EE3568CE85C1616D2005D03A198
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908153   (633467) от 14.06.2015
 
 VA - 50 Лучших треков в машину 4 (2015) [MP3|256-320 кб/с]<Deep, House, Pop, Breaks, Chillout, Drum & Bass>
@@ -699,33 +732,6 @@ VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034705   (634140) от 13.07.2016
-
-VA - Лучшая Коллекция Исполнителей Шансона (2016) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Круг - Я прочитаю в глазах твоих
-02. Геннадий Жаров - Ушаночка
-03. Михаил Круг - Приходите в мой дом
-04. Вера Снежная - В бокале вина(   Читать дальше...   )Жанр: ШансонПродолжительность: 04:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75978A5ED5ECFECFD2850BE1A143F157F9EBB759
 ```
 
 

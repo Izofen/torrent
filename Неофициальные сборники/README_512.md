@@ -1,3 +1,30 @@
+###  Публикация: 1388565   (786581) от 07.06.2020
+
+VA - Fusion Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786581.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Five Seasons - Caminho De Amor
+002. W Ensemble - Contento
+003. Gene Bautista - Puzzles
+004. Innocent Dreams - Who Are You(   Читать дальше...   )Жанр: Lounge, Relax, Ambient, ChilloutПродолжительность: 07:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42023C07EDAA27A364E56BB3832C30772C7BCD0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388488   (786585) от 07.06.2020
 
 VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Synthspace Electronic Music (2021) [MP3|320 Kbps] <Synthspace, Synthwave, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E69AEF0BA3B8776F6AFA9687577F9C6598C8F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512298   (787464) от 24.11.2021
-
-VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787464.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joseph Diaz - Funky Guitar
-002. Qlank - Badd
-003. Filter B - Tales From The Inside
-004. Joel Carry - Strong Enough(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13236CB64ADE3E4F2F73E39FC1F87D141E2FD12
 ```
 
 

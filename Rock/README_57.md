@@ -1,3 +1,57 @@
+###  Публикация: 1555801   (565512) от 06.06.2022
+
+Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Songwriter's Gone 03:09
+02. Connected 03:02
+03. You Leaning On Me 03:24
+04. Magic Child 04:25(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FDD9C564CBBAAF48051CC3CB4C91B49460D49D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044645   (565523) от 20.08.2016
+
+The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Louise
+02. Try Another Day
+03. I Feel The Same Way Too
+04. My Mind Cries(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304242   (565534) от 25.05.2019
 
 Honeyblood - In Plain Sight (2019) [MP3|320 Kbps] <Indie Rock>
@@ -649,57 +703,6 @@ Cold In May - Written in Cold (2022) [MP3|320 Kbps] <Gothic Rock, Synth Rock, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DA82F5C9496A1089999B5D6A4867B9F11A8673F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 223903   (575822) от 02.08.2010
-
-Dire Straits - 123 Albums: 6 Studio, 4 Live, 21 Compilations, 4 EP's & Singles, 79 Bootlegs, 9 Rare (1977-2005)
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Country RockПродолжительность: 166:23:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233838   (576217) от 02.07.2018
-
-Piper - Can't Wait (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Power Pop, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576217.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Can't Wait
-2. Drop By And Stay
-3. See Me Through
-4. Little Miss Intent(   Читать дальше...   )Жанр: Power Pop, Hard RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F435D1EFC8917DBB1A49DF01D247620147098068
 ```
 
 

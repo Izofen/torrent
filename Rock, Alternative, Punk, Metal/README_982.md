@@ -1,3 +1,57 @@
+###  Публикация: 1526265   (738800) от 23.01.2022
+
+Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Of Magic
+02. The Spark
+03. Shadow Of Emeria
+04. Blackblade(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526253   (738806) от 23.01.2022
+
+Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpathos Rising
+02. Chosen Sentinels
+03. Moonshiner
+04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526134   (738809) от 23.01.2022
 
 Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School Death Metal>
@@ -645,60 +699,6 @@ We Are The Catalyst - Ephemeral (2019) [MP3|320 Kbps] <Alternative Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AFA24FEEF0492A2B2E0F6AF084D3B91645C94B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397512   (739774) от 21.07.2020
-
-VA - Hard & Heavy 100 (2020) [MP3|320 Kbps] <Hard Rock & Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Zombie - The Man Who Laughs (9:44)
-002. Ratt - As Good As It Gets (4:38)
-003. The Cult - Dirty Little Rockstar (3:40)
-004. Heavy Heavy Low Low - Texas Chainsaw Mascer-Uh (1:14)(   Читать дальше...   )Жанр: Hard Rock & MetalПродолжительность: 07:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7DBC6FA5660118D09DF2453DC7D6B26D0CC49D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283273   (739785) от 17.02.2019
-
-Broken Social Scene - Let's Try the After Vol. 1 (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Indie-Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sweet Sea (00:47)
-02. Remember Me Young (04:25)
-03. Boyfriends (05:23)
-04. 1972 (04:53)(   Читать дальше...   )Жанр: Indie-Rock, FolkПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40E6E78898BC25A5DF26D0CFA67313A29189536
 ```
 
 

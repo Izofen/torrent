@@ -1,3 +1,30 @@
+###  Публикация: 1031677   (649551) от 05.07.2016
+
+Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn It Up
+02. Not For Sale
+03. Danger Sign
+04. Take It All Away(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67636EF639270F23E040D43A6CA342698D1F686C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905477   (649600) от 06.06.2015
 
 VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Piano>
@@ -689,33 +716,6 @@ VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905065   (651347) от 05.06.2015
-
-VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adamwah - Departure (Original Mix)
-2. Adultnapper, Black Light Smoke - Idiot Fair (H.O.S.H., The Deer Dub)
-3. Afrobeat, 6Souther, Tenisara - Never Look Back (Original Mix)
-4. Alfonso Muchacho - You Changed Me (Original Mix)(   Читать дальше...   )Жанр: Deep, Tech, G-House, Dubstep, Trance, TechnoПродолжительность: 14:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DB9BF54295B1638BC8BB5BE7CFEAEAA3E40
 ```
 
 

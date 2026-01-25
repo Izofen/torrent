@@ -1,3 +1,57 @@
+###  Публикация: 1522296   (758792) от 07.01.2022
+
+Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Attack
+02. Starchild
+03. Killer Queen
+04. Master Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6057B1ABC121D6809CA54310FB35C2DE2989250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522294   (758793) от 07.01.2022
+
+Shok Paris - Concrete Killers (1989) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The American Dream
+02. The Heat And The Fire
+03. Away Too Long
+04. Hold Out(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB5CD3EAB7C801BD6EA856E22EF69E0C06B2A48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522301   (758794) от 07.01.2022
 
 Myriad Lights - Mark Of Vengeance (2012) [WavPack|Lossless|image + .cue] <Heavy Metal>
@@ -638,60 +692,6 @@ magnet:?xt=urn:btih:9708967D7FA718F35735E7A5E8DF1A957D5F507C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E17D348DDE72ABF6F76E68CCA6585B08CDB89B2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394670   (760605) от 07.07.2020
-
-Ergus - Insomnium (2020) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride into Darkness (01:06)
- 02. Sleep Paralysis (03:55)
- 03. Something to Believe (The Awakening) (04:26)
- 04. Doubts (05:16)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D980AA030F2FC4194389CF9D01E6330DA50C8C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394676   (760606) от 07.07.2020
-
-Operus - Score Of Nightmares (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture of Madness (01:25)
- 02. Phantasia (05:33)
- 03. Lost (05:04)
- 04. Dance with Fire (05:38)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5D11F7EF5061E408247BA3B4D12AB017CF9AF0
 ```
 
 

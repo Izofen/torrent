@@ -1,3 +1,30 @@
+###  Публикация: 1147800   (607522) от 03.07.2017
+
+VA - The Human League SynthSpace Thesis Party (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607522.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Droid Bishop - Color & Data
+002. Das Mortal - Midnight Rendez-Vous (Feat. French Fox)
+003. Lueur Verte - Lueur Verte's Theme
+004. Robert Parker - '85 Again (feat. Miss K)(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520E71AB684B12398426E92445B721E5C46F6C82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545588   (607556) от 23.04.2022
 
 VA - Beatport Electro House: Sound Pack #513 (2022) [MP3|320 Kbps] <Electro House>
@@ -689,33 +716,6 @@ VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.3 Classic 2000-2009
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95910B3F60878396134092DFB53ED8C43705A67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038185   (608703) от 27.07.2016
-
-VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, Smoot Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Pieranunzi - Prolusion
-02. Harry Evans - Jewel
-03. Piano Jazz Calming Music Academy - Get Up, Stand Up
-04. Enrico Pieranunzi - The Flight Of Belphegor(   Читать дальше...   )Жанр: Chill, Smoot Jazz, InstrumentalПродолжительность: 02:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A93B5745D018367D2452F884AFF5E0E778872C
 ```
 
 

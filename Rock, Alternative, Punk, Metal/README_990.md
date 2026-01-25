@@ -1,3 +1,54 @@
+###  Публикация: 1216798   (747929) от 01.04.2018
+
+Pitch Shifter - Submit (1992) [APE|Lossless|image + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gritter
+02. Deconstruction
+03. New Flesh P.S.I.
+04. Bastardiser(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B9BA4BE797FF2C086B2E75627146D2FFA9A796
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216662   (747930) от 01.04.2018
+
+Corruptedl - El Mundo Frio (2005) [FLAC|Lossless|image + .cue] <Sludge Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El mundo frioЖанр: Sludge Doom MetalПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4908CE11A37ED0817520F9F27C4977A746A129B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216778   (747931) от 01.04.2018
 
 Eidolon - Coma Nation (2002) [FLAC|Lossless|image + .cue] <Speed Metal, Power Metal>
@@ -635,60 +686,6 @@ Heidi Happy - Golden Heart (2014) [MP3|320 кб/с]<Pop Rock, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE84B06A1ECF4E1AB3F041954C8B43D84B85D85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216602   (749205) от 31.03.2018
-
-НАИВ - Make Naive Great Again (2018) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Предчувствие
-02. Сонет #7
-03. Трамп! Гоу эвей!
-04. Вовочка(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CF2C9A101EFE2DFD489D68B12631EA239FA96D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216573   (749209) от 31.03.2018
-
-Сергей Бобунец (Смысловые галлюцинации) - Нормально всё (2018) [FLAC|lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Некуда бежать (03:13)
-02. Глубина (03:39)
-03. Как они смеялись (03:36)
-04. Пока танцуют ангелы (04:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B285E195CB05FFC228998F5396517667A554AE8A
 ```
 
 

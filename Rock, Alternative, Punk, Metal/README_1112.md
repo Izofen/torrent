@@ -1,3 +1,57 @@
+###  Публикация: 1496401   (873373) от 17.09.2021
+
+Vega - Anarchy And Unity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie
+02. Sooner Or Later
+03. End Of The Fade
+04. Ain't Who I Am(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0E958860AF4FD80E774CF5CB264AC27164F2F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496385   (873375) от 17.09.2021
+
+Edge Of Paradise - The Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Paradise
+02. My Method Your Madness
+03. Tidal Wave
+04. The Unknown(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B2188EECE8219BB30383AF3B52961C21D820BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496408   (873377) от 17.09.2021
 
 Don McLean - The Best Of Don McLean (1991) [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -641,60 +695,6 @@ Mob Rules - Tales From Beyond (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12C8B38B313C4C64DF2162E269C7DBDED973C50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997669   (873903) от 17.03.2016
-
-Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873903.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roll the Dice
-2. Broken
-3. Modern Babylon
-4. Machines of Fear(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE85C7D3215F0167EE2E9A88E88EB30AAD141A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997580   (873904) от 17.03.2016
-
-GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время (3:24)
-02. Это Твой День (4:03)
-03. С Кем Ты Играешь И Поёшь?! (3:58)
-04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
 ```
 
 

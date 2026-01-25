@@ -1,3 +1,30 @@
+###  Публикация: 1025073   (712193) от 11.06.2016
+
+VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember Nothing - Summer of Love - Singled Out Mix
+02. Ms. Jones and the Fireflies - 5am - Lana in the Video Sadness Cut
+03. Deep Sound Employees - Follow - Beach Cafe Mix
+04. Heartless Surfer Crew - Skip the Beat - Olly Got a Heart Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070172B23E009D54986B08ED4B2897CEB74DE86F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025289   (712195) от 11.06.2016
 
 VA - Pussy Lounge (2016) [MP3|320 кб/с] <Hardstyle>
@@ -668,33 +695,6 @@ VA - New Rock 2 (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F41D695F5206F78D7B5E88FC907000A1CBE91800
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401019   (713323) от 08.08.2020
-
-VA - Future Space House (2020) [MP3|320 Kbps] <House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713323.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sirius Delta - Stray
-002. Moam - Run With It
-003. Dorian Lay - Level Down
-004. Hdsn - Shake The Ground(   Читать дальше...   )Жанр: House, Electro, ClubПродолжительность: 10:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FB141685BDEE8F802C4B9326BE96B3A20DBEC3
 ```
 
 

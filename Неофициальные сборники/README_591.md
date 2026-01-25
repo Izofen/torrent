@@ -1,3 +1,30 @@
+###  Публикация: 1371399   (892028) от 30.03.2020
+
+VA - Beatport Deep House: Electro Sound Pack #43 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892028.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fifth Model - Fame Music
+002. Louis Guerra - Turn Off The Ligh
+003. T.U.R.F. - East Side Harmony
+004. Robert Washington - How Deep Is The Sea(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F120FBB8559C81021451FADDE27117FF660DC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371395   (892034) от 30.03.2020
 
 VA - Beatport Electronic: Electro Sound Pack #38 (2020) [MP3|320 Kbps] <Synthetic, Dance, Club>
@@ -668,33 +695,6 @@ VA - Снежный хит-парад. Русские хиты выпуск №6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E701E59D5A82487F8C951C95EC8363957CF25E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371011   (893051) от 29.03.2020
-
-VA - Top 50 Club Tracks 2 (2019) [MP3|320 Kbps] <House, Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LMFAO - Sorry For Party Rocking (Mike Prado & Foma Remix) 3:34
-02. Sean Finn & Paul Jockey - Dare Me (Original Mix) 5:42
-03. Anton Liss - Live Your Moment (Original Club Mix) 5:36
-04. Denis Rublev & DJ Anton - No More (Original Mix) 6:19(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 03:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E411C82D23548DD4C0CE0610EEF4C5E1020394
 ```
 
 

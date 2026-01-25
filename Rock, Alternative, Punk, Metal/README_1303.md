@@ -1,3 +1,57 @@
+###  Публикация: 1605643   (1044875) от 18.01.2023
+
+First Night - Deep Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Hearts
+02. Little Love
+03. Beginning of the End
+04. Savage Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BB709EFC3E33BFD4EE570A8E6D27AA6FD1C69D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605438   (1044876) от 18.01.2023
+
+Eric Clapton - Pilgrim (1998) Reissue, Remastered, 2014, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Father's Eyes
+02. River of Tears
+03. Pilgrim
+04. Broken Hearted(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F31FF7D52275E4909EBE3022213F553CE20D406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605381   (1044964) от 17.01.2023
 
 Epic Symphonic Rock - Epic Symphonic Rock (Live) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classical, Covers>
@@ -641,60 +695,6 @@ Oslo - Don't Turn Your Back (1991) Reissue, Remastered, 2022, Metallic Blue Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3F3C4C1050290B9ECA17C211CD5E08BE608C00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604815   (1045230) от 15.01.2023
-
-Shylock - Shylock (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Let U Go (4:25)
-02. I Want To Know (4:01)
-03. Chained (3:29)
-04. The Same (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC32477D87AC9AD27BD8858F9A54B4E326ED506
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604606   (1045297) от 14.01.2023
-
-Elvis Presley - Forever In Love (1997) 2CD, Compilation [FLAC|Lossless|tracks + .cue]<Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wooden Heart
-02. Sentimental Me
-03. Fever
-04. For The Millionth And The Last Time(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 02:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1139D062F53B040A6BDC1A496995D756B18CCDAA
 ```
 
 

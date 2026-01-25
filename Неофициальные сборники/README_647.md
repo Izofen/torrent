@@ -1,3 +1,27 @@
+###  Публикация: 610738   (990507) от 29.01.2013
+
+VA - Armada Beach Festival-Argentina 2013 (25-01-2013) [MP3| ~166-182 кб/с]<Trance,Progressive Trance.>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990507.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: Trance,Progressive Trance.Продолжительность: 06:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9957B47C23991DE657BE349AB6E47992EF76CC01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609373   (990509) от 29.01.2013
 
 VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
@@ -730,33 +754,6 @@ VA - Исаак Шварц. Песенка Верещагина (Лучшие п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353445   (991971) от 18.01.2020
-
-VA - The Official UK Top 40 Singles Chart 17.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Stormzy - Own It (feat. Ed Sheeran & Burna Boy) (3:36)
-2.Lewis Capaldi - Before You Go (3:36)
-3.Future feat. Drake - Life Is Good (3:57)
-4.Dua Lipa - Don't Start Now (3:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBCF7FAC098F837CD34A65040E3DB986D2897AB
 ```
 
 

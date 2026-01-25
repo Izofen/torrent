@@ -1,3 +1,57 @@
+###  Публикация: 905851   (647824) от 07.06.2015
+
+Gandalf's Fist - Uprooted (2015) [MP3|320 кб/с]<Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Ballad of Treebeard Transport King (2015 Version) (4:03)
+2. The Siren's Kiss (2015 Remix) (5:25)
+3. The Council of Anderson (2015 Remix) (6:23)
+4. She Dwelt Among the Untrodden Ways (2:44)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C011BA278AF09512308F9C395029FB980E58378A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905865   (647832) от 07.06.2015
+
+Vitor Bacalhau - Brand New Dawn (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman (4:05)
+02. Gone Too Soon (4:06)
+03. Too Much Of A Good Thing (3:06)
+04. Nicotine (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B12D77108D373C6B0A8CD9C861413A13BF6CDBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905801   (647834) от 07.06.2015
 
 Kinski - 7 (or 8) (2015) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Post-Rock>
@@ -647,59 +701,6 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905277   (652096) от 05.06.2015
-
-Herba D'Hameli - Interiors (2015) [MP3|320 кб/с]<Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Extasi Terranal (11:26)
-02. Claritat (10:38)
-03. Experimentacio (5:20)
-04. Viatge (19:23)Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC52CB0D72CD2FD16DA0D6EC24754DF5D3E1DDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515925   (652123) от 29.06.2012
-
-Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652123.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Youth
-2. Wood Arsenal
-3. Black FoxЖанр: Math Dance Indie RockПродолжительность: 00:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3311940A4586C40F5AF47DBC5990DBD82713B9B
 ```
 
 

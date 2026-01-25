@@ -1,3 +1,30 @@
+###  Публикация: 1273322   (799370) от 03.01.2019
+
+VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers - Young
+02. Pitbull, J Balvin, Camila Cabello - Hey Ma
+03. Diplo, Zhavia Ward, French Montana, Lil Pump - Welcome to the Party
+04. Drake - God's Plan(   Читать дальше...   )Жанр: Dance, Electronic, Pop, Hip-HopПродолжительность: 05:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DC3F07F727CDD0FECF6073A82130B27C6749D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273575   (799397) от 03.01.2019
 
 VA - Tech House: Euro Mastermix (2018) [MP3|320 Kbps] <Tech House>
@@ -668,33 +695,6 @@ VA - Radio Monte Carlo (2018) [MP3|320 Kbps] <Electronic, House, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:162186CE82BD0D6FFC118924874A839BCC08631D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199631   (800150) от 17.01.2018
-
-VA - Новогодний Торт (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Интонация (In2Nation) & Elvin Grey - Засыпай Зима
-002. DJ Slon & Katya ft. Роман Василенко - Life is good
-003. Валерий Меладзе - Свобода Или Сладкий Плен
-004. Лена Катина - White Christmas(   Читать дальше...   )Жанр: PopПродолжительность: 09:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2C73C6ECE5CFB0664B2C30B9B9612BB2C35EB3
 ```
 
 

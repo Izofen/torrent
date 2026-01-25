@@ -1,3 +1,57 @@
+###  Публикация: 1224844   (664088) от 12.05.2018
+
+Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] <surf rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664088.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Surfin' USA
+2.	Fun, Fun, Fun
+3.	Little Old Lady From Pasadena
+4.	Barbara Ann(   Читать дальше...   )Жанр: surf rockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA70CB252AFA3BD36BBF9B7C636EFE0FCDCB2AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138394   (664112) от 29.05.2017
+
+The Police - Greatest Hits (1996) Remastered, Reissue [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/14. Roxanne (3:13)
+ 02/14. Can't Stand Losing You (3:01)
+ 03/14. Message In A Bottle (4:51)
+ 04/14. Walking On The Moon (5:02)(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A57F30FC1BCC829877AF7B5B5D698D167A6DF61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138180   (664148) от 29.05.2017
 
 Solstafir (Sólstafir) - Berdreyminn (2017) Deluxe Edition [MP3|320 Kbps] <Post-Metal, Post-Rock>
@@ -652,60 +706,6 @@ Acid King - 5 albums (1997-2006) [FLAC|Lossless] <Stoner Rock, Stoner Doom Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:820F923A931E67CC4738F2ABC5A6217DDEA9412E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180225   (665076) от 24.05.2015
-
-Ensiferum - Дискография (2001-2009) [FLAC|Lossless]<Melodic Death, Folk, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By The Dividing Stream (3:50)
-02. Fram Afar (4:52)
-03. Twilight Tavern (5:39)
-04. Heathen Throne (11:09)(   Читать дальше...   )Жанр: Melodic Death, Folk, Viking MetalПродолжительность: 4:04:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537832   (665333) от 18.03.2022
-
-Hell Militia - Hollow Void (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifeless Light (4:21)
-02. Genesis Undone (4:22)
-03. Dust of Time (5:45)
-04. Within the Maze (4:09)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987AC3A4741319F53750B9652A56192A15B4CE78
 ```
 
 

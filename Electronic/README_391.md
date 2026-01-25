@@ -1,3 +1,84 @@
+###  Публикация: 1211496   (777246) от 08.03.2018
+
+VA - Russian Electronica Vol.3 (2018) [MP3|320 Kbps] <House, Electronica>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Moveton  -  Micro Lord (Original Mix)  4:45
+02.  Oblomov  -  Love Knocking Down (Moveton Edit)  4:32
+03.  Eraserlad  -  All That Was Will Not Return (Original Mix)  7:11
+04.  DJ Antip  -  Thor (Original Mix)  5:45(   Читать дальше...   )Жанр: House, ElectronicaПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E680A258929A0C32D15167BEB41F4B2FA997A7F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211362   (777247) от 08.03.2018
+
+VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
+03.  Adip Kiyoi feat. Vika  -  Soul In The Dark (Extended Mix)  5:25
+04.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3286C7B1435E2BE1BEFC7A0FEFDD5E08CC1BD2C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211390   (777271) от 08.03.2018
+
+VA - Relax Vibration Vol.02 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  M.D.  -  See The Light (Original Mix)  7:50
+02.  N.Juravel  -  Memory Area (Original Mix)  5:24
+03.  Soty  -  Never Let Go (Original Mix)  3:52
+04.  Seven24 & Soty feat. Angel Falls  -  Vision (Vocal Mix)  4:41(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECD0D4831EE7FB7659F649E71ADBF5CD53BED96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211523   (777272) от 08.03.2018
 
 VA - Miami Madness 2018 [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -614,87 +695,6 @@ VA - Relax Vibration Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AECC7F96E8895EA7E8F2DD2A20095C91E81307B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210934   (778232) от 05.03.2018
-
-VA - Best Of Progressive House 2018 Vol.02 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sound Quelle  -  Djerba (Original Mix)  5:43
-02.  The Midnight  -  Synthetic (We Are All Astronauts & Lost Empire Remix)  7:19
-03.  Andromedha  -  Rise (Original Mix)  6:00
-04.  Talamanca  -  Meditation (Deep Mix)  7:21(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4057623349B56A0935C016311107CC42B5C2FECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210694   (778234) от 05.03.2018
-
-VA - Soul Contact Vol.1 (Mixed by Sam Laxton) (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dan Thompson feat. Natalie Gioia  -  Be In Love (Sam Laxton's Soul Contact Remix)  3:54
-02.  Andy Moor feat. Michele C  -  We Can Be Free (Evan Pearce Remix)  6:33
-03.  Temple One  -  The 42nd Parallel (Extended Mix)  7:48
-04.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC3EDE494EE27CC3E85E5EC1E37768A64DC102D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210880   (778236) от 05.03.2018
-
-VA - Total Trance Selections Vol.09 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Moonsouls & Marjan  -  Until The End (Extended Mix)  6:36
-02.  Cyril Ryaz  -  Fall & Rise (Original Mix)  6:39
-03.  All Sandu  -  Joy (Original Mix)  5:32
-04.  Roman Messer & Vito Fognini  -  Ambition (Eximinds Extended Remix)  4:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9FA2FF831F8870C494114C1BD5F0CCCDE841A8
 ```
 
 

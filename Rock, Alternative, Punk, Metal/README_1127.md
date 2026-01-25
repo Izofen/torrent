@@ -1,3 +1,57 @@
+###  Публикация: 1101552   (891197) от 09.02.2017
+
+Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Machine (3:09)
+02. Hey (3:18)
+03. Ana (2:16)
+04. Magdalena 318 (3:27)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADD930D9960CE91A7F951FAFFD7B0387058A77A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102586   (891207) от 09.02.2017
+
+Багира - Шрамы (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волна
+02. Шёпот
+03. Залечь На Дно
+04. Шрамы(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB60535F25C0FA287822AF49FB0E18BE7CD3745D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102165   (891212) от 09.02.2017
 
 R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
@@ -642,60 +696,6 @@ magnet:?xt=urn:btih:74E00D464A9335C740528608ED695473AA18D4C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02BC70A54ADFB99C1F572FF5BAF67B71657332CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493794   (892412) от 05.09.2021
-
-At Vance - 9 Studio Albums (1999-2012) 9xCD [FLAC|Lossless|image + .cue] <Power Metal, Neo-Classical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892412.jpg" />
-</div>
-
-
-###  Подробнее
-
-At Vance – немецкая метал-группа, основанная в 1998 году гитаристом-виртуозом Олафом Ленком (Olaf Lenk) и вокалистом группы Centers Оливером Хартманном (Oliver Hartmann). Уже весной следующего года новоиспечённый коллектив подписал контракт с лейблом Shark Records, а в сентябре - выпустил дебютный альбом под названием «No Escape».1999 - No Escape
-2000 - Heart Of Steel
-2001 - Dragonchaser
-2002 - Only Human(   Читать дальше...   )Жанр: Power Metal, Neo-Classical MetalПродолжительность: 08:08:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493839   (892424) от 05.09.2021
-
-Billy Rankin - Growin' Up Too Fast (1984) Reissue, Remastered, 2002, Zoom Club Records [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный сольный альбом гитариста Nazareth!01. Baby Come Back
-02. Rip it Up
-03. Think I'm In Love
-04. Where Are You Now(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E90773856AC0F457EB6B5B6CCB2D292E692541
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1281888   (748281) от 10.02.2019
+
+VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748281.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elly B - Friends With Benefits
+002. Fyah Blaze - Jah Shine His Light
+003. Jah Torius - Never Believe
+004. Jahlani Muziq - Prologue(   Читать дальше...   )Жанр: Reggae, Dub, SkaПродолжительность: 08:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D07F0583F70DB754B09925A5BA26AB1A08048E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281901   (748299) от 10.02.2019
 
 VA - Rapper's Delight (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -668,33 +695,6 @@ VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF51C01D833898109E396377640B41A09E68472
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216476   (749316) от 31.03.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-02. Luis Fonsi, Demi Lovato - Echame La Culpa
-03. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession
-04. Jax Jones - Breathe (Ina Wroldsen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04FB74F9D1A936ABB78710BB4BF4E1F83FFA1A6
 ```
 
 

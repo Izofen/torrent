@@ -1,3 +1,57 @@
+###  Публикация: 1552341   (587703) от 20.05.2022
+
+Anvil - Impact Is Imminent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take a Lesson (4:21)
+02. Ghost Shadow (3:08)
+03. Another Gun Fight (4:04)
+04. Fire Rain (2:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7A04C9027F282609772972C71641512C6B6EF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552313   (587708) от 20.05.2022
+
+CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Life Begin Tonight (4:35)
+02. Purple Dynamite (3:33)
+03. Guilty Under Pressure (3:42)
+04. Sometimes (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 185514   (587795) от 14.07.2015
 
 Троя - Мир в Огне (2008) [MP3|320 kbps]<Melodic Power Metal>
@@ -635,60 +689,6 @@ The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551237   (589391) от 17.05.2022
-
-Cancer Bats - 15 Albums (2005-2022) [FLAC|Lossless|WEB-DL|tracks + .cue|tracks] <Post-Hardcore, Southern Rock, Hardcore Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiate [00:03:04]
-02. The Hoof [00:03:00]
-03. Lonely Bong [00:03:07]
-04. Friday Night [00:02:54](   Читать дальше...   )Жанр: Post-Hardcore, Southern Rock, Hardcore PunkПродолжительность: 17 CD, 10:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:188FD31EE6CE9A62B2FF4151B96457ABF63B66FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551321   (589424) от 17.05.2022
-
-Суперкульт - Клеймо (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Punk, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Клеймо (00:01:06)
-02 - Змея (00:05:17)
-03 - Наркотики (00:03:37)
-04 - Ты не одна (00:04:41)(   Читать дальше...   )Жанр: Post Punk, Experimental RockПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
 ```
 
 

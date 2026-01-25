@@ -1,3 +1,30 @@
+###  Публикация: 1313908   (522264) от 11.07.2019
+
+VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arirang Singers - Dark Eyes (1979) (4:02)
+02. Arpeggio - Let The Music Play (1978) (8:21)
+03. Barrabas - (Be Me) Rebel (1982) (6:32)
+04. Benelux & Nancy Dee - Rico (1980) (3:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F0F4EE41AAADD718E1F82A1E1BF28384AED46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313856   (522266) от 11.07.2019
 
 VA - Romantic Indie Pop-Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
@@ -677,33 +704,6 @@ VA - Mega Pack Russian Retro 90's Remix 2018 [MP3|320 Kbps] <Euro-House, Eurodan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA83F119D3DABB507DCBD9290D7DE5482E65E01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240651   (523395) от 13.08.2018
-
-VA - Club Dance Ambience Vol.159 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 50 Cent  - Candy Shop  (Synthony Remix)
-002. Aarre & Samlight - Shining Bright (Extended Mix)
-003. Agua Sin Gas, Antoine Clamaran - Moovin' Groovin'  (Gary Caos Edit Mix)
-004. AL Sharif & CORX & Diego Antoine - Vagabond (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300DBA2BB40F0E29D652C42A4A960E5A7B8EB6A9
 ```
 
 

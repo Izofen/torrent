@@ -1,3 +1,30 @@
+###  Публикация: 1156786   (526382) от 09.08.2017
+
+VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nickelback - Far Away
+002. Whitesnake - Is This Love
+003. Pierce the Veil - Dive In
+004. Saosin - The Silver String(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 08:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580987F028F325C775B9CF602B564B7F1E07602E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053053   (526479) от 16.09.2016
 
 VA - Хиты 90-х. Зарубежные (2016) [MP3|128-320 Kbps] <Pop, Dance, Disco>
@@ -674,33 +701,6 @@ VA - Золотые семидесятые vol. 7-9 (2017) [MP3|192-320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0ECCE13392376BF27F2B1F48BEED65ECBAB65D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156143   (528500) от 06.08.2017
-
-VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу ZеBуte) (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mahmut Orhan - Game Of Thrones  3:55
-02.  ATB - The Summer (Ice & Dmirtiy Rs Remix)  5:36
-03.  Dire Straits - Sultans Of Swing (Hugo Villanoca Dub) (Stefanos Atart Edit)  5:28
-04.  Sebastian Weikum - About You  5:34(   Читать дальше...   )Жанр: House, Deep House, Nu DiscoПродолжительность: 04:11:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CE7F040FF2EE8046E17A4A65B058E7C5CEE9DD
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1480223   (1009180) от 27.06.2021
+
+VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlab - Bionic Mind (6:48)
+02. Mind Vision - Cosmic Rain (6:01)
+03. Atomic Space Orchestra - Space Envoy (5:51)
+04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9473A9784F9EEED3FA4C04140D21D0D79BBC53E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480291   (1009182) от 27.06.2021
+
+Balmorhea - The Wind (2021) [FLAC|Lossless|tracks + .cue] <Modern Classical, Post Rock, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day Dawns In Your Right Eye (feat. Lili Cuzor & Clarice Jensen) (4:25)
+02. Rose In Abstract (feat. Morris Kliphuis, Lisa Morgenstern, & Clarice Jensen) (4:58)
+03. La Vagabonde (feat. Alex Browne, Morris Kliphuis, Sam Pankey, Jonathan Sielaff, & James Suter) (5:17)
+04. Landlessness (feat. Clarice Jensen) (5:01)(   Читать дальше...   )Производство: Deutsche Grammophon – 00028948397990Жанр: Modern Classical, Post Rock, ExperimentalПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BD86A46FCA02D0F800A92CEA3CE8C4953B667A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480217   (1009184) от 27.06.2021
+
+VA - Summer In Space Vol. 4 (2021) [MP3|320 Kbps] <Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlab - Bionic Mind (6:48)
+02. Mind Vision - Cosmic Rain (6:01)
+03. Atomic Space Orchestra - Space Envoy (5:51)
+04. Rama - The Sea Of Tranquility (4:56)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656292704BD8E34F10948C40DE2C09E93B8114B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480290   (1009185) от 27.06.2021
 
 Oliver Schories - Paradigm (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Neo Trance, Minimal Techno>
@@ -607,84 +688,6 @@ Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0663B7D4F91C953BBBA3556A1FEE12D675C86834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382416   (1009978) от 21.06.2021
-
-Insect O. - Collection 20 Releases (1999-2021) Etui Records, Primary [colours] [FLAC|Lossless|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icebergs (05:53)
- 02. Unrush (07:38)
- 03. Coiba (05:37)Тип издания: Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 05:20:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DE0F740AD22F212F599372F86720C173FFA94F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418591   (1009995) от 21.06.2021
-
-Echo Inspectors - Discography 11 Releases (2012-2021) Primary [colours] [FLAC|Lossless|tracks|Web, Vinyl] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad Roy (07:25)
- 02. Mad Roy (Bluetrain Special Edition Dub) (08:16)Тип издания: Web, VinylЖанр: Dub Techno •Продолжительность: 02:59:54 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F364DC1524E372EA4452EA1AF6F127B3F7387123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478929   (1010009) от 21.06.2021
-
-Healer - Book of Clouds (2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Chapter Begins (16:32)
- 02. Some Days I Miss You So Very Much (13:10)
- 03. Lost In Memories (06:31)
- 04. Two Rivers (15:25)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E723F95BC9495CEF73B877B8FEE5628A4808C62
 ```
 
 

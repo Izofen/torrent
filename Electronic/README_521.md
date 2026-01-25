@@ -1,3 +1,81 @@
+###  Публикация: 1619372   (1032964) от 16.03.2023
+
+VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicagoboy - Come and Get It (4:37)
+02. Mr Brackets - Spate (5:33)
+03. Roxy Dawn - Who'll Stop the Rain (Midnight Rework) (4:51)
+04. Plastic Thomas Orchestra - Hungabunga List Nr. 2 (Pto Remix) (3:18)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D7433D6B6EB8443DC04073891175E3CFF33E56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446365   (1032991) от 08.02.2021
+
+David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (2021-02-06) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+02. CamelPhat & Will Easton - Witching Hour (David Guetta 2020 Rework)
+03. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix)
+04. David Guetta & Sia - Let's Love (David Guetta & MORTEN Future Rave Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D613D4E7ABF2EBAA82A24DA554C2216C07180BD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446290   (1032995) от 08.02.2021
+
+Tim Schaufert - Have My Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Future Garage>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have My Soul (03:00)Жанр: Chillwave, Ambient, Future GarageПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FDB06B06126803C49E87BBE0A42517A1E74AB3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619249   (1033001) от 16.03.2023
 
 VA - Top 6 February 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -585,87 +663,6 @@ VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EBD8EA2FDD75FE248C7D7F0886384E467C6820A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095760   (1033412) от 06.02.2021
-
-Darrell Fitton (Bola, Jello) - Discography 18 Releases (1995-2017) Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Abstract, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lungbone (Tongue Bone Mix) (feat. Dennis Bourne) (05:00)
- 02. Damask (04:39)
- 03. Vibe-A-Rolla (Scump Mix) (05:48)
- 04. O'verb (Dualite Mix) (06:11)(   Читать дальше...   )Тип издания: CD, Vinyl, WEB •Жанр: IDM, Ambient, Abstract, Downtempo, Experimental •Продолжительность: 13:16:11 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E952406D936BE29DC333EC9330E535B2204063
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245415   (1033440) от 06.02.2021
-
-Frank Mokros (Totakeke, Synth-Etik, Ativ) - Discography 16 Releases (2001-2015) Tympanik Audio, Hands Productions [FLAC|Lossless|tracks+.cue] <Rhythmic Noise, IDM, Ambient, Electro, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival (Synth-Etik Remix) (02:22)
- 02. Horizon (Synth-Etik Remix) (06:12)
- 03. Digital Variant (Synth-Etik Remix) (04:41)
- 04. Syntonic (Synth-Etik Remix) (05:53)Тип издания: CD, WebЖанр: Rhythmic Noise, IDM, Ambient, Electro, Industrial •Продолжительность: 19:08:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8CCE179849E18C24B75E4A8030ACBE375CC6E96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445731   (1033497) от 06.02.2021
-
-VA - Techno Club Vol 60 (Mixed by Talla 2XLC vs. Xijaro & Pitch) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Para X - Dragonfire (Extended Mix)
-02. Alex M.O.R.P.H. - Starfleet Commander (Extended Mix)
-03. Above & Beyond vs. Armin Van Buuren - Show Me Love (A & Z Extended Remix)
-04. Dito - Shadows (Talla 2XLC Remix Extended Version)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BECB62BDBA48FB72D1AC53969C4E5591498AF55
 ```
 
 

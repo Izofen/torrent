@@ -1,3 +1,84 @@
+###  Публикация: 1845071   (1050325) от 29.12.2025
+
+VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turbotronic - SSONDA 02:43
+02. 90bangerz - Para Ri Para Ra 02:05
+03. JLUIS - Universe 03:10
+04. Stephan F - Supernova 03:04(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D49C1A617F0A511C5EFCB19CECB9FB8582177F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844913   (1050412) от 28.12.2025
+
+VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (02:55:30)
+01. Cubicolor - Got This Feeling (Mixed) 07:36
+02. Jody Wisternoff - Dapple (Mixed) 02:53
+03. 16BL - Nobody Seems To Care (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 09:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844835   (1050417) от 28.12.2025
+
+VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.Markakis - Love Away (Extended Mix) [6:45]
+02. Tommy Gustav - Nobody Else (Extended Mix) [6:40]
+03. Yves Murasca & Rosario Galati - Close Your Eyes (Karol XVII & MB Valence Loco Extended Remix) [6:41]
+04. Kubinowski & Mafia Mike - If You (Extended Mix) [5:37](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 03:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844753   (1050419) от 28.12.2025
 
 Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|320 Kbps] <Trance>
@@ -484,7 +565,7 @@ magnet:?xt=urn:btih:C67EC341299F99104E4741B2FB350A9145756535
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846167   (1051142) от 
+###  Публикация: 1846167   (1051142) от 05.01.2026
 
 VA - Velvet Lounge Bar: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
@@ -511,7 +592,7 @@ magnet:?xt=urn:btih:8B64FEDDA003946BE1E50A21287D8A777C705EB9
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846001   (1051172) от 
+###  Публикация: 1846001   (1051172) от 05.01.2026
 
 Johnny de City - Mashup Avenue 028 (Yearmix 2025) (2025-12-28) [MP3|320 Kbps] <Dance, Electro Pop, Mashup>
 
@@ -537,7 +618,7 @@ magnet:?xt=urn:btih:0F9F15FDACDBF9FF74F2E2F2257670F96847A4BF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846038   (1051173) от 
+###  Публикация: 1846038   (1051173) от 05.01.2026
 
 VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
 
@@ -564,7 +645,7 @@ magnet:?xt=urn:btih:08B231EA1643CCE97E20322E4B1029BDC8C1926D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846119   (1051175) от 
+###  Публикация: 1846119   (1051175) от 05.01.2026
 
 Kasablanca - Higher Resolution (Side-A, Side-A-The Remixes, Side-B) (2024-2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
 
@@ -591,7 +672,7 @@ magnet:?xt=urn:btih:4AF9EC8F0C6AC4B19CFF98527C045363FF441FCF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846171   (1051230) от 
+###  Публикация: 1846171   (1051230) от 06.01.2026
 
 Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
 
@@ -613,87 +694,6 @@ Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846318   (1051313) от 
-
-VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agents Of Time & CERES - Baby
-02. Argy & Eli & Dani & Peki & ØSHER - Chasing Highs
-03. Cassian & YOTTO & Da Hool - Love Parade  w/Junior Jack - E Samba (Acappella)
-04. Agents Of Time ft. Ross Quinn - Friend Of Mine(   Читать дальше...   )Жанр: Techno, House, TranceПродолжительность: 36:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB848891D5BCC2889E46C1646635480C1FB085D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846308   (1051316) от 
-
-VA - Metropolitan Chillhouse: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Deep House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepanima - Autumn Leaves (Dalibor Dadoff Remix) (6:50)
-02. Boyzen SA - Falling for You (6:17)
-03. Schwarz & Funk - Blue Rose (Eivizzards Mix) (5:55)
-04. TRANQVIL - Midnight (3:20)(   Читать дальше...   )Жанр: Balearic, Downtempo, Deep HouseПродолжительность: 01:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9207138B62AD0F3A5E02CC7522E464C14E02C420
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846761   (1051648) от 
-
-GOODBOYS - Linked Radio (01-04) (2025) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GOODBOYS & KREAM - Paradise
-02. Duke Dumont & Jay Norton vs. Landmark - Ocean Drive vs. Only Solution (GOODBOYS Edit)
-03. Twisted Moon vs. Danny Tenaglia ft. Celeda - Keep This vs. Music Is The Answer (Dancin' And Prancin') (GOODBOYS Edit)
-04. Bart Skils & Weska - Something More (Joris Voorn Remix)(   Читать дальше...   )Жанр: Tech House, Melodic House, TechnoПродолжительность: 03:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286F95FD37921148C72D61065D699EF4266149AD
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1092076   (940302) от 11.01.2017
+
+VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
+02. Don Gorda Project - Do That Again
+03. Enrico Donner - I Need A Love
+04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984126   (940333) от 08.02.2016
+
+VA - Anthems II 1991-2009 (2008) 3CD Mixed [FLAC|Lossless|tracks + .cue] <House, Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust - Music Sounds Better With You (3:24)
+02. Daft Punk - Around the World (2:29)
+03. Azzido da Bass - Dooms Night (Timo Maas remix) (2:45)
+04. The Prodigy - Firestarter (2:27)(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F2129D470664D663554C3456C4A70DC00CD030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363670   (940556) от 29.02.2020
+
+Boris Brejcha - Space Diver (2020) [MP3|~245 Kbps (V0)] <Tech House, Minimal>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boris Brejcha feat. Laura Korinth - Gravity (9:24)
+02. Boris Brejcha feat. Ginger - Happinezz (7:52)
+03. Boris Brejcha - Never Look Back (8:01)
+04. Boris Brejcha - Lieblingsmensch (8:44)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D611F4F3E6A5876D9B05E684FD4FE75B774F3DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363742   (940733) от 29.02.2020
 
 ScAnDroid Experiment's - Ortus et Occasus (2020) авторская раздача [MP3|320 Kbps] <Experimental, Ambient, Relax>
@@ -618,87 +699,6 @@ VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090210   (941991) от 28.02.2020
-
-cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtraktive (Original Mix) (15:46)
- 02. Subtraktive (Reimagined) (14:03)
- 03. Subtraktive (Intrusion's Path To Zion Dub) (08:20)
- 04. Subtraktive (Soultek's Morning Dub) (08:38)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Dub Techno, Ambient, Techno •Продолжительность: 55:46:44 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983819   (942047) от 07.02.2016
-
-Ultravox - Vienna (1980) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Astradyne
-02 - New Europeans
-03 - Private Lives
-04 - Passing Strangers(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D2BCAD33DDE6D7D262168225ECEEC3EF9CEB1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983810   (942122) от 07.02.2016
-
-Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow Motion
-02 - Can't Stay Long
-03 - Someone Else's Clothes
-04 - Blue Light(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C11DB69E99A07E643CA466578A359009AF3438D6
 ```
 
 

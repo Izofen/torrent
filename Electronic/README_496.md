@@ -1,3 +1,84 @@
+###  Публикация: 1487444   (1003625) от 05.08.2021
+
+Troekurovo Recordings | Toki Fuko, Vadim Basov, Evgeny Vorontsov - Discography 3 Releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Field Recording, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctium (Intro) (05:19)
+ 02. Artemisia (12:48)
+ 03. Thymus (11:31)
+ 04. Companula (10:36)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Ambient, Field Recording, Experimental •Продолжительность: 07:19:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7EE95B2435BFCD93479399384ED83AE8B29B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637893   (1003678) от 04.01.2020
+
+York - Islanders (2012) Planet Love Records #ARDI3244 [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Trance>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - Dying Star (Chill Out Mix) (7:14)
+02. York & Mike Oldfield - Islanders (Chill Out Mix) (9:12)
+03. York & Art Halpertin - Abyss (Chill Out Mix) (5:23)
+04. York & The Thrillseekers feat. Asheni - Daydream (York's Album Mix) (06:08)(   Читать дальше...   )Жанр: Lounge, Chillout, Trance, LeftfieldПродолжительность: 02:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704D35A0EEB3A1C06DE33C872F95C7751999BB18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207898   (1003744) от 04.08.2021
+
+Eskmo | Welder - Discography 30 Releases (1999-2019) [FLAC|Lossless|tracks+.cue, tracks] <Glitch, Dubstep, Downtempo, IDM, Experimental, Ambient>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (03:47)
+ 02. Yellow Yellow (04:07)
+ 03. L...Carousel...C (04:22)
+ 04. Japan (04:25)(   Читать дальше...   )Жанр: Glitch, Dubstep, Downtempo, IDM, Experimental, Ambient •Продолжительность: 14:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04D3D088ED7120131025FCA07EB7F6F4B27F5CE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350112   (1003756) от 04.01.2020
 
 Flume - Hi This Is Flume (2019) Mixtape [FLAC|Lossless|Web-DL|tracks] <Experimental, Bass Music, Trap>
@@ -611,87 +692,6 @@ Poemme & Stereoscenic Label-Pack - 63 Releases (2014-2021) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42E197F931D6D48C5862B2AE12599F22E3C2A18F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485906   (1004734) от 31.07.2021
-
-SEX-O-RAMA - Collection (1998-2011) 2альбома [MP3|320 Kbps] <Lounge, Rock, Funk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesohorny
-02. Mile High Club
-03. Badonkadonk
-04. Desiree(   Читать дальше...   )Жанр: Lounge, Rock, FunkПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C7A55CB4D4B17D25D63E52BE315166E18ED541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486289   (1004749) от 31.07.2021
-
-VA - Beach Grooves Maretimo Vol. 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airstream - Coffee Bar (Sunnys Pool Mix) (04:49)
-02. DJ Maretimo - Rio (Take Me on Mix) (05:31)
-03. Cinematic - Sunset Love (The Funky Light Mix) (04:31)
-04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (04:49)(   Читать дальше...   )Жанр: Organic House, Downtempo, LoungeПродолжительность: 01:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34A3603F46DB1719EC194CB62E2BE6218AC1177F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486435   (1004760) от 31.07.2021
-
-Cult48 - Underground Signals From An Unknown Place (2021) C48 [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Leftfield, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agfa Qi (04:59)
- 02. Other Side Of The Coin (04:50)
- 03. Orange Moss 89 (03:25)
- 04. Glass In The Grass (05:12)(   Читать дальше...   )Жанр: IDM, Downtempo, Leftfield, AmbientПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B4D6DE1F99BA1E72BDF34E5C45C3BC626B74F2
 ```
 
 

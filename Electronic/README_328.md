@@ -1,3 +1,84 @@
+###  Публикация: 1141889   (648621) от 11.06.2017
+
+VA - Chilling Saturday Nightlife (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pindaric Spleen - Stream Of Consciousness  5:54
+02.  Thomas Dur - Sunday Morning  4:07
+03.  Chillelektro - Hiddensee  6:58
+04.  Dreams Machine - Contact  3:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31AD65D7844975C004C8C1C9C05319598D215536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292113   (648626) от 28.03.2019
+
+Current Value - Far Layer EP (2019) Othercide Records [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dispelling Of Fear (feat. Coresplittaz) (05:54)
+ 02. Ferromagnetic (04:51)
+ 03. Photoelectric (04:27)
+ 04. Far Layer (08:08)Жанр: Drum & Bass, AmbientПродолжительность: 00:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9A0BB5AE7EBCC21EBAA52F98978C2D87C1BDF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292282   (648634) от 28.03.2019
+
+Her - Her (2018) [MP3|320 Kbps] <House, Alternative Rock, Indie>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Choose
+02. Five Minutes
+03. Icarus
+04. Blossom Roses(   Читать дальше...   )Жанр: House, Alternative Rock, IndieПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926A949EF5560E8F78069D1F965E3FC471FCBB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291954   (648636) от 28.03.2019
 
 Nostromosis - My Way (The Next Step) (2018) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
@@ -610,93 +691,6 @@ David Wright - 21 albums (1991 - 2011) [MP3|128-320 кб/с]<Progressive Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFFB35C35F46E71EFC93EEC12A31D535BB9E2EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517192   (649471) от 30.06.2012
-
-VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky House, Disco House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loui & Scibi Feat. Nathalia - Giving You The Light (Shane D. Remix) (05:02)
-02. One51 Feat. Heidi Vogel - Elevate (Earnshaw's House Mix) (05:32)
-03. Steve K & Anna Rizzo - Second Time (Shane D Remix) (05:32)
-04. Raul Rincon Feat. Clara Mendes - Dry Martini (Original Mix) (05:32)
-05. Rasmus Faber & Alf Tumble Feat. Beldina - Leave Me Alone (Kocho Remix) (05:03)
-06. Spiritchaser - Yesterday's Gone (Club Mix) (06:43)
-07. Dom Navarra Feat. Kat Kyrris - If You Knew (Reelsoul Vocal Mix) (04:03)
-08. Natasha Watts - Look Inside (Glenn Thornton Slaag Original) (05:34)
-09. Blacksoul Feat. Andrea Love - All We Need (Original Mix) (05:41)
-10. Eesa - The Way (Original Mix) (05:02)Жанр: Deep House, Funky House, Disco House, Soulful HouseПродолжительность: 07:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E97A6F855B456A288DB4C5A0E1FE413CCB3358
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905459   (649480) от 06.06.2015
-
-VA - Summer Chill (2015) [MP3|320 кб/с]<Chillout, Lounge, Deep>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649480.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Project Blue Sun - Waiting for the Sun (Chillout Mix) (07:23)
-002. Atlantic Project - The Night (03:57)
-003. Patricio AMC - (I Will) Always Love You (Radio Version) (03:22)
-004. Atlantic Project - Afterglow (04:09)(   Читать дальше...   )Производство: Deep FlowЖанр: Chillout, Lounge, DeepПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98A14B4352932BF1AD7BE04909F02103E90112B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905481   (649483) от 06.06.2015
-
-VA - Tresor - Lounge Chillout (2015) [MP3|320 кб/с]<Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649483.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simone Mencarelli - Hearthfire (05:17)
-002. W. Dekay - Marine Salt (04:34)
-003. The Smoker Lab - Venus (03:56)
-004. Avatar - A Beautiful Place (04:07)(   Читать дальше...   )Производство: AB MusicЖанр: Lounge, ChilloutПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D85343EA80CE97223814EA42F0AF19E5A9176D7
 ```
 
 

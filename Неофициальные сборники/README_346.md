@@ -1,3 +1,30 @@
+###  Публикация: 1150878   (578022) от 16.07.2017
+
+VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SRNDR - Astrea (Radio Edit)  3:02
+02.  Dave Gate - Without You (Radio Edit)  3:12
+03.  Lvther - Some Kind Of Magic (feat. Myzica)  3:14
+04.  Masterbeat - Hold Me Tonight (Radio Edit)  3:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E86DA60434378382AEEB774095F1E3DBAED95D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150948   (578025) от 16.07.2017
 
 VA - Day Of Radiance: Space Ambient (2017) [MP3|320 Kbps] <Electronic, Synthspace, Synth Ambient>
@@ -662,30 +689,6 @@ VA - Админские песни (1998-2010) [MP3|64-192 kbps] <Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6AF4AE27FBFF4F167605898A8ACB9CE22DD8AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360848   (578710) от 09.07.2011
-
-VA - Дискотека ВКонтакте №1 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E89963447F1F9FB7320A2BF8984A538F17C90B
 ```
 
 

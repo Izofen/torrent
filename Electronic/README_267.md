@@ -1,3 +1,84 @@
+###  Публикация: 1241821   (518419) от 19.08.2018
+
+VA - Deep House Summer (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax, Andre Sobota - Aura Lusia (André Sobota Remix) 3:31
+02. Raven & Kreyn, Maxim Schunk, Mahalo, Bishop - My Name (Mahalo Remix) 3:17
+03. Corderoy - Empty Chair (Original Mix) 3:18
+04. Oliver Harper - Marazion (Original Mix) 4:00(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B36F29F5EA70F0A250E1A66720F41B0DD44B453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241757   (518422) от 19.08.2018
+
+VA - Elrow Vol. 3 (Mixed By Claptone, Tini Gessler & Eddy M) (2018) [MP3|320 Kbps] <Tech House, Minimal, Funky, Deep, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy M - Everybody Freak
+02. Max Chapman - Body Jack (Get My Swerve On) (Franky Rizardo Remix)
+03. Andrew Meller - Plural Dusks
+04. Claptone - Under The Moon (Catz N Dogz Remix)(   Читать дальше...   )Жанр: Tech House, Minimal, Funky, Deep, TechnoПродолжительность: 07:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF900A699FC98711ED8055D37269A01DF3822B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241705   (518428) от 19.08.2018
+
+Novaspace - Cubes (2004) [MP3|320 Kbps] <Euro-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run To You (3:37)
+02. Come Out Of Your Darkness (4:24)
+03. It's Too Late (4:04)
+04. Beds Are Burning (3:19)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5447A4D0BB5579802750C034105D459B3F8BC5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929611   (518450) от 20.08.2015
 
 Blank & Jones - Relax Jazzed 1 by Julian & Roman Wasserfuhr (2014) [FLAC|tracks + .cue]<Lounge, Chillout, Jazzy>
@@ -614,87 +695,6 @@ Lubomyr Melnyk - Piano Music (2015) [FLAC|Lossless|tracks + .cue] <Modern Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C83F2FE8C7AE4A7038BA36C94BB012E55BC20AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314143   (521207) от 12.07.2019
-
-VA - Trance 100 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance, VocalTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521207.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Garibay - Phone Down (Club Mix) 3:13
-002. Above & Beyond - Distorted Truth (Club Mix) 4:13
-003. Gareth Emery & Ashley Wallbridge - Amber Sun 3:32
-004. ARTY - Sunshine 3:01(   Читать дальше...   )Жанр: Trance, UpliftingTrance, ProgressiveTrance, VocalTranceПродолжительность: 05:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841F40FB1B09888F0ECC14E8AB10724635A51997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314140   (521415) от 12.07.2019
-
-VA - Markus Schulz-Global DJ Broadcast-Top 20 July 2019 [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson – Culture Shock (extended mix) (6:29)
-02. Probspot – Blueberry (Daniel Wanrooy extended remix) (6:44)
-03. Ferry Corsten Presents Gouryella – Surga (extended mix) (8:02)
-04. Orkidea – Metta (extended mix) (7:20)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC410F3A90D8D636CF36D3EE957A5717732FD6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928710   (521794) от 17.08.2015
-
-VA - Lounge Chill (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delbert Schneider - Viele Male besser [05:07]
-02. Aida Antonelli - Dry the River [04:27]
-03. Benigna Maier - Neuzugang Paradies [04:26]
-04. Yan Gillis - Physical Dimension [04:06](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD8BBFF17A4237D9F4495C626343554E0702AFC6
 ```
 
 

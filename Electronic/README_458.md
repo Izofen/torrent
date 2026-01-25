@@ -1,3 +1,84 @@
+###  Публикация: 1103143   (885972) от 12.02.2017
+
+VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Romantic - Waiting For You (feat. Edita) (Roland Ua House Remix)  6:46
+02.  Kenflow - System (feat. Lady Mojo) (Original Mix)  4:10
+03.  Demarkus Lewis - Gruv Select (Original Mix)  6:39
+04.  Erika Amoore - Get Away (Original Mix)  4:35(   Читать дальше...   )Жанр: House, Vocal HouseПродолжительность: 02:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A610E1D6BEAE2D66A8B898982CB10B12052A4A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103040   (886001) от 12.02.2017
+
+VA - Urban Lounge Room Vol.4 (The Best In Lounge, Downtempo Grooves & Chill Out) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Corrado Saija - Settembre  15:28
+02.  Josephine Sinclar - My Privat Island  5:20
+03.  Simon Le Grec - Terre D' Hermes (Vocal Mix)  7:23
+04.  Tim Angrave - Contemplation Elevation  9:12(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8E109826442116E73666C0BA1ECBBED695EDD91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103653   (886016) от 12.02.2017
+
+VA - The Dark Side Of The Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  St Project - Shine of You  2:34
+02.  Anton Jam - Jam Party  3:16
+03.  Manuel Bozza - Batida  3:27
+04.  Waterfall Flowers - Bossa 66  3:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8780758E998CA3A0B3A72CBAD66F9159AB187F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103415   (886026) от 12.02.2017
 
 VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -613,84 +694,6 @@ VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371309   (888580) от 01.04.2020
-
-Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Closer (5:55)
- 02. A Trip with the Stars (4:39)
- 03. A Glimpse of Blue (4:18)
- 04. Captivated (5:06)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFE566DB5B0997350859BFE7A0F528793653E67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371753   (888584) от 01.04.2020
-
-:10: - Collection 5 Releases (2009-2020) CRL Studios [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Abstract, Breakbeat, Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low On Life (04:04)Тип издания: WebЖанр: Industrial/IDM/DowntempoПродолжительность: 02:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371488   (888587) от 01.04.2020
-
-VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <House, Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo - Happy Every Day (Original Mix) [03:27]
-02. Alpha Squad - All About The Music (Radio Edit) [03:12]
-03. YA-YA - Stay With Me (Radio Edit) [02:59]
-04. Allenx feat. Itto and Norah B. - No Time (Spikaa Remix) [03:59](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Future House, DanceПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
 ```
 
 

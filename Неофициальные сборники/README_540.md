@@ -1,3 +1,30 @@
+###  Публикация: 1118709   (811676) от 26.03.2017
+
+VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miles Dyson - Beyond (Extended Mix) 04:55
+002. Dizart - Just In The Way (Original Mix) 03:53
+003. Atside - Kitelahw (Jean Bloc Remix) 05:00
+004. #Monkeystuff - World Connection Feat Dmitry F. (Original Mix) 05:25(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 09:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F18412B3CE12B4CFA3411C88477D1A590079B2B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118210   (811679) от 26.03.2017
 
 VA - Весенний Хаус Калейдоскоп Топ 50 (Compiled by Zebyte) (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
@@ -668,33 +695,6 @@ VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:964CF629CB84780B72E636B9E17B9DE616D3ECE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383073   (813743) от 14.05.2020
-
-VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Upsetters - Night Doctor
-002. Spart MC - Jalouzi
-003. L.A.B. - Running
-004. Madison - Free(   Читать дальше...   )Жанр: Reggae, SoulПродолжительность: 07:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CDE3EFB92A8B667758707ABAD88B2F72792F64
 ```
 
 

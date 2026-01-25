@@ -1,3 +1,57 @@
+###  Публикация: 1040529   (586444) от 05.08.2016
+
+Judas Priest - Battle Cry (2016) Live, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Intro) Battle Cry
+02. Dragonaut
+03. Metal Gods
+04. Devil's Child(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E400BB6C8F9F4C54B97D4614920EF90A74086F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040537   (586450) от 05.08.2016
+
+Santana - Abraxas (1970) MFSL UDCD 775, 2008 [FLAC|Lossless|image + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singing Winds, Crying Beasts 4:51
+02. Black Bagic Woman / Gypsy Queen 5:19
+03. Oye Como Va 4:17
+04. Incident At Neshabur 4:58(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48877FE2E34B665F9B2F0363BE5933B30C56B410
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040415   (586543) от 05.08.2016
 
 Daniel Gauthier - The Wish (2008) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
@@ -641,60 +695,6 @@ James LaBrie - Beautiful Shade Of Grey (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02292E0846D93810959022D8B234D67C3255ECD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552341   (587703) от 20.05.2022
-
-Anvil - Impact Is Imminent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take a Lesson (4:21)
-02. Ghost Shadow (3:08)
-03. Another Gun Fight (4:04)
-04. Fire Rain (2:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7A04C9027F282609772972C71641512C6B6EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552313   (587708) от 20.05.2022
-
-CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Life Begin Tonight (4:35)
-02. Purple Dynamite (3:33)
-03. Guilty Under Pressure (3:42)
-04. Sometimes (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF169A075857817CC0999801C557A57B3AF896B5
 ```
 
 

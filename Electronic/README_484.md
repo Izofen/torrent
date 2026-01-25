@@ -1,3 +1,84 @@
+###  Публикация: 1361733   (952301) от 21.02.2020
+
+Nachtmahr - Flamme (2020) [MP3|320 Kbps] <EBM, Neofolk>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952301.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Feinbild	4:37
+2	Kampfbereit	4:26
+3	Liebst Du Mich	4:02
+4	Krieg Und Frieden	3:51(   Читать дальше...   )Жанр: EBM, NeofolkПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D4202A46C6A87630DFF01EAC2EE89105C1FE47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979737   (953020) от 31.01.2016
+
+Northern Lite - Letters & Signs (Part Two) (2010) [FLAC|Lossless|image + .cue] <Synthpop, Rock, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Japan [6:00]
+ 02. Wicked Mess [4:36]
+ 03. Run (feat. Chapeau Claque) [3:15]
+ 04. Home [4:06](   Читать дальше...   )Жанр: Synthpop, Rock, ElectronicПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C58A1804E760CC2094E7B69CC824594F5A2542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089142   (953702) от 02.01.2017
+
+Pete Shelley - 3 Albums (1981-1986) CD, Reissue [MP3|320 Kbps] <Electronic,  New Wave, Synth-pop, Pop-Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Peter Campbell McNeish - английский певец, песенник и гитарист. Помимо предлагаемых сольных альбомов, принимал участие в записях с группами: Buzzcocks, ShelleyDevoto, Strange Men In Sheds With Spanners, The Tiller Boys, Zip.Список альбомов:
+1981 - Homosapien
+1983 - XL-1
+1986 - Heaven And The SeaЖанр: Electronic,  New Wave, Synth-pop, Pop-RockПродолжительность: 02:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEEA6984CC4F1C8871D900594DE8A44F6BD6968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089235   (953757) от 02.01.2017
 
 VA - Intimate Chill Feelings (2016) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
@@ -609,87 +690,6 @@ VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8292C8BBC47E94E5D205CE81914552F2E440CDBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980138   (957156) от 28.01.2016
-
-Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Experimental, Abstract Hip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Editors (feat. Roots Manuva) (04:46)
-02. Ritual Spirit (feat. Azekel) (03:55)
-03. Voodoo In My Blood (feat. Young Fathers) (04:01)
-04. Take It There (feat. 3D/Tricky) (04:31)Жанр: Trip Hop, Experimental, Abstract Hip HopПродолжительность: 00:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856457   (957814) от 05.01.2015
-
-likeicare - Discography 8 Releases (2010-2014) [FLAC|Lossless|WEB-DL]<IDM, Dark Ambient, Glitch, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Static Falls (04:32)
- 02. Dodgson (03:38)
- 03. Cativo (04:20)
- 04. C17H21NO4 (04:42)Жанр: IDM, Dark Ambient, Glitch, Experimental, Ambient |Продолжительность: 00:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AB491B0311F36685991A12246F26864F057A93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361020   (958123) от 17.02.2020
-
-Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, EBM>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Beginning (4:40)
-02. Catch My Fall (4:39)
-03. Devil in Heaven (3:43)
-04. I Don't Want to Lie Anymore (5:33)(   Читать дальше...   )Жанр: Electronic, Synthpop, EBM |Продолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
 ```
 
 

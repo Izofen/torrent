@@ -1,3 +1,81 @@
+###  Публикация: 1371309   (888580) от 01.04.2020
+
+Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Closer (5:55)
+ 02. A Trip with the Stars (4:39)
+ 03. A Glimpse of Blue (4:18)
+ 04. Captivated (5:06)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFE566DB5B0997350859BFE7A0F528793653E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371753   (888584) от 01.04.2020
+
+:10: - Collection 5 Releases (2009-2020) CRL Studios [FLAC|Lossless|WEB-DL|tracks] <Industrial, IDM, Abstract, Breakbeat, Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low On Life (04:04)Тип издания: WebЖанр: Industrial/IDM/DowntempoПродолжительность: 02:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371488   (888587) от 01.04.2020
+
+VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <House, Deep House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Combo - Happy Every Day (Original Mix) [03:27]
+02. Alpha Squad - All About The Music (Radio Edit) [03:12]
+03. YA-YA - Stay With Me (Radio Edit) [02:59]
+04. Allenx feat. Itto and Norah B. - No Time (Spikaa Remix) [03:59](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Future House, DanceПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371739   (888710) от 01.04.2020
 
 Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|tracks+.cue] <Conscious, Abstract Hip-Hop, Instrumental, Trip Hop>
@@ -614,87 +692,6 @@ Jjos - Fantasy (Ambient Balearic Chill) (2013) [MP3|320 кб/с] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35EA2D28F2A1AD4927EB7D2DC3915BB53F570128
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371486   (889972) от 31.03.2020
-
-VA - Drum & Bass Selections, Vol. 10 (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shauny Walker - Hireath (Original Mix) [04:40]
-02. Ghosty - Subject Matter (Original Mix) [04:34]
-03. Rounder - Hedera (Kinaes Remix) [05:22]
-04. Dirty Terrain - Freak Out (Metachemical Remix) [06:08](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2543939A268909DB1C6AD044149D301F84354105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371483   (889995) от 31.03.2020
-
-VA - Astral Existence, Vol. 02 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eschaton - Holotropica (Original Mix) (Feat Parallel) [05:26]
-02. K3Bee - Cell Weight (Original Mix) [05:21]
-03. Eschaton - Star Patterns Become Me (Original Mix) [09:10]
-04. Eschaton - Entheogen (Original Mix) (Feat Parallel) [07:51](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286ADD7CF17D30FADE81A8FA0127EBCF7C7E9625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371482   (889996) от 31.03.2020
-
-VA - Astral Existence, Vol. 01 LP (2020) [MP3|320 Kbps] <Drum & Bass, Jungle>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cavernous Space - Horizon (Original Mix) [06:01]
-02. Cavernous Space - Pulsatronic (Original Mix) [06:06]
-03. Cavernous Space - Absolute Magnitude (Original Mix) [07:36]
-04. Kasious - Prometheus (Original Mix) [06:08](   Читать дальше...   )Жанр: Drum & Bass, JungleПродолжительность: 02:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAE17C707BF32DD46EDE860A415DD46F93D75BF
 ```
 
 

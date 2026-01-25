@@ -1,3 +1,84 @@
+###  Публикация: 1231897   (602334) от 23.06.2018
+
+Immersion - Sleepless (2018) [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602334.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Microclimate
+2. Off Grid
+3. MS19
+4. Sleepless(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2B30AD1A69EB394DE9199786EC445EB2A399B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232185   (602337) от 23.06.2018
+
+VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Emma Hewitt - Safe from Harm (Giuseppe Ottaviani Remix) (World Premiere)
+02. Davey Asprey - Moments
+03. Anske & Victoriya - Love Won't End
+04. Activa - Remember 2018(   Читать дальше...   )Жанр: TranceПродолжительность: 01:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60466B9511D4276E8FFF48886F3E847199935A4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547784   (602369) от 29.04.2022
+
+VA - A State Of Trance 2022 (Mixed by Armin van Buuren) (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <EDM, House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Let You Down (Mixed) (4:15)
+02. Rub!k - Orbit 37 (Mixed) (2:14)
+03. C-Systems - Every Star (Mixed) (2:20)
+04. Ben Gold, Plumb - Same Sky Same Stars (Mixed) (4:17)(   Читать дальше...   )Жанр: EDM, House, Trance |Продолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C8F9C259255703570574682196D9E43018071D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232295   (602387) от 23.06.2018
 
 VA - Ferry Corsten Presents Corsten's Countdown June (2018) [MP3|320 Kbps] <Trance>
@@ -612,87 +693,6 @@ Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Ki
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297688   (603107) от 24.04.2019
-
-Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsar Timing Array (07:45)
- 02. Gravitational Waves (07:16)
- 03. Dark Matter (08:32)
- 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297264   (603115) от 24.04.2019
-
-Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Kearney - Mexican Rave (ID Remix)
-02. Key4050 - Schillachi
-03. ID - ID
-04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297823   (603116) от 24.04.2019
-
-VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Modena - Lover (Extended Mix)
-02. Glitch Matrix - Breeze
-03. Regie Rules - Hour Of The Morning
-04. Juli Lee - Time Warp(   Читать дальше...   )Жанр: Funky, Deep Groove, MinimalПродолжительность: 02:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
 ```
 
 

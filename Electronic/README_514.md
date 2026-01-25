@@ -1,3 +1,84 @@
+###  Публикация: 1201058   (1027864) от 05.03.2021
+
+Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Leftfield, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entcid (19:00)
+ 02. Sinscur (13:07)
+ 03. TiMetrics (09:10)
+ 04. 5schim (04:33)Тип издания: CD, Vinyl, WebЖанр: IDM, Experimental, Leftfield, Abstract •Продолжительность: 10:45:10 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A56A05EC4092D78745D3E649E21C90D3885FFD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226271   (1027899) от 05.03.2021
+
+Terminal 11 - Discography 15 Releases (2001-2021) Phthalo, Hymen Records, Cock Rock Disco [FLAC|Lossless|tracks+.cue, tracks] <Breakcore, IDM, Abstract, Glitch, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1999-2000 Track 1 (00:57)
+ 02. 1999-2000 Track 2 (01:26)
+ 03. 1999-2000 Track 3 (01:33)
+ 04. 1999-2000 Track 4 (01:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Breakcore, IDM, Abstract, Glitch, Experimental •Продолжительность: 08:19:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106266DCDE0AA456DA7479EA92206A9E8E0C3987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452273   (1027914) от 05.03.2021
+
+Solar Fields - Reflective Frequencies (Remastered Special Digital Edition) (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6.7 (remastered) (04:23)
+02. Floating Channels (remastered) (07:46)
+03. Self Transforming Experience (remastered) (03:47)
+04. Blue Light... (remastered) (04:07)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 05:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D9EBC5F4432B2EB9801E324CDDFF71C846FF0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451970   (1028031) от 04.03.2021
 
 VA - Illusion Of Gravity (Compiled by Sunduo) (2021) Microcosmos Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
@@ -611,87 +692,6 @@ The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12DD0B70655F0F7571A6C31315AFC829D029FFC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202913   (1028348) от 02.03.2021
-
-Alka - Discography 5 Releases (2007-2020) Electronic Eel Rec. [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Glitch, Downtempo, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fractured Time (04:13)
- 02. Widthchild (03:44)
- 03. Faito (02:50)
- 04. Earth Crisis (09:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Electro, Glitch, Downtempo, Ambient •Продолжительность: 04:45:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE04F1BFFC54DB57182718CA41169AF536A0D211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451131   (1028354) от 02.03.2021
-
-VA - My Cat Loves to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Phil Me (Original Mix)
-02. Lounge Groove Avenue - Hold You Tight
-03. Soul Trend - Before It Gets Too Late
-04. Peter Mac - Waste No Time(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9B0DBEB077703C40F83486B27FB0EBED5FB655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451124   (1028355) от 02.03.2021
-
-ATB & Topic - SiriusXM Guest Room Mix (2021-02-20) [MP3|~245 Kbps (V0)] <House, Progressive House, Future House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB & Topic & A7S - Your Love (9PM)
-02. London Grammar - Lose Your Head (CamelPhat Remix)
-03. Pascal Letoublon ft. Leony - Friendships (Lost My Love) (ATB Remix)
-04. EDX ft. Jess Ball - I Found You (Neptune)(   Читать дальше...   )Жанр: House, Progressive House, Future HouseПродолжительность: 01:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9DC2CA58AC9891DFDB3ADD0E2131C7AC86E53E
 ```
 
 

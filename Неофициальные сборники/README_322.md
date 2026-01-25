@@ -1,3 +1,30 @@
+###  Публикация: 924977   (543075) от 05.08.2015
+
+VA - Rainbow Dance Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nika Dostur & Dj Party - Zan - Lost (Syntheticsax & Ural Djs Extended Remix)
+02. Todd Terry Vs Sted - E & Hybrid Heights feat. Mr V., - Crash (Robbie Rivera & DJ Rooster Mix)
+03. Klinedea - Your Hand (Original Vocal Mix)
+04. Shelco Garcia & Teenwolf, Boomslang feat. J. Esho - Young & Bold (Wallstreet Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 08:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17805059EBD1C5D7D3B4FEDFA3FE531C097662DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924619   (543078) от 05.08.2015
 
 VA - Драйвовая энергия клубного танцпола (2015) [MP3|256 кб/с]<Club, Dance>
@@ -666,33 +693,6 @@ VA - Surfing Trance Distant (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Em
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:889BEE976DCA15621656870BA5F6BC0260B8AF41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310760   (545299) от 26.06.2019
-
-VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Andrea Berg - Die geheimen Träumer
-03. Ben Zucker - Wer sagt das
-04. Axel Fischer - Norderney (Sylaar Radio Version)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6344FD9FD47057FD04AE25E0831306C23B3910C
 ```
 
 

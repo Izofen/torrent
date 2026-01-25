@@ -1,3 +1,84 @@
+###  Публикация: 1148165   (604408) от 05.07.2017
+
+VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luca Gazzola - North Rose (Black XS Remix) 06:29
+02. Costa Pantazis - Sacrifice (Original Mix) 06:56
+03. Ruslan Radriges - Stronghold (Attila Syah pres. Gamma 05:20
+04. 9eek - Stab Me (R3dub Remix) 07:00(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F40F8F1B33E96437263199B2850503DD2A0636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245612   (604752) от 21.04.2019
+
+Thomas Fehlmann - Los Lagos (2018) Kompakt [FLAC|Lossless|tracks+.cue] <Techno, Abstract, Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loewenzahnzimmer (08:28)
+ 02. Window (08:54)
+ 03. Morrislouis (08:49)
+ 04. Tempelhof (feat. Max Loderbauer) (06:38)(   Читать дальше...   )Жанр: Techno, Abstract, Dub Techno, AmbientПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD6855422BB6D66F5F592EBA7A5AB5C70A91EBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297195   (604828) от 21.04.2019
+
+VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klubb Eff3kt - Move It
+02. Poomstyles - Hold Up
+03. Tom Damage - Dreams
+04. Mr Mister &Tasered In Tesco(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297190   (604829) от 21.04.2019
 
 Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|tracks] <Techno, Deep Techno, Dub Techno, Tech House>
@@ -632,87 +713,6 @@ Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038450   (606825) от 28.07.2016
-
-VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lеmоngrаss - Bоnjоur 03:54
-02. Trіо Еlеtrісо - Wаndаnсе Раrіs 04:56
-03. Sесоnd Brеаth - Еn Рrіvе 05:11
-04. Саthаrіnа Jоsу - Аutumn Іn Раrіs 03:34(   Читать дальше...   )Жанр: Еаsу-LіstеnіngПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FF5AF2E7CE3A6C441A259296FB3CC6D7FAFCCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297126   (606926) от 20.04.2019
-
-Ian Hawgood - Impermanence (2019) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire (03:57)
- 02. Loneliness (04:16)
- 03. Whispers (03:45)
- 04. Never Gone (05:53)(   Читать дальше...   )Жанр: Ambient, Experimental, MinimalПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494EC72908099288BC7F8CD399492B5EB59B5E2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231347   (606960) от 17.06.2018
-
-VA - Technique Summer (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Concept, Charlotte Haining - Silhouette (5am Mix)
- 02. L-Plus - Hypnotize
- 03. Smooth - All Over the World (Club Mix)
- 04. Tantrum Desire - Lost in the Night(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F30A0056BDF549A3877142A8D52CA52F38A4E0
 ```
 
 

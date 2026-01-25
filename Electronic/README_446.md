@@ -1,3 +1,84 @@
+###  Публикация: 1109645   (857447) от 28.02.2017
+
+VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Elements - Young Rebel (Sunrise Mix) [00:03:33]
+02. Soul Frequency - On The Job (Vocal Mix) [00:03:33]
+03. Gt 55 - Red Color (Gray Clouds Mix) [00:03:12]
+04. Moon System - Make The Pitch [00:03:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DB225075DF7DDA6CDCBD3E3320CFC13FE3EEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109554   (857449) от 28.02.2017
+
+VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857449.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mighty Real - Little by Little 5:59
+002. Performative Mode - Pixelated 6:46
+003. Circuito Zeta - Step Down 7:18
+004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109587   (857451) от 28.02.2017
+
+VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito - Shirabyoshi Love  4:22
+02.  Dembora - Sunderland  3:01
+03.  Chin Chiller - Moussique Au Chocolat (feat. Conny)  4:27
+04.  Roberto Sol - My Soul  4:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109702   (857456) от 28.02.2017
 
 VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
@@ -613,87 +694,6 @@ VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC2B884C215445209DAAE5ADCCFD08A87D68547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109392   (859217) от 27.02.2017
-
-VA - Dreaming Of Sunset: Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Count The Clouds  5:38
-02.  Enrico Donner - Prefabricated Dreams  6:46
-03.  Cane Garden Quartet - 2 Steps To The Sun  5:42
-04.  Norman & Real - Hot Gambles  6:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8E60429E4F0BA8C7AC3D49AE7CBEBB5886FAD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498007   (859660) от 25.09.2021
-
-Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2021-09-16) [MP3|320 Kbps] <Electro Pop, Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimitri Vegas & Like Mike & Felix Jaehn & Nea - Heard About Me
-02. Dimitri Vegas & Like Mike & Regard - Say My Name
-03. Dimitri Vegas & Like Mike & Azteck & ANGEMI - We'll Be Dancing Soon
-04. Dino Warriors ft. Leony - Show Me Love (Dimitri Vegas Edit)(   Читать дальше...   )Жанр: Electro Pop, Electro House, Big RoomПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFE6246FB2C83B8D6E4383ADBC09974618A348D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375993   (860067) от 17.04.2020
-
-Marc Hartman - Walk the Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Night Train Departure 06:00
-2. 3:00 AM 05:06
-3. I Walk The Ocean 06:10
-4. Step By Step 05:03(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46EBCCBE246C31A9D638BE5A033989324CC43AD6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1020871   (743875) от 27.05.2016
+
+VA - Hello Summer - Opening Party (2016) [MP3|320 кб/с] <Dancehall, Moombahton, Reggaeton, UK Garage>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (Dj Noiz Radio Remix) 03:21
+02. Afrojack Ft. Pitbull & Mike Taylor - Summerthing! (Dj Denis Rublev & Dj Anton Bootleg) 04:41
+03. Andrey Keyton Feat. Irina Gi - Everlasting Pictures (Original Mix) 07:28
+04. Anton Liss Feat. Гейдар Багиров - Океаны (Extended Mix) 04:26(   Читать дальше...   )Жанр: Dancehall, Moombahton, Reggaeton, UK GarageПродолжительность: 07:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26A35191757D534DEE367A0D9A6C797137D40BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020903   (743885) от 27.05.2016
 
 VA - Depth Of Perception: Uplifting Trance Mix (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
@@ -662,33 +689,6 @@ VA - Зарубежная Дискотека ХХ Века - 11 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2154B47D8B4829DE108A94EA1F414FF6615190C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282498   (745394) от 12.02.2019
-
-VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745394.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Masterio - Mountain (Original Mix)
-002. R.I.B. - Starlit (Original Mix)
-003. Djeff-Z - One Day (Ambient Version)
-004. Animat - Throwing Shapes(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 07:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789423FE5647BCF96DEC6F28470F6065EA6EBB8D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1364886   (933804) от 05.03.2020
+
+VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Phace & Misanthrop - Super Low
+002. Emperor - Calypso
+003. Low_Radar101 - End Full (Original Mix)
+004. No Concept - Electrify (Kerizma Mc Remix)(   Читать дальше...   )Жанр: Drum And Bass, Bassline, DubstepПродолжительность: 08:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38340B16BD62F3E03A33F07663576ECAF3CAE55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093537   (933890) от 15.01.2017
 
 VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
@@ -663,33 +690,6 @@ VA - 500 Greatest Albums Of All Time (1950-2003) [MP3|128-320кб/с] <Pop, Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7700C3C137A25249CD4E517F36D56A203DD6BE7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363366   (935664) от 03.03.2020
-
-VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Jacksons - Blame It On The Boogie 3:34
-002. Boney M. - Rivers Of Babylon (Single Version) 4:00
-003. Elvis Presley - Burning Love (Live) 2:57
-004. Billy Swan - I Can Help 3:58(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 19:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
 ```
 
 

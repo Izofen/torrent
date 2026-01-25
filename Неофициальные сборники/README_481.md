@@ -1,3 +1,30 @@
+###  Публикация: 1522728   (756642) от 08.01.2022
+
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522768   (756766) от 08.01.2022
 
 VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -674,33 +701,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280780   (758729) от 04.02.2019
-
-VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A$AP Twelvyy - Child's Play
-002. Aaron May - Let Go
-003. Ady Suleiman - Strange Roses
-004. AJR - 100 Bad Days(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 11:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0478BA928EC82CEA1CEE5B4DB0DE8A82393D6C
 ```
 
 

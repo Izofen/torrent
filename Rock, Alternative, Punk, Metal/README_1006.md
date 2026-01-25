@@ -1,3 +1,57 @@
+###  Публикация: 1392551   (769197) от 26.06.2020
+
+Глеб Самойлоff & The Matrixx - Концерт с симфоническим оркестром "Globalis" 14.11.2019 (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увертюра
+2. Два корабля
+3. Москва-река
+4. Космос(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809190DBC0AF59F7A16A85DE891E8605D0A3272A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392393   (769248) от 26.06.2020
+
+Emmure - Hindsigth (2020) [MP3|320 Kbps] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (F)Inally (U)Nderstanding (N)Othing (02:52)
+ 02. Trash Folder (02:03)
+ 03. Pigs Ear (02:11)
+ 04. Gypsy Disco (02:02)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EA8BD5D5FD92A061FE8E44866F2264B0FBB126
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392674   (769258) от 26.06.2020
 
 Acherontas - Psychic Death:The Shattering of Perceptions (2020) [MP3|320 Kbps] <Black Metal>
@@ -641,60 +695,6 @@ magnet:?xt=urn:btih:6104E6F9DFCC2D0AEC5972ECFB411C8919A6A97D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FCE01E36EB08267D2281CD3A1E57E80AEEB8D6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016381   (770144) от 14.05.2016
-
-Александр Ф. Скляр и Ва-Банкъ - Ястреб (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Анзер
-03. Калечинка
-04. Ястреб(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D2A6B8BDD3DB1F15DDC90249C305CFE855C64C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016448   (770274) от 14.05.2016
-
-Namesake - Borders & Fences (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alternative Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borders & Fences
-02. Times Of Our Lives
-03. A Million Good Reasons
-04. Here I Am(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB75DF0E0B2E288BEC2504AC7563E1B98F6FF7E
 ```
 
 

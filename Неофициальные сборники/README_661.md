@@ -1,3 +1,30 @@
+###  Публикация: 1473949   (1013402) от 31.05.2021
+
+VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Kick - All That We Do  (Original Mix)
+02. Damian Force - Where Is Your Love  (Louis Feen Remix)
+03. The Bestseller - Fly Away  (Original Mix)
+04. DJ Skywalk - Love 2 Love  (Squib Extended Mix)(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC46AF43903304BC3067B8C15292EC3B7AB896FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473992   (1013403) от 31.05.2021
 
 VA - Synergetic Nightclub (Vol.02) (2021) [MP3|320 Kbps] <Club, Dance, House, EDM>
@@ -665,33 +692,6 @@ VA - The Flower Of Love 12 (2021) [MP3|320 Kbps] <Electronic, House, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73A1EB115E6F8ACC67DFD9DD7C527DF2B0D9A3ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472570   (1014057) от 27.05.2021
-
-VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014057.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Viking - Shine
-002. The D.Trance Team - On Burning Sand
-003. Sali - No Comment
-004. Crossed Minds - From Another Space(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 09:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87325D87EF72680D000BB99B4A145B662412B9B8
 ```
 
 

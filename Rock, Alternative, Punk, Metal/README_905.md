@@ -1,3 +1,57 @@
+###  Публикация: 1540837   (648764) от 01.04.2022
+
+Satan - Earth Infernal (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascendancy (5:04)
+02. Burning Portrait (5:51)
+03. Twelve Infernal Lords (5:16)
+04. Mercury's Shadow (2:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7502B94B659A400F925BBDE01E6CC01683EE32A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541003   (648777) от 01.04.2022
+
+Colonel Petrov's Good Judgement - Hypomaniac (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hypomaniac (00:03:48)
+02 - Black Swan (00:06:51)
+03 - Mating Season (00:04:48)
+04 - Pendulum (00:05:31)(   Читать дальше...   )Жанр: Progressive Rock, ExperimentalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69D02A6CFE0FE1729FD12E73EF7CBBB2204251D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541006   (648781) от 01.04.2022
 
 Colonel Petrov's Good Judgement - Moral Machine (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Experimental>
@@ -659,60 +713,6 @@ Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9312163011F07BCE43FDE0D0406B65E9DD57D75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905487   (649601) от 06.06.2015
-
-Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover's Leap 13:53
-02. The Romantic 04:40
-03. The Stranger 03:36
-04. The Big Time I 03:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031633   (649669) от 05.07.2016
-
-SOTO - Divak (2016) Jeff Scott Soto's Band [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divak (Intro)
-02. Weight Of The World
-03. Freakshow
-04. Paranoia(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912D892AAAE2EF411FC90E117596F1A8E6D4F398
 ```
 
 

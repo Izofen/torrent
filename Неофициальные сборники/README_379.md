@@ -1,3 +1,36 @@
+###  Публикация: 522005   (623014) от 13.07.2012
+
+VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electro House, Dutch House, Electro, Drum'n'Bass, Trance, Psytrance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 00.db - Angel
+02. Answer and Shake - No Good 4 You (Lynkin edit)
+03. Basto - I Rave You
+04. Ben Atomgrinder - Shirtless Bastard
+05. Bodybangers feat Victoria Kern - Gimme More (Extended mix)
+06. Brainiac - Alien Technology
+07. Culture Shock - I Remember
+08. Danny Dove and Nathan C - Like That
+09. DBN and Stafford Brothers feat Sean DeClase - Remedy
+10. Deniz Koyu - Bong(   Читать дальше...   )Жанр: Electronic, Club, Electro House, Dutch House, Electro, Drum'n'Bass, Trance, PsytranceПродолжительность: 06:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CC66B07F43F953FD030849C4311A3420AD194D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522127   (623140) от 13.07.2012
 
 VA - Новинки танцполов 6 50/50 (2012) [MP3|256 кб/с]<Pop>
@@ -704,33 +737,6 @@ Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543725   (625418) от 13.04.2022
-
-VA - Громкие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NЮ - Девочка-роза (3:24)
-02. SUNAMI - Гудки (2:53)
-03. ONEIL, Titov - Tonight Baby (3:03)
-04. Gunna, T-Shyne, Young Stoner Life - Still Ain’t Finished (3:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6979B07F14883C11EC98751E43C5B8C296471DC8
 ```
 
 

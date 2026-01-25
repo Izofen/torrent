@@ -1,3 +1,84 @@
+###  Публикация: 1198406   (804415) от 13.01.2018
+
+VA - Chilled Coffee Vol.1 (Amazing Backround Music For Cafe, Restaurant Or Home) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florito  -  Funny Valentine (Original Mix)  2:33
+02.  Martin Liege  -  Sunrise Drive (Original Mix)  4:09
+03.  E-Motive  -  Before The Flood (Original Mix)  7:49
+04.  Florito  -  Loungery (Original Mix)  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4189DD191EAA54CBF34CB213DB12EDE4573876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505441   (804452) от 27.10.2021
+
+VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - To the Hills (4:36)
+02. Faro - Subtle Land (5:27)
+03. Michael E - Let Me In (6:17)
+04. Castlebed - Violet (3:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1B46FB09FE3F86F33A6094E0FCF880F88C18C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198531   (804503) от 13.01.2018
+
+VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Above & Beyond  -  Northern Soul (feat. Richard Bedford) (Extended Mix)  7:16
+02.  Super8 & Tab  -  Pressure (Extended Mix)  4:07
+03.  ARTY  -  Twilight Tonight (Steve Brian Extended Mix)  5:30
+04.  Sultan + Shepard  -  Almost Home (feat. Nadia Ali & IRO) (Mark Sixma Extended Remix)  5:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198402   (804504) от 13.01.2018
 
 VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -606,87 +687,6 @@ VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01CBAEBBD36CB690DE22BCDE26C17A4DE0F22C25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119305   (807599) от 28.03.2017
-
-VA - Turn It Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Recurring Events 06:16
-02. Enrico Donner - Quote of the Day 05:45
-03. Cane Garden Quartet - Shine a Light On Me (Feat. DJ Riquo) 05:22
-04. Solanos - Childish Freedom 05:37(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D9619768CA0194A0D96BB12935234BA86B8FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119571   (807600) от 28.03.2017
-
-VA - Lazy Weekend: Kick Back to the Coolest and Most Chilled-Out Beats (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bentley - Huge Love
-02. Guti Baratto - Stay Dancing
-03. Jose Y Mar - Green Lake
-04. Vincente Panach - Wind Bender(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30ECF3F5EADAFDC6261F57B080EE2105A2E71091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009766   (807702) от 22.04.2016
-
-Mr.Kitty - Time (2014) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. XIII (03:34)
-02. Rats (03:27)
-03. Glow (03:42)
-04. Hollow (04:10)(   Читать дальше...   )Жанр: Synth-pop, New WaveПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0592DC29264157267DBAE38C5ADC2297E908DE34
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1040394   (791774) от 01.06.2020
+
+Aythar - Collection 12 Releases (2016-2019) Carpe Sonum, ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Psybient, Berlin-School>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universe (Short Version) (15:03)
+ 02. Cosmic Resonance Part 1 (07:14)
+ 03. Cosmic Resonance Part 2 (18:52)
+ 04. Cosmic Resonance Part 3 (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Psybient/Berlin-School/DroneПродолжительность: 12:35:21 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD3FD69EBEF90F0A1E62A4A923097E305C8B1AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387465   (791829) от 01.06.2020
+
+Felix K - Flowers Of Destruction (2013) Hidden Hawaii LTD [FLAC|Lossless|WEB-DL|tracks] <Abstract, Drum n Bass, Techno, Ambient>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flower Of Destruction #1 (01:12)
+ 02. Flower Of Destruction #2 (05:48)
+ 03. Flower Of Destruction #3 (02:34)
+ 04. Flower Of Destruction #4 (06:10)(   Читать дальше...   )Жанр: Abstract, Drum n Bass, Techno, AmbientПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5A941A38B7342F545E9C1B01026D35AEB12CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387267   (791832) от 01.06.2020
+
+Eusebeia, Atiq & Arlow - Transfiguration EP (2020) Mindtrick Records [FLAC|Lossless|WEB-DL|tracks] <Jungle, Drum n Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eusebeia & Atiq - Through The Motions (07:56)
+ 02. Eusebeia & Atiq - Transfiguration (06:59)
+ 03. Eusebeia & Arlow - Matter (05:12)
+ 04. Eusebeia & Arlow - Anti Repressant (06:28)Жанр: Jungle, Drum n BassПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E0CC698E84955FC6A17DD5AC41077352B52A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387283   (791838) от 01.06.2020
 
 VA - EDM (2020) [MP3|320 Kbps] <House, Dance & Electronic>
@@ -609,85 +690,6 @@ Mint (Biotron Shelf) - Discography 20 Releases (2004-2015) Boltfish Recordings, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD4C7983FCBF5EA46CE3DBAD3F6F924F0DD9957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123403   (792482) от 07.04.2017
-
-VA - Jazz House Instrumental: Jazzy Soulful Tracks and Instrumental Club Tunes (2017) [MP3|320 Kbps] <Deep House, Chill House, Jazzy>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran y Garcia — Heavy Piano
-02. Key Tronics Ensemble — Music You Got Me — Free Piano Mix
-03. Duran y Garcia — Jazz Expression
-04. Don Carlos — House of Blues — Club Mix(   Читать дальше...   )Жанр: Deep House, Chill House, JazzyПродолжительность: 02:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D7F0A4813E48681CE8EBB85AA3B58A4E428C85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123124   (792483) от 07.04.2017
-
-Freescha - Discography 12 Releases (1999-2016) Attacknine [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Ambient, Leftfield, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freescha - What In The Rad (05:06)
- 02. Black Moth Super Rainbow - Bad Fuckin Times (02:43)Тип издания: CD, Vinyl, WebЖанр: IDM, Downtempo, Ambient, Leftfield, Experimental •Продолжительность: 00:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C132C6E4F908F7D963041041170AD2126B1A611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123098   (792484) от 07.04.2017
-
-VA - Goa Culture Vol.24 (2017) [MP3|320 Kbps] <Trance, Psy-Trance, GOA>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Space Hypnose - Mystic India  8:00
-02.  Static Movement - Heaven  7:03
-03.  Microlin - Love One Another  8:58
-04.  Champa vs Mechanimal - Imagine (Refocus Remix)  8:00(   Читать дальше...   )Жанр: Trance, Psy-Trance, GOAПродолжительность: 02:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93519AD6ECF47CE1E7023C096863CBED12E24BD6
 ```
 
 

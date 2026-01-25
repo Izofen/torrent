@@ -1,3 +1,84 @@
+###  Публикация: 1046413   (552127) от 27.08.2016
+
+Astropilot - Solar Walk IV. Youniverse (2016) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Second Sun (7:58)
+ 02. Balance (7:46)
+ 03. Desolate Spaces (7:41)
+ 04. Permanent Impermanence (7:41)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2FD1A21117C312F40474BAADC9CDE420C1A929E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046102   (552130) от 27.08.2016
+
+VA - MOMENTS - Chill-Out & Lounge Series, Vol. 3 (2014) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja-Move - Spaceman (6:12)
+02. Mo'jardo - Tequila Days (4:47)
+03. Weathertunes - Morning Sun (4:32)
+04. Marcus Koch - Imagine (6:25)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183C496936B9BE535A5CFF16558D9B33148A8770
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046504   (552195) от 27.08.2016
+
+VA - Dream City Lounge, Vol. 5 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Z Man - Loto (Original Mix) 03:02
+02. Man Drake - Trinity Soft (Original Mix) 05:33
+03. Midtempo Lovers - Neutral Wonder (Original Mix) 03:09
+04. Sand Rhythm - Lonely Moon Walk (Original Mix) 04:48(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A1E52B1BFC0A1917524DFC6387EA1C565B175E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046337   (552197) от 27.08.2016
 
 VA - It's Vocal House 2 (2016)[MP3|320 Kbps] <House, Electronica>
@@ -614,85 +695,6 @@ VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237070   (553317) от 22.07.2018
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani - Ozone (Markus Schulz Extended Remix)
-02. Arkham Knights - Industry (Extended Mix)
-03. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
-04. Tilt - Miracle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE343C725F21E5B101DCB19AB27A87D53CC040CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237193   (553321) от 22.07.2018
-
-VA - Blue (2016) WFMU [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field Recording>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannes Strobl – Yves Klein (05:23)
-02. Philip Marshall – This Is How You Disappear (04:15)
-03. Simon Wickham-Smith – Cerulean Breathing (04:35)
-04. Omit – Dark Blue Down (04:59)(   Читать дальше...   )Жанр: Ambient, Experimental, Field RecordingПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73B8344988086A37D75405DBF558BC917847482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174683   (553600) от 21.07.2018
-
-ENA - Discography 21 Releases (2008-2018) Horo, Samurai Horo, 7even [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Ambient, Techno, Abstract, IDM, Minimal>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9th Divided (04:44)
- 02. 10th Divided (04:41)Тип издания: CD, WebЖанр: ExperimentalПродолжительность: 00:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173F1A06EDFD0DE7050D5942727120DF174B48C0
 ```
 
 

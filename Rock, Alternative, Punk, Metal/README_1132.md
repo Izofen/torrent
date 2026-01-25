@@ -1,3 +1,57 @@
+###  Публикация: 1370243   (896920) от 27.03.2020
+
+Almanac (Victor Smolski's) - Rush Of Death (2020) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Predator (4:48)
+02. Rush Of Death (6:31)
+03. Let The Show Begin (1:19)
+04. Soiled Existence (5:19)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D4C366835C612EFCF85AF950217D4CAFF6780B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370588   (896923) от 27.03.2020
+
+Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Воля (Пролог) [00:01:57]
+02 Сопротивление [00:04:20]
+03 Где Не Место Рабу [00:03:49]
+04 Русь И Кавказ [00:05:00](   Читать дальше...   )Жанр: Folk Acoustic BalladsПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E4A0BBBA3D31BB075F004F1FE90D2CAEC58B7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493098   (896973) от 02.09.2021
 
 Константин Кинчев (АлисА) - Белый шум (2021) [MP3|320 Kbps] <Rock>
@@ -633,57 +687,6 @@ Mortal Terror - Creating Destruction (2016) [MP3|320 кб/с] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B111FDB57CCA4DBEF2E89F4B6E2750E677695D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293784   (897820) от 12.02.2011
-
-Начало века - Дискография (2004-2010) [MP3|320 kbps]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk-RockПродолжительность: 02:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DB4884A320403FD5781F3AF728FB796FD604F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100697   (897976) от 05.02.2017
-
-Stray - Saturday Morning Pictures (1972) Remastered, 2006, Castle Music [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Song
-02. After The Storm
-03. Sister Mary
-04. Move That Wigwam(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F728C6BFAD4A75B4A53CD1531E04125C9F5183B
 ```
 
 

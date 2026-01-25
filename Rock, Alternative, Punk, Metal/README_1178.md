@@ -1,3 +1,57 @@
+###  Публикация: 1359206   (965180) от 11.02.2020
+
+Arborist - A Northern View (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock, Country-Alt>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Stranger Heart [04:11]
+02. Here Comes the Devil [03:49]
+03. The Guttural Blues [04:01]
+04. Taxi [05:20](   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Country-AltПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6640B7969271F37EAAEB47B6AA30F3BF63CA6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977385   (965311) от 21.01.2016
+
+БИ-2 - Лучшее (2010) 2CD, Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Реки Любви (04:08)
+02. - Шамбала (03:35)
+03. - Достучаться До Небес (05:30)
+04. - Мой Рок-Н-Ролл (06:45)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019595A0D1F64DC7DE7E320D942492D95E9DA12C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977801   (965593) от 21.01.2016
 
 Lordi - Blood Red Sandman (2016) bootleg [MP3|320 кб/с] <Hard Rock, Heavy Metal, Glam Metal>
@@ -650,60 +704,6 @@ Falkenbach - Ok Nefna Tysvar Ty (2003) [FLAC|Lossless|image + .cue] <Epic Viking
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19EFA3E08A667954D754B6D9C5F4DA042D30CF68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358751   (967425) от 09.02.2020
-
-Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little God                                                            [04:59]
-02. Strangers with Nothing to Lose                                        [04:48]
-03. Lonely Man                                                            [03:36]
-04. Pure Child                                                            [04:02](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358833   (967428) от 09.02.2020
-
-GZR - Ohmwork (2005) [Geezer Butler, bass - Black Sabbath] [FLAC|Lossless|image + .cue] <Sludge Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misfit [03:24]
-02. Pardon My Depression [04:37]
-03. Prisoner 103 [03:09]
-04. I Believe [06:54](   Читать дальше...   )Жанр: Sludge Metal, Industrial MetalПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52F7E4470CE971038C13C670D1235B4383066EC
 ```
 
 

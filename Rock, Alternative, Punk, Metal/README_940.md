@@ -1,3 +1,55 @@
+###  Публикация: 806641   (688268) от 15.03.2019
+
+Fallujah - 4 Альбома + 1 EP (2011-2019) [MP3|320 кб/с]<Technical Deathcore, Progressive Death Metal, Atmospheric>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688268.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - The Harvest Wombs
+2013 - Nomadic (EP)
+2014 - The Flesh Prevails
+2016 - Dreamless(   Читать дальше...   )Жанр: Technical Deathcore, Progressive Death Metal, AtmosphericПродолжительность: 03:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877E9D7A26545EBC21B55DF43F4C4BB74D25B4BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289262   (688282) от 15.03.2019
+
+Сурганова и Оркестр - Мир-лабиринт (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная премьера песни состоялась минувшей осенью в рамках большого юбилейного тура, рассчитанного на два года. В сопровождении эстрадно-симфонического оркестра композиция прозвучала и на столичных концертах в конце прошлого года, и на фестивале «Чартова Дюжина» в нынешнем феврале. Теперь мы можем познакомиться со студийным вариантом.
+«Набросок мелодии родился (   Читать дальше...   )1. Мир-лабиринтЖанр: RockПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C84F1DBF1552A3B9BAEE1B59BC9B3369420AA88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403642   (688449) от 21.08.2020
 
 The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
@@ -642,60 +694,6 @@ Kaleo - A/B (2016) [MP3|320 кб/с] <Alternative Rock, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F8F16A3B02B663417B36FC65EFE69F00B5DA80A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289179   (690062) от 14.03.2019
-
-Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine on You Crazy Diamond Pt. I-V (Live)
-02. One of These Days (Live)
-03. Learning to Fly (Live)
-04. Wish You Were Here (Live)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 02:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1462C91266CCE7F3FCD72C87A422F6A3D07A160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289002   (690070) от 14.03.2019
-
-VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr Feelgood – The Blues Had a Baby and They Named It Rock ‘N’ Roll (No. 2)
-02. Graham Bond – Neighbour Neighbour
-03. Gerry and The Pacemakers – My Babe
-04. The Animals – Around and Around(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C95D1E7A20052BE603EC5FD8087F9A54D733494
 ```
 
 

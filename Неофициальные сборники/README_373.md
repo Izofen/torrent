@@ -1,3 +1,30 @@
+###  Публикация: 1037436   (613666) от 24.07.2016
+
+VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love
+02. Stevie B. - Because I Love You (The Postman Song)
+03. Chris Rea - Ace Of Hearts
+04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037585   (613679) от 24.07.2016
 
 VA - Дорожный шансон с любимой музыкой. Часть 2 (2016) [MP3|256 Kbps] <Шансон>
@@ -692,33 +719,6 @@ VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230343   (615392) от 12.06.2018
-
-VA - Instrumental Smooth Jazz (2018) [MP3|320 Kbps] <Instrumental, Smooth Jazz, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615392.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vladi Strecker - Evening Groove
-002. Lady Estefan Gum - tobacco grace ltd
-003. Carl Neal - 03 - Love Grace
-004. DJ Maretimo - The Colours Of Light(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, Easy ListeningПродолжительность: 07:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C0A93500061782DE69FEDD8276359E1876FF79
 ```
 
 

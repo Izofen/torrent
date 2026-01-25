@@ -1,3 +1,57 @@
+###  Публикация: 1285839   (716680) от 28.02.2019
+
+Deserted Fear - Drowned By Humanity (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:42)
+02. All Will Fall (03:48)
+03. An Everlasting Dawn (03:33)
+04. The Final Chapter (04:08)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60F3CEBAE05EA4F1766C8376AE0150E25DA5162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286012   (716681) от 28.02.2019
+
+Bryan Adams - Shine a Light (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine A Light
+02. That’s How Strong Our Love Is
+03. Part Friday Night, Part Sunday Morning
+04. Driving Under The Influence Of Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE12DB83A681DEC39F0FBA102AB35D706008E3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532108   (716758) от 18.02.2022
 
 Glasya - Attarghan (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -635,66 +689,6 @@ Torrent - Gods Of A Fallen Empire (2016) [MP3|320 кб/с] <Melodic Death Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE2645B84B6151F390DDD1412FC39C85DA75A59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024380   (718150) от 08.06.2016
-
-Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Explode
-02. We Got It All
-03. Every Little Monster
-04. Nothing Is Forever(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEDFA56204873DA858424179EBDA65436D6A7E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326955   (718208) от 25.04.2011
-
-Dub War - 4 альбома + 3 сингла (1994-1998) [MP3|192-320 kbps]<Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Chill - Aphrodite 'Smash Up The Place' Remix (5:32)
-02. Million Dollar Love - DJ Rap Remix (5:25)
-03. Nations - Aphrodite Remix (5:39)
-04. Over Now - 'Bonobo's Tea Party' Remix (4:13)
-05. Strike It - Attica Blues (Mo'Wax) Remix (4:26)
-06. Silencer - Boilerhouse Boys Remix (5:02)
-07. Mental - 'Jazzid' Remix (Mo'Wax) (3:41)
-08. Strike It - DJ Hurricane Remix (4:40)
-09. Nar Say A Thing - Rootsman Dub Remix (5:34)
-10. Mental - Haggis (Senser) Remix (3:48)(   Читать дальше...   )Жанр: Reggae / Alternative / PunkПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-нет
 ```
 
 

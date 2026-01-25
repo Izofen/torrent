@@ -1,3 +1,36 @@
+###  Публикация: 534703   (519057) от 14.08.2012
+
+VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ralph Novell - Lagoon (Original Mix)
+02.Jaytech feat. Steve Smith - Stranger (Original Mix)
+03.Lost Emotions - Sunrise At Delimara (Original Mix)
+04.Susana & Ernesto vs. Bastian with Wezz Devall - Brave (Original Mix)
+05.Mike Sonar - Wicked 7 (Original Mix)
+06.Sou Kanai - Oriental Wind (North State & Roby K Remix)
+07.Stone N Forward - Oregano (Original Mix)
+08.LTN - Never Let Me Go (Anhken Sunset Remix)
+09.Mike Sonar & Anthya - Anytime (Original Mix)
+10.Neev Kennedy vs. Ruby & Tony - One Step Behind(   Читать дальше...   )Жанр: Trance, Vocal Trance, ProgressiveПродолжительность: 01:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2C7B8FF5DFC9C9955C1D15D7C5DE185BED034D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314258   (519277) от 14.07.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 12.07.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -686,33 +719,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11EAD5B8FF82993C8E17B381FD2065CE4600E20A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314117   (521208) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alekseev - Целуй (3:26)
-02. Bahroma - Кадриль (3:00)
-03. Max Barskih - Берега (3:48)
-04. David - Знай (New Version) (3:04)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3BFB0501A874A8AE34580CCFC58496CBED3CB4
 ```
 
 

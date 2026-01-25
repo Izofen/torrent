@@ -1,3 +1,57 @@
+###  Публикация: 1468667   (1016793) от 10.05.2021
+
+World On Edge - Against All Gods (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Goin' Down
+02. Life Passed You By
+03. In Your Eyes
+04. Demolition(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C52246FDCD5F8FCA24B332BF8CE07477A6802D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468980   (1016794) от 10.05.2021
+
+Marius Danielsen's Legend Of Valley Doom - The Legend Of Valley Doom (Part 1) (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. The Battle Of Bargor-Zun
+03. Prophecy Of The Warrior Kings
+04. Chamber Of Wisdom(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E6B368D01AAD289B5E01544B626883C16AFDF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468547   (1016900) от 09.05.2021
 
 Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -641,60 +695,6 @@ JODY GRIND - английский коллектив прогрессивног�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:634A584E9C10A1017AF6285F3C00FCA0CDD0CF04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468257   (1017285) от 07.05.2021
-
-Marius Danielsen - Legend of Valley Doom - Part 1-3 (2015-2021) [MP3|320 Kbps] <Power Metal, Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Ancient Artefact [00:05:35]
-02. Journey to the North [00:04:12]
-03. The Ballad of Arnoth the Wild [00:06:06]
-04. Mines of Eloroth [00:05:28](   Читать дальше...   )Жанр: Power Metal, Metal OperaПродолжительность: 3CD, 03:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FE1406DE3E567EE4340F53196E68A71744A032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468115   (1017286) от 07.05.2021
-
-High South - Peace, Love & Harmony (2020) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace, Love and Harmony (4:07)
-02. Make It Better (3:03)
-03. All We Need (3:33)
-04. Roll That Stone Away (3:11)(   Читать дальше...   )Жанр: Classic Rock, Country Rock, Pop-RockПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C815FCBA4B37525802974023C047F8B58DF9FDF8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 987006   (927702) от 16.02.2016
+
+VA - Lounge Barroom Music (2016) [MP3|320 kbps] <Lounge, Downtempo, Relax, Chillout>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927702.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Thermodynamics - A Strange Planet (Drunken Loops Cut)
+002. Baghira - A Thrill of Anticipation
+003. Sofa Sweeper - Broken Romance (Beachtrip Mix)
+004. Stiopa & Angel Falls - Heartbeat(   Читать дальше...   )Жанр: Lounge, Downtempo, Relax, ChilloutПродолжительность: 13:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31B63291F4350BBE40A0CEC35D36D08D5528FE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987350   (927707) от 16.02.2016
 
 VA - Smooth Jazz Lounge (2014) [MP3|320 кб/с] <Instrumental, Smooth Jazz, Lounge>
@@ -670,33 +697,6 @@ VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094628   (929298) от 18.01.2017
-
-VA - Danza Kuduro Dedicated Parade (2017) [MP3|320 Kbps] <Reggae, Calypso, Dancehall, Acapella, Dancehall, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmani & Grey Feat. Peral Andersson - Tattoo 03:13
-02. Nadia Rose - Tight Up (Intro Clean) 03:27
-03. Ariana Grande Ft Nicki Minaj - Side To Side (Shane Hoosong Dancehall Remix) (Clean) (Extended) 03:51
-04. Nadia Rose - Tight Up (Clean) 03:21(   Читать дальше...   )Жанр: Reggae, Calypso, Dancehall, Acapella, Dancehall, InstrumentalПродолжительность: 04:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46129D2FE5F46E87B6F1D36C6B25EA405455B01F
 ```
 
 

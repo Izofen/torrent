@@ -1,3 +1,84 @@
+###  Публикация: 1123493   (785979) от 10.04.2017
+
+VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Low Steppa feat. Geneva White - Can't Lie  3:12
+02.  Paige feat. Pipo Fernandez - Push It Back  2:38
+03.  TAI - Found Out  2:52
+04.  Felon - Coming Up (Main Mix)  3:43(   Читать дальше...   )Жанр: HouseПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124154   (785980) от 10.04.2017
+
+VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetadelic – Aguas Claras
+02. Rey Salinero – Recuerdos
+03. Jay Jay & The Snakes – Walking In The Sunshine
+04. Diario – Transhumance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D42975432044E979A190E01AFCE2F0718090059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123890   (785981) от 10.04.2017
+
+VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zean Ma - Sunset And You  3:51
+02.  Chill Out Waves - With You  3:57
+03.  Tomas Flari - Ocean Transit (Sunset Lounge Edit)  4:57
+04.  Adam Story - Moments In Love  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123520   (785982) от 10.04.2017
 
 VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
@@ -614,87 +695,6 @@ VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CECA1F74586435EA1C2B5D6C59AA7E8F06A109AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277248   (787030) от 19.01.2019
-
-VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleb Weiss - Crowd Control (Original Mix) 7:33
-02. Nacim Ladj - Mind Control (Original Mix) 5:53
-03. Guido Bruzzese - Time Control (Original Mix) 6:38
-04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512657   (787056) от 25.11.2021
-
-Dirty Disco Stars - Body Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Funky House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Rock (3:13)
- 02. Dance Till We Die (3:46)
- 03. Shine A Little Brighter (2:42)
- 04. Time To Go (3:37)(   Читать дальше...   )Жанр: EDM, Funky House, Nu DiscoПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F99DAA3EFE919CA1FB2151CA327BDCBF76FD1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512655   (787067) от 25.11.2021
-
-Spell of Unseeing - Weaving Light and Shadow (2020) 2021, Northern Silence Productions [FLAC|Lossless|image + .cue] <Dungeon Synth, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Moss and Silver Birch 03:29
-02. Lair of Bones 03:59
-03. Water Forest 03:45
-04. Bottles of Spark Light 03:56(   Читать дальше...   )Жанр: Dungeon Synth, Modern ClassicalПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12517858F00F5D5928253AAE01A9706FD50D9C2
 ```
 
 

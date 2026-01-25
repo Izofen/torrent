@@ -1,3 +1,84 @@
+###  Публикация: 1384468   (802744) от 20.05.2020
+
+VA - Top 35 Deep Summer '20 (2020) [MP3|320 Kbps] <House, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Lambert - Equal Rights (Dub Mix) 4:48
+02. Federico Rosano - Throws Up (Dub Mix) 4:16
+03. Laurent Champbell - Foundation (Dub Mix) 4:20
+04. Nicole Wane - Sounds Good (Original Mix) 4:44(   Читать дальше...   )Жанр: House, Deep House, ElectronicПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C2914F3EA10D6612FF64C1DD14B9E1C640D6B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198757   (802830) от 14.01.2018
+
+VA - EDM Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer, DJ Xquizit & OSITO  -  Empire Of Our Own (Original Mix)  3:56
+02.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
+03.  Mantra, Ruslan Radriges & Lucid Blue  -  Take Me Higher (Original Mix)  3:33
+04.  LTN  -  Wind & Cloud (Original Mix)  3:21(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EA59DA79D1F782FFAAB378CE0E0544348A7222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198857   (802854) от 14.01.2018
+
+York - Peace (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Farewell To The Moon  6:33
+02.  Angels Will Help You  5:32
+03.  The Awakening  5:05
+04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F808CBB6B6F206C256CC64BD02469F44EB400F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198824   (802858) от 14.01.2018
 
 VA - I Love Chill Vol 3 (Finest Ambient Lounge And Chillout Music) (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
@@ -614,87 +695,6 @@ VA - Lounge Vanilla (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6237DEAE2F52EB890639060CF383F02D655ED213
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198406   (804415) от 13.01.2018
-
-VA - Chilled Coffee Vol.1 (Amazing Backround Music For Cafe, Restaurant Or Home) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Florito  -  Funny Valentine (Original Mix)  2:33
-02.  Martin Liege  -  Sunrise Drive (Original Mix)  4:09
-03.  E-Motive  -  Before The Flood (Original Mix)  7:49
-04.  Florito  -  Loungery (Original Mix)  4:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4189DD191EAA54CBF34CB213DB12EDE4573876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505441   (804452) от 27.10.2021
-
-VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - To the Hills (4:36)
-02. Faro - Subtle Land (5:27)
-03. Michael E - Let Me In (6:17)
-04. Castlebed - Violet (3:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1B46FB09FE3F86F33A6094E0FCF880F88C18C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198531   (804503) от 13.01.2018
-
-VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Above & Beyond  -  Northern Soul (feat. Richard Bedford) (Extended Mix)  7:16
-02.  Super8 & Tab  -  Pressure (Extended Mix)  4:07
-03.  ARTY  -  Twilight Tonight (Steve Brian Extended Mix)  5:30
-04.  Sultan + Shepard  -  Almost Home (feat. Nadia Ali & IRO) (Mark Sixma Extended Remix)  5:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
 ```
 
 

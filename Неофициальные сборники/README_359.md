@@ -1,3 +1,30 @@
+###  Публикация: 1039982   (593655) от 03.08.2016
+
+VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila With Ahmed Romel -  Kingdoms (Extended Mix) 8:18
+02. LTN Presents Blue Ghost -  Chasing The Arrow (Extended Mix) 6:08
+03. Chris SX -  Angels Demons (Original Mix) 6:52
+04. ArtSpace -  Fantasy Kingdom (Original Mix) 6:54(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 03:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16D8D273B0B882F455A5BDCB05580E95C09BA0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300111   (593685) от 05.05.2019
 
 VA - Record Super Chart 585 (2019) [MP3|320 Kbps] <House, Club, Dance>
@@ -667,33 +694,6 @@ VA - Pleasant Evening CD 01-22 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6066F1CABEFA13EF24BDC0321350AD7ACFD42FD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914926   (594771) от 04.07.2015
-
-VA - Шансон года (2015) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.С. Михайлов - Золотое сердце
-02.М. Бублик - Ясень
-03.С. Трофимов - Интернет
-04.Г. Лепс - Стаканы(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFCC7A438383152E16F4174C44E723E4272028B
 ```
 
 

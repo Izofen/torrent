@@ -1,3 +1,84 @@
+###  Публикация: 1095720   (924570) от 21.01.2017
+
+VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Rivas & Supersonic Lizards - Aww Shit (instrumental mix) 04:55
+02. Jason Rivas & Creeperfunk - Sayonara (vocal edit) 03:08
+03. Jenny & Her Microhouse Band - Orbit 03 (extended Club mix) 05:41
+04. Jason Rivas & The Creeperfunk Project - Funky Soup 03:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5EFBAD55F6CF1C315A8D28D6A66D616295F2DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095536   (924572) от 21.01.2017
+
+VA - Wind In The Field (Downtempo Series)  Vol.008 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Golden Light Orchestra - Around The World (G-Rays Remix)  5:45
+02.  TheMiffy - Breakthrough (Original Mix)  3:01
+03.  Valefim Planet - Circles (Original Mix)  4:50
+04.  PumpiQ - Follow (Vocal Mix)  4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3E67B1DE44131093BE7FFFE05940618BF790C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154882   (924951) от 16.08.2021
+
+Proem - Discography 28 Releases (1999-2021) n5MD, Merck, The 1056 [FLAC|Lossless|tracks+.cue, tracks] <IDM, Leftfield, Ambient, Glitch, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path To The Drone God (03:00)
+ 02. Another Dull Moment (02:44)
+ 03. DBL Field1 (03:16)
+ 04. Ysheb Req (05:44)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: IDM, Ambient, Glitch, Downtempo, Experimental •Продолжительность: 19:32:19 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E538224F8E9FA901D148C3116F6B1B724C4A39A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236374   (925075) от 16.08.2021
 
 DRØN (Dron, Signalform, Self Oscillate) - Discography 19 Releases (2000-2021) Elektrolux, Mikrolux [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
@@ -610,87 +691,6 @@ VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094951   (927852) от 19.01.2017
-
-VA - Extreme Cardio Vol 1 (2015) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untidy Dub - Use It Or Lose It (Original Mix) [06:25]
-02. Baseware - Boom (Ross Homson Remix) [08:10]
-03. Groove Complex - Rendevouz (Original Mix) [06:36]
-04. The Creators - Get On Up (Original Mix) [07:50](   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C78EC99AA4587C6C0CF2F25AEB299AC9DB37691
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094803   (927859) от 19.01.2017
-
-VA - This Is My Church Vol.4 (The Lounge Edition) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sofa Grooves - The Chef Music (Original Mix)  4:29
-02.  James Wilson - Reggae Morning (Original Mix)  3:07
-03.  Seven Heaven - I'm Here (Original Mix)  3:33
-04.  Peter Stone - In the Shuffle (Original Mix)  2:46(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C2001A0E53643FFCBB82570466D6BC8FE1B6B40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094807   (927890) от 19.01.2017
-
-VA - Midnight Sessions  Vol.3 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ava Blaxland - Oxana (Original Mix)  3:26
-02.  Tribal Kong - A Beast (Black Jam Mix)  5:35
-03.  Van Mark - Tree Cherry Pits (Original Mix)  5:49
-04.  Jay Indo - One Two (Original Mix)  6:14(   Читать дальше...   )Жанр: House,Deep HouseПродолжительность: 01:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBF131ED48AD318938A9D9320A9278C97A894B0
 ```
 
 

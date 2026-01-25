@@ -1,3 +1,57 @@
+###  Публикация: 1602818   (1045931) от 07.01.2023
+
+The Beach Boys - The Best of the Beach Boys (1995) 2xCD, Compilation, Remastered, EMI [FLAC|Lossless|tracks + .cue] <Surf, Pop Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. California Girls (02:38)
+02. Surfin' U.S.A. (02:27)
+03. Little Deuce Coupe (01:39)(   Читать дальше...   )Жанр: Surf, Pop Rock, Psychedelic RockПродолжительность: 02:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B06EFEE24ED5E502130607BE13B2F017278AB2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602918   (1045941) от 07.01.2023
+
+Без Билета - The Best, Pt. 1 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Здравствуй, мой друг
+2. Байконур 66
+3. Танцуй
+4. Две лодки(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2ACF4E7BBBFB22EEDC83DA0204C5D28017C6402
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602700   (1045944) от 07.01.2023
 
 Alice Cooper - Muscle Of Love (1973) Remastered, 2015, Audio Fidelity [OGG Vorbis|480 Kbps] <Rock, Psychedelic Rock, Glam>
@@ -641,60 +695,6 @@ Dead - A Dirty Mind Is A Joy Forever (2017) [APE|Lossless|image + .cue] <Death, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17113D3212DBB9EC50261FAD101510A826F75C24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602500   (1046061) от 06.01.2023
-
-Spectral - Autopsy Of Hope (2007) [APE|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind
-02. The Unknown Nothing
-03. Autopsy Of Hope
-04. The Art Of Pain(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C128C2A7A202A68457D198BEF643A3BD7B10AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602502   (1046062) от 06.01.2023
-
-Sincarnate - On The Procustean Bed (2008) [APE|Lossless|image + .cue] <Doom Metal, Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem
-02. Reverence (In Fron Of An Inevitable End)
-03. Desolate
-04. Sincerely YoursЖанр: Doom Metal, Death Metal, Black MetalПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB583C5D0A5B212E93DA7289DBC60D458E1ADB2
 ```
 
 

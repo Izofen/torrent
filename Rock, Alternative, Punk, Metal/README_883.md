@@ -1,3 +1,62 @@
+###  Публикация: 1144305   (627016) от 22.06.2017
+
+Imagine Dragons - Evolve (2017) Deluxe Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627016.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Don't Know Why
+ 2. Whatever It Takes
+ 3. Believer
+ 4. Walking The Wire(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7336C29E8DB2E49E5AE8589ED818A4FB6D490C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521014   (627216) от 11.07.2012
+
+Power Theory - An Axe To Grind (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627216.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Edge Of Knives (4:59)
+2. Deceiver (6:43)
+3. Puresteel (5:03)
+4. An Axe To Grind (5:29)
+5. A Fist In The Face Of God (3:59)
+6. The Seer (5:39)
+7. On The Inside (5:26)
+8. Colossus (3:54)
+9. The Hammer Strikes (Mjolnir's song) (7:28)Жанр: Heavy MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0B7489D75EA22A52E4BCC438B0A4D5DE0BE4E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144461   (627229) от 22.06.2017
 
 Декабрь - Мы не оставим города свои (2017) [MP3|320 Kbps] <Hard Rock>
@@ -637,57 +696,6 @@ VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0558C053DDB6E6F5310393F1E66B117C218C0590
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909411   (628198) от 17.06.2015
-
-Fire - Could You Understand Me (1973) Reissue /2005, Skyf Zol/ [FLAC|image+.cue]<Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный альбом чумового хорватского пауэр-трио Fire из города Чаковец (Cakovec). Одна из самых тяжёлых и громких групп Югославии 70-х годов. Но их там мало кто знал... Потому что, во-первых, пели они в основном на английском языке. И, во-вторых, власти им просто запрещали выступать, так как группа была бескомпромиссной и не шла ни на какие переговоры с властью (   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236FC50A128088AFDB2677C11C0E68F6C3D3F66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908883   (628347) от 17.06.2015
-
-Palace Of The King - White Bird - Burn The Sky (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Your Medicine
-2. No Chance In Hell
-3. Another Thing Coming
-4. Burn My Bridges(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4042CB282793B498F6A9FB7F89701D181FE44EA
 ```
 
 

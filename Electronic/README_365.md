@@ -1,3 +1,84 @@
+###  Публикация: 976393   (727314) от 25.04.2017
+
+Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tunnel (03:23)
+ 02. On Track (04:04)
+ 03. Accelerant (06:21)
+ 04. The Hour Appointed (05:00)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Space |Продолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F1C8A3C286F2172844B5CF145F44D78E63FABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128494   (727322) от 25.04.2017
+
+VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Oakenfold - Conquistador  7:58
+02.  Tommy Johnson - Tubular Bells  5:36
+03.  Radion6 - Shockwave  5:12
+04.  Alex M.O.R.P.H. - Euforia Anthem  8:07(   Читать дальше...   )Жанр: TranceПродолжительность: 03:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C0E1B32F3DA11257F7680A27F5549A0269424C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284611   (727543) от 22.02.2019
+
+Banco De Gaia - 30 Times Around the Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Tribal, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indihop (Live) 1989 (05:46)
+ 02. Humility (Ecliptic Mix Edit) 1990 (06:10)
+ 03. Disbelief 1991 (06:55)
+ 04. Therapy/Terra Om 1992 (10:47)(   Читать дальше...   )Жанр: Psychill, Tribal, Downtempo, AmbientПродолжительность: 03:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5670C69A3289A1193E89067735B8EB78A09D33CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128627   (727566) от 25.04.2017
 
 VA - La Fete Au Jardin Selection Lounge Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -610,87 +691,6 @@ VA - Femme Fatale (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63FD4A0272F29DC8782FF88CA7D82348D54E1F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128215   (728898) от 24.04.2017
-
-VA - Universal Language Lounge Anthems Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Cools - Watching From Above
-02. Darius Dubois - Big Ban
-03. James Walden - Europa - Alternative Version
-04. Den Wood - Music Takes Me Higher(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB2AD83BC7791B345CFA30146FA494094B93481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128284   (728900) от 24.04.2017
-
-VA - Sunset Chillout Vibes (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  New Electronic Symphony - Water  3:33
-02.  Miraflores - The Color Of Your Wings  5:54
-03.  Schwarz & Funk - Laid Back  6:09
-04.  Still Cutt - 60  3:05(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2B6F27670A8A0E9CAD13098B0C9276D39FCB1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022476   (728934) от 02.06.2016
-
-Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Box (11:34)
-02. Consequences of Love (6:35)
-03. Transmission (5:32)
-04. Mind Control (5:37)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC01C11DBBE231F4202842E539A80BAA46FC34
 ```
 
 

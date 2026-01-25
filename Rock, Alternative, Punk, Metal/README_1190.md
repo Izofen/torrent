@@ -1,3 +1,57 @@
+###  Публикация: 1354598   (987049) от 23.01.2020
+
+The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's In Store (03:42)
+02. Children's Day (03:55)
+03. Pawing (02:38)
+04. I Celebrate My Fantasy (05:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354597   (987053) от 23.01.2020
+
+Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Fries (04:06)
+02. The Misanthrope Years (04:34)
+03. Desintegration (04:09)
+04. The Moon (04:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577243   (987064) от 01.02.2013
 
 Sinister - The Carnage Ending (2012) Limited Edition [FLAC|Lossless]<Death Metal>
@@ -667,69 +721,6 @@ Elixir - Mindcreeper (2006) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB1F3B0C4EB30B7E17881F7895975337F4C3B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610725   (989221) от 30.01.2013
-
-Mogwai - Les Revenants (2013) [MP3|320 кб/с]<Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry Face 02:24
-02. Jaguar 02:19
-03. The Huts 04:02
-04. Kill Jester 03:29
-05. This Messiah Needs Watching 04:37
-06. Whisky Time 01:39
-07. Special N 03:49
-08. Relative Hysteria 03:40
-09. Fridge Magic 03:22
-10. Portugal 04:01(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B82645F6FB36FA919F579C7B6FF7AE7C52B3735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591242   (989346) от 30.01.2013
-
-1349 -  7 CD (2001-2011) Дискография [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989346.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 - Rapture (Morbid Angel cover)
-25 - Strike Of The Beast (Exodus cover)
-26 - Nerves (Bauhaus cover)
-27 - The Heretic (Possessed cover)
-28 - Pandemonium War Bells (live)
-29 - When I Was Flesh (live)
-30 - Atomic Chapel (live)Жанр: Black MetalПродолжительность: 00:36:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

@@ -1,3 +1,56 @@
+###  Публикация: 1050451   (536747) от 09.09.2016
+
+Solution .45 - Nightmares In The Waking State Pt.II (2016) [FLAC|Lossless|image + .cue] <Melodic Groove Metal, Progressive Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dim Are The Pathways (Instrumental)
+02. The Faint Pulse Of Light
+03. Mind Mutation
+04. Built On Sand(   Читать дальше...   )Жанр: Melodic Groove Metal, Progressive Melodic Death MetalПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573F8004C53DDDACCBE6F165188C6D34CDE697F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154838   (536894) от 01.08.2017
+
+Бездна Анального Угнетения - Всё Превратится в Металл (2017) EP [MP3|320 Kbps] <Melodic Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я Ненавижу Питер
+02. Всё Превратится в Металл
+03. Кожаная ПуляЖанр: Melodic Death Metal, Thrash MetalПродолжительность: 00:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42219FF7616EB34987854400A3CC12861CBE3672
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925888   (536927) от 08.08.2015
 
 Queen - MTV Music History: The Greatest Hits I-II (1999) 2CD [FLAC|image+.cue]<Rock>
@@ -641,60 +694,6 @@ Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155043   (537239) от 01.08.2017
-
-Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fountain Of Music (1:33)
-02. Men Of No Return (5:26)
-03. Golden Age (5:55)
-04. In The Picture (7:31)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155040   (537240) от 01.08.2017
-
-Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Ascending To Heaven (1:27)
-02. Nailed To The Shade (4:30)
-03. In The Dark (4:07)
-04. Gone (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
 ```
 
 

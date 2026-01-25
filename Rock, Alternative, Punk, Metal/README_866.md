@@ -1,3 +1,57 @@
+###  Публикация: 912464   (610981) от 26.06.2015
+
+Scavanger - Between the Devil and the Sea (2011) [FLAC|image +cue]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Rebirth
+03. The Last Judgement
+04. Stalker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A770422030624572F27EBBF62229962DA2639A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912313   (610984) от 26.06.2015
+
+Hellmotz - South Born (2015) [MP3|320 кб/с]<Southern / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Phillips (The Formidable Bastard)
+02. Wielding the Axe
+03. Defiance
+04. Booze & Girls(   Читать дальше...   )Жанр: Southern / Thrash MetalПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E571595358ACA91B914F1BAE4F06FBFB612DE46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545861   (611032) от 21.04.2022
 
 Udo Dirkschneider - My Way (2022) Cover album [MP3|320 Kbps] <Heavy Metal, Hard Rock>
@@ -650,60 +704,6 @@ Gillan - Double Trouble (1981) Remaster  /1996, Virgin Records/ [FLAC|Lossless]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AD0B96ABFF52B2C1BE2565E44882A729B36A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037487   (612123) от 25.07.2016
-
-Gotthard - Domino Effect (LTD Tour Edition) (2007) 2CD Limited Edition [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master Of Illusion    03:55
-02. Gone To Far    03:55
-03. Domino Effect    03:48
-04. Falling    03:35(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14C3144D5BC88C8B885C187CFDFCAB729142BDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230707   (612168) от 14.06.2018
-
-Зоопарк, Кино - Лето (Песня для Цоя) (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зоопарк - Лето (Запись 1982)
-02. Кино - Мои друзья...
-03. Зоопарк - Сегодня ночью (Запись 1982)
-04. Кино - Видели ночь(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6295355A777D8DE57F1D136FE7BA75A9620D1D5D
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 684903   (614182) от 31.07.2013
+
+VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia - Always Loved, Never Forgotten - The Day Will Come (Original Mix)
+02. Robert Lyttle - Never Forget (Sean Murphy Remix)
+03. RAM - RAMplify (Original Mix)
+04. Ico - And She Made It All Of Light (Original Mix)(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 204:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF96E6F0077A31B08E5B2722490B7D054A2EABE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911560   (614230) от 24.06.2015
+
+Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sodium (05:44)
+02. Found My Peace (feat. BBK) (06:43)
+03. You Panic (06:15)
+04. Red Frog (05:49)(   Читать дальше...   )Жанр: Electronic, Breakbeat, BreaksПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD41719CDB21401AB4AA0A98E687BFEEE67C6850
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911886   (614402) от 24.06.2015
+
+Crywolf - Dysphoria (2015) [MP3|320 кб/с]<Chillstep, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Never Asked for This (3:51)
+02. Neverland (6:01)
+03. Interlude; 9/23/87 4:34 am - Falling (1:09)
+04. Shrike (3:28)(   Читать дальше...   )Жанр: Chillstep, ElectronicПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C8FDE806E5BC836066FB56A5BEDC26EF61863A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146604   (614554) от 29.06.2017
 
 VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -617,87 +698,6 @@ Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146093   (616476) от 28.06.2017
-
-VA - Summer Party Dance Hits 2017 [MP3|320 Kbps] <Progressive House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southree & Wayck - Carousel (feat Nick Tart - radio edit)
-02. Stephan F - Color Of Love (feat Tony T - Tropical edit)
-03. Federico Seven & William Tag - Amelie (original mix)
-04. Charlie Atom & Michael Fall - Gone (feat Drew Darcy - original mix)(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96C6F7EA3335A55953B3C24E3C3DFCC63551ADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146239   (616479) от 28.06.2017
-
-Alba Ecstasy - The Quest (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin School>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Beyond the Fog
-2 Silent
-3 About You
-4 The Quest(   Читать дальше...   )Жанр: Electronic, Ambient,  Berlin SchoolПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBBA399509020C022715B6EC65F3442328A5F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146010   (616485) от 28.06.2017
-
-VA - Chill Town In The Night (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chill Insider - You Are Like I Need (Rain Mix)  2:38
-02.  Junk Collective - Proper (Main Rar)  2:35
-03.  Sangar - Like A Butterfly (Jazzy Reload)  2:49
-04.  Satellite Soul - Red (Clear Mod)  2:54(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F031C2BCC0A92064863C1766AC2935160E00F8D4
 ```
 
 

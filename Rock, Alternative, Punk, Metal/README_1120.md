@@ -1,3 +1,57 @@
+###  Публикация: 1103836   (883522) от 13.02.2017
+
+VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883522.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+
+ 1. Queen - Another One Bites the Dust [03:32]
+ 2. Status Quo - Rockin' All Over the World [03:32](   Читать дальше...   )Жанр: RockПродолжительность: 03:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96759E465B14B082C95A218F6E08300C8FE5197F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103762   (883553) от 13.02.2017
+
+VA - Best of Lovy Metal (2007) [FLAC|Lossless|tracks + .cue] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883553.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mr. Mister - Broken Wings [03:18]
+ 2. Warrant - Heaven [03:55]
+ 3. Winger - Miles Away [04:09]
+ 4. Stryper - I Believe in You [03:13](   Читать дальше...   )Жанр: MetalПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A855B1EDFA2EB36FC6F6E19CA993FB03E8F5D3AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372783   (883616) от 04.04.2020
 
 Ёк-Макарёк - Песнь весла (2020) [MP3|320 Kbps] <Ethno Punk>
@@ -646,60 +700,6 @@ Red - Release The Panic (2013) Deluxe Edition [FLAC|lossless|tracks + .cue] <Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D7D52249850964936F8D573A3894311C978225D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641397   (884412) от 08.04.2013
-
-Sunsay - Благодари (2013) [MP3|320 кб/с]<Funk / Experimental / Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Благодари
-02. Кефир
-03. До рассвета
-04. Просыпаться пора (   Читать дальше...   )Жанр: Funk / Experimental / AlternativeПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7DA74D2B31A9646B0D030CD377242FE567DEEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494965   (884441) от 10.09.2021
-
-Мураками - Среди акул (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ласточки
-2. Ошибки
-3. Кепочка
-4. Встречи не будет(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4EB27E5D5BFF6991767E256841C2755A3819CA
 ```
 
 

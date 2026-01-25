@@ -1,3 +1,84 @@
+###  Публикация: 1217112   (1035415) от 29.01.2021
+
+In The Branches | The Adaptive - Discography 27 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Soundscape, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Way Home (Live In Santa Fe) (05:44)
+ 02. Places You Been (Live In Santa Fe) (06:07)
+ 03. Black Sea Coast (Live In Santa Fe) (05:56)
+ 04. We Are Limitless (Low Sun Remix) (Live In Santa Fe) (05:21)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo/Dub/AmbientПродолжительность: 17:13:57 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3967E9ABFE48B33B476C3448132FF28A35CAD89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443495   (1035455) от 29.01.2021
+
+VA - Summer Melody: Best Of 2020 (Mixed Version With Full Compilation DJ Mix) (2021) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kirill Maxsimoff - Shadow Play (Valiant Remix)
+02. Marcel Vautier - Bohemia (Naz K Remix)
+03. ZGOOT - Movement Of The Universe (Original Mix)
+04. Deidian - Radiant Shores (Design8 Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EF1C54DCDD95336F35BFB35AC4EC226D8D6452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443258   (1035470) от 29.01.2021
+
+VA - Fitness Mix 2021 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas - Pump It (03:33)
+02. Avicii - Levels (Original Version) (05:38)
+03. Jennifer Lopez - On The Floor (Radio Edit) (03:50)
+04. Major Lazer - Watch Out For This (Bumaye) (04:29)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86440EC9BC298412BD3D3F792F6888B18763A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443508   (1035471) от 29.01.2021
 
 VA - Armin van Buuren - A State Of Trance 1001 (Celebration Mix) (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -612,87 +693,6 @@ Dawn Wall - Longshanks (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18DEA1B109867890AAA3793C15B4F2C44C45D92C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443188   (1035783) от 28.01.2021
-
-Dawn Wall - Kythera (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between The Sheets (feat. Artificial Intelligence) (04:50)
-02. Angel Field (04:32)
-03. Kythera (05:17)
-04. Seeds Of Change (04:36)Жанр: Drum & BassПродолжительность: 00:19:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F001D6A5CD0F880B99B1F0B54D777150EA8530F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616893   (1035839) от 04.03.2023
-
-VA - Frühlingsgefühle: Lounge & Easy Listening Deluxe (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholls & Simes - Michelle (2:51)
-02. Centenarios - Dune Buggy (English Sambossa Remix) (3:33)
-03. Bigboss - Runnin' Hard (Background Music Instrumental) (4:25)
-04. Vinito - Cloud Cruise (5:45)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C7113628A1AE1FDE86A4ED621092CD022DD367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616892   (1035846) от 04.03.2023
-
-V.A. - Lounge & Coffee, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Le Blanc,Roberto Sol,Inês - Ahora
-02. Vibemares - Delight, Deep Soul (Jan Beco Mix)
-03. Benirras - Ghost In A Bottle
-04. Dub Mars - Lost In Thought(   Читать дальше...   )Жанр: Easy Listening, Lounge, DowntempoПродолжительность: 02:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7CC7C567366D3ADCD7CA45D53BC07C9F1BA99C
 ```
 
 

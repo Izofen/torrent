@@ -1,3 +1,27 @@
+###  Публикация: 932679   (508161) от 30.08.2015
+
+Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип музыки сделан на основе оригинального диска DreamcastЖанр: ScoreПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B558EA28BFE2F9FB99C1E2EE324025B23338983F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932597   (508165) от 30.08.2015
 
 VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
@@ -698,33 +722,6 @@ VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A3F263154849BEC5EBA9B5F8E47CE585A8DFA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932076   (510194) от 28.08.2015
-
-VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tech House, Disco, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Mad Flava (Autograf Remix) 04:42
-02. Bob Sinclar Feat. Dawn Tallman - Feel The Vibe (Kolombo Remix) 05:26
-03. Lane 8 Feat. Patrick Baker - Ghost 03:24
-04. Odesza Feat. Shy Girls - All We Need (Autograf Remix) 06:10(   Читать дальше...   )Жанр: Electronica, Tech House, Disco, Nu-DiscoПродолжительность: 06:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD7EF368747BF89C545122E7C7F61AAA0E919D5
 ```
 
 

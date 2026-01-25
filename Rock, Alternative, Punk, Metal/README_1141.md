@@ -1,3 +1,57 @@
+###  Публикация: 1098654   (908748) от 30.01.2017
+
+Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Rattlebone
+02. Satisfaction
+03. None Of It Matters
+04. Sympathy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645EDBAD1E03F42BCDAC878B37874B52B1736665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491674   (908756) от 26.08.2021
+
+Pestilence - Exitivm (2021) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Omnibvs (Intro)
+02. Morbvs Propagationem
+03. Deificvs
+04. Sempiternvs(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72628863431962F8F47BE4816D62A6F3CEADD8BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 635277   (908792) от 26.03.2013
 
 Fleetwood Mac - Rumours (1977) 35th Anniversary 3CD Set Deluxe Edition /Reissue 2013, Warner Bros. Records/ [FLAC|Lossless]<Rock>
@@ -642,57 +696,6 @@ Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235771   (910293) от 05.02.2011
-
-The Beatles - Коллекция концертных записей (1962-1994) [MP3|160-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1FFB3493F1837B08628B592BDD2AA914D156A24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294183   (910382) от 29.01.2017
-
-Faces - 5 Albums (1970-1976) Japanese Limited Release, Reissue, Remastered, 2010, Warner Music [FLAC|Lossless|tracks + .cue]<Rock, Blues-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pool Hall Richard (4:26)
-02. Cindy Incidentally (2:37)
-03. Ooh La La (3:32)
-04. Sweet Lady Mary (5:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 03:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E730CFCD0FC64D211392BFD4475830C3DD101A
 ```
 
 

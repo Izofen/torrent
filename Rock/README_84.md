@@ -1,3 +1,57 @@
+###  Публикация: 1005410   (832553) от 09.04.2016
+
+Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Changes
+02. Tears of December
+03. Lay Me Down
+04. Lost Prayer(   Читать дальше...   )Жанр: Southern RockПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F435E0A97DF024F01B26936C41B00978BA4247D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005649   (832627) от 09.04.2016
+
+VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-1969 (2001) [MP3|320 кб/с] <Garage Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Creation - Making Time (2:58)
+ 02.  Fire - Father's Name Was Dad (2:29)
+ 03.  The Move - I Can Hear The Grass Grow (3:07)
+ 04.  The Smoke - My Friend Jack (3:01)(   Читать дальше...   )Жанр: Garage Rock, Psychedelic RockПродолжительность: 05:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA8981467801323C89B8A672A0686CC02F225D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380469   (832936) от 03.05.2020
 
 Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
@@ -636,60 +690,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:314B6AE9CDBDE9167447CCE30C76E4AC055A9591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377767   (849734) от 23.04.2020
-
-John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary Don't You Weep (Live 1985) (2:44)
-02. Interview Pt. 1 (Live 1985) (2:40)
-03. My Pretty Baby Leave My Woman Alone (Medley) (Live 1985) (4:03)
-04. Interview Pt. 2 (Live 1985) (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8568A15358E445A554477B80DC65807BC63E21B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377600   (851728) от 22.04.2020
-
-Лінія Маннергейма - Конфіскат (2020) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Інтро (05:29)
-02. Чорний (04:32)
-03. Отче (03:48)
-04. Де Твоя Лінія (05:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6F850A25D879DA3C44D2E1784B19D489288911
 ```
 
 

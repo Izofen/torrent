@@ -1,3 +1,63 @@
+###  Публикация: 509110   (675084) от 12.06.2012
+
+Реанимация - 2 альбома (2006 - 2008)  [Monkey's Audio|Lossless] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года выпуска: 2006-2008О группе:Жанр: Heavy MetalПродолжительность: 01:00:47
+
+01. Письмо (05:31)
+02. Волк (05:43)
+03. Моя земля (06:12)
+04. Было время (06:45)
+05. Козацька (06:06)
+06. Я вернусь (04:54)
+07. Характерник (05:33)
+08. Проклятье Богов (05:33)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223380   (675098) от 04.05.2018
+
+VA - Absolute 70's (2007) 3CD [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_675098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - We Are The Champions (2:59)
+02. Frank Zappa - Bobby Brown (2:45)
+03. Chicago - If You Leave Me Now (3:54)
+04. David Bowie - Young Americans (3:12)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 03:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D17EBE1CD555DFB5E9FEA13EED34AD2778B7A59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 214728   (675159) от 30.06.2010
 
 Del Shannon - 13 Albums + 3 Compilation + Singles, Alternative Versions & Bootlegs (1961-2004) [MP3|192-320 kbps] <Rock&Roll / Rock / Country Rock>
@@ -677,57 +737,6 @@ Jeff Liberman - Songwriter / Musician (2016) [MP3|320 Kbps] <Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCB4BBF57FFC327EFC118DA10B8B092A3D222E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535649   (676577) от 11.03.2022
-
-T. Rex - Cosmic Dancer Vol. 1 & Vol. 2 (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elemental Child (Live) (13:30)
- 02. Live Jam Session (Live) (05:10)
- 03. Jewel (Live) (12:20)
- 04. Honey Don't (Live) (04:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B75AE75351979EECD9DA1501AAB9D1EF0680B5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290658   (676581) от 21.03.2019
-
-Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black HolesЖанр: Progressive Rock, Psychedelic, Space RockПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D77999CF56738BC662A4F18F75C59DFB57832EB9
 ```
 
 

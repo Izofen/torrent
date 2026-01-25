@@ -1,3 +1,57 @@
+###  Публикация: 997669   (873903) от 17.03.2016
+
+Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873903.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roll the Dice
+2. Broken
+3. Modern Babylon
+4. Machines of Fear(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE85C7D3215F0167EE2E9A88E88EB30AAD141A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997580   (873904) от 17.03.2016
+
+GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время (3:24)
+02. Это Твой День (4:03)
+03. С Кем Ты Играешь И Поёшь?! (3:58)
+04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997449   (873907) от 17.03.2016
 
 Urgehal - Aeons in Sodom (2016) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -641,60 +695,6 @@ CD2 - Instrumental VersionЖанр: Symphonic Power MetalПродолжител�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCEB75802A043948078C68C53622EA598735FA78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105882   (875067) от 18.02.2017
-
-Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Out In The Rain (4:16)
-02. Watch Out For Lucy (3:26)
-03. I'll Make Love To You Anytime (3:24)
-04. Roll It (3:43)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F423F2E0A03D5EC37F5465DB3B46E9741E865A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105864   (875070) от 18.02.2017
-
-Doro - Love Me In Black (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Like It? (3:04)
-02. Brutal And Effective (3:13)
-03. Love Me In Black (4:49)
-04. Pain (4:20)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA8E56335ED0C86386C0A266D552EA4B3BD32191
 ```
 
 

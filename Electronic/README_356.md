@@ -1,3 +1,84 @@
+###  Публикация: 1131223   (708775) от 05.05.2017
+
+Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Rock>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthquake
+02. Dystopia
+03. When Sirens Sing
+04. Razorblade(   Читать дальше...   )Жанр: Synthwave, Retrowave, Electronic RockПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0928DD6896F1EB03EA3E8CA9F5E7B435FB76EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087273   (708851) от 04.03.2019
+
+Beefcake - Discography 6 Releases (1998-2004) Hymen Records [FLAC|Lossless|tracks+.cue, tracks] <IDM, D'n'B, Experimental, Breakcore, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GV-001-2003 (04:30)
+ 02. GV-002-2003 (03:06)
+ 03. GV-003-2003 (03:34)
+ 04. GV-004-2003 (04:18)Тип издания: CD, VinylЖанр: IDM, Drum n Bass, Experimental, Breakcore, Ambient •Продолжительность: 00:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5F8CCDCC1784F5A4CBA49E69C8027A751420D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286892   (709084) от 04.03.2019
+
+Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amber Star (08:46)
+02. Inner Hollow (07:56)
+03. Black Rain (07:15)
+04. The Mind Traveller (08:13)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286759   (709087) от 04.03.2019
 
 ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
@@ -613,87 +694,6 @@ Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:499A0EB400DBA3449E87735D29F954DE3E4BD160
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401186   (711300) от 09.08.2020
-
-God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Electro>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hindsight (Iris Remix) [00:04:10]
-02. Phenomenon (Amnestic Remix) [00:04:54]
-03. Unsound (E.S.A. Remix) [00:05:00]
-04. Grey Forces (Baby Magick "Stryker Roll Out" Remix) [00:02:46](   Читать дальше...   )Жанр: EBM, Aggrotech, Dark Electro, Synthpop, New WaveПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367CD8AA11A999D99ED3C303EB80BC81AD6A9C5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401192   (711322) от 09.08.2020
-
-Cultivated Bimbo - Tunes From a High Wire (1992) [MP3|320 Kbps] <EBM, Industrial, Synthpop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up Neighbour [00:01:11]
-02. Sleeping Beauty '91 [00:03:14]
-03. One Kiss, Then Goodbye [00:00:56]
-04. Hooker in Head [00:02:48](   Читать дальше...   )Жанр: EBM, Industrial, SynthpopПродолжительность: 01:02:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378593ED0E52936FC59CED9A3B029D962E96EE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286676   (711329) от 03.03.2019
-
-Foreign Sequence - Thousand Frustrations (2018) Concrete Collage [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8-crat_frul35 (03:56)
- 02. Polydub (06:17)
- 03. Kaarw4-- (05:37)
- 04. 101Arpsys3220 (02:08)(   Читать дальше...   )Жанр: Electro, Acid, IDM, TechnoПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399508A7EBF29180FEC2FC09E171F06AA9D84858
 ```
 
 

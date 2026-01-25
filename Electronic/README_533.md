@@ -1,3 +1,84 @@
+###  Публикация: 1436915   (1042774) от 02.01.2021
+
+Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind (Koan Remix) (7:08)
+02. Commitment (Roeth & Grey Remix) (8:37)
+03. How Big Is a Blue Whale (8:46)
+04. Thawed Sounds (8:54)(   Читать дальше...   )Жанр: Electronic, Ambient, Deep House |Продолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8A9F4AFF422059C5426AFB7F7B1C6FC68D475
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436750   (1042792) от 02.01.2021
+
+VA - Victor Special Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Special & Elev8 - Through The Dust Of Doubt (Intro Mix)
+02. Milosh K - Explore The Unknown (Neil Redden Remix)
+03. Victor Special - Ode For Lightt (Original Mix)
+04. Grande Piano & KBK feat. Agata Pasternak - Mystery Of Tomorrow (DreamLife Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE18CDF275BBE1C2BFF31CF38A8FF2642CA9BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436778   (1042793) от 02.01.2021
+
+Techni-ka - Contamination (2020) DJ Remix [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Wave, Synthpop, Electropop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theriak - Tragic Romance (Techni-ka Remix) (04:33)
+02. Ultimated - Unforgettable - (Techni-ka Remix) (05:01)
+03. Parralox - A Question Of Love (Telekon Remix) (04:58)
+04. Tegan & Sara - Closer (Techni-ka Remix) (05:20)(   Читать дальше...   )Жанр: Electronic, New Wave, Synthpop, ElectropopПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A52C98A822DB3EADF94FC41945BDD63EFDD3670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436896   (1042813) от 02.01.2021
 
 The Blizzard - Nostalgia Mixset (The Blizzard's Favorite Classics) (2020-12-24) [MP3|320 Kbps] <Trance>
@@ -611,85 +692,6 @@ VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607601   (1043940) от 27.01.2023
-
-Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - For Emily (Album Mix) [3:38]
-02. Activa & Lo - Leave A Light On (Extended Mix) [8:27]
-03. Activa feat. Rolo Green & Julie Harrington - Reach Out (Extended Mix) [8:29]
-04. Orkidea - Z21 (Activa's Origins Extended Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A8A6122C052F9E017CACC1EFAAA94C5F41E32B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607357   (1043959) от 27.01.2023
-
-VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artyom Kitsenko - Unspoken (Original Mix) [5:53]
-02. Coshee - Shine Through (Original Mix) [7:38]
-03. Daryl G - Magic Moment (Original Mix) [7:46]
-04. TGN - Andre Va A Nantes (Original Mix) [4:55](   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A248E836A2B8F41A932400436187350182D4412E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607408   (1044066) от 26.01.2023
-
-Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cyber Agression
-02. I Robot,My Name Is..Жанр: Electronic, Synth-popПродолжительность: 00:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
 ```
 
 

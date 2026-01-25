@@ -1,3 +1,81 @@
+###  Публикация: 1464950   (1019450) от 24.04.2021
+
+Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive TranceПродолжительность: 01:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DC1FE390C17A510DB7FDDEE8D1AC84A74872A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464987   (1019461) от 24.04.2021
+
+VA - Inner Frequencies Vol. 3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slide, Psiked'eliah - Funkingallo (Original Mix) (07:01)
+02. Saikro - This Is Not A Dream (Original Mix) (06:11)
+03. Kusabi - Whisper From The Deep (Original Mix) (07:33)
+04. Redy, Psiked'eliah - Premonitions (Original Mix) (06:51)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312EBBFF6202304DEE93103CD9837BE9071C56CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464508   (1019794) от 22.04.2021
+
+VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Vega (7:11)
+02. Matej Blanusa - Suomi (5:22)
+03. Beamy - Gawain (4:00)
+04. Charlie North - Patient (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464265   (1019966) от 21.04.2021
 
 Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Electropop>
@@ -614,84 +692,6 @@ Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705829497CC0C4235922A12812C0FB51C89EA698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462439   (1021227) от 14.04.2021
-
-VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Drone, Experimental, IDM, Techno>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WebЖанр: Ambient, Drone, Experimental, IDM, Techno •Продолжительность: 08:12:04 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037383   (1021247) от 13.04.2021
-
-Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handstitched* [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Ambient, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. w48-7 (05:33)
- 02. FstRs (05:30)
- 03. UYoJ (04:14)
- 04. fC_45 (03:08)(   Читать дальше...   )Тип издания: CD, Web , VinylЖанр: Abstract, IDM, Ambient, Glitch, Experimental •Продолжительность: 30:49:27 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE850A2202A39CC4BBB8D91DBD9F86B0CD99770
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263653   (1021280) от 13.04.2021
-
-Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient, IDM, Experimental, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plague Of People (04:50)
- 02. Alcohole (05:44)
- 03. Euphoricore (05:31)
- 04. Harshlands (05:32)(   Читать дальше...   )Тип издания: WEBЖанр: Industrial/IDM/ExperimentalПродолжительность: 03:52:55 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355DC28C1B15AE8822EE312060B80C290E352986
 ```
 
 

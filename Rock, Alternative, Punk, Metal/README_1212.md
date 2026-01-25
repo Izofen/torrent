@@ -1,3 +1,57 @@
+###  Публикация: 1478985   (1009865) от 22.06.2021
+
+Sons of Liberty - Animism (2019) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's My Bad
+02. Rich Man Poor Man Beggar Man Thief
+03. Up Shit Creek
+04. Snake Hips Slim(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AD69B87CE2CEDBB6D6F7AD1D12DA4560E14A4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478963   (1009869) от 22.06.2021
+
+Sur Austru - Obarsie (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cel din urma [13:02]
+02. Taina [10:50]
+03. Codru Moma [04:30]
+04. Cant adanc [05:18](   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk MetalПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA9081837FAD1553F540AE0284B11D6B55019B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187958   (1009892) от 21.06.2021
 
 Foreigner - 23 albums, 48 CD (1977-2019) Discography [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
@@ -641,60 +695,6 @@ Timo Tolkki’s Avalon - The Enigma Birth (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F65D49C4A3E7C85A0A4686DCC681D71D31574CB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478191   (1010493) от 18.06.2021
-
-Nine Skies - 5.20 (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colourblind (06:02)
-02. Wilderness (feat. Steve Hackett) (06:04)
-03. Beauty of Decay (02:14)
-04. Golden Drops (04:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F8AA2C868A4FC774088C0BBE32E5A04CB0D0D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478168   (1010497) от 18.06.2021
-
-Styx - Crash Of The Crown (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fight Of Our Lives (01:54)
-02. A Monster (03:27)
-03. Reveries (03:03)
-04. Hold Back The Darkness (03:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FFEB2F47FC959CA7363510A4C6BE17FFDEC978
 ```
 
 

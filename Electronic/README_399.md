@@ -1,3 +1,84 @@
+###  Публикация: 1205470   (783434) от 10.02.2018
+
+VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John Dahlback  -  Everywhere (Elvis Benait Remix)  7:35
+02.  Joachim Garraud  -  X (Original Mix)  7:20
+03.  Tim Berg  -  Alcoholic (Niklas Gustavsson Ludvig Holm & Jonas Sellberg Remix)  7:36
+04.  Per QX & Don Tomaso  -  Introducing The Base (Original Mix)  6:48(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 02:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30E25423771628F59401A8E89806AC11958F6DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205561   (783460) от 10.02.2018
+
+Robert Rich - The Biode (2018) [FLAC|24/96|Lossless|WEB-DL|tracks] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Recalcitrant Malfeasance (03:14)
+02. Particles (04:35)
+03. Protista Mephista (08:21)
+04. Elevate the Hive Mind (07:29)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F98404CB26E19C33127FA356C3D5311F57A1D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205098   (783485) от 10.02.2018
+
+VA - Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maarten de Jong feat. Katty Heath  -  Free To Feel Again (Extended Mix)  5:47
+02.  Ferrin & Morris feat. Hysteria!  -  Horizon (Alan Morris Extended Mix)  5:43
+03.  Nitrous Oxide feat. Jess Morgan  -  Golden Horizon (Extended Mix)  7:01
+04.  Kaimo K  -  Uncharted (Extended Mix)  7:04(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E079713A4978C3F4FB979147EF5BC31E0003E06C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205449   (783491) от 10.02.2018
 
 Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
@@ -614,87 +695,6 @@ VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204895   (783796) от 09.02.2018
-
-VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cicada - The Things You Say (Dirty South Remix) (3:47)
-02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
-03.Mason - Exeeder (Original Mix) (2:56)
-04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205075   (783797) от 09.02.2018
-
-VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
-02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
-03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
-04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204927   (783798) от 09.02.2018
-
-Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Loneliness	4:41
-02.	Relax	6:30
-03.	Green Eyes	4:37
-04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 983496   (943694) от 06.02.2016
+
+VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eurotix - Life As It Slips Away (04:33)
+02. The Sweeps - Love Shines (03:50)
+03. Lichtenfels - Sounds Like A Melody (08:01)
+04. Fancy - Forever Magic (02:25)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 06:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA7B706B5758C7761E1D3F9ADC543DB210A4BBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363325   (943700) от 27.02.2020
 
 VA - Beatport Progressive Trance: Electro Sound Pack #15 (2020) [MP3|320 Kbps] <Progressive Trance>
@@ -679,33 +706,6 @@ VA - Отрывайся с лучшими хитами. Выпуск № 8 (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:911F24AC7850A989E302505E1DCC476043CE31FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363095   (944931) от 26.02.2020
-
-VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944931.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moam - Run With It
-002. Marwell - Jaipur (Radio Edit)
-003. Sunrider - Instant Moments
-004. Big Box - Nichtraucherzone(   Читать дальше...   )Жанр: Dance House, Tech HouseПродолжительность: 07:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284CD0617947AD77AF44750CB09FCD1C9016437F
 ```
 
 

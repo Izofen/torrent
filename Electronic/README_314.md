@@ -1,3 +1,81 @@
+###  Публикация: 1544936   (618391) от 17.04.2022
+
+VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Move (03:34)
+02. Martin Hiska - Shangla (03:40)
+03. Michael E - Lost In Thought (05:18)
+04. Beamy - Elmwood (04:37)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC737B4501B86FB899C881FA2560FC4A603702A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545000   (618392) от 17.04.2022
+
+Compilerbau - Discography (2000-2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human Sequencer 83 (3:46)Жанр: Synthwave, Retrowave, Outrun |Продолжительность: 12:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F39A1C347878DC1439746D85089C5FD89A0217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544966   (618396) от 17.04.2022
+
+Hocico - HyperViolent (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, Electro, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When the Trumpets of Hate Blow
+02. Broken Empires (Radio Version)
+03. Acts of Aggression
+04. Un Sepulcro Sin Cadaver(   Читать дальше...   )Жанр: Dark Electro, Electro, IndustrialПродолжительность: 01:25:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A579CAF18AC44F788631C830C2DD9ED871192B25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911288   (618409) от 22.06.2015
 
 VA - Special Treats Of Chill & Deep House (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -618,87 +696,6 @@ Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A598A9759022A05B66EA413B303CCB73000CEA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145445   (621547) от 25.06.2017
-
-Alizee Moreau - Sexy Relaxing Lounge And Chill Out Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahora Dice (04:41)
-02. Airone (04:41)
-03. Amor Amor Amor (03:42)
-04. Amor (04:26)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1503FD3C5E9342570C8B2A6230839540919D814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910373   (621565) от 20.06.2015
-
-VA - Ibiza Night Affairs The Very Best Of Chill House (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CDPM - Kalas (05:53)
-02. The Sura Quintet - Intimacy (05:32)
-03. Soul Emphasis - Going Deeper (06:16)
-04. Chiffre 100 - Need 2 Feel (06:51)(   Читать дальше...   )Производство: StereoheavenЖанр: Deep House, Chill HouseПродолжительность: 02:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24546BBBE5D7D9671A5EDE683DE90988342122E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145474   (621638) от 25.06.2017
-
-VA - Chill Out Ibiza: The Best Of 50 Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miraflores - Waves Of Love (Original Mix)  5:24
-02.  Schwarz & Funk - Angles (Original Mix)  6:49
-03.  8 Bit - Bizzare (Original Mix)  4:53
-04.  Arrojas - Didascalias (Original Mix)  5:15(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3723DA40230650CF14531DBE547C62C90C66C07F
 ```
 
 

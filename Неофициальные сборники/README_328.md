@@ -1,3 +1,30 @@
+###  Публикация: 1046181   (553072) от 26.08.2016
+
+VA - Летний заводной музон - 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553072.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brooke Candy - Changes
+002. Алекс Юлдашев - Сердцебиение
+003. Robin Stjernberg - Take Me Home
+004. Марсель - Здравствуй Мам(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D994492883F1339B46CC767DE10DBD4C1F19028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046182   (553118) от 26.08.2016
 
 VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Зайцев.нет: Музыкальные новинки Июль 2018 [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:283991963896F9711CEACAF7D4762E697435ED7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236243   (554603) от 16.07.2018
-
-VA - Deep House Collection Vol.179 (2018) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554603.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 22 Weeks - Happy Monday  (Original Mix)
-002. AFFKT - Jan Mayen (Niko Schwind Remix)
-003. ALPHANO - Totalitario (Original Mix)
-004. al l bo - Morning Of Space (Hopeful Peace Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B56F3C6D445A9782B377D2750AE89B68C331FE
 ```
 
 

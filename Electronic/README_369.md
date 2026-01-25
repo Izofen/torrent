@@ -1,3 +1,84 @@
+###  Публикация: 1528279   (734972) от 01.02.2022
+
+TodoTodo - Tecnodelia-Tendencias 1980-1981 (2012) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Respuesta Alternativa (2:57)
+02. Mass-Media Disco Mix (3:05)
+03. Safari En Afrika (2:34)
+04. Marsella Puerto (2:46)(   Читать дальше...   )Жанр: Electronic, Electro, Synth-popПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8495EEF18F253EF1EE88BBF5DEB34B97A698306
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398633   (735201) от 27.07.2020
+
+Robert Elster - Endless Observations (2020) Liquid Sound Design Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tryptamine Hills (08:14)
+ 02. Lizard Tales (09:17)
+ 03. Endless Observations (08:49)
+ 04. The Following (07:10)(   Читать дальше...   )Жанр: Psybient, Downtempo, AmbientПродолжительность: 01:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9356D6F8B37BC29A9C081385CF476A73768427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398661   (735252) от 27.07.2020
+
+VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy K, P.A.F.F. - We Are The Universe 3:05
+02. Merlo, Louisax - Is This Goodbye 3:14
+03. Richie Haley, Kita - Sun Kissed Love 2:25
+04. Antoine Simar - Be Alright 3:02(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34DB3C64BC37FAB5B8808C54A3B5027BEF7D025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528043   (735363) от 31.01.2022
 
 Seba - Ingaro (2022) [FLAC|Lossless|WEB|tracks] <Drum & Bass>
@@ -612,88 +693,6 @@ The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E97AC45D5B88C0BA89AF9F8A40CE044D20BCFB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525880   (739136) от 22.01.2022
-
-Tony Birch - Gamechanger (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Rider (3:54)
-02. Serene (3:59)
-03. Daydreamer (3:50)
-04. Gamechanger (3:46)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC82B9F724AF75686D5672C87B4B009BAB45CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 785018   (739231) от 10.05.2014
-
-VA - Pure... Chillout (2011) Box Set, 4 CD [FLAC|Lossless]<Electronic, Lounge, ChillOut>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739231.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой "комнате свиданий" (а именно так переводит Translate.Ru музыкальный термин Chillout) вы увидитесь, а вернее "услышитесь" с самыми знаменитыми композициями "для отдыха". Остынь, расслабься! Вот именно это каждым своим звуком и говорят они слушателям.
-Chillout – стиль электронной музыки, зародившийся в начале 90-х годов и взявший (   Читать дальше...   )01. Groove Armada - At the River  (3:04)
-02. Smoke City - Underwater Love  (3:59)
-03. Kinobe - Slip Into Something More Comfortable  (3:44)
-04. Skinny - Failure  (4:56)(   Читать дальше...   )Жанр: Electronic, Lounge, ChillOutПродолжительность: 04:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5563ED758A2DE45C8F90A4347A15B7BF36377B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283506   (739555) от 17.02.2019
-
-VA - Female Vocal Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - In A Thousand Skies (Original Mix)
-02. Stargazers feat. Fenna Day - Crystalize (Original Mix)
-03. The Blizzard feat. Carol Lee - Always A Stranger (Nitrous Oxide Remix)
-04. Rub!k feat. Sue Mclaren - Everglow (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FCF4B61B98C23530A175641C62781BEBA2868AD
 ```
 
 

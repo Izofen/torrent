@@ -1,3 +1,84 @@
+###  Публикация: 1321499   (459087) от 24.08.2019
+
+Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany 2019-07-13 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamaya Painters - Wasteland (Alex M.O.R.P.H. Remix)
+02. Paul Oakenfold - Madagascar
+03. Midway - Cobra (Niko Zografos Remix)
+04. Greg Downey - Midnight (Stoneface & Terminal Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7446164932D35710737652317E46DF1860C4C87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162492   (459145) от 01.09.2017
+
+VA - Deep House Hits (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ibiza Groove Squad - I Don't (Deep House dub version) (5:40)
+02. Edi P - All On You (7:27)
+03. Hans Justin - Let's Go Back (5:51)
+04. Michael J Mathews - Machine Aided Rhythm (7:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235F1039B3D77A2E7B220ECE99260B1277852965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162298   (459147) от 01.09.2017
+
+Jiva & Fr.om - Saturnine (2017) LP [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geologic (Original Mix) (07:34)
+ 02. Saturnine (Original Mix) (07:22)
+ 03. Remote Station (Original Mix) (07:25)
+ 04. Interference (Original Mix) (06:34)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281A654D16538A0B9301897758996A4526BA1F17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162397   (459148) от 01.09.2017
 
 Frainbreeze - A Year With Suanda (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -622,84 +703,6 @@ DJ Aligator - Kiss My B-ass (2009)
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241146   (460211) от 01.10.2010
-
-Matrix & Futurebound - Universal Truth (2007) [WavPack|Lossless]<Drum'n'Base>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Drum'n'BaseПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408024   (460228) от 10.09.2020
-
-Runaway Droid - Giant Space Lasers (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Code (4:52)
-02. Activation Sequence II (4:12)
-03. Giant Space Lasers (3:40)
-04. Training Program (3:54)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C68F3F93AE0E36B79614B5C34FC72F721DE23EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408021   (460231) от 10.09.2020
-
-Runaway Droid - Fragments (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encoder (2:55)
-02. Orientation (3:03)
-03. Time Warp (3:36)
-04. Digital Temple (3:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C1AAB060788DFCFF22E8D35579D9512E12FB7B
 ```
 
 

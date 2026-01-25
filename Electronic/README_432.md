@@ -1,3 +1,84 @@
+###  Публикация: 1382491   (819282) от 11.05.2020
+
+VA - Tropical & Future House Workout (2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Combo & Sander-7 feat. Tony T - Happy Every Day (Original Mix) 3:27
+02. Skelectro & Allenx feat. Norah B. with Itto - No Time (Spikaa Remix) 3:59
+03. Stephan F feat. Ya-Ya - Stay With Me (Extended Mix) 3:57
+04. Alpha Squad - All About The Music (Extended Mix) 4:08(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2284AC692A3781DB5115198E4EDC1B8F064B95DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117231   (819373) от 22.03.2017
+
+VA - Forever Chillout Set Collection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Loveliness [05:36]
+02. Enrico Donner - The Cherry On The Cake [06:08]
+03. Cane Garden Quartet - Close to You [05:30]
+04. Aquarius - Amiga E Amante (feat Adriana Macedo) [06:10](   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADEFBF4A0E2F5737961818E593F7BAF3FE019EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117325   (819374) от 22.03.2017
+
+VA - Blue Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cris Pacini – Vocal Song [01:47]
+02. Latin Aspect – Estrella [05:11]
+03. Surfer – South Beach [05:05]
+04. Twelve – David You Don’t Stop [05:06](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B6E9F602E77195185C4B6F1DF4F58B59F49D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117331   (819376) от 22.03.2017
 
 VA - Chill Vibes On Air (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -609,87 +690,6 @@ VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93758F9C92D7E307ACEC42D43BF287EDFC9758C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381898   (822190) от 09.05.2020
-
-Ludovico Einaudi - 12 Songs From Home (2020) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Modern Classical, Ambient, Piano>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sense Of Symmetry (5:04)
- 02. Oltremare (11:06)
- 03. Berlin Song (6:40)
- 04. Tu Sei (8:31)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1400D501FD2ABD8342B9C928DACF959F09D1034A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101935   (822267) от 09.05.2020
-
-Cubering - Discography 14 Releases (2012-2020) Microcosmos, Uxmal Records, Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (03:36)
- 02. Slider (05:52)
- 03. Sureprize (06:11)
- 04. Trembling (08:27)(   Читать дальше...   )Тип издания: WEBЖанр: Psybient/Downtempo/Psychill/AmbientПродолжительность: 09:55:46 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F0EBE50AC7214A1DE78D8968BA1AE7C7F7BC21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196499   (822309) от 03.01.2018
-
-VA - Erotica Vol. 3 (Most Erotic Smooth Jazz And Chillout Tunes) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael E - Into The Light (Original Mix) 6:57
-02. Brazil Beat - Fragile (Original Mix) 3:08
-03. Andrea Cardillo - Nuages (Original Mix) (Feat. Gabrielle Chiararo) 4:25
-04. Brazil Beat - Ain't No Sunshine (Original Mix) 3:56(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB5C33DEC46A896BCAA3B7938A2986CFE5AFA34
 ```
 
 

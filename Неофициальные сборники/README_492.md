@@ -1,3 +1,28 @@
+###  Публикация: 1016862   (769521) от 15.05.2016
+
+VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (DJ Shevtsov Remix) 05:02
+002. Ane Brun - Big In JapanЖанр: Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, ChilloutПродолжительность: 07:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6ABB62EA954EDC341B28E5349ECB26FE46004
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016840   (769560) от 15.05.2016
 
 VA - Правильная музыка радио Шансон (2016) [MP3|320 кб/с] <Шансон>
@@ -668,33 +693,6 @@ VA - Зайцев.Нет: Лучшие Новинки Мая (2016) [MP3|192-320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D55A25571A070E64953F6829A1108271E40478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391844   (771184) от 22.06.2020
-
-VA - Romantic 80s (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Rea - I Just Wanna Be with You 03:42
-02. A-ha - Stay On These Roads 04:44
-03. The Dream Academy - Everybody's Gotta Learn Sometime 03:44
-04. Foreigner - Waiting for a Girl Like You 04:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A845B2C86E911CF411B69E76B14BC0AD271727E0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1236243   (554603) от 16.07.2018
+
+VA - Deep House Collection Vol.179 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554603.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 22 Weeks - Happy Monday  (Original Mix)
+002. AFFKT - Jan Mayen (Niko Schwind Remix)
+003. ALPHANO - Totalitario (Original Mix)
+004. al l bo - Morning Of Space (Hopeful Peace Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B56F3C6D445A9782B377D2750AE89B68C331FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236240   (554604) от 16.07.2018
 
 VA - Club Dance Ambience Vol.156 (2018) [MP3|320 Kbps] <Club Dance>
@@ -664,33 +691,6 @@ VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305892   (555931) от 02.06.2019
-
-VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aaron Smith - Dancin (Krono Remix) (4:15)
-2.Calvin Harris & Rag'n'Bone Man - Giant (3:47)
-3.Billie Eilish - Bad Guy (3:14)
-4.Mabel - Don't Call Me Up (R3hab Remix) (2:33)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C7E55B824F089BF6EBF487ECEF8DB4919E70AB
 ```
 
 

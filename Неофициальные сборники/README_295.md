@@ -1,3 +1,36 @@
+###  Публикация: 543415   (496323) от 05.09.2012
+
+VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amsterdam Avenue And Deepside Deejays - Gipsy Romano (Dj Edo Ossepyan Ft Dj Yogurt Remix)
+02. Michael Canitrot Feat. Polina - Right On Me (Tv Noise Remix)
+03. Gathania - Nobody's Breaking Me (Radio Edit)
+04. Luigi Lusini & Starchaser Feat. Molly Bancroft - All I Want (Radio Mix)
+05. Aroma - Zorba's Dance (Sirtaki) (Rico Bernasconi Remix)
+06. David Ferrera - Give Me Love Tonight (Club Mix)
+07. Tacabro - Mujeres (Radio Edit)
+08. Fly Project - Musica (Radio Edit)
+09. Kelly Clarkson - What Doesn't Kill You (Stronger)
+10. Da Brozz - Move On Baby (Radio Edit Instrumental)(   Читать дальше...   )Жанр: ClubПродолжительность: 06:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECFC1A7F8626D57107477029A1B35F3D7E4076C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542851   (496336) от 05.09.2012
 
 VA - Супер Хитовый Заряд Новинок Русский (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -694,33 +727,6 @@ VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564925   (497637) от 21.07.2022
-
-VA - Italo Disco & Old Funky (2022) [MP3|320 Kbps] <Disco, Dance, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497637.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Italian Party - Summer Crazy
-002. Benedic Lamdin - Moving Up All The Time
-003. Candido - Jingo
-004. Disko Junkie - Dancin' Machine(   Читать дальше...   )Жанр: Disco, Dance, RemixesПродолжительность: 12:19:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5D1F1E139C7B639A7EE3951CA8A8AA26961DF3
 ```
 
 

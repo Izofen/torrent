@@ -1,3 +1,84 @@
+###  Публикация: 1246109   (465671) от 09.09.2018
+
+Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, House, Minimal, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Good, So Right (12:18)
+ 02. Heat 2 (08:02)
+ 03. Heat 4 (08:18)
+ 04. Heat 1 (09:58)(   Читать дальше...   )Тип издания: WEB, VinylЖанр: Techno, Ambient, House, Minimal, Dub Techno •Продолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58B75C57562853FFB58D747C5F58F0236046E380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246203   (465676) от 09.09.2018
+
+VA - Body Language, Vol. 20 (Mixed & Compiled by Emanuel Satie) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Egg - Cold (5:08)
+02. Pezzner - Heartline (Club Version) (4:03)
+03. STL - Silent State (11:45)
+04. Kiani, His Legion - Eindelozer (18:03)(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 03:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76AF1EFFEAA93FE3565A6F6413D6E3048E61D433
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246099   (465680) от 09.09.2018
+
+Zych - Lebensgefahr (2018) Urban Poetry [FLAC|Lossless|WEB-DL|tracks] <Experimental, Spoken Word, Bass, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lebensgefahr (03:17)
+ 02. Skit 1 (01:30)
+ 03. Adler (04:18)
+ 04. Skit 2 (01:38)(   Читать дальше...   )Жанр: Experimental, Spoken Word, Bass, AmbientПродолжительность: 00:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13C7175CB6F41249A4D0D0580C85DCC5879DA728
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246263   (465684) от 09.09.2018
 
 Double N - Club Ghost (2000) Single [FLAC|Lossless|tracks + .cue] <Trance>
@@ -603,87 +684,6 @@ VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407121   (468611) от 06.09.2020
-
-KMRU - Peel (2020) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Are You Here (15:10)
- 02. Well (05:30)
- 03. Solace (12:50)
- 04. Klang (06:10)(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C969EED0063477E60B3A2CE4FB473FC1852737
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940481   (468668) от 24.09.2015
-
-Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headlights (feat. Ilsey)
- 02. Sugar (feat. Francesco Yates)
- 03. Heatwave (feat. Akon)
- 04. Yellow(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DF1D0F2148B5E475FDD36501533B9FFE91D667
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058529   (468828) от 01.10.2016
-
-VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knight - Yebisah (original mix) [08:23]
-02. Ian Pooley - Cold Wait (Bicep dub) [06:22]
-03. Eats Everything - Monegros (original mix) [07:17]
-04. Dubspeeka - K377 Unfriended (original mix) [08:22](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 08:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
 ```
 
 

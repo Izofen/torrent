@@ -1,3 +1,57 @@
+###  Публикация: 1504185   (811985) от 23.10.2021
+
+Nestor - Kids In A Ghost Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Fanfare For The Reliable Rebel (Intro)
+02. On The Run
+03. Kids In A Ghost Town
+04. Stone Cold Eyes(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677551FF9A4889EACEEC3FDFAED5EEC64260E9F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198076   (812017) от 09.01.2018
+
+Jay Ray - Self​-​Resonance (2017) Deluxe Edition [MP3|320 Kbps] <Modern Metal, Alternative Metal, Electronic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delivered Into Arrival (02:12)
+02. 137 (03:35)
+03. Left Of You (02:22)
+04. Crucial Fracture (03:52)(   Читать дальше...   )Жанр: Modern Metal, Alternative Metal, Electronic MetalПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A972BEFAA2802699D437F47E98C9AFB7C226B4C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197958   (812018) от 09.01.2018
 
 Snapped Ankles - Come Play the Trees (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -642,60 +696,6 @@ magnet:?xt=urn:btih:AF652A6BD8D4DBDB41F6E8E1E0D3C8660A6585BB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C07BD2B38EC96B61BAFA3A4AEC1FC5A1F93505C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008643   (813256) от 19.04.2016
-
-Александр Кутиков, группа "Нюанс" - Бесконечномгновенно (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всё так просто
- 02. Родина моя
- 03. Дорогой слов и откровений
- 04. Одна(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FE955AB294538D9C7F02F87D7284A07357CB8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008820   (813418) от 19.04.2016
-
-ZZ Top - The Very Baddest (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme All Your Lovin' (3:32)
-02. Sharp Dressed Man (2:59)
-03. La Grange (3:53)
-04. Tush (2:17)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 02:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66FDAFC472988A0B7667F9E26EB9D5E0F54DC34
 ```
 
 

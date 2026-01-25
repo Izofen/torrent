@@ -1,3 +1,57 @@
+###  Публикация: 1481062   (593233) от 07.05.2022
+
+Lord of the Lost - Judas (2021) 4CD, Deluxe Version [MP3|320 Kbps] <Gothic, Industrial, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alles wird gut, aber... (feat. Lacrimosa) [00:03:48]
+02. Dein Blick (feat. Letzte Instanz) [00:03:42]
+03. Pale Rider (feat. Lolita Komplex) [00:03:42]
+04. Revenge (feat. Majorvoice) [00:03:42](   Читать дальше...   )Жанр: Gothic, Industrial, Symphonic MetalПродолжительность: 4 CD, 03:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28FEE5CD6BB70F9ABC9D2E1916F6209A9288757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549374   (593308) от 07.05.2022
+
+Lord Of The Lost - The Heartbeat Of The Devil (2022) EP [MP3|320 Kbps] <Gothic Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heartbeat of the Devil (Single Version) (3:29)
+02. Judas (Lady Gaga Cover) (4:11)
+03. Children of the Damned (4:41)
+04. Wig in a Box (5:11)(   Читать дальше...   )Жанр: Gothic Metal, ElectronicПродолжительность: 00:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28056CE506B872F1F155F63C82D9F554DE1B4C8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549395   (593311) от 07.05.2022
 
 Mental Care Foundation - III (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Stoner, Thrash, Heavy Metal>
@@ -641,60 +695,6 @@ Mark Morton - Anesthetic (2019) [FLAC|Lossless|tracks + .cue] <Groove Metal, Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECA40DCC5C2BED98B2541B86173634D9801289CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549114   (593894) от 06.05.2022
-
-Sabaton - The Symphony To End All Wars (2022) Symphonic Version [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarajevo (4:45)
-02. Stormtroopers (3:53)
-03. Dreadnought (3:25)
-04. The Unkillable Soldier (3:36)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41555484270A5CCAA2FD0A0144B716B7E5EC7315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549217   (593897) от 06.05.2022
-
-Arcade Fire - WE (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Art.Rock, Indie Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Anxiety I (5:27)
-02. Age of Anxiety II (Rabbit Hole) (6:41)
-03. Prelude (0:30)
-04. End of The Empire I-III (5:23)(   Читать дальше...   )Жанр: Art.Rock, Indie Rock, SynthpopПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49C72776D9A8652E3C3000F115E1C8A99DC6E019
 ```
 
 

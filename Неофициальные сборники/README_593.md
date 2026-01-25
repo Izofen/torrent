@@ -1,3 +1,30 @@
+###  Публикация: 1493689   (894088) от 04.09.2021
+
+VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eugenio Tokarev - Time
+002. Kiral - Again
+003. Eskuche - The Sun
+004. Storgards - Be Kind(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993797   (894114) от 06.03.2016
 
 VA - Spring Relaxation Cafe: Cool Ambient And Chillout Moments (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -683,33 +710,6 @@ VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101241   (895381) от 06.02.2017
-
-VA - Top DJ. Клубный хит (2017) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895381.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ленинград - Экспонат (Dj Ilya Lavrov Remix)
-002. Тамерлан И Алена - Потоки Ветра (Dj Oneon Remix)
-003. Carla's Dreams - Sub Pielea Mea (Johnny Beast Remix)
-004. Моди Глю & Anagramma - Mambaka(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 05:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEA4F8AB13A57359FC2D23A770E509DAAF950E8A
 ```
 
 

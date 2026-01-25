@@ -1,3 +1,84 @@
+###  Публикация: 926712   (528502) от 13.08.2015
+
+Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amplifier (03:35)
+02. Converter (04:18)
+03. Park Avenue 1989 (04:25)
+04. Controlled Faith (04:27)(   Читать дальше...   )Жанр: Electronic, Electro, Disco, Synth-popПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9259A7E3899B7F7DC954E40E08DED9A5CF9979C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156153   (528556) от 06.08.2017
+
+Alter Nature - Chillout Collection Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Clouds Of Inspiration (Original Mix)  9:47
+02.  You Were Always Too Far Away (Original Mix)  8:21
+03.  They Never Spoke Again (Original Mix)  8:48
+04.  Beauty Lies (Original Mix)  6:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E170B6C28324605FC36AB17BDB4B19E8E736EF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156198   (528558) от 06.08.2017
+
+VA - Delicious Deep House Collection Vol.3 (2017) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  PulpTalks - When She Smiles  5:22
+02.  JR from Dallas - Yokohama Ghetto  8:04
+03.  Erkan Kara - New Life  5:47
+04.  Marco Madia - Thaliacea  6:51(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82F30AA045235D70CC643C6409646075D68DB2B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926641   (528579) от 13.08.2015
 
 VA - Club St Tropez 2015 (Mixed By Dj Jack-E & Djette Benji De La House) (2015) 2CD[FLAC|Lossless|WEB-DL]<House>
@@ -614,87 +695,6 @@ VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C68AF987EA3B8DB0C9DCE5513DFD6866A9A1317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558560   (530074) от 21.06.2022
-
-Melanohelios - Дискография (9 альбомов) (2017-2021) [FLAC 2.0|24/44,1|tracks|WEB-DL] <Dark ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-2017 - Void Acoustics
-2017 - Void Acoustics II
-2017 - III(   Читать дальше...   )Жанр: Dark ambientПродолжительность: 09:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D47BE6348A46C74D8F4D62BBB2FE340C773FB4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558482   (530081) от 21.06.2022
-
-David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [MP3|320 Kbps] <Dance, Electro Pop, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix) (Intro Edit)
-02. Shouse - Love Tonight (David Guetta Remix)
-03. Eurythmics - Sweet Dreams (David Guetta Remix)
-04. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix) w/ Tiësto - The Business (Acappella)(   Читать дальше...   )Жанр: Dance, Electro Pop, Big RoomПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD227A3CFEAF8AF069A07CDA5057820AA2611D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558658   (530184) от 21.06.2022
-
-39 Kingdom - Live @ Curonian Spit, Russia (2022-05-29) [MP3|320 Kbps] <Progressive House, Deep House, Indie Dance, Nu Disco>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goom Gum - Aposch
-02. Anturage & DJ Skif & Ira Ange - La Cassette
-03. Anturage & Alar - Singapore
-04. Airsand & TuraniQa - Take You Home(   Читать дальше...   )Жанр: Progressive House, Deep House, Indie Dance, Nu DiscoПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EEFD7E8A9B052F304525CC88BDA21BD530702B
 ```
 
 

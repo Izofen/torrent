@@ -1,3 +1,57 @@
+###  Публикация: 1398134   (736234) от 25.07.2020
+
+Zephyria - Celestial Insurrection (2020) [MP3|320 Kbps] <Progressive Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Insurrection (01:22)
+ 02. Sin Eater (05:32)
+ 03. God Butcher (05:48)
+ 04. Parasite Dreams (03:32)(   Читать дальше...   )Жанр: Progressive Metal, DeathcoreПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CFCB2EBCBBDA778BCDBF8F2E72820404DACE704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527560   (736389) от 29.01.2022
+
+The Beatles - Get Back: The Rooftop Performance (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Back (Rooftop Performance / Take 1) (4:43)
+ 02. Get Back (Rooftop Performance / Take 2) (3:24)
+ 03. Don't Let Me Down (Rooftop Performance / Take 1) (3:22)
+ 04. I've Got A Feeling (Rooftop Performance / Take 1) (4:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0C2E4043E6418B10F04DB24CF1079C9E83CF6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527754   (736422) от 29.01.2022
 
 Marchello - Destiny (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Metal, Hard Rock>
@@ -643,60 +697,6 @@ Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Fu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2206548B2C610FCB193DEE6BF89F4D30466960E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 131080   (737425) от 22.07.2020
-
-Земляне - The Best (2005) [MP3|128 - 320 kbps] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трава у дома (4:37)
-02. Путь домой (3:21)
-03. Я люблю природу (4:26)
-04. Артист (4:05)(   Читать дальше...   )Жанр: РокПродолжительность: 02:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86DC70AAD5A8DC280904ADC7F4B4DFF4E2D72CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856582   (737552) от 22.07.2020
-
-Emitt Rhodes - Emitt Rhodes (1970) Reissue /1993, One Way Records/ [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. With My Face On The Floor (3:10)
-02. Somebody Made For Me (2:25)
-03. She's Such A Beauty (2:24)
-04. Long Time No See (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9524287C191128C002E7F630BC70D2224522A9F4
 ```
 
 

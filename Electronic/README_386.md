@@ -1,3 +1,84 @@
+###  Публикация: 1392782   (769105) от 27.06.2020
+
+Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Pattern (3:07)
+ 02. Imagine to Be Free (The Concept) (6:04)
+ 03. Deception (7:00)
+ 04. Awaken the Soul (feat Photographs.) (6:48)(   Читать дальше...   )Жанр: Electronic, Tech House, Deep Progressive HouseПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652818766EEA87CE6E33A7A59B5ADF0210151E22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392543   (769212) от 26.06.2020
+
+VA - Sunny Lax Presents: 20 Years Of Anjunabeats (2020) 3CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House & Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker & Hanson – Gravity (Extended Mix) (08:13)
+02. Endre – I Kill for You (Probspot Extended Mix) (09:36)
+03. Signalrunners – Meet Me in Montauk (Extended Mix) (09:20)
+04. Sunny Lax – Isla Margarita (Extended Mix) (06:48)(   Читать дальше...   )Жанр: Electronic, Progressive House & TranceПродолжительность: 03:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6094A7D453CE087C4A12575D3E4FEB3F25A26AB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392382   (769231) от 26.06.2020
+
+VA - Kiez Beats: Synthwave, Vol. 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamsynth, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Glove - Streets Of 2043 (6:02)
+02. Sandman - Hardline (4:36)
+03. Stellar Dreams - The Crusader (3:40)
+04. Elay Arson feat. Nova and the Ghost - Laser Castle (4:04)(   Читать дальше...   )Жанр: Synthwave, Retrowave, Dreamsynth, OutrunПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B39C5E51629CE7A91CA83786913D5033EAB23A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392348   (769233) от 26.06.2020
 
 Black Hole - Ancient Curse (2020) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
@@ -607,87 +688,6 @@ magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E7DAA9A22BCC164343B6500FD192608A06850D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016239   (771730) от 13.05.2016
-
-VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tritonal - Blackout (Madison Mars Radio Mix ft Steph Jones) 3:55
-02. BRKLYN - Cant Get Enough (Radio Edit ft Mariah McManus) 3:28
-03. Cuebrick - Safe (Breathe Carolina Edit ft Linney) 3:26
-04. SCHALA - Night Sky (Radio Edit) 3:24(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82E58AAA44EE6A8DDF7DA74FCCB1BA8A3E4142B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213432   (771739) от 16.03.2018
-
-Nina - Sleepwalking (2018) Deluxe Edition [MP3|320 Kbps] <Synthpop, Synthwave, Nu-Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Memory (Extended Version) (5:08)
- 02. Born To Live (Original Mix) (4:11)
- 03. Sleepwalking (Original Mix) (4:52)
- 04. It Kills Me (Original Mix) (4:36)(   Читать дальше...   )Жанр: Synthpop, Synthwave, Nu-DiscoПродолжительность: 01:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D0061F23F8694A2A728016A6D067C89D05501D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016204   (771740) от 13.05.2016
-
-VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paschalis K - Balloons (Original Mix) 4:55
-02. Shashaf - Yo Its Me (Original Mix) 5:21
-03. Gruber - Night Time (Original Mix) 5:25
-04. Dykane - Never Enough (Original Mix) 3:42(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28F9199E7AEFDA6265417081C9801E2439FEE94
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1454136   (1026419) от 14.03.2021
+
+VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexander Tishkov - Feel So Good (Microsha 89 Remix) (3:18)
+02. Born In '82 - Night Never Ends (New Night Version) (4:38)
+03. Aurolab - You Are No More (7:38)
+04. #Mali - Brisbane (4:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9798A26CCC139011EB8A3E822B1C0EF31AD25F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454139   (1026425) от 14.03.2021
+
+VA - Synthwave Dreams, Vol. 12 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born In '82 - Night Never Ends (TELEGIMNASTIKA Remix) (6:09)
+02. Kukuzenko - Sweet As Candy (5:26)
+03. Microsha 89 - Play! (4:25)
+04. Aurolab - You Are No More (The Frost Remix) (4:47)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2CB2A611F3805A1F2692462F5D885A5D9A9C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454101   (1026435) от 14.03.2021
+
+VA - Techno Zone Vol. 4 (2000) [FLAC|Lossless|tracks + .cue] <Techno, Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anastasia - Join Me (Vectrex Remix) [06:28]
+02 - Westbam feat. TL Pipmps - Do The Rambo [06:59]
+03 - Lexy & K-Paul - The Greatest DJ (Extended Mix) [05:43]
+04 - Paffendorf - Where Are You ? (Radio Edit) [03:28](   Читать дальше...   )Жанр: Techno, Euro HouseПродолжительность: 01:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D97766DE76ACFEBFE026FEA8BD18A99343F3DAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454057   (1026437) от 14.03.2021
 
 Tricky - Fall to Pieces (Remixes) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, E﻿lectronic>
@@ -607,87 +688,6 @@ Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201058   (1027864) от 05.03.2021
-
-Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Leftfield, Abstract>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entcid (19:00)
- 02. Sinscur (13:07)
- 03. TiMetrics (09:10)
- 04. 5schim (04:33)Тип издания: CD, Vinyl, WebЖанр: IDM, Experimental, Leftfield, Abstract •Продолжительность: 10:45:10 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A56A05EC4092D78745D3E649E21C90D3885FFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226271   (1027899) от 05.03.2021
-
-Terminal 11 - Discography 15 Releases (2001-2021) Phthalo, Hymen Records, Cock Rock Disco [FLAC|Lossless|tracks+.cue, tracks] <Breakcore, IDM, Abstract, Glitch, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1999-2000 Track 1 (00:57)
- 02. 1999-2000 Track 2 (01:26)
- 03. 1999-2000 Track 3 (01:33)
- 04. 1999-2000 Track 4 (01:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Breakcore, IDM, Abstract, Glitch, Experimental •Продолжительность: 08:19:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106266DCDE0AA456DA7479EA92206A9E8E0C3987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452273   (1027914) от 05.03.2021
-
-Solar Fields - Reflective Frequencies (Remastered Special Digital Edition) (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6.7 (remastered) (04:23)
-02. Floating Channels (remastered) (07:46)
-03. Self Transforming Experience (remastered) (03:47)
-04. Blue Light... (remastered) (04:07)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 05:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D9EBC5F4432B2EB9801E324CDDFF71C846FF0E
 ```
 
 

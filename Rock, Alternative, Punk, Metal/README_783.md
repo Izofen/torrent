@@ -1,3 +1,57 @@
+###  Публикация: 928674   (521780) от 17.08.2015
+
+New Politics - Vikings (2015) [OGG| 411-540 кб/с]<Alternative, Indie Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everywhere I Go (Kings and Queens) (03:25)
+02. West End Kids (03:32)
+03. Girl Crush (02:54)
+04. Lovers in a Song (03:12)(   Читать дальше...   )Жанр: Alternative, Indie Pop RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE18950682F554F9DEB8EF8E96438B983C4D2028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928807   (521791) от 17.08.2015
+
+Plenty Of Nails - Aus Schatten Gerissen (2014) [MP3|320 кб/с]<Doom Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521791.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Der Gleisschlitzer
+2. Tiefer
+3. Memorandum
+4. Der Irrsinn(   Читать дальше...   )Жанр: Doom Death MetalПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD64FA218C861E0CEF3CBFFEE51E065C5DDB61CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928583   (521792) от 17.08.2015
 
 Joseph - Stoned Age Man (1970) [MP3|320 кб/с]<Hard Rock, Psychedelic Rock>
@@ -641,60 +695,6 @@ Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D4860CBF52C8C1B56BFFE7BEB5A656BFFA56BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928415   (522524) от 16.08.2015
-
-The Doors - Weird Scenes Inside The Gold Mine (1972) 2CD/2014,Elektra/[FLAC|image + .cue]<Psychedelic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break On Through (To The Other Side) [2:28]
-02. Strange Days [3:07]
-03. Shaman's Blues [4:48]
-04. Love Street [2:50](   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 01:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF7795505CEEF19C9CD3A6F4C7EDCCECDF45024A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928564   (522526) от 16.08.2015
-
-Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Dark (3:44)
-02. Smiling Karen (4:01)
-03. Slippin' & Slidin' (3:44)
-04. Strange Face (5:40)(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
 ```
 
 

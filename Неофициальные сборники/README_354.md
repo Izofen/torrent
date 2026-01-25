@@ -1,3 +1,27 @@
+###  Публикация: 357860   (585763) от 02.07.2011
+
+VA - Gold Retro Hits 80-90-X (2011) [MP3|256 kbps]<Pop / Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop / DiscoПродолжительность: 06:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB31E4869A7947F3637E9BC1FE52CC5E73F2D1C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918660   (585797) от 16.07.2015
 
 VA - Idol Classic Rock (2015) [MP3|256 кб/с]<Classic Rock>
@@ -646,33 +670,6 @@ VA - Ваши любимые песни от радио Шансон Часть 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15C074CEF7BCBF7670744BC08508AC39638E401D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040365   (587054) от 04.08.2016
-
-VA - Options Remake 150 Tracks - JULY (2016) [MP3|320 Kbps] <House, Progressive, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Vs Speedy J -  Pull Over 2:26
-002. Dash Berlin & DBSTF Feat. Jake Reese, Waka Flocka & DJ Whoo Kid -  Gold (Club Mix) 3:34
-003. Bob Sinclar Feat. Vybrate, Queen Ifrica, Makedah -  New New New (Nico De Andrea 2016 Remix) 5:30
-004. NERVO feat. Child Of Lov -  People Grinnin' (feat. The Chi 4:16(   Читать дальше...   )Жанр: House, Progressive, Deep HouseПродолжительность: 15:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E3100E8A1EB9DD1024492F384E257A8E2427480
 ```
 
 

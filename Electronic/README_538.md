@@ -1,3 +1,83 @@
+###  Публикация: 1842221   (1048665) от 15.12.2025
+
+VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raul Perez - El Tiempo (5:32)
+02. Ildar Bik, Tibetania - Talika (5:49)
+03. Setrian - Condor (4:48)
+04. Kaisser Bouzriba - Deep in My Soul (5:59)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F1A428239242CD868372B12DD775AED8EAF533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842829   (1048792) от 17.12.2025
+
+VA - Gert Year Best Collection 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master Beat Projekt & Rollerbabe - Voice In The Sky (Original Mix) [5:42]
+02. Roman Sand - Aquarius (Original Mix) [6:03]
+03. Invisible Signs & Higher Instincts - Eternal Travellers (Original Mix) [8:11]
+04. Semper T. - Fall Mood (Original Mix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A9939B1C18378F79E7124881BA4AB4E6FA595C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1842791   (1048872) от 17.12.2025
+
+Niel De One - Club Tools 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tool 4 (Original Mix)
+02. Tool 5 (Original Mix)
+03. Tool 6 (Original Mix)Жанр: HouseПродолжительность: 00:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F279F9755A644D56091DC02FE227D5D9428540D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842716   (1048930) от 17.12.2025
 
 VA - Anjunadeep The Yearbook 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
@@ -608,87 +688,6 @@ VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845071   (1050325) от 29.12.2025
-
-VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - SSONDA 02:43
-02. 90bangerz - Para Ri Para Ra 02:05
-03. JLUIS - Universe 03:10
-04. Stephan F - Supernova 03:04(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D49C1A617F0A511C5EFCB19CECB9FB8582177F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844913   (1050412) от 28.12.2025
-
-VA - 25 Years Of Anjuna Mixed By James Grant (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (02:55:30)
-01. Cubicolor - Got This Feeling (Mixed) 07:36
-02. Jody Wisternoff - Dapple (Mixed) 02:53
-03. 16BL - Nobody Seems To Care (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 09:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844835   (1050417) от 28.12.2025
-
-VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, Deep House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.Markakis - Love Away (Extended Mix) [6:45]
-02. Tommy Gustav - Nobody Else (Extended Mix) [6:40]
-03. Yves Murasca & Rosario Galati - Close Your Eyes (Karol XVII & MB Valence Loco Extended Remix) [6:41]
-04. Kubinowski & Mafia Mike - If You (Extended Mix) [5:37](   Читать дальше...   )Жанр: House, Deep House, Progressive House, Organic HouseПродолжительность: 03:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
 ```
 
 

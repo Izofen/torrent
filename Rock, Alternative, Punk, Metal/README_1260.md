@@ -1,3 +1,57 @@
+###  Публикация: 1449203   (1030239) от 20.02.2021
+
+Кровавый Риф - Африказия (2021) EP [MP3|320 Kbps] <Folk Punk, Art Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Горилла [00:04:40]
+02 - Нххххх стать [00:04:42]
+03 - Перехунда Септулай [00:03:39]
+04 - 8 бит [00:04:46]Жанр: Folk Punk, Art PunkПродолжительность: 00:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89348920BE773AD6E4607350FFA8688407A05F29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449094   (1030240) от 20.02.2021
+
+Raw Silk - The Borders Of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Lifetime
+02. Nobody Fills The Loneliness
+03. Chimera
+04. Night Time Angels(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B9146A705AC2D6D17023D166120BAC5C9DFA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448934   (1030243) от 20.02.2021
 
 Natural Born Machine - Human (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -640,60 +694,6 @@ Ramayan - Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BF2E5700F66F1893030EEAE0C2E893F6596745A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448508   (1030693) от 18.02.2021
-
-Thrudvangar - 6 Studio Albums (2004-2020) 6xCD [FLAC|Lossless|image + .cue] <Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030693.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Ahnenthron
-2006 - Walhall
-2007 - Zwischen Asgard Und Midgard
-2010 - Durch Blut Und Eis(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 04:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC65F343EB3C28419E610FA6A844DC7DDB9FB65F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448596   (1030710) от 18.02.2021
-
-Die Krupps - Rings Of Steel (1995) [FLAC|Lossless|image + .cue] <Electronic, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloodsuckers (Die Arzte Remix) (5:37)
-02. To The Hilt (Clawfinger Remix) (3:40)
-03. Crossfire (Faith No More Remix) (4:47)
-04. Language Of Reality (Nine Inch Nails Remix) (4:42)(   Читать дальше...   )Жанр: Electronic, IndustrialПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1CB386338A7E3DC7CABF9BA606BBBA3776EA91
 ```
 
 

@@ -1,3 +1,63 @@
+###  Публикация: 518582   (641455) от 04.07.2012
+
+Allele - Next To Parallel (2011) [FLAC|Lossless]<Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_641455.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Let It Go
+2. Closure
+3. What I Get
+4. Dead And Cold
+5. Drone
+6. Something Cured
+7. Feed The Wolves
+8. Hurt
+9. Chains Of Alice
+10. Answers(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032907   (641502) от 09.07.2016
+
+Николай Носков - Лучшие песни в сопровождении симфонического оркестра (2001) Live [FLAC|Lossless|image + .cue] <Pop Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дышу тишиной (4:59)
+02. Зимняя ночь (4:02)
+03. Очарована околдована (5:49)
+04. Исповедь (3:51)(   Читать дальше...   )Жанр: Pop Rock, ClassicalПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70AD16949DBA0AC9EB5F19DC53C6B25F4AEF1601
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906851   (641507) от 10.06.2015
 
 Владимир Кузьмин - Endorfin IV: Ангелы-Мечты (2014) [FLAC|image+.cue]<Rock>
@@ -653,60 +713,6 @@ Cobra Spell - Anthems Of The Night (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D491342991D45191472F471C992A96AD35EF47F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541812   (642619) от 04.04.2022
-
-Twin Void - Free From Hardtimes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Hardtimes [00:01:34]
-02 HELLCAT [00:03:21]
-03 Bird Days [00:04:58]
-04 Poor Ol' Me [00:01:47](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner'RollПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E29D325D16C97F69DB03E4E77463772BB653CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541559   (642724) от 04.04.2022
-
-VA - Sixty Hits Of The 60s (1996) 3CD, Compilation, BMG[FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Merrilee Rush - Angel Of The Morning (3:12)
-02 - The Lemon Pipers - Jelly Jungle (Of Orange Marmalade) (2:21)
-03 - Johnny Young - It's A Sunny Day (2:30)
-04 - 1910 Fruitgum Company - 1,2,3, Red Light (2:10)(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & Country, Pop Rock, Bubblegum, Beat, Surf, Psychedelic RockПродолжительность: 3CD, 2:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A20A78BE5B7C7F50A245DCD465EF865D248D4216
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1042723   (576725) от 14.08.2016
+
+VA - German Top 50 Official Dance Charts (22.08.) (2016) [MP3|320 Kbps] <House, Progressive, Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Solveig & Tkay Maidza  -  Do It Right (Original Mix)  3:33
+02. EDX  -  Roadkill  3:26
+03. Bingo Player  -  Cry Just A Little (A-Trak And Phantoms Remix)  4:39
+04. Don Diablo Ft. DYU  -  Drifter  3:00(   Читать дальше...   )Жанр: House, Progressive, Electro House, Dance, ClubПродолжительность: 03:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2ABBB12771D0E9673C48F5844C43CF90F0E2266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920520   (576789) от 24.07.2015
 
 VA - Best Of Rock 100 Hits (2015) [MP3|320 кб/с]<Thrash Metal, Funk Metal, Britpop, Alternative Rock>
@@ -668,33 +695,6 @@ VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15BCD93318AD014A2DB8ED50BEB659688999B8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150878   (578022) от 16.07.2017
-
-VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SRNDR - Astrea (Radio Edit)  3:02
-02.  Dave Gate - Without You (Radio Edit)  3:12
-03.  Lvther - Some Kind Of Magic (feat. Myzica)  3:14
-04.  Masterbeat - Hold Me Tonight (Radio Edit)  3:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E86DA60434378382AEEB774095F1E3DBAED95D
 ```
 
 

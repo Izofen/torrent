@@ -1,3 +1,83 @@
+###  Публикация: 1122234   (798796) от 05.04.2017
+
+Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undertow (Tuff City Kids Remix) (8:11)
+ 02. Left To My Own Devices (Super Version) (5:31)
+ 03. Burn (Baba Stiltz Remix) (10:22)Жанр: House, Tech HouseПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026AF669D11A7C686CDA3758EB4CE7D677883E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122274   (798810) от 05.04.2017
+
+VA - Jazz Mood Cocktail 25 Instrumental Jazz Music Soundtrack for Bar Restaurant Cafe (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo'jardo - Let's Party
+02. Ivan Rodionov - Street Cafe
+03. Marc Hartman - Crushing Waves
+04. Velvet Dreamer - Oasis(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E67BFA57E9EAA272241DAE3C89004A156649B0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122327   (798829) от 05.04.2017
+
+VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+02.  Wolkenlos - You Can (Vocal Deep House Mix)  7:35
+03.  Cheap Sunglasses - Till The End (Million Colours Remix)  4:55
+04.  Filtercut - Time Won't Wait (Club Mix)  6:52(   Читать дальше...   )Жанр: HouseПродолжительность: 05:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122535   (798846) от 05.04.2017
 
 VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumental>
@@ -611,87 +691,6 @@ VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121983   (799248) от 04.04.2017
-
-VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leonid Bannikov - Black Princess (Chillout Mix)  5:19
-02.  CJ RcM - Mallorca (Chillout Mix)  4:38
-03.  Doors In The Sand - True Story (Chillout Mix)  4:19
-04.  Diamans - Reach Heavens (Chillout Mix)  4:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABB0B2A5BD9A232B1525F78EAA4385F2D28E788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122187   (799251) от 04.04.2017
-
-VA - Sexy Deep House (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Vegas - Hold Me Down
-02. Echoboy - Get Do It
-03. DJ Favorite - Beautiful Night - Mars3ll Remix
-04. Plastik Night - Bono(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB10F8E7228D4D849326609EE0500700D4F6435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121965   (799252) от 04.04.2017
-
-VA - Chillout Summer Session Ibiza Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Skendo - Romantic Beach Dinner  3:03
-02.  Mari Billa - Kids Of The Moon  3:01
-03.  Xavier Baptist - The Early Bird  3:33
-04.  Tom Hold - Journey  5:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A590DAC7F9BC88FC0D8CB2E349AEF70547AB27
 ```
 
 

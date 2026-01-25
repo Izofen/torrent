@@ -1,3 +1,57 @@
+###  Публикация: 927174   (822105) от 09.05.2020
+
+In Extremo - 20 Releases (1997-2020) [FLAC|tracks|Lossless] <Folk-Metal, Neue Deutsche Harte, Medieval Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1997 - Gold
+1998 - Hameln
+1998 - Weckt Die Toten!
+1999 - Verehrt Und Angespien(   Читать дальше...   )Жанр: Folk-Metal, Neue Deutsche Härte, Medieval MetalПродолжительность: 23:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75EBD4799A3F730D58C7CDA69A945BC66CFE4ADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381878   (822252) от 09.05.2020
+
+System Of A Down (SOAD) - 7 albums, 3 singles, 11CD (1998-2011) [FLAC|Lossless|image + .cue | tracks + .cue] <Alternative Metal, Nu Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Их музыка — это интереснейший в музыкальном отношении саундтрек к американской жизни времен президентства Джорджа Буша. Их музыка — это плотный звук экспериментального метала и рока с фрагментами симфонического драматизма и контрастного вокала. Армянские мотивы с быстрыми и агрессивными гитарными риффами и критические тексты, затрагивающие вопросы политики. Группа, (   Читать дальше...   )--------------------------
+
+01. Serious (2:08)
+02. Funny (2:55)(   Читать дальше...   )Жанр: Alternative Metal, Nu Metal, Post Rock |Продолжительность: 06:30:34 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DEDA14B8BDC36462205EC4228822F23BD06D46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598538   (822271) от 09.05.2020
 
 Demons & Wizards - Touched By The Crimson King (2005) [FLAC|Lossless]<Heavy Metal>
@@ -639,60 +693,6 @@ Circus Maximus - Isolate (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767CAB17A903C3F1F9BE6A57C756FD95B9C36099
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382006   (822782) от 09.05.2020
-
-Deadlock - Wolves (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Domination [00:47]
-02. We Shall All Bleed [06:04]
-03. Code Of Honor [04:27]
-04. Losers' Ballet [06:39](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51716E4D8DEB65E0EA39C2A7938254D5DB9D27B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382022   (822783) от 09.05.2020
-
-Diecast - Internal Revolution (2007) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Internal Revolution
-02. Never Forget
-03. Hourglass
-04. Fractured(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D987BD414B1587DD84CF9138EEA16711FB08C8
 ```
 
 

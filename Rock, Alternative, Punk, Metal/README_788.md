@@ -1,3 +1,57 @@
+###  Публикация: 1559049   (527192) от 24.06.2022
+
+Cân Bardd (Can Bardd) - Devoured by the Oak (2021) Limited edition [FLAC|Lossless|image + .cue] <Epic Black metal, Folk metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527192.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Echoes of the Moss (05:02)
+2.Une couronne de branches (10:31)
+3.Devoured by the Oak Pt.I  (08:34)
+4.Devoured by the Oak Pt.II (08:50)(   Читать дальше...   )Жанр: Athmospheric/Epic Black metal, Folk metalПродолжительность: 57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07A72B247D1945059CD92D6E8FFC81D56C081B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559120   (527195) от 24.06.2022
+
+Pagan Rites - Embrace the Torments of Hell (2010) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Int(r)o the Gates of Obscurity (05:13)
+02. Praise Hell Satan (02:23)
+03. The Horned Immortal (04:28)
+04. Die In Peace... Arise in Chaos (02:10)(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60AB75EA84B4F04BD3D86ED1A421E6DDE8162D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559133   (527196) от 24.06.2022
 
 Pater Tenebrarum - Of Gods and Madmen (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
@@ -642,60 +696,6 @@ Heir Apparent - The View from Below (2018) [FLAC|Lossless|image + .cue] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2828A2785F5DEF8E63FAA33B749D81C224107E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313035   (528288) от 07.07.2019
-
-Bornholm - March for Glory and Revenge (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro - Reconquering the Carpathians /02:22/
-02.Call of the Heathen Horns /04:47/
-03.From the Blackness of Aeons /05:19/
-04.Mournful Hymns /05:03/(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0878F25ED0293884C54D6C94DC288758C8B21A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156246   (528496) от 06.08.2017
-
-Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything_Now (continued)
-02. Everything Now
-03. Signs of Life
-04. Creature Comfort(   Читать дальше...   )Жанр: Indie Rock, RockПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
 ```
 
 

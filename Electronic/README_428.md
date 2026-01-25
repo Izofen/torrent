@@ -1,3 +1,81 @@
+###  Публикация: 1383694   (809969) от 16.05.2020
+
+Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House, House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Is A Dancer (feat. Mabel) (2:48)
+02. Nothing Really Matters (feat. Becky Hill) (2:37)
+03. Ride (feat. The Kid Daytona & Roe) (3:23)
+04. Ritual (feat. Jonas Blue & RITA ORA) (3:19)(   Читать дальше...   )Жанр: Future House, House, DanceПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F0AD56CBAE755982F8FAEC07E77AF0EB180495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009512   (810034) от 21.04.2016
+
+VA - Escapism 3 (Liquicity Presents) (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pogo - No Worries (Hybrid Minds Remix)
+ 02. Makoto - YGMYC
+ 03. Championdnb - Stratos
+ 04. Dualistic & Subsequent - Sunrise (feat. Ella)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B1199131473B5539BD93BE8EC7F89E8CBB4D6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317589   (810094) от 02.04.2011
+
+Class B Band - Movie T (2011) [MP3|320 kbps]<Tech House, Nu-Disco, Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Nu-Disco, Techno, ElectronicПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A145F54F1A059761D42C95EE0A16899387603C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383710   (810102) от 16.05.2020
 
 Dimitri Vegas and Like Mike - Garden Of Madness (2020) EP [MP3|320 Kbps] <Electro House>
@@ -614,87 +692,6 @@ VA - Drum & Bass Annual 2018 Sampler (Viper Presents) (2018) [MP3|320 Kbps] <Dru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812294F1B09623723670DF424090A7BC8154AEA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197318   (811777) от 09.01.2018
-
-VA - High Class Tech House Music Nonstop (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joscha Rickert – Wing
-02. Joel Fuel – Jazz
-03. Jeff Haymaker – Annual
-04. Jad Peak – Theft(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEC1609630FD8D393A9B6493584A424D07E41C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009146   (811785) от 20.04.2016
-
-ATB - Trilogy (2007) 2CD [FLAC|Lossless|tracks + .cue] <Breakbeat, Trance, Euro House>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811785.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Justify (3:48)
-02. Desperate Religion (4:39)
-03. Renegade (5:38)(   Читать дальше...   )Жанр: Breakbeat, Trance, Euro House, AmbientПродолжительность: 02:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD712A4E2ACABB430338FE12880B9976F4587742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008894   (811788) от 20.04.2016
-
-Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House,>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undisguised (6:21)
-02. Copilot (6:49)
-03. Brizzle (8:09)
-04. Fields Without Fences (6:40)(   Читать дальше...   )Жанр: Tech House, Deep House,Продолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCCFD1F5B5DD7D156632F8B0090C3D1004CB62A
 ```
 
 

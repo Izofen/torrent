@@ -1,3 +1,57 @@
+###  Публикация: 1369943   (900428) от 25.03.2020
+
+Facs - Void Moments (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy [03:22]
+02. Teenage Hive [03:03]
+03. Casual Indifference [03:39]
+04. Version [06:17](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49E3F9B91B01AEFB7A3854EC9B946C5ADD72D565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369954   (900430) от 25.03.2020
+
+Infected Rain - Embrace Eternity (2014) [FLAC|Lossless|tracks + .cue] <Nu Metal, Metalcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling Through Time (1:04)
+02. Hysterical Watches (4:33)
+03. Dancing Alone (3:52)
+04. Count To Three (3:31)(   Читать дальше...   )Жанр: Nu Metal, Metalcore, Melodic Death MetalПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A8515A1D5C8F1936A3DB0DE24CCF8C24B49042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369872   (900433) от 25.03.2020
 
 Pretenders - Hate for Sale (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -638,60 +692,6 @@ Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991973   (902038) от 01.03.2016
-
-Pink Floyd - Delicate Sound Of Thunder (1988) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pink Floyd - One of These Days (6:16)
-02. Time (5:16)
-03. Wish You Were Here (4:49)
-04. Us and Them (7:22)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892407FD3EDCEA8BA6BC1853E1F4F58EDDAD3F05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369472   (902108) от 24.03.2020
-
-Killswitch Engage - Killswitch Engage (2000) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temple From The Within (3:46)
-02. Vide Infra (3:34)
-03. Irreversal (4:17)
-04. Rusted Embrace (4:25)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B735395241BE305D072782A8FDCB895FB6635E3E
 ```
 
 

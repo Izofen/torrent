@@ -1,3 +1,36 @@
+###  Публикация: 318389   (772582) от 06.04.2011
+
+VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tim Berg - Seek Bromance (Avicii's Vocal Extended Mix) [08:10]
+02. Armin Van Buuren Feat. Christian Burns - This Light Between Us [05:09]
+03. Tony Igy - Astronomia (Original Mix) [05:58]
+04. Far East Movement Ft. The Cataracs & Dev - Like A G6 (Chew Fu Remix) [04:37]
+05. Avicii - Malo [07:14]
+06. Laurent Wery feat. Swiftkid - Hey Hey Hey [05:29]
+07. Black Eyed Peas - The Time [05:09]
+08. Nero feat. Alana - Me & You [04:31]
+09. DJ Feel, Matisse & Sadko - A Day To Remember [04:14]
+10. David Guetta & Snoop Dogg - Wet [05:42](   Читать дальше...   )Жанр: House, Electro, Trance, DanceПродолжительность: 02:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7658C8E7F8010790CAEAF7A586A30D778669CDE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 318519   (772590) от 06.04.2011
 
 VA - CLUBная Жара vol.6 (2011) [MP3|256-320 kbps]<Club, Dance>
@@ -673,33 +706,6 @@ Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EC812E0E420486D90BB07CFBE277D852731D3A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278010   (773956) от 23.01.2019
-
-VA - Дискотека 2019 Dance Club Vol. 187 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka 2019!):
-01. Mr. DJ Monj, A-Mase feat. Da Buzz - Without Breaking (Extended Version) (5:42)
-02. Adip Kiyoi & Christina Novelli - Carousel (Extended Club Mix) (6:01)
-03. Pete Bellis & Tommy - Looking For A New Home (Original Mix) (4:27)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 24:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89571573710719430A370BDF5AE3DDC6404C3FFA
 ```
 
 

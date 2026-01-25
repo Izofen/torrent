@@ -1,3 +1,57 @@
+###  Публикация: 1444915   (1034082) от 03.02.2021
+
+VA - Soft Rock Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreigner - Waiting for a Girl Like You
+02. Rod Stewart - Tonight's the Night (Gonna Be Alright)
+03. Orleans - Dance with Me
+04. Todd Rundgren - Hello It's Me (Single Version)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658D88963DE274AC7C706CCCD1CD2E286A2B0EEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618201   (1034128) от 11.03.2023
+
+кис-кис - ламповый альбом (acoustic) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. трахаюсь (acoustic) [00:02:44]
+02. мальчик (acoustic) [00:02:25]
+03. лбтд (acoustic) [00:02:15]
+04. качели (acoustic) [00:02:16](   Читать дальше...   )Жанр: RockПродолжительность: 00:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C587E30A6E0A703DF670B15D75C61B93E2CE31C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618468   (1034165) от 11.03.2023
 
 Nanowar of Steel - Dislike to False Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal>
@@ -639,60 +693,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7479825D4EADD0AA91BB08C8A794BED30C984C38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617927   (1034567) от 09.03.2023
-
-Milking the Goatmachine - From Slum to Slam - The Udder Story (2019) [APE|Lossless|image + .cue] <Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Now We Are Old School
-2.	Milking Me Softly
-3.	Like an Everflowing Cream
-4.	Wolverized(   Читать дальше...   )Жанр: Death Metal, GrindcoreПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFCD378D397D25D220BD2089E4B32D0071FCB80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618010   (1034568) от 09.03.2023
-
-Долгая История - Отголоски Прошлого (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На Взлёт!
-02. Точка Невозврата
-03. Удар Током
-04. Ночь Коротка(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE1C0C7EFCF427039A77231FE195DD7ED83927F
 ```
 
 

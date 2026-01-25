@@ -1,3 +1,84 @@
+###  Публикация: 1213929   (766593) от 19.03.2018
+
+Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Things (06:28)
+ 02. Negative Space (07:49)
+ 03. Abstract Landscape (07:46)
+ 04. Negative Space (Hydergine Remix) (06:19)Тип издания: WEBЖанр: Dub Techno/TechnoПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90462CCCDE63AA197DB68BDC125C277A0CFE6083
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213901   (766594) от 19.03.2018
+
+VA - Levitated Radio Top 25: Winter 2018 (Selected by Manuel Rocca) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Manuel Rocca  -  The Soul Healer (Original Mix)  6:50
+02.  Blue5even  -  Forever (Original Mix)  5:13
+03.  Melbourne  -  Lost In Love (Horizon Dub Mix)  6:37
+04.  Mehdi Belkadi  -  Beautiful Goodbye (Derek Palmer Remix)  7:22(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3AEEB4FA6A186ACE4ED7FD80B31CDF98C62C6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213912   (766597) от 19.03.2018
+
+VA - Silent Shore Selections Top 20: Winter (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Manuel Rocca  -  Rising From Ashes (4 Seas Remix)  7:46
+02.  Nolans Stenemberg  -  The Code (Original Mix)  6:44
+03.  Amos & Riot Night  -  Interstate Four (Extended Mix)  6:24
+04.  Kiyoi & Eky feat. Berdi  -  Reasons Why (Original Mix)  6:38(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D82FDF044C04DFE5227B394404B49ECA486DBB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278429   (766798) от 28.01.2019
 
 Mira Calix - Discography 21 Releases (1996-2019) Warp Records [FLAC|Lossless|tracks+.cue, tracks] <Abstract, IDM, Experimental, Modern Classical, Ambient>
@@ -614,87 +695,6 @@ Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6354255CFC0F443142BC6F2FE6AB17765815B671
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278994   (767840) от 27.01.2019
-
-Stars As Eyes - Loud New Shit (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, Abstract, IDM>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Life (3:15)
- 02. Rotten (2:48)
- 03. Guardian Of Cemeteries (3:38)
- 04. Song With The Word Disco In The Title (3:25)(   Читать дальше...   )Жанр: Leftfield, Abstract, IDMПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B1E6F139855E4629EE10CF74A661F64A3F4242
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278826   (767844) от 27.01.2019
-
-Bruno Sanfilippo - Pianette (2019) ad21 [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pianette (03:28)
- 02. Doll (05:14)
- 03. La Mariposa (02:48)
- 04. Marionette (03:18)(   Читать дальше...   )Жанр: Modern Classical, ContemporaryПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033DF0724911EEA9FBDEA1A1C984C8F5D47E0F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278853   (767857) от 27.01.2019
-
-VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drax - Middle Earth (05:20)
- 02. Connective Zone - Amecia (05:09)
- 03. Terrace - Intervalid (06:10)
- 04. Tura - Letter (05:19)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73313D3DF786E9F8BB1C4777CD74CAA61C589219
 ```
 
 
